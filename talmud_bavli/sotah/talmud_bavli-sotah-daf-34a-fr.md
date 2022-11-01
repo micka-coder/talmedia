@@ -33,4 +33,4 @@ Comme <b>ils étaient encore dans le Jourdain, Josué leur dit : "Prenez au mili
 § <b>Rabbi Ami et Rabbi Yitzḥak Nappaḥa ne sont pas d'accord en ce qui concerne</b> la dispute entre les <i>tanna'im</i> sur la hauteur de l'eau lorsque le peuple juif a traversé le Jourdain. <b>L'un dit : Selon la déclaration de Rabbi Yehuda,</b> que l'eau se tenait à la hauteur de douze <i>mil</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

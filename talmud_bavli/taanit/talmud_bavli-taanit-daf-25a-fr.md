@@ -60,4 +60,4 @@ La Gemara relate : <b>Rabbi Ḥiyya bar Lulyani a entendu ces nuages se dire les
 Puisque la Guemara a mentionné Rabbi Ḥiyya bar Lulyani, elle cite une déclaration en son nom. <b>Rabbi Ḥiyya bar Lulyani a enseigné : Quel</b> est le sens de ce <b>qui est écrit : "Le juste fleurira comme le palmier, il poussera comme un cèdre au Liban"</b> (Psaumes 92.13) ? <b>Si l'on dit "palmier", pourquoi dit-on "cèdre", et si l'on dit "cèdre", pourquoi dit-on "palmier" ? </b> Qu'ajoute-t-on par cette double comparaison ? Il explique : <b>S'il était indiqué "palmier" et s'il n'était pas indiqué "cèdre", je dirais</b> que <b>tout comme</b> dans le cas d'un <b>palmier,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

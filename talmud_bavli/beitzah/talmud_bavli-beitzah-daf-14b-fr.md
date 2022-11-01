@@ -48,4 +48,4 @@ La mishna enseigne que <b>Rabbi Shimon permet</b> l'envoi <b>de céréales. Il e
 <b>La mishna fait plutôt référence <b>à un rideau [<i>vilon</i>]</b> de diverses sortes, qui peut être suspendu, car il ne s'agit pas d'un vêtement. La Guemara conteste cette affirmation : <b>Mais Ulla n'a-t-il pas dit : Pour quelle</b> raison <b>les Sages ont-ils <b>savoir</b> que <b>un rideau est rituellement impur,</b> c'est-à-dire qu'il peut contracter l'impureté d'un récipient malgré le fait qu'il ne soit pas directement utilisé par des gens ? <b>Parce que le préposé se réchauffe avec.</b> Comme les préposés utilisent les rideaux comme des couvertures de fortune lorsqu'ils ont froid, un rideau ne peut pas être fait d'un mélange de laine et de lin.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

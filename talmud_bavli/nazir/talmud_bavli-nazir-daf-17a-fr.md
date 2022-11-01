@@ -30,4 +30,4 @@ La Guemara suggère en outre : <b>Venez</b> et <b>entendez</b> une preuve de ce 
 La Gemara clarifie : <b>Quelles sont les circonstances</b> dans lesquelles cette question est pertinente ? <b>Si nous disons qu'ils lui ont dit</b> en l'avertissant : <b>Ne fais pas le vœu de naziréat</b> dans le cimetière, et qu'il a ignoré leur avertissement et a fait le vœu de naziréat, <b>pourquoi ai-je</b> besoin qu'il <b>retarde</b> sa sortie ? <b>Quelle est la raison</b> pour laquelle celui qui était déjà <b>un nazirite</b> lorsqu'il est entré dans un cimetière <b>n'a pas besoin de retarder</b> sa sortie pour être passible de recevoir des coups de fouet ? <b>Parce qu'on l'avertit</b> de ne pas entrer, et s'il entre, il a transgressé un interdit et est fouetté. <b>Ici aussi, on l'avertit</b> de ne pas faire le vœu, et il devrait donc être passible de recevoir des coups de fouet s'il fait le vœu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara répond : <b>Nous constatons que le Tabernacle est appelé Temple, et 
 La Guemara remet en cause sa conclusion précédente : <b>On comprend que le Temple est appelé Tabernacle, comme il est écrit : "Et Je placerai Mon Tabernacle au milieu de vous"</b> (Lévitique 26:11), et la référence est au Sanctuaire permanent, c'est-à-dire au Temple, car le verset fait référence à ce qui transpirera après l'installation du peuple juif sur sa terre. <b>Cependant,</b> le fait que <b>le Tabernacle soit appelé Temple, d'où le tirons-nous</b> ? La Gemara répond : <b>Si vous dites</b> qu'il est dérivé <b>de ce qui est écrit : "Et les Kéhatites, porteurs du Temple, s'avancèrent, afin de dresser le Tabernacle avant leur arrivée"</b> (Nombres 10, 21),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara relate : <b>Lorsque Ravin est monté</b> de Babylone en Eretz Yisraë
 <b>Ravina dit</b> qu'il existe une alternative de réconciliation des deux <i>baraitot</i> : à la fois <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> font référence <b>aux offrandes de moindre sainteté, et</b> ce n'est <b>pas difficile :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

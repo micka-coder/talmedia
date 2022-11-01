@@ -39,4 +39,4 @@ La mishna a déclaré que <b>les pains de mie</b> proviendraient de <b>vingt-qua
 <b>Rabbi Elazar dit : Quelle est</b> la signification de : <b>Parce que</b> de <b>l'épargne</b> ? Rabbi Elazar dit : La Torah a épargné l'argent du peuple juif.</b> En raison de la grande quantité de céréales nécessaires pour les pains de mie chaque semaine, l'achat de farine fine tamisée représenterait une dépense importante. La Gemara explique : <b>Où se trouve l'allusion</b> à ce principe ? Elle se trouve dans un verset, <b>car il est écrit</b> que lorsque le peuple juif avait soif dans le désert au lendemain de la mort de Miriam, Dieu a donné des instructions à Moïse : "Et parle au rocher sous leurs yeux, pour qu'il fasse jaillir son eau ; et tu leur feras jaillir de l'eau du rocher ; <b>ainsi tu donneras à boire à l'assemblée et à son bétail"</b> (Nombres 20:8). De toute évidence, le miracle de l'extraction de l'eau du rocher a été accompli même dans le but de fournir de l'eau au bétail.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

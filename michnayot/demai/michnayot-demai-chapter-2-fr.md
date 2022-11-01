@@ -14,5 +14,5 @@ Les boulangers, les sages ne les ont pas obligés à séparer [des produits dém
 ### michna 5
 Rabbi Meir dit : Si un produit qui est habituellement mesuré [pour la vente] en grande quantité a été mesuré en petite quantité, la petite quantité est traitée comme s'il s'agissait d'une grande quantité. Si le [produit] habituellement mesuré pour la vente en une petite [quantité] a été mesuré en une grande [quantité], la grande [quantité] est traitée comme s'il s'agissait d'une petite [quantité]. Qu'est-ce qui est considéré comme une grande quantité ? Pour les [produits] secs, trois kavs, et pour les liquides, la valeur d'un dinar. Rabbi Yose dit : les paniers de figues, les paniers de raisins et les boisseaux de légumes, lorsqu'il les vend en morceaux, sont exemptés [des règles du demai].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

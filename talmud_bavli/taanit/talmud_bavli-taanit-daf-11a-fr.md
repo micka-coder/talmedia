@@ -54,4 +54,4 @@ La Gemara demande : <b>Et selon</b> l'avis de <b>Shmuel,</b> le nazirite <b>est<
 La Guemara demande : <b>Et Rabbi Elazar</b> a-t-il réellement <b>dit cela,</b> que le jeûne est un acte vertueux ? <b>Mais Rabbi Elazar n'a-t-il pas dit : Une personne doit toujours se considérer</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

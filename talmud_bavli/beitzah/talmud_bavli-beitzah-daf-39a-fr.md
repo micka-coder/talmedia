@@ -48,4 +48,4 @@ La Guemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord 
 <b>Rava a soulevé un défi à Rav Naḥman</b> à partir d'une mishna (<i>Nedarim</i> 47b) : Celui qui dit à un autre : <b>Je suis par la présente</b> interdit <b>à toi</b> par la force de <b><i>ḥerem</i>,</b> une sorte de vœu d'interdiction, car les objets déclarés comme <i>ḥerem</i> sont généralement consacrés au Temple, <b>celui qui est interdit par le vœu, </b> le destinataire, <b>est interdit</b> de tirer un bénéfice de la personne qui a fait le vœu ou de ses biens, puisque le but du vœu était d'interdire au destinataire de tirer un quelconque bénéfice de celui qui a fait le vœu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

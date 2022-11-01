@@ -39,4 +39,4 @@ Benayahou <b>descendit</b> de l'arbre, <b>vint,</b> et <b>jeta la chaîne autour
 <b>Quand</b> Benayahou <b>prenait</b> Ashmedai <b>et venait</b> à Jérusalem <b>il atteignit un palmier</b> et Ashmedai <b>se frotta contre lui</b> et le <b>frappa. Il atteignit une maison</b> et <b>l'abattit. Il atteignit une petite cabane [<i>kuva</i>] appartenant à une certaine veuve.</b> Cette veuve <b>émergea,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

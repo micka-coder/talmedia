@@ -17,5 +17,5 @@ Les [objets suivants servent à] réduire [la surface d'un carré] d'un tefah [p
 ### michna 6
 Les éléments suivants ne réduisent pas [la surface de la fenêtre] : Un os ne réduit pas [la surface] pour [d'autres] os ; Ni la chair [d'un cadavre] pour [d'autres] chairs ; Ni une [portion] de cadavre de la taille d'une olive ; Ni une portion de charogne de la taille d'une olive ; Ni une portion de reptile de la taille d'une lentille ; Ni une portion de nourriture de la taille d'un œuf ; Ni des produits poussant dans les fenêtres ; Ni une toile d'araignée sans substance ; Ni la carcasse d'un oiseau pur destiné à être mangé ; Ni la carcasse d'un oiseau impur destiné à être mangé et rendu susceptible d'être impur ; Ni les fils de chaîne et de trame qui ont été négligés ; Ni une brique d'un bet haperas, ce sont les paroles de Rabbi Meir. Mais les sages disent : la brique peut réduire, car la poussière [du bet haperas] est propre. C'est la règle générale : ce qui est propre réduit [la surface], et ce qui est impur ne la réduit pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

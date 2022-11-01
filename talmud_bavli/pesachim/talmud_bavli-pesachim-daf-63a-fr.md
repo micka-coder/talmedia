@@ -27,4 +27,4 @@ La Guemara exprime sa surprise : <b>Mais Rabbi Meir soutient-il que nous exigeon
 <strong>GEMARA:</strong> <b>Rabbi Shimon ben Lakish a dit : On n'est jamais responsable</b> d'avoir enfreint le commandement : "Tu n'offriras pas le sang de Mon sacrifice avec du pain levé" <b>sauf si le pain levé appartient à celui qui égorge</b> l'agneau pascal, <b>ou à celui qui asperge</b> son sang,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

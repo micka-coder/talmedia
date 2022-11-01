@@ -62,4 +62,4 @@
 <b>Par vos propos : "Tout méchant, etc. ou Où est le Dieu du jugement ?"</b> Puisque vous voyez que la voie des méchants prospère, et que les justes sont affligés et trébuchent, vous vous dites : "L'une de ces deux voies est vraie : ou tout méchant est bon à Ses yeux, ou [sinon] il n'y a pas de jugement ou de juge pour le requérir". C'est ainsi qu'il faut interpréter le langage du verset : Tout malfaiteur est bon à Ses yeux ; c'est pourquoi Il le fait prospérer. Ou bien, s'il n'en est pas ainsi, où est le Dieu du jugement, car Il ne les rétribue pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

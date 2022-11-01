@@ -103,4 +103,4 @@
 <b>Désigné par Dieu</b> Heb. אִמְרוֹ. Ce qui a été dit à son sujet de la part de l'Omniprésent. Le mot אִמְרוֹ est au masculin, de la forme de (Ps. 5:2), "Prête l'oreille à mes paroles (אַמָרַי)." אִמְרָתוֹ apparaît (ibid. 147:15) au genre féminin, de la forme de (ibid. 12:7) "paroles pures (אַמָרוֹת)".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

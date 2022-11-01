@@ -69,4 +69,4 @@ Avant d'expliquer l'objection, la Guemara analyse d'abord la <i>baraita</i>. <b>
 <b>Rav Ashi a dit</b> encore une autre résolution de la <i>baraita</i> : Tant <b>cette</b> première clause <b>que cette</b> dernière clause sont conformes à l'avis de <b>Rabban Shimon ben Gamliel, et il</b> n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

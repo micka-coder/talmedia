@@ -51,4 +51,4 @@ La Guemara note : <b>Et nous avons dérivé l'impureté de troisième</b> degré
 La Guemara développe. Le fait que les objets consacrés peuvent assumer le statut d'impureté au troisième degré est dérivé <b>de la Torah, car il est écrit : "Et la chair qui touche</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

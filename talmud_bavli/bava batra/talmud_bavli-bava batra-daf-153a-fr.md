@@ -36,4 +36,4 @@ Rava <b>dit à Rav Pappa, son scribe, fils de Rav Ḥanan : Va, rédige pour ell
 <strong>GEMARA :</strong> Il y avait un acte relatif à <b>un certain don</b> d'une personne sur son lit de mort, <b>dans lequel il était écrit</b> que le don a été octroyé <b>alors que le donateur <b>était malade et couché dans son lit, mais</b> la suite de la formule standard : <b>Et de sa maladie il s'en alla vers sa</b> <b>maison éternelle, n'y était pas inscrite.</b> Les héritiers du donateur ont affirmé que, bien qu'il ait été malade lorsqu'il a rédigé l'acte, il s'est rétabli par la suite, et que son don n'est pas valide.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

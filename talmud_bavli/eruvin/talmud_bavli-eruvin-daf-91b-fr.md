@@ -39,4 +39,4 @@ La Gemara soulève une difficulté. Si c'est le cas, <b>cela est</b> identique �
 <b>Ravina dit à Rav Ashi :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ En ce qui concerne les Pleiades, la Gemara demande : <b>Qu'est-ce que les Pleiad
 En ce qui concerne le verset : "Qui fait Ursa Major, Orion et les Pleiades" (Job 9:9), la Gemara demande : <b>Qu'est-ce que Ursa Major [<i>Ash</i>] ? Rav Yehuda repond :</b> C'est l'etoile appelee <b><i>Yota</i>.</b> Ce nom n'etait pas familier non plus, aussi la Guemara demande-t-elle : <b>Qu'est-ce que <i>Yota</i> ? </b> Il y a desaccord ; <b>certains disent</b> que <i>Yota</i> est le groupe d'etoiles composant la <b>queue du Belier, tandis que d'autres disent</b> que <i>Yota</i> appartient a <b>la tete du Taureau.</b> La Guemara conclut : <b>Et il va de soi conformement a l'opinion</b> de celui qui a dit</b> que <i>Yota</i> est le groupe d'etoiles composant la <b>queue du Belier, comme il est ecrit : "Ou peux-tu guider Ursa</b> Major <b>avec ses fils ?"</b> (Job 38:32) ; <b>apparemment, il etait incomplet et</b> la queue <b>apparait</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

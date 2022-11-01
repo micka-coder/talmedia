@@ -30,4 +30,4 @@ La Guemara explique l'objection : <b>Accordé, selon Rav Huna, il énonce</b> sa
 <b>Rav Huna, fils de Rav Natan, a dit : En fait,</b> la décision de Shmuel est <b>conforme</b> à l'opinion de <b>Rabbi Yosei,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -67,7 +67,7 @@
 <b>Dix-neuf hommes et Asoel.</b> Mais Asoel n'est-il pas inclus dans [le groupe appelé] "les serviteurs de David", alors pourquoi est-il [distingué] ? [La raison est] qu'il les valait tous [ensemble] et de même [un cas similaire], (Yehoshua 2,1), "Va voir [et épier] le pays et Yericho"<sup>9</sup><i class="footnote">Yericho était aussi fort que tout le pays réuni (voir Rachi là). </i> et de même [autre cas similaire] "Le roi Shlomo aimait de nombreuses femmes étrangères et la fille de Pharaon"<sup>10</sup><i class="footnote">Shlomo chérissait la fille de Pharaon autant que toutes les autres réunies. (Voir Rachi ibid).</i> (Rois I, 11, 1 ).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -136,4 +136,4 @@
 <b>Dix-neuf hommes et Asoel.</b> Mais Asoel n'est-il pas inclus dans [le groupe appelé] "les serviteurs de David", alors pourquoi est-il [distingué] ? [La raison est] qu'il les valait tous [ensemble] et de même [un cas similaire], (Yehoshua 2,1), "Va voir [et épier] le pays et Yericho"<sup>9</sup><i class="footnote">Yericho était aussi fort que tout le pays réuni (voir Rachi là). </i> et de même [autre cas similaire] "Le roi Shlomo aimait de nombreuses femmes étrangères et la fille de Pharaon"<sup>10</sup><i class="footnote">Shlomo chérissait la fille de Pharaon autant que toutes les autres réunies. (Voir Rachi ibid).</i> (Rois I, 11, 1 ).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

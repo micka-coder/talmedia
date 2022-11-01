@@ -62,5 +62,5 @@
 ### passuk 26
 <b>Quiconque ne soutient pas.</b> Ici, il englobe toute la Torah dans son intégralité, ce qu'ils ont accepté par une imprécation et un serment. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

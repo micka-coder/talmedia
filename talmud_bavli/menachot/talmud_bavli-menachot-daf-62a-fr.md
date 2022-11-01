@@ -63,4 +63,4 @@ La Gemara développe : L'agitation des offrandes de paix communautaires est dér
 <b>Et Rabbi</b> Yehuda HaNasi <b>soutient : En déduire mais interpréter</b> la <i>halakha</i> selon <b>son</b> propre <b>lieu,</b> ce qui signifie que la <i>halakha</i> de base de l'analogie verbale est acceptée : <b>De même que les offrandes de paix individuelles nécessitent d'être agitées après l'abattage, de même les offrandes de paix communautaires nécessitent d'être agitées après l'abattage. Mais interprétez</b> le <i>halakha</i> selon <b>son</b> propre <b>lieu : C'est</b> seulement <b>là,</b> dans le cas des offrandes de paix individuelles, que l'on procède à l'ondulation <b>avec</b> le <b>sein et la cuisse</b> seuls. <b>Mais ici,</b> dans le cas des offrandes de paix communautaires, l'agitation se fait <b>comme ils sont,</b> c'est-à-dire que les animaux sont agités entiers, <b>comme ils étaient</b> lorsqu'ils étaient <b>vivants.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

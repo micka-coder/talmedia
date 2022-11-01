@@ -33,4 +33,4 @@ La Gemara demande : <b>Mais</b> puisque l'acquisition s'effectue par le serment 
 A propos des situations décrites dans la mishna, <b>Rabbi Yirmeya dit :</b> Si le locataire et l'emprunteur ont chacun fait un faux serment et sont tenus d'apporter des offrandes pour leurs faux serments, il y a <b>des moments où tous deux</b> sont tenus <b>d'apporter <b>un sacrifice pour le péché;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

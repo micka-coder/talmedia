@@ -33,4 +33,4 @@ La Guemara nuance la décision de Rava : <b>Et nous avons dit</b> que les porteu
 La Guemara nuance davantage la décision de Rava : <b>Et</b> lorsque les porteurs paient les cinq dinars, <b>ils en déduisent la</b> <b>valeur habituelle de</b> l'<b>effort</b> du commerçant pour vendre un tonneau <b>et le</b> <b>coût habituel de l'entaillage</b> d'un tonneau, car le commerçant a été épargné de ces coûts.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

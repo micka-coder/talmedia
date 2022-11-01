@@ -23,5 +23,5 @@ Un enfant que l'on a trouvé au bord d'un cimetière avec des lys à la main, et
 ### michna 8
 Un enfant a été trouvé à côté de la pâte avec un morceau de pâte dans sa main : Rabbi Meir dit que la pâte est pure ; Mais les sages disent qu'elle est impure, puisque c'est la nature d'un enfant de gifler la pâte. Une pâte qui porte des traces de cueillette de poules" et qu'il y a un liquide impur dans la même maison : si la distance entre le liquide et les pains était suffisante pour que les poules puissent se sécher la bouche sur le sol, la pâte est propre. Et dans le cas d'une vache ou d'un chien, s'il y avait une distance suffisante pour qu'il se lèche la langue. Et dans le cas de toutes les autres bêtes, s'il y avait une distance suffisante pour que leur langue sèche. Rabbi Eliezer ben Jacob considère que la pâte est propre dans le cas d'un chien intelligent, car il n'a pas l'habitude de quitter la nourriture pour aller chercher l'eau.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

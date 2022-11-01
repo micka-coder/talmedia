@@ -60,7 +60,7 @@ La Gemara explique : <b>Rav Ashi ne sait pas si</b> un objet perdu est rendu à 
 La Gemara relate que <b>Rabba bar bar Ḥana</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Nous sommes préoccupés</b> par la possibilité qu'il y ait <b>deux</b> villes nommées <b>Sheviri</b> et que cet acte de divorce puisse appartenir à quelqu'un d'autre qui vit dans l'autre Sheviri, et donc qu'il ne doit pas être rendu. <b>Et Rav Ḥisda dit à Rabba</b> à propos de cette question : <b>Sortez</b> et <b>examinez</b> cette <i>halakha</i>, <b>car le soir Rav Huna vous interrogera</b> à ce sujet. <b>Il sortit, l'examina</b>, <b>et découvrit</b> une source pertinente, <b>comme nous l'avons appris</b> dans une mishna (20a) : <b>On doit rendre à son propriétaire tout acte de justice,</b> c'est-à-dire un billet à ordre qui a été authentifié par le tribunal. Comme l'acte de divorce a été trouvé au tribunal, il entre dans cette catégorie et doit être restitué.
 
@@ -122,4 +122,4 @@ La Gemara explique : <b>Rav Ashi ne sait pas si</b> un objet perdu est rendu à 
 La Gemara relate que <b>Rabba bar bar Ḥana</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

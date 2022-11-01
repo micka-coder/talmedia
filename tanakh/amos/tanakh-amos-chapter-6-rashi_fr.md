@@ -63,4 +63,4 @@
 <b>jusqu'au ruisseau de la Araba</b> - le ruisseau d'Égypte, qui est dans le coin sud-ouest.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

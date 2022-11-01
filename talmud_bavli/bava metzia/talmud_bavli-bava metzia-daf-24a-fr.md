@@ -51,7 +51,7 @@ La Guemara rejette cette explication : <b>Par contre, en fait</b> la mishna <b>e
 La Gemara répond : On peut expliquer <b>comme le dit Rav Pappa</b> ailleurs, qu'il s'agit de faire référence <b>à une décharge d'ordures qui n'est pas conçue pour être déblayée, et</b> le propriétaire du terrain a <b>réfléchi</b> et a décidé <b>de la déblayer.</b> Si l'on trouve des récipients dissimulés, il faut proclamer sa trouvaille, car sinon les récipients seront déblayés avec le reste de la décharge. <b>Ici aussi,</b> la mishna fait référence <b>à une décharge qui n'est pas conçue pour être déblayée, et</b> le propriétaire du terrain a <b>réfléchi</b> et a décidé <b>de la déblayer.</b> Si l'on trouve des objets cachés, sa conduite est déterminée par l'identité de la majorité des habitants de la ville. S'ils sont juifs, il doit proclamer sa découverte, et dans le cas contraire, il n'a pas besoin de la proclamer. Aucune preuve ne peut être citée pour résoudre ce dilemme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Et</b> il peut mentir <b>en ce qui concerne un hôte [<i>ushpiza</i>],</b> comme on peut dire qu'il n'a pas été bien reçu par un certain hôte pour éviter que tout le monde profite de l'hospitalité de l'hôte. <b>Quelle est la</b> <b>différence</b> pratique qui ressort de cette déclaration en ce qui concerne les questions dans lesquelles les savants de la Torah s'écartent de la vérité ? <b>Mar Zutra dit :</b> La différence pratique concerne <b>la restitution d'un objet perdu sur</b> la base d'une <b>reconnaissance visuelle. Si nous savons de lui qu'il altère</b> ses déclarations <b>uniquement en ce qui concerne ces trois</b> sujets, <b>on lui rend</b> l'objet perdu, mais s'il altère</b> ses déclarations <b>en ce qui concerne d'autres sujets, on ne lui rend pas</b> l'objet perdu.</b>
 
@@ -104,4 +104,4 @@ La Guemara rejette cette explication : <b>Par contre, en fait</b> la mishna <b>e
 La Gemara répond : On peut expliquer <b>comme le dit Rav Pappa</b> ailleurs, qu'il s'agit de faire référence <b>à une décharge d'ordures qui n'est pas conçue pour être déblayée, et</b> le propriétaire du terrain a <b>réfléchi</b> et a décidé <b>de la déblayer.</b> Si l'on trouve des récipients dissimulés, il faut proclamer sa trouvaille, car sinon les récipients seront déblayés avec le reste de la décharge. <b>Ici aussi,</b> la mishna fait référence <b>à une décharge qui n'est pas conçue pour être déblayée, et</b> le propriétaire du terrain a <b>réfléchi</b> et a décidé <b>de la déblayer.</b> Si l'on trouve des objets cachés, sa conduite est déterminée par l'identité de la majorité des habitants de la ville. S'ils sont juifs, il doit proclamer sa découverte, et dans le cas contraire, il n'a pas besoin de la proclamer. Aucune preuve ne peut être citée pour résoudre ce dilemme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

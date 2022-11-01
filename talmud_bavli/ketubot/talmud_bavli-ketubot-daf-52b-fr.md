@@ -54,4 +54,4 @@ La Gemara pose encore une autre question : <b>Est-il possible de le percevoir</b
 La Gemara relate : <b>Rav Pappa,</b> ayant <b>arrangé le mariage de son fils</b> dans <b>la famille</b> de <b>Abba de Sura, alla</b> superviser <b>la rédaction</b> du <b>contrat de mariage de la mariée. Yehouda bar Mareimar entendit</b> que Rav Pappa allait venir, et <b>sortait</b> pour <b>se présenter devant lui,</b> en l'honneur de son arrivée. <b>Quand ils arrivèrent à l'entrée</b> de la maison d'Abba de Sura, Yehouda bar Mareimar <b>a pris congé de lui,</b> car il ne souhaitait pas entrer. Rav Pappa <b>lui dit : Que le Maître entre</b> à l'intérieur <b>avec moi.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

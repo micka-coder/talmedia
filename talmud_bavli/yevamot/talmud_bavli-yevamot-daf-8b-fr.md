@@ -48,4 +48,4 @@ La Gemara demande : <b>Et</b> d'où <b>Rabbi</b> Yehuda HaNasi tire-t-il ces <i>
 La Guemara demande : <b>Et que fait Rabbi</b> Yehuda HaNasi <b>avec cette expression superflue</b>, <b>"avec elle" ? </b> La Guemara répond : <b>Il en a besoin pour ce qui est enseigné</b> dans une <i>baraita</i> à propos d'une autre question. Les Sages ont dit : <b>Le tribunal est obligé</b> d'apporter un taureau comme offrande pour un péché communautaire commis involontairement en raison d'une <i>halakha</i> erronée qu'ils ont enseignée <b>uniquement pour une question dont la transgression intentionnelle</b> encourt un <b><i>karet</i> et dont la violation involontaire</b> nécessite le sacrifice d'une <b>offrande pour le péché. Et de même, le Grand Prêtre oint</b>, qui apporte également un taureau pour un péché commis involontairement, n'est obligé de le faire que si son erreur concernait une affaire dont la transgression intentionnelle encourt <i>karet</i> et dont la transgression involontaire nécessite le sacrifice d'un sacrifice pour le péché.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

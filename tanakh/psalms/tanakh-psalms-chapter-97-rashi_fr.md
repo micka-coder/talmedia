@@ -33,4 +33,4 @@
 <b>Une lumière est semée pour les justes</b> Une véritable semence est préparée pour croître pour eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -53,4 +53,4 @@
 <b>Je sais que tu régneras sûrement.</b> Car je vois que le Saint, Béni soit-Il, te sauve de ma main. Le Midrash Aggadah précise, que Chmouel lui a donné ce signe, que celui qui déchire sa robe régnera après lui.<sup>12</sup><i class="footnote">Voir ci-dessus 15:27-28.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

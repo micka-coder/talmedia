@@ -54,4 +54,4 @@ Si <i>Maveh</i> fait référence à l'Homme, est-il correct d'affirmer, comme le
 La Gemara répond : <b>Et selon votre raisonnement,</b> que la formulation : Et leur sauvegarde t'incombe, indique que <i>Maveh</i> n'est pas l'Homme, il y a une difficulté avec <b>ce que</b> le Sage <b>Karna a enseigné</b> dans une <i>baraita</i> : Il y a <b>quatre catégories primaires de dommages, et l'Homme est l'une d'entre elles.</b> Cette <i>baraita</i> continue et déclare qu'un dénominateur commun est : Leur sauvegarde vous incombe. A l'égard de ce <i>baraita</i>, la même question se pose : En ce qui concerne l'<b>Homme,</b> la responsabilité de la <b>sauvegarde de son corps lui incombe <b>à lui,</b> pas à quelqu'un d'autre, et la formulation de Karna est imprécise. <b>Au contraire,</b> tout comme <b>Rabbi Abbahou a dit au <i>tanna</i>,</b> qui récitait la <i>baraita</i> dans la salle d'étude : <b>Enseigner</b> les <i>baraita</i> : Et en ce qui concerne l'<b>Homme,</b> la responsabilité de <b>sauvegarder son corps lui incombe <b>à lui;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

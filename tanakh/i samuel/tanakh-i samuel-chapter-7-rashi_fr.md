@@ -33,4 +33,4 @@
 <b>Et Shein.</b> Le sommet du rocher.</sup></sup><i class="footnote">Or <span>שֵׁן</span> peut désigner la forme du rocher, c'est-à-dire qu'il avait la forme d'une dent ; et il peut s'agir du même rocher auquel il est fait référence ci-dessous dans 14:5.-Da'at Sofrim.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

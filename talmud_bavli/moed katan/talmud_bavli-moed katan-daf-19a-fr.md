@@ -33,4 +33,4 @@ Ceci est <b>parce que</b> les Sages ont <b>dit</b> un principe à propos de cett
 La Guemara demande : <b>Quelle est la raison pour laquelle les jours</b> eux-mêmes <b>n'ont pas été annulés ?</b> La Gemara explique : Il en est ainsi <b>que si</b> on a observé huit jours de deuil avant la Fête, de sorte que l'interdiction de se couper les cheveux a été annulée avant la Fête, mais que pour une raison quelconque <b>il ne s'est pas coupé les cheveux la veille de la Fête, il lui est interdit de se couper les cheveux après la Fête</b> jusqu'à la fin de la période de deuil de trente jours. En d'autres termes, la période de deuil n'a pas été entièrement annulée, et puisqu'il n'a pas profité de la permission de se couper les cheveux avant la fête, il doit observer les interdictions qui s'appliquent pendant les trente jours de deuil après la fête.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

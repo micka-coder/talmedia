@@ -54,4 +54,4 @@ En se basant sur une analogie avec les portions grasses des offrandes, on aurait
 La Guemara remet en question l'hypothèse précédente en ce qui concerne l'avis de Rabbi Akiva sur la question : <b>Mais Rabbi Akiva a-t-il dit que cracher ne disqualifie pas</b> le <i>yevama</i> d'un mariage lévirat ultérieur avec l'un des autres frères ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Si elle a enlevé</b> la chaussure <b>mais n'a pas</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

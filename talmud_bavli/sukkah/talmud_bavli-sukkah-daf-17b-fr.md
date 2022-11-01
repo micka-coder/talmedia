@@ -42,4 +42,4 @@ La Guemara répond : <b>En fait,</b> il s'agit d'un cas <b>où chacune des planc
 <b>Venez</b> et <b>entendez</b> la preuve d'un autre <i>baraita</i> : Si <b>on couvre</b> la totalité de la <i>sukka</i> <b>avec des poutres de cèdre qui ont quatre</b> coudées dans <b>leur</b> largeur, <b>tout le monde est d'accord</b> que la <i>sukka</i> est <b>inadaptée. </b> Si <b>ils n'ont pas quatre</b> millimètres dans <b>leur</b> largeur, <b>Rabbi Meir juge</b> la <i>sukka</i> <b>inadaptée et Rabbi Yehuda la juge apte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

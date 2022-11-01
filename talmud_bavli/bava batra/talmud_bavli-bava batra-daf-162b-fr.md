@@ -21,4 +21,4 @@ La Guemara tire une autre conclusion de cette <i>baraïta</i> : Cela <b>appuie</
 § <b>Un dilemme a été soulevé devant</b> les Sages : En ce qui concerne l'écart de <b>deux</b> <b>lignes vierges</b> entre le texte et les signatures, <b>qui</b> les Sages ont <b>dit</b> invalider le document,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

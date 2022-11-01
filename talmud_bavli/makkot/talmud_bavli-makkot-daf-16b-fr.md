@@ -48,4 +48,4 @@ La <i>baraita</i> continue : On en déduit que <b>le verset dit : "Tu ne mangera
 <b>Rav Yossef dit : </b> Cette question fait <b>l'objet</b> d'une dispute entre <b><i>tanna'im</i>. Rabbi Eliezer dit : Il n'est pas nécessaire</b> de séparer par le biais de <b>l'appel du nom sur la dîme du pauvre des produits dont la dîme est douteuse [<i>demai</i>].</b> En ce qui concerne les produits achetés auprès d'un <i>am ha'aretz</i>, c'est-à-dire quelqu'un qui n'est pas fiable en matière de dîme, il existe une ordonnance rabbinique exigeant que l'on sépare la première et la deuxième dîme et le <i>teruma</i> de la dîme de celle-ci. Néanmoins, on n'est pas tenu de séparer la dîme du pauvre de ce produit, car la dîme du pauvre est une dette monétaire due au pauvre, et dans un cas d'incertitude, le principe est : La charge de la preuve repose sur le demandeur. Rabbi Eliezer soutient que le fait de ne pas séparer la dîme du pauvre n'accorde pas au produit le statut de produit sans dîme. <b>Et les rabbins disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

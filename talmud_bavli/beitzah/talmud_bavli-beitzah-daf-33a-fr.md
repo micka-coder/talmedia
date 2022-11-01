@@ -30,4 +30,4 @@ La mishna énonce une <i>halakha</i> différente : <b>On ne peut produire du feu
 <strong>GEMARA :</strong> <b>Rav Yehuda a dit :</b> <b>Crédité : William Davidson
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

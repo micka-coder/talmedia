@@ -60,4 +60,4 @@ La Gemara demande : <b>Mais</b> en ce qui concerne l'encens d'un <b>individu, es
 On <b>pourrait</b> avoir pensé que seul <b>un individu ne peut pas apporter</b> un don d'encens sur l'autel intérieur, <b>comme</b> un individu <b>n'apporte pas son offrande obligatoire</b> <b>similaire à ce</b> don d'encens, c'est-à-dire que puisqu'un individu n'est jamais obligé de sacrifier de l'encens, il ne peut pas non plus sacrifier volontairement de l'encens ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

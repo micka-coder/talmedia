@@ -60,4 +60,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles l'acte
 La Gemara demande : <b>Nous avons appris</b> dans la mishna à propos de la déclaration de Rabbi Elazar : <b>Il n'est pas au pouvoir du premier</b> mari <b>d'éliminer le droit du second</b> mari. <b>Accordé, selon</b> l'avis de <b>Rav Adda bar Ahava, cette</b> explication <b>est</b> cohérente avec <b>ce qui est enseigné :</b> Le <b>second</b> mari, puisque la mishna discute d'un cas où elle s'est remariée et a un second mari. <b>Mais selon</b> l'avis de <b>Shmuel, quelle</b> est la référence à un <b>second</b> mari ? L'avis de Shmuel est que dès qu'ils se lèvent et concluent la procédure, on considère que c'est après un certain temps, et dans ce cas il n'y a pas de second mari. Selon l'opinion de Shmuel, comment s'applique la déclaration de Rabbi Elazar ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara relate que Rav Naḥman est alors <b>sorti</b> et a <b>exécuté une 
 La Guemara demande : L'avis de <b>Rabban Shimon Ben Gamliel est</b> identique à celui de <b>Rabbi Elazar,</b> car ils sont d'accord pour dire qu'on est élevé au statut présomptif de la prêtrise sur la base d'un seul témoin lorsqu'il n'y a pas de challengers. Quel est leur différend ? <b>Et si vous disiez</b> qu' <b>il y a</b> une différence pratique <b>entre eux</b> dans un cas où il y a <b>un défi</b> posé par <b>une</b> personne, comme le soutient <b>Rabbi Elazar : Un défi</b> posé par <b>une</b> personne est suffisant pour ébranler son statut présumé de sacerdoce, et deux témoins sont nécessaires pour surmonter ce défi ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

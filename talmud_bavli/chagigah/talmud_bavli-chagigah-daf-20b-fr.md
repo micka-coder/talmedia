@@ -15,4 +15,4 @@ La Guemara riposte : <b>Si c'est le cas,</b> dans <b>la première</b> clause de 
 La Guemara soulève une difficulté : <b>Si oui,</b> dans <b>la dernière clause, aussi,</b> puisqu'il peut arriver d'un coin de rue à tout moment, ils doivent certainement être prudents. La Guemara répond : <b>Puisqu'il leur a dit : Allez et je vous suivrai derrière vous, ils se fient</b> à cela, et ils ne se considèrent pas comme étant sous observation. Par conséquent, ils ne sont pas particuliers au contact d'un autre <i>am ha'aretz</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

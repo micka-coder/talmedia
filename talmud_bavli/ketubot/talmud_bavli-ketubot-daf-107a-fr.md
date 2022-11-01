@@ -42,7 +42,7 @@ Toutefois, en ce qui concerne <b>ses fils et ses filles,</b> étant donné qu'il
 Incidemment, la Gemara demande : <b>Qu'est-ce que : Quelque chose d'autre,</b> mentionné dans le <i>baraita</i> ? <b>Rav Ḥisda a répondu :</b> Il s'agit des <b>ornements de l'épouse,</b> auxquels elle a droit en plus de sa subsistance. <b>Rav Yossef a dit :</b> C'est de l'argent pour la <b>charité.</b> La Gemara commente : Selon <b>celui qui a dit</b> que le tribunal ne paie pas pour ses <b>ornements</b> si le mari est parti à l'étranger, <b>à plus forte raison</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Le tribunal <b>répartit la subsistance pour une femme mariée,</b> c'est-à-dire que si un mari est parti à l'étranger et n'a rien laissé derrière lui avec lequel sa femme pourrait assurer sa subsistance, le tribunal retire de l'argent de sa succession à cette fin. <b>Et Shmuel dit :</b> Le tribunal <b>ne répartit pas la subsistance pour une femme mariée. Shmuel</b> a en outre <b>dit : Abba,</b> c'est-à-dire Rav, <b>me concède</b> que le tribunal ne touche pas à la succession du mari <b>pendant les trois premiers mois.</b> C'est <b>parce qu'une personne ne laisse pas sa maison vide,</b> et donc il est certain qu'elle a laissé quelque chose avec lequel sa femme peut subvenir à ses besoins au moins à court terme.
 
@@ -86,4 +86,4 @@ Toutefois, en ce qui concerne <b>ses fils et ses filles,</b> étant donné qu'il
 Incidemment, la Gemara demande : <b>Qu'est-ce que : Quelque chose d'autre,</b> mentionné dans le <i>baraita</i> ? <b>Rav Ḥisda a répondu :</b> Il s'agit des <b>ornements de l'épouse,</b> auxquels elle a droit en plus de sa subsistance. <b>Rav Yossef a dit :</b> C'est de l'argent pour la <b>charité.</b> La Gemara commente : Selon <b>celui qui a dit</b> que le tribunal ne paie pas pour ses <b>ornements</b> si le mari est parti à l'étranger, <b>à plus forte raison</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

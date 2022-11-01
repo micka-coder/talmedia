@@ -57,4 +57,4 @@ Cette Guemara soulève une difficulté à l'encontre de l'opinion de Rabbi Eliez
 <strong>MISHNA : </strong>Pour <b>tous</b> les <b>sept jours</b> de <i>ziva</i> qui suivent les sept jours de menstruation, une femme <b>a le statut présumé de pureté rituelle,</b> car il est inhabituel qu'elle ait des saignements ces jours-là.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

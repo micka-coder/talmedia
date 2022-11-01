@@ -12,4 +12,4 @@ Les rabbins <b>ont dit à Rabbi Akiva :</b> Comment peux-tu prétendre qu'on ne 
 § La mishna détaille l'interdiction à l'égard de la sœur de sa femme dans différents cas : Si la <b>femme d'un homme est morte,</b> il est permis à sa sœur ; si <b>son <i>yevama</i> est morte,</b> il est permis à sa sœur. <b>Rav Yosef a dit : Ici, Rabbi</b> Yehuda HaNasi <b>a enseigné une mishna inutile,</b> puisque l'interdiction à l'égard de la sœur de sa femme et le fait que l'interdiction n'existe que du vivant de sa femme sont énoncés explicitement dans la Torah, et il n'y a aucune nouveauté supplémentaire dans la décision de cette mishna.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

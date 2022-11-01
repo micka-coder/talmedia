@@ -54,4 +54,4 @@ La Guemara raconte d'autres histoires liées à la charité. <b>Rabbi Abba envel
 <b>Rabbi Ḥanina</b> connaissait <b>un certain indigent</b> et <b>avait l'habitude de lui envoyer quatre dinars</b> la <b>veille de chaque Chabbat. Un jour, il l'envoya dans la main de sa femme. Elle revint</b> à la maison et lui <b>dit :</b> L'homme <b>n'a pas besoin</b> de charité. Rabbi Ḥanina lui a demandé : <b>Qu'as-tu vu</b> qui t'a incité à dire cela ? Elle lui répondit : <b>Je les ai entendus lui dire</b> à l'intérieur de la maison : <b>Avec quoi dînes-tu</b> normalement :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

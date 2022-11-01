@@ -24,4 +24,4 @@ Abaye <b>a dit à</b> Rav Sherevya : <b>En fait, un premier-né sous un aspect n
 <b>Ravina dit</b> qu'il existe une explication différente : <b>En fait, un premier-né sous un aspect est</b> appelé <b>un premier-né,</b> et le <i>halakha</i> n'est pas dérivé du sens du mot "premier-né" lui-même, mais du fait qu'il est superflu. <b>Et ceci</b> est ce que dit <b>la dernière clause : S'il entre dans votre esprit</b> qu'un animal qui a <b>émergé</b> du ventre de sa mère <b>après</b> que son frère aîné soit <b>né par césarienne est sanctifié, pourquoi ai-je</b> besoin du mot <b>"premier-né" que le Miséricordieux a écrit ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

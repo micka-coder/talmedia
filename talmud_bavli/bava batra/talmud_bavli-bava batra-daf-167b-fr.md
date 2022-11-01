@@ -48,4 +48,4 @@ Ils ont continué à demander : <b>Quoi</b> si son nom n'a <b>pas</b> été <b>�
 <b>Abaye a dit</b> que <b>bien que les Sages aient dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara discute d'un cas similaire : Si l'on dit à une femme : Sois fiancée
 La Guemara <b>souleve une objection</b> à Rabbi Yoḥanan à partir d'une <i>baraita</i> : <b>Quel est</b> le sens de : <b>Mishna ? Rabbi Meir répond <i>halakhot</i>, Rabbi Yehuda répond homilétique.</b> Aucun d'eux, cependant, ne dit qu'il s'agit de la Torah écrite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

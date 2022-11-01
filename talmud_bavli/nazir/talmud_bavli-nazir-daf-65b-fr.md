@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une mishna (<i>Zavi
 § La mishna a enseigné que <b>son</b> décharge qui était due à des <b>circonstances indépendantes de sa volonté, et sa</b> décharge dont il est <b>incertain</b> qu'elle soit <i>ziva</i>, sont considérées comme impures.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Combien</b> de coudées <b>y a-t-il</b> dans la circonfé
 <b>Les Sages de Césarée, et certains disent</b> que c'était <b>les juges de Césarée, ont dit</b> que la déclaration de Rabbi Yoḥanan pouvait être expliquée en utilisant un calcul différent : La circonférence d'un <b>cercle inscrit dans un carré</b> est <b>un</b>-<b>quartier</b> inférieure au périmètre du carré,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

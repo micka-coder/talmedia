@@ -24,4 +24,4 @@ La Gemara raconte : Il y avait <b>une certaine femme qui profitait</b> d'un <b>p
 § <b>Il a été dit :</b> En ce qui concerne <b>un champ</b> qui est <b>défini par ses limites,</b> c'est-à-dire qu'il a des limites clairement délimitées de tous les côtés, <b>Rav Huna dit</b> que <b>Rav dit : Une fois qu'il a frappé</b> la terre avec une houe <b>une</b> fois, il <b>acquiert la totalité</b> de la propriété. <b>Et Shmuel dit</b> qu'il <b>a acquis seulement l'endroit</b> qu'il <b>a frappé</b> avec la houe.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara demande : <b>Et selon celui qui dit</b> ils se tenaient comme décrit
 <strong>GEMARA:</strong> La mishna indique que le propriétaire de la citerne et le propriétaire de la maison construisent chacun un verrou. La Guemara demande : <b>Un verrou pour où ? Rabbi Yoḥanan répond : Tous deux</b> construisent un verrou sur l'ouverture <b>de la citerne</b> pour empêcher l'autre d'y accéder unilatéralement. La Guemara demande : <b>Accordé, le propriétaire de la citerne</b> construit un verrou, car <b>il veut protéger l'eau de son puits. Mais pourquoi</b> le propriétaire de la maison</b> construit-il une serrure ? <b>Rabbi Elazar dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

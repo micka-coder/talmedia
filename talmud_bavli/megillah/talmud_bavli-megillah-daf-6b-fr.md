@@ -87,4 +87,4 @@ La Gemara demande : <b>Accordé,</b> selon <b>Rabbi Eliezer, fils de Rabbi Yosei
 La Gemara commente : <b>Et il était nécessaire d'écrire</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

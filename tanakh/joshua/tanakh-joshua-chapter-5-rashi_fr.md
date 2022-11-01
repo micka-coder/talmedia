@@ -48,4 +48,4 @@
 <b>L'officier de l'hôte d'Hachem.</b> Cela fait référence aux Bnei Israël, qui sont l'hôte d'Hachem. L'officier mentionné ici est l'Ange, Michoeil, comme il est dit : 'Michoeil, ton officier.'<sup>16</sup><i class="footnote">Daniel 10:21.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

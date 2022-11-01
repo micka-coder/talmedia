@@ -30,7 +30,7 @@ Rav Sheizevi <b>s'adressa à lui :</b> Pensez-vous que cette <i>baraita</i> est 
 § <b>Rabbi Yoḥanan a dit :</b> S'il <b>a pris une garantie auprès de lui,</b> l'a rendue, <b>et</b> ensuite le débiteur <b>est décédé,</b> le créancier peut <b>prendre</b> la garantie <b>auprès</b> des <b>enfants</b> du débiteur et n'est pas obligé de la leur laisser. La Guemara <b>souleve une objection</b> à cela à partir d'une <i>baraita</i> : <b>Rabbi Meir a dit : Mais puisque</b> on <b>prend un gage, pourquoi</b> il le <b>retourne</b> ? La Guemara exprime sa surprise face à cette question : <b>Pourquoi</b> il le <b>retourne</b> ? <b>Le Miséricordieux déclare</b> de le <b>retourner</b>. <b>Au contraire,</b> la question est la suivante : <b>Puisque</b> il doit <b>le rendre</b>,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Rabba bar Avuh pose maintenant une autre question à Elie : <b>D'où</b> provient-il en ce qui concerne <b>une personne nue qu'elle ne peut pas séparer <i>teruma</i>?</b> Il répond : <b>Comme il est écrit : "Et Il ne voit rien d'inconvenant en vous"</b> (Deutéronome 23:15). Ce verset indique que l'on ne peut réciter aucune parole de sainteté, y compris la bénédiction sur la séparation du <i>teruma</i>, devant celui qui est nu.
 
@@ -62,4 +62,4 @@ Rav Sheizevi <b>s'adressa à lui :</b> Pensez-vous que cette <i>baraita</i> est 
 § <b>Rabbi Yoḥanan a dit :</b> S'il <b>a pris une garantie auprès de lui,</b> l'a rendue, <b>et</b> ensuite le débiteur <b>est décédé,</b> le créancier peut <b>prendre</b> la garantie <b>auprès</b> des <b>enfants</b> du débiteur et n'est pas obligé de la leur laisser. La Guemara <b>souleve une objection</b> à cela à partir d'une <i>baraita</i> : <b>Rabbi Meir a dit : Mais puisque</b> on <b>prend un gage, pourquoi</b> il le <b>retourne</b> ? La Guemara exprime sa surprise face à cette question : <b>Pourquoi</b> il le <b>retourne</b> ? <b>Le Miséricordieux déclare</b> de le <b>retourner</b>. <b>Au contraire,</b> la question est la suivante : <b>Puisque</b> il doit <b>le rendre</b>,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

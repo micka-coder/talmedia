@@ -42,4 +42,4 @@ S'il est parti alors qu'il n'était pas marié et a dit à son retour : <b>J'ai 
 <b>Reish Lakish a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

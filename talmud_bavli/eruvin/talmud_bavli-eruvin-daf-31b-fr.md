@@ -60,4 +60,4 @@ La Gemara demande : <b>Où ont été</b> énoncés ces principes de <b>Rav Ḥis
 <b>Rav Naḥman a dit : En ce qui concerne les lois de la Torah</b>, nous ne nous <b>sommes pas</b> appuyés sur la <b>présomption qu'un agent remplit son agence.</b> Il faut plutôt voir effectivement l'agent accomplir sa mission.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara revient sur la déclaration de Rava, qui a dit à propos du violeur :
 <b>Mais selon celui qui dit</b> que le critère pour déterminer si on est fouetté dans ce cas est de savoir si <b>il a accompli</b> la mitzva <b>ou n'a pas accompli</b> la mitzva, et s'il n'a pas accompli immédiatement la mitzva, il est fouetté, <b>que peut-on dire ?</b> Même dans le cas d'un non-prêtre qui a divorcé de la victime du viol, dès lors qu'il ne se remarie pas immédiatement avec elle, il est susceptible de recevoir des coups de fouet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

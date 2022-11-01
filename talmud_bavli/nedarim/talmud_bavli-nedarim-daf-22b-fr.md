@@ -33,4 +33,4 @@ Rav Naḥman, qui voulait dissoudre le vœu, <b>lui dit : As-tu fait le vœu ave
 La Gemara relate un incident similaire : <b>Rabbi Shimon, fils de Rabbi</b> Yehuda HaNasi, <b>avait un vœu à dissoudre. Il se présenta devant les Sages</b> pour la dissolution. <b>Ils lui dirent : Avez-vous fait un vœu en ayant connaissance de ce</b> fait particulier ? <b>Il a répondu : Oui.</b> Ils lui ont proposé une autre possibilité : As-tu fait un vœu <b>avec la connaissance de ce</b> autre fait particulier ? Il leur a répondu : <b>Oui.</b> Cela s'est produit <b>plusieurs fois,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ De même, le <b>second</b> fils qui le suit n'est <b>pas</b> considéré comme l
 <b>Et</b> Rabbi Shimon règle également que <b>le deuxième</b> fils est un premier-né en ce qui concerne le rachat auprès d'un prêtre <b>pour cinq <i>sela</i></b> pièces, comme il le <b>soutient : Un premier-né pour</b> seulement <b>une matière,</b> c'est-à-dire celui qui a ouvert le ventre de sa mère mais qui n'est pas son premier enfant, <b>est</b> considéré comme <b>un premier-né</b> en ce qui concerne le rachat du premier-né, malgré le fait qu'il ne soit pas le premier enfant de sa mère.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

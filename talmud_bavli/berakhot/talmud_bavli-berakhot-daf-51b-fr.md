@@ -27,4 +27,4 @@ La Guemara relate que <b>Pendant ce temps, Yalta entendit</b> le refus d'Ulla de
 En concluant les <i>halakhot</i> de benedictions, la Guemara cite que <b>Rabbi Abbahou a dit, et certains disent que cela a ete enseigne dans une <i>baraita</i> : Celui qui mange et marche, recite la benediction</b> de la Grace apres les repas <b>en restant</b> a un endroit, <b>et celui qui mange debout, recite la benediction</b> en etant <b>assis, et celui qui mange allonge</b> sur un lit <b>s'assoit et</b> ensuite <b>recite la benediction. Et la <i>halakha</i></b> est : <b>Dans tous ces cas, on s'assied et</b> puis <b>on recite la benediction.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

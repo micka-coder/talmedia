@@ -45,4 +45,4 @@ Le <i>baraita</i> conclut : <b>Comment cela,</b> c'est-à-dire comment ce princi
 § En ce qui concerne la position du soleil, la Gemara relate que <b>Alexandre de Macédoine interrogea les Sages du Néguev</b> sur <b>dix questions. Il leur dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

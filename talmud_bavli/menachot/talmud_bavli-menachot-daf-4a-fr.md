@@ -63,4 +63,4 @@ La Gemara en déduit : Si <b>il a été consigné</b> au pâturage, <b>oui,</b> 
 § La mishna enseigne que toutes les offrandes de repas auxquelles on a retiré une poignée non pour leur bien sont aptes au sacrifice mais elles ne remplissent pas l'obligation du propriétaire. A ce sujet, <b>Rav dit :</b> En ce qui concerne <b>l'offrande de repas <i>omer</i>,</b> c'est-à-dire, la mesure d'orge apportée en offrande commune le seize de Nisan (voir Lévitique 23:9-14), si le prêtre en a <b>enlevé une poignée</b> <b>non pour elle-même</b> elle est <b>disqualifiée. </b> Elle est disqualifiée <b>puisqu'une offrande de repas <i>omer</i> <b>arrivait</b> dans un but précis, à savoir, <b>permettre</b> la consommation de la nouvelle récolte, <b>et</b> cette offrande de repas <b>ne permettait pas</b> la consommation de la nouvelle récolte parce que ses rites n'étaient pas accomplis pour elle-même. <b>Et c'est ainsi que vous dites à propos de l'offrande de culpabilité d'un nazirite</b> devenu rituellement impur, dont le sacrifice approprié permet au nazirite de recommencer sa naziréité dans la pureté,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

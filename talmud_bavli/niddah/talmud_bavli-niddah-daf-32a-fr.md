@@ -45,4 +45,4 @@ La Gemara demande : <b>Apparemment, lorsque le verset inclut</b> les jeunes fill
 <b>Par contre,</b> la <i>halakha</i> concernant les rapports sexuels d'une fille <b>âgée de trois ans et un jour</b> est <b>une <i>halakha</i></b> transmise à Moïse depuis le Sinaï, alors que la <i>halakha</i> concernant les menstruations d'une <b>fille d'un jour</b> est dérivée d'un <b>verset.</b> La Gemara demande : <b>Et maintenant que</b> il a été établi que la <i>halakha</i> concernant les rapports sexuels d'une fille de trois ans est <b>une <i>halakha</i></b> transmise à Moïse depuis le Sinaï, <b>pourquoi ai-je</b> besoin d'un <b>verset ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

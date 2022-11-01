@@ -20,5 +20,5 @@ Si une femme a fait une fausse couche et que l'on ne sait pas de quoi il s'agit,
 ### michna 7
 Si une femme fait une fausse couche le quarantième jour, elle ne doit pas s'inquiéter du fait qu'il s'agisse d'un accouchement valide. Au quarante-et-unième jour, elle s'assied comme pour un homme et une femme et comme pour une femme en période de menstruation. Rabbi Ishmael dit : Si elle a fait une fausse couche le quarante-et-unième jour, elle s'assied comme un homme et comme une femme, mais si elle s'assied le quatre-vingt-unième jour, elle s'assied comme un homme, une femme et une femme, parce qu'un homme est complètement formé le quarante-et-unième jour et une femme le quatre-vingt-unième jour. Mais les sages disent : le façonnage du mâle et le façonnage de la femelle prennent tous deux quarante et un jours.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

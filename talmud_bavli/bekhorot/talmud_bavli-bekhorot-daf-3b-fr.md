@@ -45,4 +45,4 @@ La Guemara demande : <b>Mais Rav Yehouda ne dit-il pas qu'il est permis à une p
 <strong>MISHNA:</strong> <b>Les prêtres et les lévites sont exemptés</b> de l'obligation de racheter un âne premier-né ; cela découle <b>d'une déduction <i>a fortiori</i></b> : Dans le désert, les premiers-nés étaient rachetés en échange des Lévites, comme il est dit : "Prenez les Lévites en échange de tous les premiers-nés parmi les enfants d'Israël et l'animal des Lévites en échange de leurs animaux" (Nombres 3, 45). <b>Si</b> les prêtres et les lévites <b>rendent exemptés</b> les premiers-nés et les ânes <b>des Israélites dans le désert</b> d'être comptés comme premiers-nés, <b>il est</b> seulement <b>logique que les prêtres et les lévites <b>rendent</b> les premiers-nés de <b>leurs propres</b> ânes <b>exemptés</b> d'être comptés comme premiers-nés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

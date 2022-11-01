@@ -39,4 +39,4 @@ La Gemara demande : N'est-ce pas <b>évident ?</b> Il s'agit clairement d'un int
 La Gemara s'interroge : <b>Quelles sont les circonstances</b> où le montant supplémentaire serait <b>dans la fourchette</b> <b>que</b> l'on <b>peut commettre une erreur ? Rav Aḥa, fils de Rav Yosef, a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

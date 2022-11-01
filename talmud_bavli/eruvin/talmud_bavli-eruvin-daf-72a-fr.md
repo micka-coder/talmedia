@@ -24,4 +24,4 @@ La Guemara <b>souleve une objection</b> de la <i>baraita</i> elle-même. <b>Et l
 La Guemara relate que <b>Rabbi Ḥiyya et Rabbi Shimon, fils de Rabbi</b> Yehuda HaNasi, <b>sont en désaccord sur</b> cette question. <b>L'un</b> d'entre eux <b>a dit :</b> Ce <b>dispute concerne les cloisons qui atteignent le plafond, mais</b> en ce qui concerne les <b>cloisons qui n'atteignent pas le plafond, tous sont d'accord</b> pour dire qu'<b>un <i>eirouv</i></b> suffit <b>pour tous,</b> car les cloisons ne transforment pas les compartiments en maisons séparées. <b>Et l'un d'eux a dit :</b> Ce <b>dispute concerne les cloisons qui n'atteignent pas le plafond, mais</b> en ce qui concerne les <b>partitions qui atteignent le plafond, tous sont d'accord</b> pour dire que les compartiments sont considérés comme des habitations séparées, et <b>qu'ils nécessitent</b> une contribution séparée au <b><i>eiruv</i> pour chaque groupe.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

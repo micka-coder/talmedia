@@ -14,5 +14,5 @@ La femme d'un prêtre boit et [si elle est reconnue innocente] est autorisée à
 ### michna 5
 Dans les cas suivants, un tribunal peut donner l'avertissement [au nom du mari] : Lorsque le mari est devenu sourd-muet ou idiot, ou a été emprisonné. Ce n'est pas pour la faire boire qu'on a dit cela, mais pour la disqualifier de recevoir sa ketubah. Rabbi Yose dit : également pour la faire boire ; lorsque son mari est libéré de prison, il la fait boire.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

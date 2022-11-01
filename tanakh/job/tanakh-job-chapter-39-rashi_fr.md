@@ -100,4 +100,4 @@
 <b>Et là où il y a des tués, il y a</b> à manger. Nos Sages expliquent tout ce passage comme une allégorie s'appliquant à Aaron, dans la Pesikta à Acharei Moth (Pesikta Rabbathi, ch. 48, édition Meir Ayin, ch. 47).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

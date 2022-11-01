@@ -48,4 +48,4 @@ La Gemara commente : <b>Et</b> ceci n'est <b>pas difficile,</b> car les réponse
 <b>Et Shmuel dit au nom de Rabbi Ḥiyya:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

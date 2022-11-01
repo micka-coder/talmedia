@@ -33,4 +33,4 @@ Rav Yosef a dit à Abaye : <b>Candélabre tu dis;</b> est-ce que tu cites une pr
 La Guemara demande : <b>Et quelle est la raison</b> pour laquelle il existe une interdiction unique dans le cas d'un candélabre ? <b>Rabba et Rav Yosef ont tous deux répondu : Puisqu'une personne</b> généralement <b>désigne</b> un <b>emplacement fixe pour celui-ci</b> en raison de sa taille et de son utilisation, il est considéré comme une partie intégrante de la maison, et déplacer le candélabre revient à démonter la maison. <b>Abaye a dit à Rav Yosef : Un baldaquin de marié</b> est un objet <b>pour</b> lequel <b>une personne désigne un</b> lieu fixe, et,</b> néanmoins, <b>Shmuel a dit au nom de Rabbi Ḥiyya:</b> En ce qui concerne un <b>baldaquin de marié</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -11,5 +11,5 @@ Quand en est-il ainsi ?  Lorsque les offrandes obligatoires [sont mélangées] a
 ### michna 4
 Qu'entend-on par un seul "nom" ? Pour une naissance et une naissance, ou pour zivah et zivah, c'est un seul nom. Et "deux noms" ? Pour une naissance, [et l'autre] pour une zivah. Qu'entend-on par "deux femmes" ? Quand une [femme] apporte [son offrande] pour une naissance et l'autre pour une naissance, ou [quand l'une apporte] pour une zivah et l'autre pour une zivah, c'est "d'un seul nom". Et un cas "de deux noms" ? Lorsque l'un apporte pour une naissance et l'autre pour une zivah. Rabbi Yose dit : lorsque deux femmes ont acheté leurs kinnim en partenariat, ou ont donné le prix de leurs kinnim au prêtre [pour qu'il les achète], alors le prêtre peut offrir celui qu'il veut comme hatat ou comme olah, qu'ils soient d'un seul nom ou de deux noms.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

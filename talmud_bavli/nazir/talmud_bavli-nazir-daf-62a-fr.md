@@ -36,4 +36,4 @@ La Guemara répond : Ce verset sert <b>à inclure</b> le cas de celui qui a fait
 <b>Rabbi Eliezer dit :</b> Les <i>halakhot</i> de dissolution des vœux <b>ont</b> une base <b>sur laquelle s'appuyer, comme il est dit : "Quand un homme prononcera clairement</b> un vœu" (Lévitique 27:2) et : <b>"Quand</b> un homme ou une femme <b>déclarera clairement</b> un vœu" (Nombres 6:2), <b>deux fois. Une énonciation explicite est pour l'interdiction,</b> c'est-à-dire que lorsqu'on fait un vœu, on est tenu de le respecter, <b>et une énonciation explicite est pour la dissolution,</b> c'est-à-dire que dans le cas où il fournit à une autorité halakhique une raison pour laquelle le vœu ne devrait plus s'appliquer, le vœu peut être dissous et il ne sera plus lié par lui. Il s'agit d'une allusion dans la Torah à la dissolution des vœux.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara note : <b>Par déduction,</b> la décision de <b>cette</b> première 
 La Gemara revient sur sa décision : <b>Mais</b> même <b>selon votre raisonnement,</b> on peut demander : <b>Selon</b> la deuxième <b>formulation de</b> ce que Rav Ika, fils de Rav Ami, <b>a dit, à savoir que</b> le statut juridique des <b>esclaves est comme</b> celui des <b>biens meubles, pourquoi ai-je</b> besoin que les esclaves soient <b>debout</b> dans les frontières de la terre ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -15,4 +15,4 @@ La Gemara note : Il est <b>évident</b> que si l'on <b>vendait</b> une section d
 La Guemara explique la différence entre les cas : Cette décision s'applique ici, <b>puisque</b> la fosse ou la citerne <b>ne cause aucun dommage au terrain</b> qui les entoure, et puisque le vendeur ne prévoit pas de conflit découlant du fait que sa fosse et sa citerne soient situées à côté de la propriété de l'acheteur, il cède donc la totalité du terrain. <b>Mais</b> dans le cas où il conserve les <b>arbres,</b> <b>il n'y a pas de conflit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

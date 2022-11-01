@@ -33,4 +33,4 @@ La Guemara explique la preuve : <b>Pourquoi ai-je aussi</b> besoin de <b>ceci,</
 <b>Il a été dit</b> que les <i>amora'im</i> ne sont pas d'accord sur la façon dont la <i>halakha</i> doit être décidée par rapport à cette question. <b>Rav Huna</b> dit que <b>Rav dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

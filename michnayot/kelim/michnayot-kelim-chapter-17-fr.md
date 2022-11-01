@@ -50,5 +50,5 @@ Le fléau d'une balance et un niveleur qui contiennent un réceptacle pour le m�
 ### michna 17
 La base de l'enclume de l'orfèvre est susceptible d'être impure, mais celle du forgeron est propre. Une planche à aiguiser qui a un réceptacle pour l'huile est susceptible d'être impure, mais celle qui n'en a pas est propre. Une tablette d'écriture qui a un réceptacle pour la cire est susceptible d'être souillée, mais celle qui n'en a pas est pure. Une natte de paille ou un tube de paille : Rabbi Akiva dit qu'il est susceptible d'être impur, mais Rabbi Yohanan ben Nuri dit qu'il est pur. Rabbi Shimon dit : la tige creuse de colocynth est soumise à la même loi. Un tapis de roseaux ou de joncs est pur. Un tube de roseau qui a été coupé pour contenir quelque chose reste propre jusqu'à ce que toute la moelle ait été enlevée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

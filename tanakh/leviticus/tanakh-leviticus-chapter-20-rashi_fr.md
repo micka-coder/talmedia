@@ -86,5 +86,5 @@
 ### passuk 27
 <b>S'il y a parmi eux un médium, etc.</b> Ici, la peine de mort est énoncée pour eux, et au-dessus [la peine est] כָּרֵת . [S'il y a] des témoins et un avertissement approprié, [il est passible] de lapidation ; [s'il le fait] intentionnellement, [mais] sans avertissement [approprié], il [reçoit] כָּרֵת ; et pour un péché involontaire, [il doit apporter une] offrande pour le péché, et ainsi en ce qui concerne tous [les péchés qui entraînent] l'assujettissement à la peine de mort, à propos desquels il est dit כָּרֵת . 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

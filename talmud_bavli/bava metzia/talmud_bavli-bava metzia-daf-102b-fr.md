@@ -42,7 +42,7 @@ La Gemara explique : <b>Non,</b> il est <b>nécessaire</b> de soulever le dilemm
 <b>Rabbi Yoḥanan leur dit :</b> Aussi ceci, <b>vous l'avez</b> déjà <b>appris</b> dans une mishna (111a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et</b> cet <b>incident est venu</b> au tribunal <b>devant Rabban Shimon ben Gamliel et devant Rabbi Yosei, et ils ont dit :</b> Les deux expressions ont des implications contradictoires, et on ne sait pas quelle expression il faut suivre. Par conséquent, le propriétaire et le locataire <b>doivent partager le mois intercalaire</b> entre eux, c'est-à-dire que le locataire doit payer un demi-dinar d'or pour celui-ci.
 
@@ -86,4 +86,4 @@ La Gemara explique : <b>Non,</b> il est <b>nécessaire</b> de soulever le dilemm
 <b>Rabbi Yoḥanan leur dit :</b> Aussi ceci, <b>vous l'avez</b> déjà <b>appris</b> dans une mishna (111a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

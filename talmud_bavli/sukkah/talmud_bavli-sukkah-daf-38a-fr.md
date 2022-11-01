@@ -30,4 +30,4 @@ Le langage de la mishna <b>est également précis</b> et indique qu'elle traite 
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

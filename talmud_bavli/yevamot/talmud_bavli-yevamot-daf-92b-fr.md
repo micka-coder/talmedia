@@ -30,4 +30,4 @@ Quelque temps plus tard, <b>Reish Lakish</b> dit à Rav Yoḥanan : <b>Si</b> ce
 La Guemara demande : <b>Et si</b> c'est l'avis de <b>Rabbi Akiva, lorsqu'il lui a dit : Après que ton <i>yavam</i> ait accompli <i>ḥalitza</i> pour toi, que les fiançailles prennent effet avec elle, car nous avons entendu que Rabbi Akiva a dit</b> que <b>un homme peut transférer une entité qui n'est pas</b> encore <b>venue au monde.</b> En d'autres termes, Rabbi Akiva est d'avis qu'une acquisition peut prendre effet pour quelque chose qui n'existe pas encore. Si tel est le cas, même si les fiançailles ne peuvent pas prendre effet maintenant, elles devraient être valables après qu'elle ait effectué <i>ḥalitza</i>. La preuve que c'est bien l'avis de Rabbi Akiva est <b>comme nous l'avons appris</b> dans une mishna (<i>Ketubot</i> 59a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

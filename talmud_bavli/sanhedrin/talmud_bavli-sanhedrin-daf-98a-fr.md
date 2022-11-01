@@ -63,4 +63,4 @@ Rabbi Yosei ben Kisma <b>leur dit :</b> Vous verrez <b>lorsque cette <b>porte</b
 <b>Au moment de sa mort,</b> Rabbi Yosei ben Kisma <b>dit à</b> ses étudiants : <b>Placez mon cercueil profondément</b> dans le sol,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

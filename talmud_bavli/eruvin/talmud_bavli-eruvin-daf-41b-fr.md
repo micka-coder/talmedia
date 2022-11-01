@@ -12,4 +12,4 @@ La Guemara répond : <b>Et selon votre avis,</b> que la question n'avait pas ét
 La Guemara répète au passage la déclaration citée ci-dessus : <b>Mar Zutra exposé au nom de Rav Huna:</b> La <b><i>halakha</i></b> est que <b>on jeûne et complète</b> le jeûne les veilles de Chabbat et des Fêtes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

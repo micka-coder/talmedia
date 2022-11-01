@@ -27,4 +27,4 @@ La Guemara rejette cet argument : <b>Non ; en fait,</b> il est possible que l'on
 <b>Rav Yehuda a dit : Enseigne</b> la <i>baraita</i> en l'émendant de sorte qu'elle se lise comme suit : <b>Il peut annuler les siens et les siens</b> restent <b>intacts,</b> comme la mishna, plutôt que : Ils sont tous deux liés par leurs vœux. <b>Abaye a dit : On</b> peut <b>même dire</b> que le <i>baraita</i> doit être lu <b>comme il l'enseigne,</b> sans l'émonder, car il y a une différence entre les deux cas. Le <b><i>baraita</i></b> fait référence à un cas <b>où il lui a dit</b> dans une seule clause : <b>Je suis par la présente un nazirite et vous, car il fait dépendre son vœu de son vœu.</b> Par conséquent, si elle n'est pas une nazirite, son vœu est également annulé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

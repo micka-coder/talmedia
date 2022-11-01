@@ -66,4 +66,4 @@ Le <i>baraita</i> continue : <b>Et il recueille son encens et le met sur</b> la 
 Le <i>baraita</i> continue : <b>Et il</b> alors <b>l'apporte</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

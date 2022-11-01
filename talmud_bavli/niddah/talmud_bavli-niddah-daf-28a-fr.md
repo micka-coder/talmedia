@@ -54,4 +54,4 @@ La Gemara répond : <b>Il était nécessaire</b> que la mishna énonce cette <i>
 Si un <i>tumtum</i> et un hermaphrodite <b>ont vu de la <i>ziva</i> blanche</b> <b>et du sang rouge</b> <b>comme un seul homme,</b> c'est-à-dire qu'ils ont émis à la fois de la <i>ziva</i> et du sang et sont donc impurs indépendamment de leur sexe, <b>ils ne sont</b> toujours <b>pas susceptibles d'entrer dans le Temple, mais on brûle le <i>teruma</i> en raison de leur</b> contact. La raison pour laquelle ils ne sont pas passibles d'entrer dans le Temple, malgré le fait qu'ils sont définitivement impurs, est <b>qu'il est dit : "L'homme et la femme</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

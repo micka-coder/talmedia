@@ -72,7 +72,7 @@ La Guemara demande : <b>Et d'où Rabbi Eliezer</b> tire-t-il <b>cette</b> conclu
 § La mishna enseigne que si on <b>diminue son encens</b> au-delà de sa mesure appropriée, l'offrande de repas est impropre. A ce sujet, <b>les Sages ont enseigné</b> dans une <i>baraïta</i> : Si l'on <b>diminue</b> son encens au point que la quantité <b>s'élève à</b> seulement <b>une pincée,</b> il est <b>disqualifié,</b> mais si la quantité diminuée s'élève <b>à deux pincées,</b> il est <b>adapté;</b> c'est <b>la déclaration de Rabbi Yehuda. Rabbi Shimon dit :</b> Si la quantité diminuée s'élevait <b>à une pincée,</b> elle est <b>adéquate ; moins que cela,</b> elle est <b>disqualifiée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>ou une pincée d'encens</b> émergé dans sa main, l'offrande de repas est <b>inadéquate,</b> car la poignée manque d'une mesure complète à cause de ces éléments. La Guemara demande : <b>Pourquoi ai-je</b> besoin de <b>tous ces</b> exemples ? N'importe lequel d'entre eux transmettrait le fait que la poignée doit contenir une mesure complète.
 
@@ -146,4 +146,4 @@ La Guemara demande : <b>Et d'où Rabbi Eliezer</b> tire-t-il <b>cette</b> conclu
 § La mishna enseigne que si on <b>diminue son encens</b> au-delà de sa mesure appropriée, l'offrande de repas est impropre. A ce sujet, <b>les Sages ont enseigné</b> dans une <i>baraïta</i> : Si l'on <b>diminue</b> son encens au point que la quantité <b>s'élève à</b> seulement <b>une pincée,</b> il est <b>disqualifié,</b> mais si la quantité diminuée s'élève <b>à deux pincées,</b> il est <b>adapté;</b> c'est <b>la déclaration de Rabbi Yehuda. Rabbi Shimon dit :</b> Si la quantité diminuée s'élevait <b>à une pincée,</b> elle est <b>adéquate ; moins que cela,</b> elle est <b>disqualifiée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

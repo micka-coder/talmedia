@@ -69,4 +69,4 @@ La Gemara note : Cette <i>baraïta</i> <b>soutient</b> l'avis de <b>Rav Idi bar 
 <b>Et Rav Huna dit :</b> Dans le cas de <b>deux</b> morceaux de chair d'une carcasse d'animal, mesurant chacun <b>une demi-boule d'olive</b>, <b>qui sont</b> attachés <b>à la peau, la peau les annule,</b> car la peau ne transmet pas l'impureté d'une carcasse. Par conséquent, ces morceaux ne confèrent pas non plus d'impureté.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

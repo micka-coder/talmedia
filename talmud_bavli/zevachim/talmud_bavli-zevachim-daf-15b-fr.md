@@ -21,4 +21,4 @@ C'est <b>comme nous l'avons appris</b> dans la mishna (13a) : <b>Rabbi Eliezer d
 Rava <b>lui a dit : Si cette</b> <i>baraita</i> <b>est enseignée, elle est enseignée,</b> et je ne peux pas être en désaccord avec elle.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

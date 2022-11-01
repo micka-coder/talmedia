@@ -66,7 +66,7 @@
 <b>Alors, criez [cris de guerre].</b> Élevez [et faites sortir] le bruit de la guerre et la peur de l'épée Galfer en vieux français, et de même [on trouve] "Un chien n'aiguisera pas sa langue [grogne]".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -134,4 +134,4 @@
 <b>Alors, criez [cris de guerre].</b> Élevez [et faites sortir] le bruit de la guerre et la peur de l'épée Galfer en vieux français, et de même [on trouve] "Un chien n'aiguisera pas sa langue [grogne]".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara ajoute que certaines des opinions susmentionnées <b>étaient égalem
 <b>Rabbi Yosei dit : Il n'y a pas besoin</b> de cette preuve non plus, <b>car il est dit : "Mais le premier jour, vous enlèverez le levain de vos maisons."</b> Cette interdiction s'applique <b>dès la veille de la Fête. Ou peut-être</b> c'est <b>non</b> le cas, mais <b>elle</b> s'applique uniquement <b>à la Fête elle-même. Le verset dit : Pourtant,</b> qui vient <b>diviser</b> le jour en deux parties ; la première moitié, où le levain est autorisé, et la seconde moitié, où il est interdit. <b>Et si</b> ce verset se réfère <b>au</b> premier jour de <b>la Fête elle-même, le levain est-il</b> <b>permis</b> lors de la Fête proprement dite ? Comme expliqué ci-dessus, <b>la suppression du levain est juxtaposée à la consommation de pain levé, et la consommation de pain levé</b> est juxtaposée <b>à la consommation de <i>matza</i>. Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

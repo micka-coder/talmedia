@@ -48,4 +48,4 @@ La Guemara relate que <b>Chaque jour, Rabbi Ḥiyya bar Abba escortait Rabbi Abb
 § Il est enseigné dans la mishna : <b>Et dans le Temple,</b> les prêtres récitent les trois versets comme <b>une seule bénédiction.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

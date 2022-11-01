@@ -39,4 +39,4 @@ Par ailleurs, le premier cas, qui semble évident, nécessite également une cla
 <b>Les Sages ont enseigné :</b> En ce qui concerne <b>celui qui jette</b> un objet le Chabbat <b>du domaine public vers</b> l'autre <b>domaine public en passant par le domaine privé, il est responsable</b> s'il jette un objet d'un total de <b>quatre coudées</b> dans les deux parties du domaine public.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara raconte : <b>Rabbi Zeira s'est assis derriere Rav Giddel</b> dans la s
 La Gemara relate : <b>Giddel bar Manyumi se tenait devant Rav Nahman, Rav Nahman a commis une erreur</b> et n'a pas mentionne la formule speciale pour le Shabbat dans la Grace apres les repas,
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

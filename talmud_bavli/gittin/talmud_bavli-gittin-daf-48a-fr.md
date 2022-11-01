@@ -48,4 +48,4 @@ La Guemara rejette cette explication du litige. <b>Rav Naḥman bar Yitzḥak di
 <b>Rava a dit : Un verset et une <i>baraita</i> soutiennent</b> l'opinion de <b>Reish Lakish. Un verset,</b> comme il est écrit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

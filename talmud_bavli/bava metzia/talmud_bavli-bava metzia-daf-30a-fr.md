@@ -51,7 +51,7 @@ La Gemara demande : <b>Pour quel</b> cas <b>un verset était-il nécessaire</b> 
 La Guemara suggère : <b>Disons plutôt,</b> que le verset est nécessaire <b>pour</b> dériver la dispense de rendre l'objet perdu dans le cas où la valeur de <b>son travail était supérieure</b> à la valeur de l'objet perdu de <b>l'autre.</b> La Gemara rejette cette possibilité : Cette <i>halakha</i> est <b>dérivée</b> non pas de la phrase : " Et ne pas en tenir compte ", mais de ce que <b>Rav Yehuda</b> dit que <b>Rav dit. Comme Rav Yehuda dit</b> que <b>Rav dit:</b> Il est écrit : <b>"Seulement pour que</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 que cela s'applique aux ouvriers qui travaillent <b>avec des bœufs, dont</b> le potentiel de causer des <b>dommages est grand</b> s'ils ne sont pas surveillés, car ils piétineront les cultures.
 
@@ -104,4 +104,4 @@ La Gemara demande : <b>Pour quel</b> cas <b>un verset était-il nécessaire</b> 
 La Guemara suggère : <b>Disons plutôt,</b> que le verset est nécessaire <b>pour</b> dériver la dispense de rendre l'objet perdu dans le cas où la valeur de <b>son travail était supérieure</b> à la valeur de l'objet perdu de <b>l'autre.</b> La Gemara rejette cette possibilité : Cette <i>halakha</i> est <b>dérivée</b> non pas de la phrase : " Et ne pas en tenir compte ", mais de ce que <b>Rav Yehuda</b> dit que <b>Rav dit. Comme Rav Yehuda dit</b> que <b>Rav dit:</b> Il est écrit : <b>"Seulement pour que</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

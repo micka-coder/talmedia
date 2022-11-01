@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle</b> conclusion <b>a-t-on</b> tiré <b>à ce sujet<
 <b>Un dilemme a été soulevé devant</b> les Sages : A propos d'un <b>mari qui a vendu</b> la <b>terre de sa femme contre des produits,</b> c'est-à-dire que les droits sur les produits ont été vendus à celui qui accepte de travailler la terre en échange, <b>qu'elle est</b> la <i>halakha</i> ? <b>Disons-nous : Ce qui appartient</b> au mari <b>il l'a transféré</b> à d'autres, et donc la vente du produit est valide, <b>ou peut-être</b> le principe est <b>que lorsque les Sages ont institué</b> que le <b>produit</b> va <b>au mari,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

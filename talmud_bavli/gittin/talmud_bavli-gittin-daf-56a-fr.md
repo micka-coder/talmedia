@@ -54,4 +54,4 @@ Rabban Yoḥanan ben Zakkai <b>a fait cela. Rabbi Eliezer entra d'un côté et R
 <b>Quand</b> Rabban Yoḥanan ben Zakkai <b>atteignit là,</b> c'est-à-dire le camp romain, <b>il dit : Salutations à toi, le roi ; salutations à toi, le roi.</b> Vespasien <b>lui a dit : Tu es passible de deux peines de mort, l'une</b> parce que <b>Je ne suis pas un roi et</b> pourtant <b>tu m'appelles roi, et de plus, si je suis un roi, pourquoi n'es-tu pas venu me voir jusqu'à maintenant ? </b> Rabban Yoḥanan ben Zakkai <b>lui a dit :</b> Quant à <b>ce que tu as dit</b> à ton sujet : <b>Je ne suis pas un roi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

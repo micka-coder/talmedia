@@ -81,4 +81,4 @@ La Gemara cite <b>une autre version</b> de la réponse d'Abaye à l'objection de
 La Gemara objecte : <b>Mais n'est-ce pas enseigné dans la dernière clause</b> de la <i>baraita</i> : Par exemple, <b>une veuve</b> qui est payée pour avoir des rapports <b>avec un grand prêtre,</b> ou <b>une divorcée ou une femme qui a accompli <i>ḥalitza</i> [<i>ḥalutza</i>]</b> qui est payée pour avoir des rapports <b>avec un prêtre ordinaire, son paiement est interdit ? Mais ce sont</b> des cas où la <b>festination prend effet.</b> La Gemara répond : Selon l'avis de <b>qui</b> <b>est ce</b> <i>baraita</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

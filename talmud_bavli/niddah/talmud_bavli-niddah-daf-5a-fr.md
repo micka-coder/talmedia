@@ -48,4 +48,4 @@ La Guemara répond : La <i>halakha</i> selon laquelle les examens effectués apr
 § La mishna enseigne : Et en ce qui concerne une femme qui s'engage dans des rapports sexuels tout en utilisant des linges d'examen, comme le statut halakhique de cet acte est comme celui d'un examen, <b>il réduit</b> le temps <b>de</b> une <b>période de vingt-quatre heures,</b> et réduit le temps d'un examen à l'autre. La Gemara demande : <b>Maintenant</b> que la mishna enseigne que cet examen <b>réduit</b> le temps <b>de</b> une <b>période de vingt-quatre heures,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

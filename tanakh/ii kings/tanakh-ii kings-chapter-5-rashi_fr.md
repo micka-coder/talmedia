@@ -90,7 +90,7 @@
 <b>C'était le moment de prendre de l'argent.</b> Pour s'enrichir, et acheter avec lui des vêtements et des oliviers, etc.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Na'amon le général.</b> Il poursuit et énumère les miracles qui ont été accomplis grâce à Elisée.
 <b>Victoire d'Arom.</b> Il a retiré son arc innocemment et a tué Achov.</sup>1</sup><i class="footnote">Voir I Melochim 22:34 et Rachi à cet endroit.</i>
@@ -182,4 +182,4 @@
 <b>C'était le moment de prendre de l'argent.</b> Pour s'enrichir, et acheter avec lui des vêtements et des oliviers, etc.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

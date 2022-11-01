@@ -48,4 +48,4 @@ La Guemara demande : En ce qui concerne les fils <b>tordus</b> <b>aussi, disons<
 <b>Comme il a été enseigné</b> dans la <i>Tosefta</i> : <b>Celui qui trouve des phylactères</b> dans un champ les <b>apporte</b> à la ville <b>paire</b> par <b>paire, que</b> le trouveur soit <b>un homme ou une femme,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

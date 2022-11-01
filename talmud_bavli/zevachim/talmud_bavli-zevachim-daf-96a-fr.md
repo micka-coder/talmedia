@@ -12,4 +12,4 @@ La Guemara revient sur le sujet de l'embrasement des récipients en faïence et 
 La Gemara répond : La raison pour laquelle le four doit être fabriqué en métal est <b>parce qu'il y a les deux pains,</b> c'est-à-dire l'offrande publique de <i>Shavuot</i> de deux pains de blé nouveau, <b>et les pains de mie,</b> c'est-à-dire, le pain cuit chaque semaine sous une forme spéciale et exposé pendant toute une semaine sur la table du Sanctuaire, <b>dont la cuisson est</b> effectuée <b>dans le four, et</b> aussi <b>dont la sanctification</b> se produit <b>dans le four.</b> Parce que ces offrandes ne sont pas pétries dans un récipient de service, elles ne sont sanctifiées qu'en étant placées dans le four, et donc le four <b>est un récipient de service ; et nous ne faisons pas un récipient de service en terre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

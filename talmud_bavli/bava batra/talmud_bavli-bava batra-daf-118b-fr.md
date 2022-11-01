@@ -39,4 +39,4 @@ La <i>baraita</i> continue. <b>Rabbi Eliezer ben Ya'akov dit : Ils ont aussi pri
 La Gemara présente la sixième question. <b>Et Rav Pappa dit à Abaye :</b> Dans <b>le verset</b> cité ci-dessus, <b>quelles</b> portions <b>compte-t-on ? Si</b> le verset <b>compte les enfants,</b> c'est-à-dire les portions de ceux qui ont hérité de leurs antécédents, comme pour les filles de Zelophehad, <b>il y avait beaucoup</b> de ces portions, et le verset n'a pas énuméré toutes les portions héritées par tous les membres de la tribu. Et <b>si</b> le verset <b>compte les maisons des pères, il n'y en a</b> que <b>six,</b> puisque Hépher est inclus parmi les six énumérés en Josué 17:2. Pourquoi, alors, le verset compte-t-il séparément les portions des filles de Zelophehad ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

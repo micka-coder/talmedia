@@ -60,4 +60,4 @@ La Gemara explique la preuve : <b>Mais n'avons-nous pas appris</b> dans la mishn
 § En ce qui concerne les obligations de <i>pe'a</i> et de dîmes, la Guemara note que <b>nous avons appris</b> dans une mishna <b>ailleurs</b> (<i>Pe'a</i> 3:2) : Les rabbins et Rabbi Akiva ne sont pas d'accord en ce qui concerne le cas où l'on a récolté plusieurs parcelles distinctes dans un champ. Rabbi Akiva règle que chaque parcelle nécessite sa propre <i>pe'a</i>, alors que les rabbins soutiennent qu'une seule <i>pe'a</i> est nécessaire pour toutes les parcelles. Néanmoins, <b>les rabbins concèdent à Rabbi Akiva dans</b> le cas de <b>celui qui sème de l'aneth ou de la moutarde dans deux ou trois</b> <b>locaux distincts</b> dans un seul champ, <b>qu'il laisse <i>pe'a</i> pour chacune</b> de ces parcelles en propre, plutôt qu'un coin pour toutes.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

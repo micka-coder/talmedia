@@ -66,4 +66,4 @@ Le <i>baraita</i> explique : <b>Puisqu'il est dit : "Car c'est le sang qui fait 
 <b>Rabbi Akiva dit : La déclaration de</b> Rabbi Tarfon <b>apparaît</b> correcte <b>dans</b> le cas d'un abus <b>minimal,</b> mais dans un cas <b>où il est confronté à</b> un cas d'<b>incertitude</b> par rapport à un <b>abus</b> évalué à <b>dix mille dinars, ne serait-il pas préférable pour lui qu'il</b> maintenant <b>apporte</b> une <b>offrande de culpabilité</b> provisoire évaluée <b>à deux <i>sela</i> et qu'il n'apporte pas</b> maintenant le paiement d'un <b>mauvais usage incertain</b> évalué <b>à dix mille dinars ? </b> La mishna conclut : Apparemment, <b>Rabbi Akiva concède à Rabbi Tarfon dans</b> le cas d'un <b>moindre abus.</b> Il accepte qu'au départ on apporte le paiement pour l'abus et son paiement supplémentaire d'un cinquième, et qu'on apporte conditionnellement une offrande de culpabilité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

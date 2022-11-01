@@ -30,4 +30,4 @@ La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces 
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Le verset dit à propos de la mitsva de couvrir le sang : <b>"Et couvre-le"</b> (Lévitique 17:13). On <b>pourrait</b> avoir pensé qu'on peut <b>recouvrir</b> le sang <b>avec des pierres ou</b> simplement <b>tourner un récipient dessus.</b> Par conséquent, <b>le verset dit : "Avec de la terre."</b> Sur la base de cette expression <b>J'ai</b> déduit <b>seulement</b> que la <b>terre</b> peut être utilisée. <b>D'où</b> déduit-on <b>que l'on peut inclure du fumier fin, du sable fin, des pierres concassées, du tesson de poterie écrasé, de la paille fine de lin,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

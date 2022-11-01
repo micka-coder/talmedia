@@ -12,4 +12,4 @@
 <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Elazar bar Tzadok a dit : Il y avait un petit espace entre la rampe et l'autel à l'ouest de la rampe, et une fois tous les soixante-dix ans, de jeunes prêtres</b> y descendaient et y recueillaient le vin congelé</b> laissé par les libations qui prenaient au fil du temps, <b>qui ressemblait à des gâteaux ronds de</b> séchés et pressés <b>figues. Ils</b> alors <b>venaient et le brûlaient en sainteté</b> dans la cour du Temple, <b>comme il est dit : "En sainteté, tu verseras une libation de boisson forte à l'Eternel"</b> (Nombres 28, 7) ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

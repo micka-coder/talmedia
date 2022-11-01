@@ -39,4 +39,4 @@ La Gemara demande : <b>Et qu'ils disent aussi</b> le troisième verset qui appar
 La Gemara demande : Lorsque les prêtres montent pour réciter la bénédiction sacerdotale <b>pendant la prière de l'après-midi d'un jour de jeûne, que</b> le peuple <b>dit-il ? Rav Aḥa bar Ya'akov a dit : </b> Ils disent : <b>"Bien que nos iniquités témoignent contre nous, Seigneur, agis pour l'amour de Ton nom"</b> (Jérémie 14, 7), <b>"L'Espoir d'Israël, son sauveur au temps de la détresse, pourquoi serais-Tu un étranger dans le pays</b> et comme un voyageur qui se détourne pour s'attarder une nuit ?". (Jérémie 14, 8), et <b>"Pourquoi serais-Tu comme un homme vaincu, comme un puissant qui ne peut pas sauver ?</b> Pourtant, Toi, Seigneur, Tu es au milieu de nous, et Ton nom est invoqué sur nous ; ne nous abandonne pas" (Jérémie 14, 9).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

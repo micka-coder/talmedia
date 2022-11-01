@@ -57,4 +57,4 @@ La <i>baraita</i> continue : <b>Et</b> la punition des prêtres qui accomplissai
 Le <i>baraita</i> continue : <b>Mais</b> un prêtre qui accomplit le service du Temple alors qu'il est <b>incirconcis, ou</b> en tant que <b>personne en deuil aigu</b> le jour où l'un de ses proches parents meurt, <b>ou</b> un prêtre qui accomplit le service du Temple alors qu'il est <b>assis,</b> n'est pas puni de mort de la main du Ciel ; il est plutôt responsable <b>pour</b> avoir enfreint <b>un interdit</b> et sa punition est le fouet. La Gemara demande : <b>D'où déduit-on</b> qu'il est interdit à <b>un prêtre non circoncis</b> d'accomplir le service du Temple ? <b>Rav Ḥisda répond : Cette question n'a pas été apprise de la Torah de Moïse, notre maître.</b> Elle n'a pas été apprise <b>jusqu'à ce qu'Ezéchiel, fils de Buzi,</b> le prophète, <b>vienne et l'enseigne</b> à <b>nous,</b> comme il est dit : <b>"Aucun étranger incirconcis de cœur</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Gemara demande : <b>Et</b> comment <b>l'autre</b> <i>tanna</i>, Rabbi Eliezer
 <b>Rabbi Eliezer</b> n'est pas d'accord et <b>dit : Ce jour était le dix-septième de Marḥeshvan,</b> le deuxième mois en comptant à partir de Tishrei, qui est <b>le jour où la constellation de <i>Kima</i> se lève pendant la journée et</b> la saison où <b>les sources augmentent.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

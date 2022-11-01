@@ -36,4 +36,4 @@ La Gemara répond : <b>Même</b> si <b>on dit</b> que la mishna est conforme à 
 § La mishna poursuit : Le bassin à l'<b>Ouest</b> de l'autel était <b>pour l'eau,</b> et le bassin à l'Est de l'autel était pour le vin, et on disait à celui qui versait l'eau de lever la main. <b>Les Sages ont enseigné :</b> Il y eut <b>un incident impliquant un prêtre sadducéen</b> <b>qui versait</b> l'eau <b>sur ses pieds,</b> et dans sa colère <b>tout le peuple le bombardait de ses <i>etrogim</i>. Et ce jour-là, la corne de l'autel fut endommagée</b> suite aux jets de pierres et au chaos qui s'ensuivit. <b>On apporta une poignée de sel et on scella</b> la partie endommagée, <b>non pas parce que cela rendait</b> l'autel <b>apte au</b> <b>service du Temple, mais</b> par déférence pour l'autel, <b>afin que l'autel ne soit pas vu</b> dans son <b>état endommagé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

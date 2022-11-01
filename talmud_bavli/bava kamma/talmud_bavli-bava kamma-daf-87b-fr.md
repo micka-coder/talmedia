@@ -45,4 +45,4 @@ La Guemara commente que les <i>amora'im</i> d'Eretz Yisrael ont discuté de la m
 La Guemara objecte : Est-ce qu'il <b>entrerait dans votre esprit</b> que le père reçoit une compensation pour la <b>blessure</b> de sa fille, qui, contrairement à une blessure, ne diminue pas la valeur de sa fille ? <b>Même Rabbi Elazar n'a soulevé son dilemme que</b> par rapport à <b>une blessure,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

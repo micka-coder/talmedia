@@ -48,4 +48,4 @@ Abaye poursuit son explication : <b>Selon la déclaration de Rabbi Yehuda, une p
 <b>Certains disent</b> une version différente de cette déclaration. <b>Abaye a dit : Lors</b> de l'analyse de la question, <b>vous trouverez</b> que vous pouvez <b>dire</b> que <b>selon Rabbi Meir une personne se trompe un peu,</b> et <b>selon Rabbi Yehuda une personne se trompe</b> de <b>une heure et un peu.</b> Abaye développe : <b>Selon Rabbi Meir, une personne se trompe un peu,</b> car <b>lorsque</b> l'<b>incident s'est produit, il s'est produit soit à la fin de la deuxième</b> heure <b>ou au début de la troisième</b> heure, <b>et l'un</b> des deux témoins <b>se trompe un peu. Selon Rabbi Yehuda, une personne se trompe</b> de <b>une heure et un peu,</b> car <b>lorsque</b> l'<b>incident s'est produit, il s'est produit soit à la fin de la troisième</b> heure <b>ou au début de la cinquième</b> heure,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

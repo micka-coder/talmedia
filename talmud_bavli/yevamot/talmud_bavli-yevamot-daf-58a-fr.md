@@ -48,4 +48,4 @@ La Gemara s'interroge : <b>Ce</b> cas d'une <b>fiancée</b>, <b>quelles sont les
 La Guemara demande : Si oui, dans <b>le cas correspondant</b> <b>en ce qui concerne une veuve attendant</b> son <b><i>yavam</i>,</b> dans <b>lequel</b> le <b><i>yavam</i> a eu</b> des <b>cours licencieux avec elle dans la maison de son beau-père,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

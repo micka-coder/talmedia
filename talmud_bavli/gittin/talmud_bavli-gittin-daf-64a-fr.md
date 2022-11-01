@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais qu'on <b>juge le mari crédible, comme le dit Rav �
 La Gemara demande : <b>Mais disons</b> qu'il y a <b>une présomption</b> que <b>un mandataire exécute le <b>mandat qui lui a été confié, car Rabbi Yitzḥak dit</b> que dans le cas de <b>celui qui dit à son mandataire : Sors et fiance une femme pour moi,</b> et qu'il n'a <b>pas précisé</b> quelle femme, <b>et que son agent est mort</b> sans l'informer s'il a fiancé une femme ou l'identité de la femme qu'il a fiancée, il lui est <b>interdit</b> d'épouser <b>toutes les femmes du monde,</b> car il y a <b>une présomption</b> que <b>un agent accomplit sa</b> <b>mission assignée. </Apparemment, on se fie à cette présomption même en ce qui concerne les questions de relations interdites. Puisque l'identité de la femme est inconnue, on doit se préoccuper de toutes les femmes ; peut-être sont-elles des parentes de la femme que l'agent a fiancée en son nom.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

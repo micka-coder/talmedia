@@ -51,4 +51,4 @@ La Gemara demande : <b>N'était-il pas</b> déjà <b>énoncé à propos de cette
 <b>Au contraire, Rav Pappa a dit :</b> La déclaration de Rabbi Ḥanina était <b>en ce qui concerne un coffre. Rav Naḥman bar Yitzḥak a dit</b> que c'était <b>en ce qui concerne le vin.</b> La Guemara développe : <b>Rav Pappa a dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara reformule sa suggestion : <b>Voici ce que nous disons : Si</b> la mis
 La Gemara demande : <b>A propos de quel</b> principe <b>sont-ils en désaccord ? Rabbi Yirmeya dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

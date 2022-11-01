@@ -51,4 +51,4 @@ Lorsque <b>Rabbi</b> Yehuda HaNasi entendit cette histoire d'Elazar ben Durdayya
 § Concernant la question de la prise de distance avec le culte des idoles et la prostitution, la Guemara relate : <b>Rabbi Ḥanina et Rabbi Yonatan étaient</b> un jour <b>en train de marcher le long de la route</b> quand <b>ils arrivèrent à un certain deux chemins, dont l'un</b> <b>branche vers l'entrée de</b> un lieu d'adoration d'une <b>idole, et</b> l'autre <b>branche vers l'entrée d'un bordel. L'un dit à l'autre : Prenons</b> le chemin qui mène à <b>l'entrée</b> du lieu <b>d'adoration d'idoles,</b> et de l'autre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

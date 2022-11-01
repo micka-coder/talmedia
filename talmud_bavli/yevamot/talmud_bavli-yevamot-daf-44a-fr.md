@@ -69,4 +69,4 @@ La Guemara persiste : <b>Mais peut-être ne parlait-il pas réellement de ce</b>
 <b>Rav Yosef a dit</b> que <b>Rabbi Shimon bar Rabbi</b> Yehuda HaNasi <b>a dit : Tous sont d'accord dans</b> le cas de <b>celui qui se remarie avec sa divorcée</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

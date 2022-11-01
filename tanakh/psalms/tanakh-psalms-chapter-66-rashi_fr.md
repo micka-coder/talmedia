@@ -62,4 +62,4 @@
 <b>Qui n'a pas retiré ma prière</b> de devant Lui, et Il n'a pas retiré Sa bonté de moi.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

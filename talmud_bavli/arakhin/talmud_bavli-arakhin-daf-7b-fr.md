@@ -39,4 +39,4 @@ La Gemara demande : N'est-il pas <b>évident</b> que c'est la raison pour laquel
 La Guemara explique encore : <b>Il est enseigné</b> dans une <i>baraïta</i> <b>conforme</b> à l'avis du <b>Rav Naḥman bar Yitzḥak,</b> comme suit : Alors que dans le cas d'une <b>femme qui est morte, on peut tirer un bénéfice de ses cheveux,</b> en ce qui concerne <b>un animal qui a été mis à mort, il est interdit de</b> tirer un <b>bénéfice</b> de celui-ci. <b>Et quelle est la différence entre ce</b> cas <b>et celui-là</b> ? Dans <b>cette</b> affaire, c'est <b>sa mort</b> qui <b>cause son interdiction, mais</b> dans <b>cette</b> affaire, le <b>verdict cause</b> l'animal <b>d'être interdit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

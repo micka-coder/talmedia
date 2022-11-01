@@ -26,5 +26,5 @@ S'il y avait dans la ville une personne qui n'avait pas de bon sens, un païen o
 ### michna 9
 Si un témoin dit : "Tu es devenu impur", mais qu'il dit : "Je ne suis pas devenu impur", il est considéré comme pur. Si deux témoins disent : "Tu es devenu impur", et qu'il dit : "Je ne suis pas devenu impur", Rabbi Meir dit : il est impur. Mais les sages disent : on peut le croire sur sa propre preuve. Si un témoin dit : "Tu es devenu impur", et que deux témoins disent : "Il n'est pas devenu impur", que ce soit dans un domaine privé ou dans un domaine public, il est considéré comme pur. Si deux témoins disent : "Il est devenu impur", et qu'un témoin dit : ""Il n'est pas devenu impur", que ce soit dans un domaine privé ou dans un domaine public, il est considéré comme impur. Si un témoin dit : "Il est devenu impur", et qu'un autre dit : "Il n'est pas devenu impur", ou si une femme dit : "Il est devenu impur", et qu'une autre dit : "Il n'est pas devenu impur", il est considéré comme impur s'il est dans le domaine privé, mais s'il est dans un domaine public, il est considéré comme pur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Selon cette réponse, le langage de la mishna <b>est également précis, comme i
 § La Guemara revient sur <b>la</b> question <b>elle-même</b> citée plus haut. En ce qui concerne <b>celui qui mange le nerf sciatique d'un animal non casher, Rabbi Yehouda le juge</b> <b>faisable</b> de recevoir <b>deux</b> séries de coups de fouet : Un pour avoir mangé le nerf sciatique et un pour avoir mangé la viande d'un animal non cachère ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

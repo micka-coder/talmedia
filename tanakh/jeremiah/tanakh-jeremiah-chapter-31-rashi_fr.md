@@ -121,7 +121,7 @@
 <b>les champs</b> (Kanpanjje en ancien français.) (campagne en français moderne, pays ouvert.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -244,4 +244,4 @@
 <b>les champs</b> (Kanpanjje en ancien français.) (campagne en français moderne, pays ouvert.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

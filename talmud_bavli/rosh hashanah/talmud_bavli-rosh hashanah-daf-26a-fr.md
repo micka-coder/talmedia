@@ -63,4 +63,4 @@ De même, <b>Rabbi</b> Yehuda HaNasi <b>a dit : Quand je suis allé dans les vil
 Accessoirement à la discussion sur la signification de certains mots dans les pays étrangers, on a raconté que <b>Levi</b> un jour <b>se trouva</b> à venir <b>dans un certain endroit,</b> où <b>un homme se présenta devant lui</b> pour se plaindre de ce qui lui avait été fait. Cet homme lui <b>dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ En outre, <b>Rav Naḥman a dit : Si le propriétaire de ce bœuf avait pris un 
 <b>Rava a soulevé une objection à</b> l'opinion de <b>Rav Naḥman</b> à partir de la mishna : Si l'un des types d'excavations <b>était d'une profondeur inférieure à dix coudées</b>, <b>et qu'un bœuf ou un âne est tombé dans</b> l'un d'eux et est mort,</b> il est <b>exempté. Quelle est la raison</b> de ceci ? <b>N'est-ce pas parce qu'il n'y a pas</b> d'<b>impact</b> significatif capable de provoquer la mort ? Si oui, pourquoi cet animal est-il considéré comme un <i>tereifa</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

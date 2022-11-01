@@ -78,4 +78,4 @@ Le <i>baraita</i> continue : <b>Rabbi Yonatan dit : Ce n'est pas parce que</b> l
 La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> qu'il s'agit peut-être d'une exécution par <b>brûlure,</b> qui ne laisse pas non plus de marque extérieure ? La Gemara répond : <b>Du fait <b>que le Miséricordieux déclare</b> explicitement que <b>la fille d'un prêtre</b> qui a commis l'adultère est exécutée <b>par le feu</b> on peut apprendre <b>par déduction que cette</b> autre femme qui a commis l'adultère <b>n'est pas susceptible</b> d'être exécutée par <b>le feu,</b> mais plutôt par un autre type d'exécution qui ne laisse pas de marque, c'est-à-dire la strangulation.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

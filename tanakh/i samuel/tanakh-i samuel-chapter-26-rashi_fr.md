@@ -57,4 +57,4 @@
 <b>Chaque homme.</b> A chaque homme juste.<sup>9</sup><i class="footnote">qui fait comme j'ai fait.-Radak. David laissait entendre à <span>ה׳</span> que de même que la vie de Shaul était précieuse à ses yeux, de même sa vie peut être précieuse aux yeux de <span>ה׳</span>.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -27,4 +27,4 @@ De même, s'il a accompli tous leurs rites sacrificiels <b>en dessous</b> de la 
 La Guemara soulève une difficulté : Mais <b>il y a</b> le cas des offrandes <b>abattues</b> qui sont rejetées de l'autel, au sujet desquelles tout le monde s'accorde</b> à dire qu'elles <b>sont rejetées.</b> Même ceux qui disent que les créatures vivantes ne sont généralement pas rejetées s'accordent à dire que, dans ce cas, elles doivent être rejetées.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

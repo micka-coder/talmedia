@@ -30,4 +30,4 @@ La Gemara explique : <b>Rav Pappa dit au nom de Rava</b> qu'il a <b>renoncé</b>
 La Gemara note : <b>Et ce</b> différend <b>de Rav Pappi et Rav Pappa n'a pas été énoncé explicitement, mais plutôt par déduction. Comme</b> il y avait <b>un certain premier-né qui est allé</b> et a <b>vendu ses biens et</b> les biens <b>de</b> son frère <b>ordinaire</b> décédé, c'est-à-dire leurs parts respectives des biens de leur père, avant le partage des biens. Les <b>fils orphelins</b> du frère <b>ordinaire</b> <b>allaient manger des dattes du</b> champ qui était maintenant en la possession de <b>ces acquéreurs,</b> en raison de la part de leur père dans le champ. Les acheteurs <b>les ont frappés,</b> comme s'ils étaient des voleurs. Les <b>parents</b> des orphelins <b>ont dit</b> aux acheteurs : <b>Non seulement vous avez acheté leur propriété</b> illégalement, <b>mais maintenant vous les frappez aussi ? Ils sont venus devant Rava,</b> qui leur a <b>dit : </b> Le premier-né <b>n'a rien fait.</b> Sa vente n'était pas valable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Gemara répond : La contradiction apparente <b>entre</b> la première déclar
 <b>Rav Naḥman bar Yitzḥak était assis derrière Rava, et Rava était assis devant Rav Naḥman,</b> et Rava <b>demanda</b> Rav Naḥman : <b>Chmuel</b> a-t-il effectivement <b>savoir</b> que <b>peut-être</b> le fait qu'un acte d'acquisition ait été accompli indique que la personne sur son lit de mort <b>a résolu de transférer</b> la propriété du don <b>uniquement avec</b> l'<b>acte de propriété, et</b> par conséquent le don n'est pas valable, car <b>un acte de propriété n'est pas</b> efficace s'il est délivré <b>après</b> le <b>décès</b> du propriétaire ? <b>Mais le Rav Yehuda ne dit-il pas</b> que <b>Shmuel dit :</b> En ce qui concerne <b>une personne sur son lit de mort qui a écrit</b> un acte concédant <b>tous ses biens à d'autres, même si</b> ils ont <b>effectué un acte d'acquisition,</b> si <b>elle se rétablit, elle peut rétracter</b> sa donation ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

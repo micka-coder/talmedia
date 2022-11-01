@@ -48,4 +48,4 @@ La Guemara répète sa question sur cette <i>baraita</i> : <b>Qui</b> est le <i>
 <b>Abaye a dit : Vous</b> pouvez <b>même dire</b> que la <i>baraita</i> est conforme à l'avis de <b>Rabbi Yehuda,</b> et <b>c'est</b> ce qu'elle <b>dit : </b> Si <b>c'est ainsi,</b> que les prêtres ne réalisent pas l'expiation par le taureau d'Aaron, alors <b>ils n'ont</b> aucun moyen par lequel réaliser l'<b>expiation pour</b> la <b>salissure</b> du <b>Temple ou de ses aliments sacrificiels</b>. <Lorsque le verset stipule : "Et il fera l'expiation... sur les prêtres", nous avons</b> clairement <b>trouvé qu'ils</b> n'ont <b>pas de moyen d'<b>expiation pour d'autres transgressions. Et</b> il s'ensuit que <b>tout comme nous avons trouvé qu'ils ont</b> un moyen de <b>réparation pour d'autres transgressions,</b> comme les Israélites, <b>ainsi</b> aussi, <b>ils</b> doivent aussi <b>avoir</b> un moyen de <b>réparation</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

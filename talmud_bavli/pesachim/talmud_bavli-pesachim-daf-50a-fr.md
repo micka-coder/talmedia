@@ -63,4 +63,4 @@ Le verset dit : "Ce jour-là, le Seigneur sera unique <b>et son nom unique.</b> 
 <b>Rabbi Avina a soulevé une contradiction : Il est écrit</b> dans le verset : <b>Voici mon nom pour toujours,</b> impliquant une obligation de dissimuler le nom de Dieu, et dans la phrase suivante, il est dit : <b>"Et ceci est Mon mémorial pour toutes les générations"</b> (Exode 3:15), ce qui indique que le nom de Dieu doit être rendu public et rappelé par tous. Au contraire, <b>le Saint, Béni soit-Il, a dit : Je,</b> c'est-à-dire Mon nom, n'est <b>pas lu comme je suis écrit. Je suis écrit avec</b> les lettres <b><i>yod</i></b> et <b><i>heh</i>, et je suis lu avec</b> les lettres <b><i>alef</i></b> et <b><i>dalet</i>.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

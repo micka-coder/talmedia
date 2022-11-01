@@ -42,4 +42,4 @@ En ce qui concerne <b>lui, puisqu'il s'est mis en route, son</b> statut juridiqu
 La Gemara relate : <b>Rabba bar Rav Ḥanan avait l'habitude</b> de <b>venir de</b> sa maison à <b>Artibbena à Pumbedita</b> le Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

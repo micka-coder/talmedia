@@ -42,4 +42,4 @@ La Guemara répond : <b>Du point de vue</b> du droit de son père à effectuer l
 La mishna enseigne en outre que le père <b>a droit aux objets qu'elle</b> a <b>trouvés.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

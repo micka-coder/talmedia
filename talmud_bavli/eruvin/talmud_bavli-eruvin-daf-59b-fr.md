@@ -45,4 +45,4 @@ Abaye lui a dit : Ces</b> mêmes <b>anciens m'ont dit</b> que la raison était d
 La Gemara demande : <b>Raven Naḥman</b> a-t-il réellement <b>dit cela ? Rav Naḥman n'a-t-il pas dit</b> que <b>Shmuel a dit :</b> En ce qui concerne les <b>résidents du</b> rez-de-chaussée d'une <b>cour et les résidents d'un balcon,</b> c'est-à-dire l'étage au-dessus du rez-de-chaussée, <b>qui ont oublié</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

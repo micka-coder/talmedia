@@ -57,4 +57,4 @@ La Guemara suggère : Il y a une autre explication. <b>Rabbi Elazar tient confor
 <b>Rav Samma, fils de Rav Ashi, dit à Ravina : Dis que tu as entendu</b> que <b>Rabbi Yehouda</b> a déclaré que l'aspect d'innocuité reste intact <b>en ce qui concerne</b> les dommages catégorisés dans la catégorie primaire du Goring, où le bœuf était initialement <b>innocu et</b> ensuite <b>devenu prévoyant. Dans</b> le cas des cailloux propulsés, qui est une sous-catégorie du piétinement, où le bœuf est <b>prévenu dès le départ,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

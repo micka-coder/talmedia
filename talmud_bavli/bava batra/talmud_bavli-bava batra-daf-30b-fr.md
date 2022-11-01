@@ -27,4 +27,4 @@ Le possesseur lui <b>dit : Soutenez-vous</b> que lorsque j'ai dit : J'ai profit�
 La Gemara commente : <b>Et cette question</b> s'applique <b>seulement</b> si <b>il a profité</b> de la terre pendant <b>sept</b> ans, de sorte <b>que la présomption</b> de propriété <b>de ce</b> possesseur <b>précède le document de ce</b> demandeur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

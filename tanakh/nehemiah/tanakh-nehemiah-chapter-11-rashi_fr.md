@@ -62,4 +62,4 @@
 <b>Il y eut des divisions à Juda et à Benjamin</b> Ils furent divisés selon leurs divisions ici et là dans le pays de Juda et de Benjamin. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

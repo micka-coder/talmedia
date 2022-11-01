@@ -30,4 +30,4 @@ La Gemara demande : <b>Et qu'ils établissent la maison du mariage dans la <i>su
 <b>Les Sages ont enseigné : Le marié et les garçons d'honneur et tous les membres de la fête du mariage</b> <b>sont exemptés</b> de la mitzva de la <b>prière et de</b> la mitzva des <b>phylactères</b> parce qu'ils sont incapables de rassembler l'intention requise en raison de l'excès de joie et de légèreté ; <b>mais ils sont obligés dans</b> la mitzva de <b>réciter <i>Shema</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

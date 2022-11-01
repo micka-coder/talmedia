@@ -21,4 +21,4 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Shimon</b> répond-il à cette af
 La Guemara s'interroge en outre : La <i>baraita</i> indique que Rabbi Yosei, fils de Rabbi Yehuda, considère que les pains et les galettes sont deux types différents d'offrandes de repas. L'opinion de <b>Rabbi Yosei, fils de Rabbi Yehuda, est</b> la même que celle de <b>son père,</b> Rabbi Yehuda, dont l'opinion est également mentionnée dans la <i>baraita</i>. Pourquoi est-il nécessaire de citer séparément l'opinion de Rabbi Yosei bar Rabbi Yehuda ? La Guemara explique : Il est nécessaire de citer l'avis de Rabbi Yosei bar Rabbi Yehuda, car il existe une différence pratique <b>entre</b> son jugement et celui de son père ; <b>comme, si</b> quelqu'un a transgressé et <b>exécuté</b> le sacrifice d'une offrande de repas cuite au four en apportant un mélange de pains et de galettes, selon Rabbi Yehuda l'offrande est valide après coup, alors que Rabbi Yosei bar Rabbi Yehuda la juge non valide même après coup.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

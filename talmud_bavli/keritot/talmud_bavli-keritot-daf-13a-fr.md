@@ -66,4 +66,4 @@ La Gemara demande : <b>Et selon</b> l'avis de <b>Rava,</b> est-il exact que <b>l
 <b>Et si vous disiez</b> que <b>Rava ne tient pas conformément</b> à l'opinion de <b>Rabbi Yoḥanan,</b> car il est permis à un <i>amora</i> d'être en désaccord avec un autre, <b>mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Vous vous trouvez en train de dire</b> qu'il y a <b>neuf liquides par rapport à un <i>zav</i> : La sueur, le pus malodorant, et</b> le liquide <b>excrément</b> sont plus <b>purs que tous les autres,</b> c'est-à-dire qu'ils ne deviennent pas impurs et ne rendent pas d'autres éléments susceptibles d'être impurs. <b>Les larmes</b> qui sortent de son <b>oeil, et le sang</b> qui sort de sa <b>blessure,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

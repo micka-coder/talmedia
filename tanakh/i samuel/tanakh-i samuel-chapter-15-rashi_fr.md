@@ -93,4 +93,4 @@
 <b>[Chmouel] coupa.</b> Il le coupa en quatre morceaux. Ce mot n'a pas d'équivalent [dans les Écritures]. Le Targum rend <span>וַיְשַׁסֵּף</span> par <span>וּפָשַׁח</span>. Et dans notre Guemara, nous trouvons : 'il a cassé [<span>מפשח</span>] une branche, et nous a donné plusieurs brindilles'<sup>32</sup><i class="footnote"> Beitzah 33b.</i> ce qui signifie qu'il a fendu.<sup>33</sup><i class="footnote"> Voir le commentaire de Rachi dans Eichah 3:11.</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

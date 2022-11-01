@@ -57,4 +57,4 @@ La Gemara demande : <b>La coupe rendra</b> ses <b>mains rituellement impures</b>
 La Gemara demande : Si le dos de la coupe est rituellement impur, <b>cela rend-il les liquides qui sont a l'interieur</b> de la coupe <b>rituellement impurs ?</b> La Gemara repond : <b>Il s'agit ici d'un recipient</b> dont seul <b>l'exterieur a ete rendu rituellement impur par des liquides</b> par la loi rabbinique et non par la loi de la Torah. Dans ce cas, <b>l'interieur</b> de la coupe <b>est pur et l'exterieur est impur. Comme nous l'avons appris</b> dans une mishna : <b>Un recipient dont le cote exterieur est rendu rituellement impur par un liquide,</b> seul <b>le cote exterieur</b> du recipient <b>est impur,</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

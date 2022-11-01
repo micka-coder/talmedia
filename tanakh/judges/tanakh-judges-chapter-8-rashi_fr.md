@@ -90,4 +90,4 @@
 <b>Ils n'ont pas agi avec bienveillance.</b> Ils ont assassiné ses enfants, comme l'indique le récit.<sup>6</sup><i class="footnote">Ch. 9.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

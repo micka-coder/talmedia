@@ -24,4 +24,4 @@ La Guemara poursuit sa discussion sur cet épisode. Plus tard, <b>lorsque</b> le
 Abaye a demandé à Rav Pappa : <b>Et plutôt,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

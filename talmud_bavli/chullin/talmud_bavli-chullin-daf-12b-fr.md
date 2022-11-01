@@ -24,4 +24,4 @@ La Guemara demande : Comment l'abattage dans la <i>baraita</i> pourrait-il être
 <b>Comme nous l'avons appris</b> dans cette mishna : En ce qui concerne <b>un gland, une grenade ou une noix, que des mineurs ont creusés</b> afin <b>de mesurer de la terre avec eux ou qu'ils ont fixés sur une balance,</b> le statut halakhique de ces coquilles est celui de récipients, et elles sont <b>susceptibles d'impureté rituelle.</b> En revanche, si les mineurs ont simplement pensé à utiliser les coquilles pour mesurer ou peser, contrairement aux adultes, ils ne transforment pas pour autant ces coquilles en récipients. La raison de cette distinction est <b>due</b> au fait <b>qu'ils ont</b> la capacité d'accomplir <b>une action,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

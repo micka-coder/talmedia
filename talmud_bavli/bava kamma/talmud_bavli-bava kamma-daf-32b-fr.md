@@ -72,4 +72,4 @@ La Gemara répond : <b>A quoi avons-nous affaire ici,</b> dans cette <i>baraita<
 La Guemara demande : <b>Et parce que son mentor l'incite à partir, risque-t-il d'être tué ?</b> Le soudeur doit être prudent jusqu'à ce que son apprenti parte. La Guemara répond : Le soudeur <b>pensait</b> que <b>il</b> était déjà <b>parti</b> lorsque l'accident s'est produit. La Guemara demande : <b>Si c'est le cas,</b> pourquoi établir que la <i>baraita</i> se réfère spécifiquement à un apprenti ? Le soudeur serait exempté s'il s'agissait de toute <b>autre</b> personne <b>aussi.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

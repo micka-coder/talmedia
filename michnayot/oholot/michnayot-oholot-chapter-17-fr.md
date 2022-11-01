@@ -14,5 +14,5 @@ Dans le cas où] il y avait un bet peras au-dessus d'un champ pur, si la pluie a
 ### michna 5
 [Concernant] un champ dans lequel une tombe avait été perdue, et sur lequel on avait construit une maison avec un étage supérieur au-dessus : Si l'entrée de la chambre haute était directement au-dessus de l'entrée de la maison, l'étage supérieur reste pur ; mais sinon l'étage supérieur devient impur. En ce qui concerne] la terre d'un bet peras, ou la terre d'un pays étranger qui est entrée avec des légumes, les morceaux de la terre se combinent ensemble [pour transmettre l'impureté s'ils forment une portion] de la taille d'un sceau de sac d'emballage, les mots de Rabbi Eliezer ; Mais les sages disent : il doit y avoir une portion de la taille d'un sceau de sac d'emballage. Rabbi Juda dit : Il est arrivé une fois que des lettres arrivent d'outre-mer pour les fils des grands prêtres et elles avaient sur elles environ un se'ah ou deux se'ahs de sceaux [de saleté], mais les sages ne se sont pas inquiétés à cause de l'impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

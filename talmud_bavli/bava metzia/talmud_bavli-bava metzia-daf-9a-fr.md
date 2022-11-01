@@ -57,4 +57,4 @@ La Guemara demande : <b>Si c'est le cas, quelle est la raison</b> pour laquelle 
 <b>Au contraire,</b> le <i>baraita</i> ne se réfère pas au cas d'un animal trouvé, qu'on peut acquérir même en s'asseyant dessus en ville. En fait, <b>nous avons affaire</b> à un cas d'<b>achat et de vente</b> d'un animal, <b>où</b> le vendeur <b>dit à</b> l'acheteur : <b>Acquérir</b> l'animal <b>de la manière dont les gens</b> normalement <b>acquièrent</b> un animal. L'acheteur ne peut donc pas l'acquérir en ville en s'asseyant dessus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

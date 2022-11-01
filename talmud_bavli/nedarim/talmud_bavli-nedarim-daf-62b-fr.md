@@ -24,4 +24,4 @@ Si on fait un vœu <b>jusqu'aux pluies,</b> ou <b>jusqu'à ce qu'il y ait des pl
 La mishna déclare que si l'on fait un vœu <b>jusqu'aux pluies,</b> ou <b>jusqu'à ce qu'il y ait des pluies,</b> il signifie <b>jusqu'à la deuxième pluie</b> de la saison des pluies. <b>Rabban Shimon ben Gamliel dit :</b> Jusqu'à ce que le moment de la deuxième pluie arrive. La Gemara commente : <b>Rabbi Zeira dit :</b> Le <b>dispute</b> est dans un cas <b>où on <b>dit : Jusqu'aux pluies. Cependant,</b> si <b>il dit : Jusqu'à la pluie,</b> tout le monde est d'accord pour dire que <b>il dit</b> que le vœu doit rester en vigueur <b>jusqu'au moment des pluies,</b> mais pas nécessairement jusqu'à ce que la pluie tombe effectivement.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

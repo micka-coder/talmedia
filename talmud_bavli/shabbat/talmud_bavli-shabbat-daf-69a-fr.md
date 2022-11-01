@@ -27,4 +27,4 @@ La Guemara demande : <b>Qui est</b> la <i>tanna</i> <b>qui a enseigné cette</b>
 La Gemara explique : <b>Il pourrait vous venir à l'esprit de dire</b> ce qui suit : <b>Puisque l'obligation</b> d'apporter <b>une offrande</b> dans le cas du serment <b>est une nouvelle</b> <i>halakha</i>, <b>comme</b> dans toute <b>la Torah dans son intégralité nous ne trouvons pas d'interdiction</b> pour <b>laquelle</b> violation involontaire <b>on</b> est passible d'apporter <b>une offrande</b> et pour laquelle la violation intentionnelle n'est pas punie par <i>karet</i> ; <b>et ici, on</b> est susceptible d'apporter une offrande pour sa violation involontaire, j'aurais pu dire <b>que s'il était involontaire,</b> c'est-à-dire. e., sans savoir qu'il serait obligé, en ce qui concerne <b>l'offrande, qu'il soit également responsable</b> selon les sages, qui ne sont pas d'accord avec Munbaz.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

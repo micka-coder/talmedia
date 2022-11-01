@@ -24,4 +24,4 @@ La Gemara interprète le verset suivant d'une manière homilétique similaire : 
 La Gemara commente : <b>Et c'est ainsi qu'il est écrit : "Et il était prêtre de Dieu le Très-Haut"</b> (Genèse 14:18), ce qui souligne que <b>il,</b> Melchisédek, <b>est prêtre, mais ses enfants</b> ne seront <b>pas</b> des <b>prêtres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

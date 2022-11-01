@@ -33,4 +33,4 @@ Le prêtre <b>qui a gagné</b> le droit <b>de retirer la cendre du Candélabre e
 <b>Et il y avait une pierre devant le Candélabre et dans celle-ci</b> il y avait <b>trois marches sur lesquelles</b> le <b>prêtre</b> devait <b>se tenir debout et préparer les lampes</b> pour l'allumage. Comme le Candélabre avait une hauteur de dix-huit coudées, il était nécessaire que le prêtre se tienne sur une surface élevée pour atteindre les lampes. <b>Et</b> après avoir placé les cendres et les mèches des cinq lampes les plus à l'ouest dans la cruche, il <b>déposait la cruche sur</b> la <b>seconde marche</b> de cette pierre, <b>et</b> alors il <b>sortait</b> du Sanctuaire. Lorsque le prêtre revenait ensuite pour préparer les deux lampes les plus à l'est pour l'allumage, il retirait la cruche avec les cendres du Candélabre et, avec le prêtre qui retirait le panier avec les cendres de l'autel intérieur, versait les cendres de la cruche et du panier sur le côté de l'autel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

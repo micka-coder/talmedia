@@ -24,4 +24,4 @@ La Guemara conteste cette explication : <b>Si</b> c'est conforme à l'opinion de
 <b>Et si vous disiez</b> que la raison de Rabbi Yehuda n'est pas qu'il tient que Jérusalem n'est pas consacrée, mais <b>parce que</b> celui qui énonce le vœu <b>n'a pas dit : Comme Jérusalem,</b> mais a seulement déclaré que l'objet sera considéré comme Jérusalem, ce qui n'est pas une expression claire d'un vœu, <b>mais n'est-il pas enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Nedarim</i> 1:6) que <b>Rabbi Yehuda dit : Quiconque dit</b> qu'un objet sera considéré <b>comme Jérusalem n'a rien dit, jusqu'à ce qu'il fasse un vœu en</b> comparant l'objet à <b>un objet qui est sacrifié à Jérusalem.</b> Cela indique qu'il tient que Jérusalem elle-même n'est pas consacrée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

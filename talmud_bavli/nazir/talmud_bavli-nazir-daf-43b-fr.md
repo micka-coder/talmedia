@@ -24,4 +24,4 @@ La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> 
 On <b>pourrait</b> avoir pensé qu'il <b>ne peut pas devenir impur pour une colonne vertébrale et un crâne, ou pour la plus grande partie du squelette ou la plus grande partie du nombre</b> d'os du cadavre de sa sœur. C'est pourquoi il est <b>écrit</b> au début de ce passage traitant de l'impureté des prêtres : "Parle aux prêtres, les fils d'Aaron, <b>et dis-leur"</b> (Lévitique 21:1). La répétition de "parler" et "dire" indique que <b>le verset ajoutait une autre</b> forme d'<b>impureté</b> permise à un prêtre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

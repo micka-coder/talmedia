@@ -20,4 +20,4 @@
 <b>Rasez-la</b> Heb.  עָרוּ  est une expression de destruction, et ainsi (Jér. 51:58) : "Les larges murs de Babylone seront renversés (תתערער)," et ainsi (Hab. 3:13) : Il n'est utilisé que pour quelque chose dont les racines sont arrachées du sol.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

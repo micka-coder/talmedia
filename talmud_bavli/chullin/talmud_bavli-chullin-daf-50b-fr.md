@@ -33,4 +33,4 @@ La Guemara demande : Si la <b>majorité</b> de la panse externe est déchirée <
 § La mishna déclare : Un animal est une <i>tereifa</i> si la <b>côté ou le réticulum</b> a été perforé vers l'extérieur, c'est-à-dire vers la cavité abdominale. A ce sujet, <b>les Sages ont enseigné :</b> Dans le cas d'une <b>aiguille qui se trouve dans l'épaisseur du réticulum,</b> si elle a percé la paroi <b>de</b> seulement <b>un côté,</b> l'animal est <b>cacher.</b> Si elle a percé la paroi <b>des deux côtés,</b> c'est-à-dire, l'aiguille a complètement percé la paroi de l'estomac, c'est <b>un <i>tereifa</i>.</b> Mais même si elle dépasse des deux côtés, ce n'est pas toujours un <i>tereifa</i>, et il peut être inspecté davantage : Si <b>une goutte de</b> <b>sang congelé se trouve sur le dessus</b> de l'aiguille,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

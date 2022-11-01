@@ -21,4 +21,4 @@ Si le champ comporte à la fois des <b>arbres et des vignes</b>, il a tout vendu
 <b>Rav dit :</b> Si le vendeur a spécifié qu'il vendait un champ mais pas les arbres, <b>tout</b> arbre qui est si haut <b>que l'on doit y grimper avec une corde</b> pour récolter ses fruits <b>est retenu</b> et n'est pas inclus dans la vente, et <b>tout</b> arbre <b>que l'on n'a pas besoin de grimper avec une corde n'est pas retenu</b> et est vendu avec le champ.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

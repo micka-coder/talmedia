@@ -60,4 +60,4 @@ La Gemara revient sur les lois des ruelles : Si la traverse qui enjambe l'entré
 La Guemara suggère : <b>Disons</b> que ces <i>amora'im</i> <b>sont en désaccord à ce sujet : Celui qui a dit</b> une <b>margeur soutient</b> qu'il est <b>permis d'utiliser</b> la zone <b>sous la</b> <b>poutre transversale</b> enjambant l'entrée de la ruelle, car il soutient que la poutre transversale sert de cloison, et la ruelle est considérée comme si elle était fermée par une cloison descendant du bord extérieur de la poutre transversale qui fait face au domaine public. Puisque l'espace sous la poutre transversale fait partie de la ruelle et qu'il est inférieur à vingt coudées, il y a une démarcation évidente pour celui qui se tient dans la ruelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

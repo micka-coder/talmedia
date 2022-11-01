@@ -42,4 +42,4 @@ La Guemara soulève une question par rapport à l'opinion de Rabbi Elazar HaKapp
 <b>Et</b> de même, <b>il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

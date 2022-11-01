@@ -92,5 +92,5 @@
 ### passuk 36
 <b>Aharon et ses fils ont accompli,</b> pour raconter leur louange, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qu'ils n'ont pas dévié à droite ou à gauche. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

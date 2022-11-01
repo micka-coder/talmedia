@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne <b>le <i>tanna</i> de notre</b>
 <b>Ils sont en désaccord</b> dans une situation <b>où</b> le père dit que le rachat doit prendre effet <b>après trente jours mais que l'argent a été dilapidé</b> dans l'intervalle. <b>Le Rav dit que son fils est racheté, tout comme l'est</b> la <i>halakha</i> <b>en ce qui concerne les fiançailles d'une femme</b> à condition qu'elles prennent effet après trente jours. Dans ce cas <b>là,</b> n'est-il pas <b>corrigé que <b>même si l'argent a été dilapidé</b> pendant les trente jours <b>il s'agit</b> d'une <b>fiançailles valide ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

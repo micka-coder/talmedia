@@ -57,4 +57,4 @@ La Gemara poursuit : <b>Venez</b> et <b>entendez : Beloreya le converti</b> a un
 C'est ainsi que la contradiction avait d'abord été résolue, <b>jusqu'à ce que Rabbi Akiva vienne et enseigne</b> comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

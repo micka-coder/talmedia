@@ -45,4 +45,4 @@ La Guemara demande : <b>Qu'est-ce qui est différent</b> en ce qui concerne le <
 En ce qui concerne le <b>sang de l'abattage, il est également écrit :</b> "Seulement, tu ne mangeras pas le sang ; <b>tu le verseras sur la terre comme de l'eau"</b> (Deutéronome 12:16). Le parallèle avec l'eau indique ostensiblement que le sang de l'abattage devrait également rendre les aliments susceptibles d'être impurs selon le rituel. La Gemara répond : <b>Ce verset</b> n'est pas écrit en ce qui concerne la susceptibilité à l'impureté. Le but pour <b>lequel</b> il <b>arrive</b> est de <b>permettre le bénéfice</b> du <b>sang des animaux consacrés disqualifiés</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

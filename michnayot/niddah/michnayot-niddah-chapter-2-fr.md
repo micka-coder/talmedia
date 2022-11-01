@@ -20,5 +20,5 @@ Cinq sortes de sang chez une femme sont impures : rouge, noir, comme un crocus b
 ### michna 7
 Qu'est-ce qui est considéré comme rouge ? Comme le rouge d'une blessure. Noir : Comme le sédiment de l'encre. Plus sombre que cela, c'est impur. Plus clair que cela est pur. Comme des crocus brillants : comme la nuance la plus claire en elle. Comme une eau terreuse : de la vallée de Bet Kerem, quand l'eau flotte dessus. Comme du vin dilué : deux parts d'eau, une part de vin, du vin du Sharon.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

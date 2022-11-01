@@ -27,4 +27,4 @@ La Gemara demande : <b>Devons-nous dire</b> que l'avis <b>de Shmuel est</b> suje
 La Gemara demande : <b>Si c'est le cas, dites la dernière clause : Les rabbins concèdent à Rabbi Yéhouda</b> dans un cas <b>où la cruche était dans la main de l'enfant, et où le magasinier mesurait</b> l'huile <b>dans celle-ci, que le magasinier</b> est <b>exonéré.</b> Pourquoi les rabbins statueraient-ils que le magasinier est exonéré ? <b>Mais vous avez dit</b> que le père <b>envoyait</b> son fils uniquement <b>pour informer</b> le commerçant de sa commande, mais qu'il n'avait pas l'intention que le commerçant donne quelque chose à son fils. <b>Au contraire, Abaye bar Avin et Rabbi Ḥanina bar Avin disent tous deux</b> que le désaccord dans la mishna doit être expliqué comme suit : <b>De quoi s'agit-il ici ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

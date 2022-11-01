@@ -15,4 +15,4 @@ Il est interdit d'acheter des maisons, des esclaves et du bétail les jours inte
 Les jours intermédiaires d'une Fête, les figues qui ont été étalées pour sécher peuvent être recouvertes de paille pour les protéger de la pluie et de la rosée. Rabbi Yehuda dit : On peut même condenser les figues. Ceux qui vendent des produits, des vêtements et des ustensiles peuvent les vendre en privé, à l'occasion de la fête. Les pêcheurs, les fabricants de gruaux [ dashoshot ], et les pilonneurs de haricots, qui pulvérisent les haricots, peuvent exercer leur métier en privé à l'occasion de la Fête. Rabbi Yosei dit : Ils étaient rigoureux avec eux-mêmes pour s'abstenir de ce travail, même en ce qui concerne ce qui était nécessaire pour la Fête.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,7 +45,7 @@
 <b>Dans la main des hommes</b> dans la main des Chaldéens.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -92,4 +92,4 @@
 <b>Dans la main des hommes</b> dans la main des Chaldéens.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

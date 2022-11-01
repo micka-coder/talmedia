@@ -30,4 +30,4 @@ La Guemara cite un incident pertinent : <b>Les Sages ont enseigné : Une fois, R
 § La mishna enseigne en outre : <b>Et de même en ce qui concerne le <i>teruma</i>.</b> La Gemara demande : <b>Quel</b> est le sens de la déclaration : <b>Et de même à l'égard de <i>teruma</i> ? Rav Sheshet répond :</b> Cela signifie : <b>Et de même</b> la même <i>halakha</i> s'applique <b>à un prêtre qui est soupçonné de vendre du <i>teruma</i>,</b> qui est moins cher, <b>comme nourriture non sacrée</b>. <b>C'est</b> seulement lorsque la nourriture est <b>devant</b> le prêtre <b>que</b> elle <b>est interdite ; mais</b> la nourriture <b>qui vient du magasin ou de la réserve ou du </b> panier d'un vendeur est permise.</b> La raison est que le prêtre <b>a peur,</b> car <b>il se dit</b> : Si je vends du <i>teruma</i> en public, <b>les Sages en entendront parler et me priveront</b> de toute ma marchandise.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Si une orpheline a été donnée en mariage par sa mère ou ses frères avec son
 ### michna 7
 Si un homme a déposé une somme d'argent auprès d'un agent pour sa fille, et qu'après ses fiançailles, elle dit : "Je fais confiance à mon mari", le fiduciaire doit agir conformément à la condition de sa confiance, ce sont les paroles de Rabbi Meir. Rabbi Yose dit : si [la confiance] était un champ et qu'elle souhaitait le vendre, ce serait comme s'il était vendu immédiatement ! A qui cela s'applique-t-il ?  A [une fille] qui a atteint l'âge de la majorité, mais dans le cas d'une mineure, il n'y a aucune validité à l'acte d'une mineure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

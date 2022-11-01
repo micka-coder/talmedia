@@ -48,4 +48,4 @@ La Guemara relate en outre : Il y avait <b>un certain homme qui a fiancé</b> un
 <b>La mère de</b> l'homme qui a offert les fiançailles <b>a dit à</b> Rav Ḥisda : <b>Mais le jour où il l'a fiancée, elle valait une <i>peruta</i>. Il a dit à</b> la mère : <b>Il n'est pas en ton</b> pouvoir <b>de la rendre interdite à un homme ultérieur</b>. Si un autre vient et la fiance, ses fiançailles ne sont pas annulées à cause de cet acte antérieur. Puisque la pierre de marbre ne vaut pas une <i>peruta</i> maintenant, les fiançailles du deuxième homme peuvent être valides.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

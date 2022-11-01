@@ -48,4 +48,4 @@ La Gemara confirme : <b>En fait,</b> cette mishna est conforme à l'opinion de <
 La Gemara demande : <b>Mais si une mishna non attribuée</b> est énoncée ainsi <b>spécifiquement</b> pour enseigner le <i>halakha</i>, <b>quelle</b> différence y a-t-il <b>pour moi</b> si c'est <b>une mishna non attribuée</b> ou <b>deux <i>mishnayot</i> non attribuées</b> ? La Guemara suggère un autre raisonnement. <b>Rav Naḥman bar Yitzḥak dit :</b> Le <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Meir, puisque nous avons appris</b> dans une mishna du <b>préféré</b> tractate, <i>Eduyyot</i>, <b>conforme à son</b> avis. Puisque la <i>halakha</i> est jugée en accord avec toutes les <i>mishnayot</i> dans <i>Eduyyot</i>, le fait que l'opinion de Beit Hillel dans ce tractat soit en accord avec l'opinion de Rabbi Meir signifie que la <i>halakha</i> doit être décidée en conséquence.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

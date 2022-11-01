@@ -60,4 +60,4 @@ Au cours de cette discussion, Rav Naḥman dit à Rav Beivai : <b>Vous m'avez</b
 § La mishna enseigne : <b>Celui qui porte un objet foulé</b> par un <i>zav</i> peut <b>porter du <i>teruma</i></b> en même temps, s'il veille à ce que ni lui ni l'objet impur n'entrent en contact avec le <i>teruma</i>, <b>mais</b> cela ne peut <b>pas</b> être fait avec de la nourriture <b>sacrificielle</b>. La Guemara demande : Concernant la nourriture <b>sacrificielle</b>, <b>quelle est la raison</b> pour laquelle il ne peut <b>pas</b> la porter ? Tant que le contact avec la nourriture est empêché, pourquoi ne devrait-il pas transporter également la nourriture sacrificielle ? La Gemara répond : Cette promulgation a été faite <b>en raison d'un incident qui s'est produit. Comme le dit Rav Yehuda</b> que <b>Shmuel a dit :</b> Il y eut une fois <b>un incident impliquant quelqu'un qui transférait un tonneau de vin sacrificiel d'un endroit à un autre,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

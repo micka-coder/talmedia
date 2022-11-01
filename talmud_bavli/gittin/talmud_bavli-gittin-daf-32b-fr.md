@@ -33,4 +33,4 @@ La Gemara rejette cet argument : <b>Comment peut-on</b> ces cas <b>être compar�
 La Guemara explique le raisonnement de chaque <i>amora</i> : <b>Rav Sheshet dit</b> qu'il doit le faire <b>en présence de trois</b> personnes, car la mishna <b>enseigne</b> que cela a lieu en présence d'un <b>court,</b> et un tribunal est composé de trois juges. <b>Et Rav Naḥman a dit</b> que cela peut se faire <b>en présence de deux</b> personnes, car <b>deux</b> personnes <b>sont aussi appelées un tribunal,</b> et en cas d'urgence on peut s'appuyer sur cela. <b>Rav Naḥman a dit : D'où est-ce que je dis</b> que deux personnes sont aussi appelées un tribunal ? <b>Comme nous l'avons appris</b> dans une mishna (<i>Shevi'it</i> 10:4) : Lorsque quelqu'un crée un document qui empêche l'année sabbatique d'abroger une dette impayée [<i>prosbol</i>], il déclare : <b>Je te transfère</b> à toi <b>en ta présence,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

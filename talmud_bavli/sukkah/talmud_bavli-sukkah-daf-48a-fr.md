@@ -27,4 +27,4 @@ La Guemara demande : <b>Ceci</b> fonctionne <b>bien</b> en ce qui concerne <b>un
 <strong>MISHNA :</strong> En ce qui concerne le rite de la <b>libération d'eau</b> accompli dans le Temple pendant la Fête, <b>comment</b> était-il accompli ? <b>On remplissait une cruche d'or d'une capacité de trois <i>log</i></b> d'eau <b>de la piscine de Siloé</b>. Lorsque ceux qui allaient apporter l'eau <b>atteignaient la porte de l'Eau,</b> ainsi appelée parce que l'eau pour la libation était apportée par cette porte menant à la cour du Temple, <b>ils sonnaient une <i>tekia</i>, sonnaient une <i>terua</i>, et sonnaient</b> une autre <b><i>tekia</i></b> en signe de joie. Le prêtre <b>remonta la rampe</b> de l'autel <b>et se tourna vers sa gauche. Il y avait là deux bassins d'argent</b> dans lesquels il versait l'eau. <b>Rabbi Yehuda a dit : C'étaient des bassins en calcaire</b>, <b>mais ils noircissaient à cause du vin</b> et ressemblaient donc à de l'argent. Les deux bassins étaient <b>perforés</b> dans le fond.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

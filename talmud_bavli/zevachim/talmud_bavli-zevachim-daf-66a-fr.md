@@ -15,4 +15,4 @@ Par conséquent, il est évident que, alors que le prêtre doit séparer complè
 La Gemara demande : <b>Quelle est la</b> <b>dérivation</b> biblique de l'opinion selon laquelle l'offrande est valide si le prêtre n'a pressé que le sang du corps mais pas s'il n'a pressé que le sang de la tête ? <b>Ravina a dit :</b> Il n'y a pas de preuve concluante à partir du langage du verset lui-même, mais il <b>vaut la peine de raisonner</b> que ce soit le cas, <b>puisque la plupart du sang se trouve dans le corps,</b> et non dans la tête.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

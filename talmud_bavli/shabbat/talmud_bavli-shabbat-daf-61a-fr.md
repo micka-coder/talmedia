@@ -54,4 +54,4 @@ Et une amulette n'était <b>pas</b> seulement autorisée dans un cas <b>où</b> 
 <b>Et il peut l'attacher et le détacher</b> <b>même dans le domaine public, à condition qu'il ne l'attache pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

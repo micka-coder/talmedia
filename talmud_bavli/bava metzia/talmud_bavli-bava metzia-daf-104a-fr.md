@@ -39,7 +39,7 @@ La Gemara ajoute : <b>Rabbi Yehoshua ben Korḥa voudrait</b> également <b>expl
 La Guemara en déduit : <b>La raison</b> le créancier acquiert la garantie est <b>qu'il lui a écrit cela. Mais si</b> le créancier <b>ne l'avait pas écrit au</b> débiteur, le créancier <b>n'aurait-il pas acquis</b> le gage ? <b>Mais Rabbi Yoḥanan ne dit-il pas :</b> Si un créancier <b>a pris un nantissement</b> du débiteur <b>et lui a rendu le nantissement et</b> ensuite le débiteur <b>est décédé,</b> le créancier <b>retire</b> le nantissement <b>des</b> enfants du débiteur. </b> La raison en est que, bien que les biens meubles des orphelins ne soient pas acquis par le créancier de leur père, le collatéral est considéré comme appartenant au créancier, et il peut recouvrer la dette sur celui-ci.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Vous auriez dû apporter</b> de l'eau <b>dans un seau.</b>
 
@@ -80,4 +80,4 @@ La Gemara ajoute : <b>Rabbi Yehoshua ben Korḥa voudrait</b> également <b>expl
 La Guemara en déduit : <b>La raison</b> le créancier acquiert la garantie est <b>qu'il lui a écrit cela. Mais si</b> le créancier <b>ne l'avait pas écrit au</b> débiteur, le créancier <b>n'aurait-il pas acquis</b> le gage ? <b>Mais Rabbi Yoḥanan ne dit-il pas :</b> Si un créancier <b>a pris un nantissement</b> du débiteur <b>et lui a rendu le nantissement et</b> ensuite le débiteur <b>est décédé,</b> le créancier <b>retire</b> le nantissement <b>des</b> enfants du débiteur. </b> La raison en est que, bien que les biens meubles des orphelins ne soient pas acquis par le créancier de leur père, le collatéral est considéré comme appartenant au créancier, et il peut recouvrer la dette sur celui-ci.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Il était enseigné dans la mishna que le père <b>commence</b> sa réponse <b>p
 <strong>MISHNA :</strong> <b>Rabban Gamliel disait : Quiconque n'a pas dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

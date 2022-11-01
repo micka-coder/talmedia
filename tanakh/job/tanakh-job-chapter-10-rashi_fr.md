@@ -72,4 +72,4 @@
 <b>Et là où la lumière est comme les ténèbres</b> Le lieu éclairé [en lui] est comme les ténèbres.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

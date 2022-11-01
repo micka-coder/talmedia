@@ -54,4 +54,4 @@ La Gemara répond : <b>Rabbi Yehuda soutient :</b> Le <b>contrat de mariage est 
 La Gemara conteste cette réponse : Le droit du mari sur le <b>produit</b> des biens de sa femme <b>est un décret rabbinique</b>, <b>et</b> néanmoins <b>les Sages n'ont pas renforcé</b> ses droits sur <b>ceux-ci, comme nous l'avons appris</b> dans une mishna (83a) : <b>Rabbi Yehuda dit :</b> Même si le mari a écrit qu'il renonçait à ses droits sur le produit des biens de sa femme, <b>il peut effectivement consommer le produit du produit</b> de ses biens, c'est-à-dire qu'il pourrait investir le produit dans des biens supplémentaires, qui appartiendraient également à sa femme, mais il en consommerait le produit. Ceci s'applique <b>à moins qu'il</b> explicitement <b>écrit</b> à <b>elle : Je n'ai aucun droit sur ta propriété, son produit ou le produit de son produit, pour toujours.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

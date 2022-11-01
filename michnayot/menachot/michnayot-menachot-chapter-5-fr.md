@@ -26,5 +26,5 @@ Celui qui dit : "Je prends sur moi [d'offrir une minhah] préparée sur une plaq
 ### michna 9
 Si un homme dit :] "Je prends sur moi [d'offrir une minhah cuite] dans un four," il ne doit pas apporter ce qui est cuit dans un poêle ou sur des tuiles ou dans les chaudrons des Arabes. Rabbi Juda dit : il peut apporter ce qui est cuit dans un four. [S'il dit :] "Je prends sur moi [d'offrir] une minhah cuite", il ne doit pas apporter la moitié en pains et l'autre moitié en galettes. Rabbi Shimon le permet car il s'agit d'une seule sorte.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

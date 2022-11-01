@@ -45,7 +45,7 @@ Rav Yehuda <b>lui a dit : C'était un document au</b> bénéfice des <b>orphelin
 <b>Au contraire, lorsque Rami bar Yeḥezkel est venu, il a dit : N'écoutez pas ces principes que mon frère</b> Rav <b>Yehuda</b> bar Yeḥezkel <b>établit au nom de Shmuel</b> en ce qui concerne un témoin et un juge se joignant ensemble pour témoigner.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 les témoins <b>témoignent de leur écriture</b> et authentifient leurs propres signatures. Par conséquent, si chaque témoin ne témoigne que par rapport à sa propre écriture, il n'y a qu'un seul témoin qui authentifie chaque signature. Selon <b>les rabbins,</b> les témoins <b>s'expriment sur</b> la somme de <b>cent dinars qui se trouve dans le document</b> et n'authentifient pas du tout les signatures. Par conséquent, le témoignage des deux témoins qui ont signé le document est suffisant pour ratifier le document.
 
@@ -92,4 +92,4 @@ Rav Yehuda <b>lui a dit : C'était un document au</b> bénéfice des <b>orphelin
 <b>Au contraire, lorsque Rami bar Yeḥezkel est venu, il a dit : N'écoutez pas ces principes que mon frère</b> Rav <b>Yehuda</b> bar Yeḥezkel <b>établit au nom de Shmuel</b> en ce qui concerne un témoin et un juge se joignant ensemble pour témoigner.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

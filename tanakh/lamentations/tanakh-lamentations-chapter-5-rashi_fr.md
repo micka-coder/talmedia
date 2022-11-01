@@ -60,4 +60,4 @@
 <b>Hachem nous rendre.</b> Parce qu'il conclut par des paroles de reproche, il a dû répéter à nouveau le verset précédent,<sup>14</sup><i class="footnote">afin de terminer sur une note de consolation. </i> ainsi que Yeshayahou, Trei Osor et Koheles. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

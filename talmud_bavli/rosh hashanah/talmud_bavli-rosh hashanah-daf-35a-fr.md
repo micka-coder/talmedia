@@ -36,4 +36,4 @@ La Guemara remet en cause cette conclusion : <b>Au contraire,</b> l'inverse est 
 <b>Au contraire,</b> la déclaration de Rabban Gamliel doit être comprise différemment : <b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il a rapporté que <b>Rabbi Ya'akov bar Idi a dit</b> que <b>Rabbi Shimon bar Ḥasida a dit : Rabban Gamliel</b> a permis à l'animateur de la prière de <b>exonérer seulement les personnes dans les champs. Quelle est la raison</b> pour cela ? <b>Parce que</b> les gens des champs ne peuvent pas venir à la synagogue <b>en raison de circonstances professionnelles indépendantes de leur volonté,</b> et n'ont pas le temps de préparer leurs prières. <b>Cependant,</b> Rabban Gamliel n'a pas exempté ceux <b>de la ville</b> qui ne viennent pas à la synagogue, car ils sont capables de préparer leurs prières et de prier par eux-mêmes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

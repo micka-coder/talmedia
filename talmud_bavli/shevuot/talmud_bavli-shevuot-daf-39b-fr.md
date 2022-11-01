@@ -63,4 +63,4 @@ La Gemara répond : <b>Cette discussion n'est-elle pas seulement d'après Shmuel
 La Gemara demande : Si c'est le cas, <b>doit-on dire</b> ceci <b>est une réfutation concluante</b> de l'opinion de <b>Rav ?</b> La Gemara répond : Non, <b>Rav</b> aurait pu <b>vous dire</b> que <b>l'ensemble de la mishna</b> fait référence à des revendications en termes de <b>valeur</b> de l'argent, et non de l'argent réel, <b>mais</b> le cas où la revendication portait sur <b>une <i>litra</i> d'or est différent. </b> Tous les autres cas de la mishna font référence à une certaine valeur monétaire, mais ce cas fait référence à l'or réel, car une <i>litra</i> n'est pas une pièce de monnaie ou une unité monétaire, mais une mesure de poids.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

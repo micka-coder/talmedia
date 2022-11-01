@@ -81,4 +81,4 @@ En ce qui concerne l'expression : <b>"Et il t'enroulera en rond et en rond", Rab
 La Gemara continue d'interpréter la prophétie sur Shebna : <b>"Il te roulera violemment et te jettera comme une balle dans un grand pays;</b> là tu mourras, et là seront les chars de ta gloire, toi la honte de la maison de ton seigneur" (Isaïe 22:18). Un <i>baraita</i> <b>enseignant : Lui,</b> Shebna, <b>a désiré la honte pour la maison de son maître ; c'est pourquoi sa gloire s'est transformée en honte.</b> Voici ce qui lui est arrivé : <b>Alors qu'il sortait</b> de la porte de Jérusalem pour se soumettre aux Assyriens, l'ange <b>Gabriel est venu</b> et <b>a retenu la porte devant son camp</b> afin qu'ils ne puissent pas le suivre. En conséquence, il est sorti tout seul.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : <b>Il était nécessaire pour</b> Rav Asi de préciser que l
 La Guemara relate que <b>Ḥanan le méchant a frappé un certain homme. Il se présenta devant Rav Huna</b> pour un jugement, et Rav Huna lui <b>dit : Va lui donner un demi-dinar,</b> qui est l'amende imposée pour une telle action. Ḥanan <b>avait</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

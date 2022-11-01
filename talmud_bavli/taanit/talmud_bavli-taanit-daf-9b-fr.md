@@ -48,4 +48,4 @@ La Guemara demande : <b>Et Rabbi Eliezer,</b> comment explique-t-il ce verset ? 
 La Gemara demande : <b>Selon l'avis de qui</b> <b>est ce que Rabbi Ḥanina a dit,</b> concernant le verset : <b>"Il rassemble les eaux de la mer comme un tas, il range les profondeurs dans des réserves"</b> (Psaumes 33:7) : <b>Qu'est-ce qui fait que les entrepôts sont remplis de produits ? </b> C'est <b>les profondeurs,</b> qui sont la source de l'eau qui nourrit les produits. La Guemara répond : Cette explication est <b>conforme</b> à l'opinion de <b>Rabbi Eliezer. Et Rabbi Yehoshua,</b> comment explique-t-il ce verset ? Rabbi Yehoshua dira : <b>Ceci</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

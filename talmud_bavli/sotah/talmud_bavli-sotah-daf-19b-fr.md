@@ -39,4 +39,4 @@ La Guemara répond : Ce n'est <b>pas difficile ; ce</b> cas, où elle est forcé
 <b>Et voici ce que</b> Rabbi Akiva <b>dit : </b> Dans <b>tous les cas</b> où elle revient sur sa décision de boire <b>dans un état de</b> bonne <b>santé, elle ne boit pas du tout. </b> En ce qui concerne une <i>sota</i> qui se rétracte de sa décision <b>en raison de la peur,</b> si elle se rétracte <b>avant que la poignée soit sacrifiée, alors que le parchemin n'a pas encore été effacé ; ou</b> même si le <b>parchemin était</b> déjà <b>effacé,</b> puisque <b>les prêtres ont agi incorrectement en l'effaçant</b> auparavant ; <b>elle peut se rétracter</b> sa décision. <b>Une fois la poignée sacrifiée, auquel cas</b> les <b>prêtres ont agi correctement lorsqu'ils ont effacé</b> le parchemin, <b>elle ne peut plus revenir</b> sur sa décision, et elle est contrainte de boire contre sa volonté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

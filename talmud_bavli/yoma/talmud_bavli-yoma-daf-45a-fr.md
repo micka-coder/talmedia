@@ -45,4 +45,4 @@ La Guemara analyse les différents avis : <b>En tout cas, chacun a</b> au moins 
 <b>Et</b> selon <b>les sages, que fait-on des membres et des graisses qui n'ont pas</b> été entièrement <b>consommés</b> sur l'autel <b>la</b> précédente <b>soirée ?</b> Où les brûle-t-on ? Un prêtre <b>les ramène dans le grand arrangement,</b> où le processus de leur combustion est achevé. <b>Comme cela a été enseigné</b> dans un <i>baraita</i> : <b>D'où vient</b> que <b>pour les membres et les graisses qui n'ont pas</b> été entièrement <b>consommés</b> sur l'autel <b>la</b> veille <b>du soir,</b> <b>il est nécessaire de les brûler.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

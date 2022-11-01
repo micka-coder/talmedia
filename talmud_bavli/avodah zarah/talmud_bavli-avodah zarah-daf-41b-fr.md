@@ -45,4 +45,4 @@ En effet, <b>il est possible que</b> il n'y ait jamais eu d'obligation de préle
 La Gemara soulève une autre objection : <b>Et</b> est-ce pour qu'une <b>incertitude ne l'emporte pas sur une certitude ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda a dit :</b> Il y eut <b>un incident impliquant la servante</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

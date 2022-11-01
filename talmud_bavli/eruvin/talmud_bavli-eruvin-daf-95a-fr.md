@@ -60,4 +60,4 @@ Rabba <b>lui dit : A partir de cette</b> <i>baraita</i>, <b>oui,</b> il est effe
 <b>Cependant, si l'on dit</b> que Rabbi Yehouda a permis le premier cas également <b>parce qu'il soutient</b> que <b>par la loi de la Torah deux cloisons</b> suffisent pour créer un domaine privé, <b>quelle est la nécessité de l'introduction : <b>Et en plus ?</b> Le raisonnement de la deuxième décision n'est pas différent de celui de la première. La Guemara conclut : En effet, <b>apprenez d'ici</b> que c'est correct.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

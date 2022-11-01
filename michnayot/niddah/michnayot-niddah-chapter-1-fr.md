@@ -20,5 +20,5 @@ Et de quoi parlaient-ils quand ils disaient que "il suffit [pour eux de compter]
 ### michna 7
 Bien qu'ils aient dit [que pour une femme qui a des règles régulières] il suffit de compter sa période d'impureté à partir du moment où elle observe un écoulement, elle doit néanmoins s'examiner [régulièrement], sauf si elle a ses règles ou si elle est assise sur du sang pur. Elle doit également utiliser des bandelettes d'examen lorsqu'elle a des rapports sexuels, sauf si elle est assise sur du sang pur ou si elle est vierge et que son sang est pur. Et deux fois [par jour], elle doit s'examiner : le matin et au crépuscule [du soir], ainsi que lorsqu'elle s'apprête à avoir des relations sexuelles. Les femmes sacerdotales sont soumises à une restriction supplémentaire [car elles doivent s'examiner] lorsqu'elles vont manger de la teroumah. Rabbi Juda a dit : [elles doivent s'examiner] également après avoir terminé de manger la teroumah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

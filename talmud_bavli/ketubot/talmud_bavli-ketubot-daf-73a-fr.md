@@ -18,4 +18,4 @@ La Guemara explique : Il est <b>nécessaire</b> d'énoncer le différend dans le
 La Guemara discute des preuves pour les deux parties de cette dispute : <b>Nous avons appris</b> dans la mishna : Si <b>il l'a épousée sans spécification, et qu'on a découvert que des vœux lui incombaient, elle</b> peut être <b>divorcée sans</b> recevoir le paiement de son <b>contrat de mariage.</b> La Gemara en déduit : <b>Elle n'exige pas</b> ou ne reçoit pas le paiement de son <b>contrat de mariage, mais elle exige un acte de divorce. Quoi, ne parle-t-elle pas</b> du cas discuté dans la première clause, à savoir que <b>il l'a fiancée sous condition et</b> ensuite <b>l'a épousée sans spécification ?</b> Si c'est le cas, la mishna est <b>une réfutation concluante de l'opinion de Shmuel</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

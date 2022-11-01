@@ -75,4 +75,4 @@ La Gemara demande : <b>Et</b> pourquoi les <b>Rabbis,</b> qui déduisent l'exemp
 La Guemara demande : <b>Et</b> comment <b>Rabbi Ilai</b> répond-il à l'affirmation des rabbins ? La Guemara répond : Rabbi Ilai soutient que lorsque le verset dit : "Et le premier tondit la laine", la conjonction <b>"et" revient en arrière et combine</b> les deux sujets ensemble.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

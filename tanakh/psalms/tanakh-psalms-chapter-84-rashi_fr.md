@@ -45,4 +45,4 @@
 <b>Pour un soleil et un bouclier</b>  שמש  peut être interprété selon son sens apparent, mais le Midrash Psalms l'interprète comme une expression des points du mur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -39,4 +39,4 @@ Il est dit : <b>Rav Ashi a trouvé Rav Kahana essayant péniblement d'inciter</b
 § Il a été enseigné dans la mishna : En ce qui concerne le verset <b>"Et son nom sera appelé en Israël : La maison de celui qui s'est fait déchausser", il y a une mitzva sur les juges de le réciter mais</b> ce n'est <b>pas</b> une exigence <b>pour les étudiants</b> ou les spectateurs. Elle <b>est enseignée</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : Une fois, nous étions assis devant Rabbi Tarfon et un <i>yevama</i> est venu exécuter la <i>ḥalitza</i>. Il nous dit : Vous devez tous répondre : "Celui qui s'est fait déchausser", "Celui qui s'est fait déchausser", "Celui qui s'est fait déchausser", </b> en énonçant trois fois cette portion du verset.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

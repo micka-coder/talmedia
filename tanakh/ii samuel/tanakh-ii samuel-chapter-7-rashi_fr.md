@@ -85,7 +85,7 @@
 <b>Désir.</b> Désir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et Hachem lui accorda le repos.</b> [David] dit [La condition] a été remplie, "Et Il t'a accordé la paix de tous tes ennemis etc.". (Devarim 12:10). Qu'est-ce qui est écrit après [ce verset] ? "Que ce soit le lieu que [Hachem, ton Elokim] choisit etc." Il nous [incombe] maintenant de construire la Maison Choisie.
 
@@ -172,4 +172,4 @@
 <b>Désir.</b> Désir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

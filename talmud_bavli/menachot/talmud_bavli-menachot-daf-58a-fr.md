@@ -54,4 +54,4 @@ La Guemara analyse cette <i>baraita</i> : <b>Que dit-elle ?</b> Quelle est la si
 La Gemara demande : A propos de <b>Quel</b> principe <b>Abaye et Rava <b>sont en désaccord ?</b> La Gemara répond : <b>Abaye soutient : Il existe</b> une entité telle que <b>une poignée</b> qui est <b>moins que</b> le volume de <b>deux olives.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

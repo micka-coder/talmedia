@@ -23,5 +23,5 @@ On ne peut pas faire une fenêtre qui s'ouvre sur une cour commune. S'il a achet
 ### michna 8
 On ne peut pas creuser un espace sous le domaine public [comme] les citernes, les tranchées ou les grottes. Rabbi Eliezer le permet s'il est tel qu'un chariot chargé de pierres peut passer dessus [en toute sécurité]. Les saillies et les balcons ne peuvent pas être construits dans le domaine public ; mais si un homme souhaite construire une [saillie ou un balcon], il peut retirer [son mur] à l'intérieur de son propre domaine et construire à partir de celui-ci. S'il a acheté une cour dans laquelle se trouvaient déjà des saillies et des balcons, son droit de les maintenir ne peut être contesté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

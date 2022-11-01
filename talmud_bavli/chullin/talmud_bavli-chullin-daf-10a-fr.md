@@ -45,4 +45,4 @@ Si <b>on coupe le gosier, et que l'on trouve la trachée déplacée, et qu'il ne
 La Guemara demande : En ce qui concerne la formulation expansive : En ce qui concerne <b>tout</b> cas d'incertitude concernant l'abattage, à quoi</b> sert-il d'ajouter ? </b> Ne sert-il <b>pas</b> d'ajouter un cas comme celui-ci</b> où il y a incertitude sur le fait que le couteau ait été entaillé avant ou après l'abattage ? La Gemara répond : <b>Non,</b> cela sert <b>à ajouter</b> un cas d' <b>incertitude</b> de savoir si <b>il a interrompu</b> l'abattage au milieu, ou <b>incertitude</b> de savoir si <b>il a pressé</b> le couteau sur les <i>simanim</i>. S'il a fait l'un ou l'autre, cela invalide l'abattage.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

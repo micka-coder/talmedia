@@ -18,4 +18,4 @@ Quant aux arbres : le sumac, les caroubes, les noix, les amandes, les vignes, le
 Il peut donner du Péah à tout moment et il est exempté de la dîme, jusqu'à ce qu'il aplanisse [le tas de produits] ; et il peut déclarer ses produits sans propriétaire et ils sont exempts de la dîme, jusqu'à ce qu'il aplanisse [le tas de produits] ; et il peut le donner à manger au bétail, aux autres animaux et aux oiseaux et il est exempté de la dîme, jusqu'à ce qu'il ait aplani [le tas] ; et il peut le prendre de l'aire de battage et le semer et il est exempté de la dîme jusqu'à ce qu'il ait aplani [le tas] - [ce sont] les paroles de Rabbi Akiva. Si un prêtre ou un lévite a acheté un grenier, la dîme lui revient, jusqu'à ce qu'il ait aplani [le tas]. Celui qui dédie [des produits à l'usage du Temple] et rachète [les produits dédiés] est obligé de payer la dîme, jusqu'à ce que le trésorier aplanisse [le tas].
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

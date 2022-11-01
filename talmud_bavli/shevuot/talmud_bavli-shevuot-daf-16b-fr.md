@@ -30,4 +30,4 @@ La Guemara discute plus en détail des différentes formes d'inclinaison. <b>Les
 § <b>Rava soulève un dilemme :</b> Est-ce que le fait de <b>s'attarder</b> suffisamment longtemps pour se prosterner est <b>nécessaire pour</b> encourir des <b>coups de fouet ?</b> Si l'on a été averti de ne pas rester dans la cour du Temple en état d'impureté, est-il susceptible de recevoir des coups de fouet uniquement s'il y reste suffisamment longtemps pour se prosterner, complètement étalé sur le sol ? <b>Ou</b> est-ce que le fait de <b>s'attarder n'est pas nécessaire pour</b> encourir des <b>coups de fouet,</b> et il est immédiatement passible de recevoir des coups de fouet ? La Guemara clarifie ces deux possibilités : Est-il <b>appris</b> comme une tradition que <b>l'attente</b> est nécessaire pour encourir la responsabilité <b>de</b> apporter <b>une offrande,</b> mais <b>non appris</b> comme une tradition que <b>l'attente</b> est nécessaire pour devenir responsable <b>de</b> recevoir des <b>coups de fouet ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

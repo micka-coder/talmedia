@@ -30,4 +30,4 @@ La Guemara ajoute : <b>Si tu le souhaites, propose un argument logique</b> pour 
 Et <b>si vous le souhaitez, citez un verset : "Ce qui est sorti de tes lèvres, tu l'observeras et tu le feras, selon ce que tu as voué [<i>nadarta</i>] librement [<i>nedava</i>] au Seigneur ton Dieu,</b> même ce que tu as promis de ta bouche" (Deutéronome 23:24). La Gemara interprète les mots <i>nadarta</i> et <i>nedava</i> de manière exégétique : Est-ce que <b>ce verset</b> peut faire référence à <b>une offrande</b> [<b><i>nedava</i></b>] ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

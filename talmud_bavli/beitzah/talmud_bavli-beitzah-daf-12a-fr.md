@@ -33,7 +33,7 @@ La Guemara commente : <b>Et Rabbi Yoḥanan soutient également</b> que Beit Sha
 Comment ? (1) <b>Il est flagellé en raison</b> de l'interdiction de <b>cuire</b> le <b>nerf sciatique,</b> qui est interdite car le nerf sciatique est impropre à la consommation ; (2) <b>et il est flagellé en raison</b> de l'interdiction de <b>manger</b> le <b>nerf sciatique,</b> qui est explicitement interdite par la Torah ; (3) <b>et il est fouetté en raison</b> de l'interdiction de <b>cuire de la viande dans du lait;</b> (4) <b>et il est fouetté en raison</b> de l'interdiction de <b>manger de la viande</b> cuite <b>dans du lait;</b> (5) <b>et</b> enfin, <b>il est fouetté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Un <b>Sage,</b> Beit Shammai, <b>soutient</b> que <b>nous émettons un décret</b> et interdisons <b>une charnière au milieu en raison d'une charnière sur le côté ; et</b> un <b>Sage,</b> Beit Hillel, <b>soutient</b> que <b>nous n'émettons pas</b> ce <b>décret.</b> Puisque placer une charnière de ce type ne constitue pas un travail interdit de construction, elle est permise.
 
@@ -68,4 +68,4 @@ La Guemara commente : <b>Et Rabbi Yoḥanan soutient également</b> que Beit Sha
 Comment ? (1) <b>Il est flagellé en raison</b> de l'interdiction de <b>cuire</b> le <b>nerf sciatique,</b> qui est interdite car le nerf sciatique est impropre à la consommation ; (2) <b>et il est flagellé en raison</b> de l'interdiction de <b>manger</b> le <b>nerf sciatique,</b> qui est explicitement interdite par la Torah ; (3) <b>et il est fouetté en raison</b> de l'interdiction de <b>cuire de la viande dans du lait;</b> (4) <b>et il est fouetté en raison</b> de l'interdiction de <b>manger de la viande</b> cuite <b>dans du lait;</b> (5) <b>et</b> enfin, <b>il est fouetté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

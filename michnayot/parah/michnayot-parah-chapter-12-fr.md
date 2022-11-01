@@ -32,5 +32,5 @@ Le couvercle d'une bouilloire qui est relié à une chaîne : Bet Shammai disent
 ### michna 11
 S'il a trempé l'hysope pendant la journée et qu'il a aspergé pendant la journée, c'est valide. S'il l'a trempée pendant le jour et l'a aspergée la nuit, ou s'il l'a trempée la nuit et l'a aspergée le jour suivant, elle n'est pas valable. Mais il peut lui-même [celui qui reçoit l'aspersion] s'immerger la nuit puis [être] aspergé le jour suivant. [A noter que] l'aspersion n'est pas autorisée avant le lever du soleil. [Si cependant] tout ceci  a été accompli dès le lever de l'aube, ell [l'aspersion] est valide.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

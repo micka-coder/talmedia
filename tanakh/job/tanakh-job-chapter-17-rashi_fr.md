@@ -61,4 +61,4 @@
 <b>Ils reposeront sur la poussière</b> Héb. נחת, se logeront, expression de (Num. 11:26), "l'esprit s'est reposé (ותנח) sur eux."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ La Gemara commente : <b>Et il était nécessaire</b> pour la Torah <b>d'écrire<
 <b>Au contraire, qui est le <i>tanna</i></b> qui <b>ne dérive pas</b> l'analogie verbale entre <b>"travailleur engagé"</b> et <b>"travailleur engagé" ? C'est Rabbi</b> Yehuda HaNasi, <b>comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

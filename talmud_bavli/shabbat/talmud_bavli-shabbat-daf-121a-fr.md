@@ -24,4 +24,4 @@ Nous avons appris dans la mishna : <b>Cependant,</b> si <b>un</b> <b>enfant juif
 <strong>GEMARA:</strong> La Gemara relate : <b>Rav Yehouda et Rav Yirmeya bar Abba et Rav Ḥanan bar Rava sont arrivés à la maison d'Avin depuis</b> un endroit appelé <b>Nashikiya. Pour Rav Yehuda et Rav Yirmeya bar Abba,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

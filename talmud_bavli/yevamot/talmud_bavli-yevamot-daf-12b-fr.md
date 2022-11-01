@@ -27,4 +27,4 @@ La Guemara soulève une difficulté : <b>Est-ce le cas ? Mais Rabba bar Shmuel n
 <b>Rav Safra a dit : Les enfants sont équivalents aux signes</b> de la puberté. En d'autres termes, une fille qui accouche ne conserve pas le statut légal de mineure, car le fait même qu'elle ait porté des enfants équivaut à un signe physique de maturité, généralement sous la forme de poils pubiens. <b>Et certains disent : Les enfants sont préférables aux signes</b> de puberté. La Gemara demande : <b>Quelle est la différence pratique</b> qui découle de la question de savoir si le fait d'avoir des enfants est équivalent ou préférable aux signes de maturité ? La Guemara répond : La différence est <b>que même selon</b> l'opinion de <b>Rabbi Yehuda, qui a dit</b> qu'une mineure peut effectuer un refus même après avoir développé deux poils pubiens, <b>jusqu'à ce que les poils noirs</b> de ses organes génitaux <b>soient plus abondants</b> que la peau glabre, dans le cas <b>des enfants, il concède</b> qu'elle est considérée comme mature et ne peut pas effectuer de refus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

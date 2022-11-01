@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais quelle est la raison</b> pour laquelle les autres <b
 La Guemara poursuit la narration de l'incident : Yannai <b>vint et s'assit. Shimon ben Shataḥ lui dit : Yannaï le roi, tiens-toi debout et</b> des témoins <b>vont témoigner contre toi. Et</b> ce n'est pas devant nous</b> que <b>tu te tiens,</b> pour nous faire honneur, <b>mais</b> c'est <b>devant Celui qui a parlé et le monde est né</b> que <b>tu te tiens, comme il est dit : "Alors les deux peuples, entre lesquels se trouve la controverse, se tiendront</b> devant le Seigneur, devant les prêtres et les juges qui seront en ces jours-là" (Deutéronome 19, 17). Le roi Yannai lui <b>dit : </b> Je ne me <b>pas</b> tenir <b>lorsque toi</b> seul <b>dit</b> cela à moi, <b>mais selon ce que disent tes collègues,</b> et si tout le tribunal me le dit, je me tiendrai.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

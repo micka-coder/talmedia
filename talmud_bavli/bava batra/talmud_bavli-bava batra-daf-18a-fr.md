@@ -45,4 +45,4 @@ La Gemara cite encore une autre source : <b>Venez</b> et <b>entendez</b> une pre
 La Gemara répond : <b>Si oui, dis la dernière clause</b> de cette mishna : <b>Rabbi Yosei rend permis</b> de planter près des abeilles du voisin <b>dans le</b> cas de la <b>moutarde.</b> Comme expliqué dans une <i>baraita</i>, c'est <b>parce qu'il peut dire au</b> propriétaire des abeilles : <b>Comme vous me dites : Garde ta moutarde loin de mes abeilles,</b> je peux te dire : <b>Gardez vos abeilles loin de ma moutarde, car elles viennent manger mes plants de moutarde.</b> En d'autres termes, vous portez également atteinte à mon bien.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

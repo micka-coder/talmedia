@@ -39,4 +39,4 @@ La Gemara demande : <b>Et Pinehas n'est-il pas</b> aussi <b>provenant de Yitro ?
 La Gemara demande : <b>Mais les <b>tribus ne l'ont-ils pas dénigré</b> après qu'il ait tué Zimri (voir Nombres, chapitre 25), <b>et diraient</b> de lui : <b>Avez-vous vu ce fils de Puti, le fils</b> de celui <b>dont le père de la mère engraissait des veaux pour le culte des idoles ? Un tel homme devrait-il <b>tuer un prince d'une tribu d'Israël ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

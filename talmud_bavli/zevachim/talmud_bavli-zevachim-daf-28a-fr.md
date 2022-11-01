@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> le contraire, à sav
 <b>Au contraire, Abaye a dit : Lorsque Rav Yitzḥak bar Avdimi est venu,</b> il a dit que <b>Rav dit :</b> Shmuel se référait en fait à deux versets distincts. Et il s'est <b>appuyé sur ce que le <i>tanna</i> a enseigné :</b> Le verset est apparemment redondant <b>quand il dit :</b> "Et si l'on en mange le <b>troisième</b> jour, c'est du <i>piggul</i> ; on ne l'acceptera pas" (Lévitique 19:7), <b>dans la Torah <b>portion</b> qui commence : <b>"Vous serez saints"</b> (Lévitique 19:2), <b>puisqu'il n'y a <b>aucune</b> nécessité pour <b>le verset d'énoncer</b> ceci, <b>puisque c'est déjà énoncé : "Et si une partie de la chair de ses sacrifices de paix est consommée le troisième jour</b>...elle sera <i>piggul</i>" (Lévitique 7:18).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

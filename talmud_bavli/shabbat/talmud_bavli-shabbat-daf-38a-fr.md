@@ -30,4 +30,4 @@ La Guemara s'étonne : <b>D'après cette déclaration</b> on peut <b>inférer</b
 Nous avons appris dans la mishna : <b>Beit Hillel disent</b> que <b>on peut même remettre</b> une casserole retirée du poêle sur le poêle à Shabbat. <b>Rav Sheshet a dit : Selon celui qui dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -277,5 +277,5 @@
 <b>Vous verrez, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que si vous ne le verrez pas maintenant, vous ne le verrez plus jamais de votre vivant. 
 <b>Mais tu n'y viendras pas.</b> Je sais qu'elle est précieuse pour toi. C'est pourquoi je vous dis : "Montez et voyez !". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

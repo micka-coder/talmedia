@@ -21,4 +21,4 @@ Ceci <b>appuie</b> l'avis de <b>Rabbi Ḥanina, car Rabbi Ḥanina dit :</b> Dan
 <strong>GEMARA:</strong> <b>Rabbi Shimon ben Lakish dit : Ils ont enseigné</b> que l'achat est interdit <b>seulement</b> dans le cas des magasins qui sont <b>ornés de roses et de myrte, car on tire un bénéfice de</b> leur <b>odeur</b> et ils servent d'offrandes aux objets de culte idolique. <b>Mais</b> en ce qui concerne les magasins qui sont <b>ornés de fruits,</b> il est <b>permis</b> d'y acheter. <b>Quelle est la raison</b> pour laquelle ils sont autorisés ? <b>Comme le dit le verset : "Et tu ne t'attacheras rien de ce qui est consacré à ta main"</b> (Deutéronome 13:18), c'est-à-dire les objets consacrés au culte des idoles. De là, on déduit qu'il est <b>interdit</b> de <b>tirer un bénéfice</b> du culte des idoles,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

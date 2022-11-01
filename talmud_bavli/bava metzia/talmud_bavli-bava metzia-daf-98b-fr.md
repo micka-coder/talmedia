@@ -48,4 +48,4 @@ La Gemara conclut : Ces dilemmes ne seront pas résolus.
 <b>Et, de même,</b> c'est la <i>halakha</i> <b>au</b> moment où</b> l'emprunteur la <b>rend</b> au prêteur. L'emprunteur n'est dégagé de sa responsabilité qu'une fois que la vache est transférée au prêteur lui-même ou à quelqu'un qui, selon l'accord du prêteur, la lui apportera.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

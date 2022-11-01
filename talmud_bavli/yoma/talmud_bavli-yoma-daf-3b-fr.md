@@ -45,4 +45,4 @@ Rabbi Yoḥanan <b>a dit à</b> Reish Lakish : <b>Au contraire, d'où tirez-vous
 La Gemara demande : <b>Ce n'est pas sept,</b> et non six, jours de séquestration que <b>nous avons appris</b> dans la mishna ? Reish Lakish répond : <b>La mishna</b> qui exige de séquestrer pendant sept jours <b>est</b> l'opinion de <b>Rabbi Yehuda ben Beteira, qui est préoccupé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

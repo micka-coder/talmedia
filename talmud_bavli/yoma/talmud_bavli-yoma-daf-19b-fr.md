@@ -48,4 +48,4 @@ La Gemara relate que <b>les hommes éminents</b> <b>de Jérusalem ne dormaient p
 <b>Abaye a dit, et certains disent</b> que c'est <b>Rav Naḥman bar Yitzḥak</b> qui a dit : <b>Interpréter</b> cette déclaration comme faisant référence à <b>Neharde'a, comme Elijah</b> le Prophète <b>a dit au Rav Yehuda, frère</b> du <b>Rav Salla Ḥasida : Vous avez dit</b> et vous vous êtes demandé : <b>Pourquoi le Messie n'est-il pas venu ?</b> Pourquoi cela est-il surprenant ? <b>N'est-ce pas aujourd'hui Yom Kippour, et des relations ont été entretenues avec plusieurs vierges à Neharde'a,</b> car les hommes et les femmes sont restés éveillés toute la nuit et cela a conduit à la promiscuité ? Rav Yehuda <b>lui a dit : Qu'a dit le Saint, Béni soit-Il,</b> à propos de ces péchés commis par le peuple juif ? <b>Il a répondu :</b> Voici ce que Dieu a dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

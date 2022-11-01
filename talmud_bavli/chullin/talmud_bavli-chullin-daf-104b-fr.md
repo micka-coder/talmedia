@@ -42,4 +42,4 @@ Rav Yitzḥak <b>leur a dit : Cette déclaration</b> d'Agra ne s'applique que si
 <b>Il est enseigné</b> dans un <i>baraita</i> : <b>Beit Shammai disent :</b> Entre la consommation de viande et de lait, on doit <b>s'essuyer</b> la bouche, <b>et Beit Hillel disent</b> qu'il doit <b>se rincer</b> la bouche. La Gemara demande : <b>Quel est le sens du mot : <b>Essuyer [<i>mekane'aḥ</i>], et quel</b> est le sens du mot : <b>Rincer [<i>médiaḥ</i>] ? </b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

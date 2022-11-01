@@ -51,4 +51,4 @@ La Guemara demande : <b>Mais cette</b> troisième mention <b>est également néc
 <b>Au contraire, Rava dit : Cela découle</b> d'une analogie verbale entre les termes <b>"son impureté"</b> et <b>"son impureté"</b> comme suit : <b>Il est écrit ici,</b> à propos d'une offrande glissante : "Ou s'il touchera l'impureté d'un homme <b>d'une manière quelconque de son impureté</b> par laquelle il peut devenir impur" (Lévitique 5:3),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

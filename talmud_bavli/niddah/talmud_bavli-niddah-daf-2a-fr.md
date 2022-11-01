@@ -18,4 +18,4 @@ Pour <b>Toute femme qui a un <b>cycle menstruel fixe</b> [<i>veset</i>],</b> et 
 <strong>GEMARA:</strong> La mishna enseigne que lorsqu'une femme discerne que son sang menstruel a émergé, Shammai soutient que son statut d'impureté commence à partir de ce moment, tandis que Hillel soutient qu'il commence à partir du moment de son auto-examen le plus récent. La Gemara demande : <b>Quelle est la raison</b> de l'opinion <b>de Shammai ?</b> La Gemara répond : Shammai <b>soutient</b> que comme il existe un principe selon lequel lorsque le statut d'un élément est incertain, il conserve son statut présumé, ici aussi : <b>Établir</b> la <b>femme dans son statut présomptif, et une femme reste avec le statut présomptif de</b> être <b>rituellement pure. Et</b> quel est le raisonnement de <b>Hillel ?</b> Il prétend que <b>lorsque</b> on <b>énonce</b> le principe : <b>Rétablir un élément dans son statut présumé,</b> cela ne s'applique que <b>lorsqu'il n'y a pas d'affaiblissement</b> du statut présumé qui résulte <b>de</b> l'élément <b>lui-même. Mais</b> dans le cas de <b>une femme,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

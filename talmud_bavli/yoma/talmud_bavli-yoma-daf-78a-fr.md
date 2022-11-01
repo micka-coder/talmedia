@@ -42,4 +42,4 @@ La Gemara demande : <b>Que demandent-ils ?</b> Quel est le fondement de la quest
 § <b>Ils ont soulevé</b> un autre <b>dilemme</b> devant <b>eux,</b> les mêmes Sages ont mentionné : <b>Qu'est</b> la <i>halakha</i> en ce qui concerne le fait de <b>sortir avec des sandales en</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

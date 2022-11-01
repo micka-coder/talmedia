@@ -26,5 +26,5 @@ Les raisins défectueux, les grains de raisin, les enveloppes de raisin et la bo
 ### michna 9
 Rabbi Yose dit : on peut planter une pousse d'orlah ; mais on ne peut pas planter une noix d'orlah, car c'est un fruit. Et on ne peut pas greffer des baies de dattes d'orla.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

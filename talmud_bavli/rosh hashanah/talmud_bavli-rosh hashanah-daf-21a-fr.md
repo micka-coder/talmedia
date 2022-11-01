@@ -30,4 +30,4 @@ On rapporte que <b>Rav Naḥman a dit à ceux qui partent en mer</b> avant Nisan
 La Guemara demande : <b>Quand est-ce que</b> la lune se <b>couche</b> au lever du jour ? <b>Le 15</b> du mois. <b>Mais le quatorze</b> de Nisan <b>on brûle</b> le levain. La Guemara répond : <b>Pour</b> ceux qui sont en mer, <b>à qui le monde est révélé,</b> à qui l'horizon est grand ouvert et bien visible, la lune <b>complète</b> sa course au lever du soleil déjà <b>le quatorze</b> du mois. Ils peuvent donc se fier à ce signe pour établir la date de la Pâque et le moment de brûler le levain.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

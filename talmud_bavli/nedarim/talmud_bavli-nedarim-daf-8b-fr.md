@@ -21,4 +21,4 @@ La Gemara commente : Abaye n'est pas d'accord avec l'opinion de Rabbi Shimon ben
 <b>Et les méchants seront punis par</b> le même soleil, <b>comme il est dit : "Car voici, le jour vient, il brûle comme une fournaise;</b> et tous les orgueilleux, tous ceux qui font le mal, seront du chaume ; et le jour qui vient les embrasera" (Malachie 3:19). Par conséquent, Rabbi Shimon ben Lakish soutient que le soleil ne guérit que dans le monde à venir, alors qu'Abaye interprète le verset comme faisant référence à ce monde.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

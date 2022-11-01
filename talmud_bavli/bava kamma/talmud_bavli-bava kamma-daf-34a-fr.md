@@ -57,4 +57,4 @@ La Guemara demande : <b>Maintenant, Rabbi Meir et Rabbi Yehuda</b> soutiennent t
 <b>Abaye dit à</b> Rava : <b>Si oui, nous avons trouvé, selon Rabbi Yehuda,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

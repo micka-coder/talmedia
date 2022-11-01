@@ -153,5 +153,5 @@
 <b>Et un <i>hin,</i></b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>c'est une mesure liquide. 
 <b>Qui vous a fait sortir [du pays d'Égypte] -</b> dans ce but. Autre interprétation : J'ai distingué en Égypte entre les premiers-nés et ceux qui ne l'étaient pas, et je suis fidèle pour infliger un châtiment à celui <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>qui trempe ses poids dans le sel pour tromper les gens qui ne reconnaissent pas [la tromperie]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

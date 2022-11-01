@@ -45,4 +45,4 @@ La Guemara rejette cette affirmation. <b>Même</b> si <b>on dit</b> que la mishn
 La Guemara commente : <b>Il a été enseigné</b> dans une <i>baraita</i> <b>contraire à notre réponse,</b> mais en accord avec le postulat initial : "Il sortira vers l'autel qui est devant l'Eternel, et il en fera l'expiation ; <b>il prendra du sang du taureau et du sang du bouc,</b> et il en mettra sur les coins de l'autel tout autour" (Lévitique 16:18). Ce verset enseigne <b>que</b> le sang du taureau et du bouc doit <b>être mélangé.</b> C'est <b>la déclaration de Rabbi Yoshiya.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

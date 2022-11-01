@@ -118,5 +118,5 @@
 <b>Cinq fois plus.</b> Composé de sa portion en tant que l'un des frères, ainsi que des portions de Yoseif, Osnas, Menasheh et Ephraïm. 
 <b>Ils se sont enivrés avec lui.</b> Depuis le jour où ils l'ont vendu, ils n'avaient pas bu de vin, et il n'en avait pas bu non plus, mais ce jour-là, ils ont bu. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

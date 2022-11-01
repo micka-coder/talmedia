@@ -65,4 +65,4 @@
 <b>Et Daniel était là</b> dans la grandeur à Babylone jusqu'à la première année du roi Cyrus. Selon celui qui dit que Hathach (Esther ; 4:5, 6, 9, 10) est Daniel ; et pourquoi était-il appelé Hathach ? Parce qu'il a été retranché (חֲתָכוּהוּ) de sa grandeur ; [selon son explication] il faut dire que c'est Cyrus Ier, qui a précédé Assuérus. Mais selon celui qui dit que toutes les affaires royales étaient décidées (נֶחְתָּכִים) par ses ordres, nous devons dire que ce Cyrus était Darius II, [qui vint] après Assuérus, et qu'aux jours de Darius le Mède, lorsqu'ils jetèrent [Daniel] dans la fosse aux lions, il ne fut pas rétrogradé de sa grandeur, comme il est dit (6 : 29) : "Et ce Daniel prospéra pendant le règne de Darius et pendant le règne de Cyrus le Perse". Nous apprenons qu'à l'époque de Cyrus Ier, il était [encore] dans sa grandeur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

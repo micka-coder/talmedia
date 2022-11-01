@@ -26,4 +26,4 @@
 <b>Aussi bien que des joueurs de flûte</b> Heb.  כחללים, une expression de (Jud. 21:21)  בַּמְחֹלוֹת, instruments de musique.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

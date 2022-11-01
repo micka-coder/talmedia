@@ -42,4 +42,4 @@ Ceci est <b>comme</b> dans <b>cette</b> pratique <b>de Rabbi Zeira,</b> qui, <b>
 <b>L'école d'Eliyahu a enseigné : Six mille ans est</b> la durée du <b>monde. Deux mille</b> des six mille ans sont caractérisés par le <b>chaos ; deux mille</b> ans sont caractérisés par la <b>Torah,</b> depuis l'ère des Patriarches jusqu'à la fin de la période mishnique ; et <b>deux mille ans</b> sont <b>la période de</b> la venue du <b>Messie.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -12,4 +12,4 @@ il doit verser sur la zone s'étendant <b>jusqu'à l'articulation.</b> En <b>san
 § <b>Rav dit : Une personne peut se laver les deux</b> de <b>ses mains le matin et stipuler à leur égard</b> qu'elle peut manger sur la base de ce lavage pendant toute <b>la journée,</b> à condition de préserver ses mains de la saleté et de l'impureté rituelle. De même, il est relaté que <b>Rabbi Avina a dit aux habitants de</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

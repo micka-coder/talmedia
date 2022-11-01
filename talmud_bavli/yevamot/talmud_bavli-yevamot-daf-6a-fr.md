@@ -36,4 +36,4 @@ La Guemara répond : <b>Non,</b> ici aussi la référence est à l'<b>interdicti
 La Guemara répond : <b>Oui, il en est bien ainsi.</b> Et <b>pourquoi ai-je</b> besoin du verset : <b>"Tu garderas Mes <i>Shabbatot</i>, et tu révéreras Mon Sanctuaire"</b> (Lévitique 19:30) ? Après tout, la <i>halakha</i> selon laquelle la construction du Temple n'annule pas l'interdiction de conduire un animal le Chabbat découle du cas d'honorer ses parents. La Guemara répond : <b>Il est nécessaire de</b> dériver <b>ce qui est enseigné</b> dans une <i>baraita</i> : On <b>pourrait</b> avoir pensé que <b>une personne doit être en révérence du Temple</b> et transformer le Temple lui-même en objet de culte. Par conséquent, <b>le verset dit : "Tu observeras Mes <i>Shabbatot</i>, et tu révéreras Mon Sanctuaire."</b> Le terme <b>observation est énoncé</b> en ce qui concerne <b>le Shabbat, et</b> le terme <b>révérence est énoncé</b> en ce qui concerne <b>le Temple. Tout comme</b> dans le cas de <b>l'observance énoncée</b> en ce qui concerne <b>le Shabbat,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

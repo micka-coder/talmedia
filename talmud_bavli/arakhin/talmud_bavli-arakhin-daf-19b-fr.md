@@ -57,4 +57,4 @@ Au contraire, <b>Abaye a dit : On évalue de combien</b> moins <b>une personne e
 En outre, si vous dites dans ce cas qu'il y a une préoccupation que dans l'intervalle son évaluation pourrait avoir augmenté et qu'il est donc nécessaire de l'évaluer une deuxième fois, alors en ce qui concerne celui qui <b>dit : Mon évaluation</b> m'incombe, et</b> le tribunal <b>n'a pas</b> encore <b>évalué, et</b> ensuite avant que le tribunal ne l'évalue <b>il dit à nouveau : Mon évaluation</b> incombe <b>à moi, quel est</b> le <i>halakha</i> ? Disons-nous que <b>ici certainement</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

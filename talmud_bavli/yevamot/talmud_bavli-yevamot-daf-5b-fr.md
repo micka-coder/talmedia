@@ -42,4 +42,4 @@ De même, si l'on suggère de dériver le principe <b>de la circoncision et de l
 La Guemara analyse cette <i>baraita</i> : <b>Quoi, n'est-ce pas</b> faisant référence à une situation <b>où</b> son père <b>lui a dit : Abats pour moi, cuisine pour moi,</b> ou tout autre travail interdit le Chabbat sous peine de <i>karet</i> ? <b>Et la raison</b> pour laquelle <b>le Miséricordieux</b> écrit spécifiquement : "Garde Mes <i>Shabbatot</i>,"</b> est de mettre en garde contre la violation de l'interdiction d'accomplir un travail le Chabbat, transgression qui encourt <i>karet</i>, dans le but d'honorer ses parents. On peut donc en déduire que <b>si ce n'était pas le cas,</b> la mitsva positive primerait <b>sur le Chabbat</b>. On peut donc en déduire qu'en général, les mitzvot positives l'emportent même sur les interdictions qui entraînent une <i>karet</i>. La Guemara rejette cette preuve : <b>Non,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

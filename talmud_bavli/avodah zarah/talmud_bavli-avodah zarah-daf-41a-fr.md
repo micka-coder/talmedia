@@ -39,4 +39,4 @@ La Guemara répond : La mishna veut dire que les fragments de statues sont permi
 <b>Nous avons appris</b> dans la mishna : Si l'on <b>trouve</b> un objet dans <b>la figure d'une main</b> ou dans <b>la figure d'un pied, ceux-ci sont interdits, car</b> des objets <b>similaires à ceux-ci sont adorés.</b> La Gemara demande : <b>Pourquoi ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

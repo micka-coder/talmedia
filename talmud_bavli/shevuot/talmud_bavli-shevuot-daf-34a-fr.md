@@ -66,4 +66,4 @@ La Guemara note : <b>Concluez-en</b> que <b>Rabbi Yosei HaGelili soutient</b> qu
 § A propos de la question de la vue sans connaissance dans les cas de droit monétaire, la Gemara relate : <b>Rav Hamnuna était assis devant Rav Yehuda, et Rav Yehuda était assis et il soulevait un dilemme :</b> Si quelqu'un exige un paiement d'un autre et prétend : <b>J'ai compté pour toi</b> et t'ai donné <b>cent dinars en présence d'untel et d'untel,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

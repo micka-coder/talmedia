@@ -48,4 +48,4 @@ La Gemara répond : <b>Quelle est la difficulté</b> dans ce cas ? <b>Peut-être
 <b>Au contraire, quand Ravin est venu, il a dit : Un des Sages m'a dit, et Rav Taḥlifa</b> est <b>son nom, qu'il était souvent au marché des maroquiniers, et il lui a dit : Quelle</b> est la signification de <b><i>dargash</i> ? Un lit en cuir. Rabbi Yirmeya dit</b> que <b>Rabbi Yoḥanan dit :</b> La différence entre un lit et un <i>dargash</i> est la suivante : <b>Un <i>dargash</i></b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

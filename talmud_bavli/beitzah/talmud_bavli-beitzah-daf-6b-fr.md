@@ -36,4 +36,4 @@ La Guemara commente : <b>Selon l'avis de qui</b> <b>est ce qui est enseigné :</
 <b>Au contraire,</b> Rav n'a certainement pas interdit un œuf qui n'a pas encore été pondu. Il faut plutôt expliquer sa déclaration comme suit : Un œuf <b>est entièrement formé à son émergence, et il produit des poussins,</b> c'est-à-dire qu'un œuf pondu de manière régulière peut être incubé et un poussin en sortira. En revanche, un œuf qui est resté <b>à l'intérieur de sa mère ne peut pas produire de poussins.</b> La Gemara demande : <b>Quelle est la <b>différence</b> halakhique pratique</b> de cette observation ? La Gemara répond : Elle est pertinente <b>pour l'achat et la vente.</b> En d'autres termes, la différence entre les types d'œufs a des ramifications en termes de commerce. C'est <b>comme</b> cet incident impliquant <b>un certain</b> individu <b>qui</b> aurait <b>dit au</b> grand public : <b>Eggs</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

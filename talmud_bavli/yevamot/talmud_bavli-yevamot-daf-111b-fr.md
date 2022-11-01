@@ -66,4 +66,4 @@ La Gemara demande : <b>Et dire, en effet,</b> un mineur devrait être exempté d
 <b>Rabba a dit : On</b> peut <b>même dire que</b> la mishna est en accord avec l'opinion de <b>Rabbi Yosei. Rabbi Yosei énonce</b> son avis <b>là seulement</b> en ce qui concerne une revendication de virginité sur <b>sa fiancée, à laquelle il est habitué,</b> et donc moins inhibé, <b>mais en ce qui concerne la femme de son frère,</b> c'est-à-dire une veuve,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

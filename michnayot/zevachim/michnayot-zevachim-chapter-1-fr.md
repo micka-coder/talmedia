@@ -11,5 +11,5 @@ Une pesah qui a été abattue le matin du quatorze [de Nisan] sous une autre dé
 ### michna 4
 Une pesah et une hatat qui ont été égorgées pas en leur propre nom, ou il a reçu [le sang], et l'a porté [à l'autel] et l'a aspergé pas en leur propre nom, ou en leur propre nom et pas en leur propre nom, ou pas en leur propre nom et en leur propre nom, ils sont disqualifiés. Quel est le cas de "en leur propre nom et pas en leur propre nom" ? Au nom du fait que c'est une pesah [d'abord] et [ensuite] au nom du fait que c'est un shelamim. "Pas en leur propre nom et en leur propre nom:" au nom d'un shelamim [d'abord] et [ensuite] au nom d'une pesah. Car un sacrifice peut être disqualifié dans [l'un des] quatre éléments : l'abattage, la réception, le transport et l'aspersion. Rabbi Shimon le déclare valide s'il est porté [avec une mauvaise intention], car Rabbi Shimon a dit : il est impossible [d'avoir un sacrifice valide] sans abattage, sans réception et sans aspersion, mais c'est possible sans portage. [Comment cela] ? On l'égorge à côté de l'autel et on l'asperge. Rabbi Elazar dit : si on va là où on a besoin d'aller, une intention [illégitime] disqualifie [cela] ; là où on n'a pas besoin d'aller, une intention [illégitime] ne disqualifie pas [cela].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ Rav Ḥisda a déclaré que l'ablation d'une corne et de son os n'est pas consid
 La Guemara demande : <b>Mais</b> dans un cas <b>où</b> les os de l'animal <b>ont été coupés,</b> l'animal est-il même rendu <b>infirme ? Et</b> la Gemara <b>souleve une contradiction</b> d'une mishna (<i>Para</i> 2:2) : A propos d'une <b>génisse rouge dont les cornes et les sabots sont noirs,</b> la <i>halakha</i> est que <b>on doit couper</b> les parties noires afin que la génisse reste entièrement rouge. De toute évidence, le fait de couper les cornes de la génisse ne lui inflige pas de tare. <b>Ze'eiri a interprété</b> la mishna comme se référant à la coupe de la corne spécifiquement <b>de dessus l'os</b> à l'intérieur. Dans un tel cas, la génisse n'est pas disqualifiée. Le fait de couper l'os lui-même disqualifie l'animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

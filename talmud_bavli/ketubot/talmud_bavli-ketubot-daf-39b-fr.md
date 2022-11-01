@@ -33,4 +33,4 @@ La Gemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord ?
 La mishna poursuit : <b>Le violeur boit dans son récipient,</b> et le séducteur n'est pas obligé d'épouser la femme qu'il a séduite. <b>Rava de Parzakya dit à Rav Ashi : Puisque</b> les <i>halakhot</i> d'un violeur et d'un séducteur <b>sont dérivées l'une de l'autre</b> en ce qui concerne la somme de l'amende,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve, <b>comme l'ens
 La Guemara commente : <b>Et si tu disais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

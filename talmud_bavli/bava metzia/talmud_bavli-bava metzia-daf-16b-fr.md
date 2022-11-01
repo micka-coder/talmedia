@@ -57,7 +57,7 @@ En réponse à cette explication de cette mishna, <b>Rava dit : Mais</b> s'ensui
 La Guemara ajoute : <b>Et</b> en ce qui concerne le sujet de <b>celui qui nie</b> ses dettes, <b>puisqu'il nous est parvenu, disons quelque chose à ce sujet. Comme l'a dit Rav Yosef bar Minyumi</b> que <b>Rav Naḥman a dit :</b> Si le tribunal <b>dit au</b> plaideur contre lequel il a statué : <b>Allez</b> et <b>donnez</b> à l'autre plaideur ce que vous lui <b>dûrez,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 les Sages ont institué une ordonnance selon laquelle la vente est effective <b>en raison</b> de leur souci <b>de son</b> <b>moyen de subsistance immédiat.</b>
 
@@ -116,4 +116,4 @@ En réponse à cette explication de cette mishna, <b>Rava dit : Mais</b> s'ensui
 La Guemara ajoute : <b>Et</b> en ce qui concerne le sujet de <b>celui qui nie</b> ses dettes, <b>puisqu'il nous est parvenu, disons quelque chose à ce sujet. Comme l'a dit Rav Yosef bar Minyumi</b> que <b>Rav Naḥman a dit :</b> Si le tribunal <b>dit au</b> plaideur contre lequel il a statué : <b>Allez</b> et <b>donnez</b> à l'autre plaideur ce que vous lui <b>dûrez,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

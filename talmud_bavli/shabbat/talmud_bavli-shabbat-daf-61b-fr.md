@@ -33,4 +33,4 @@ La Gemara demande : <b>N'a-t-on pas enseigné</b> dans une <i>baraïta</i> : C'e
 <b>Au contraire, puisque l'amulette guérit, même s'il la tient dans sa main,</b> il peut <b>bien</b> sortir avec elle <b>aussi.</b> En termes de guérison, il n'y a aucune différence que l'amulette soit suspendue autour de son cou ou qu'elle soit dans sa main ; de même qu'ils lui ont permis de la porter autour de son cou le Chabbat, de même ils lui ont permis de la porter dans sa main.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ A propos de cette déclaration, <b>les Sages ont enseigné</b> dans une <i>barai
 <b>La mishna doit plutôt faire référence aux deux taureaux, un bélier et sept moutons <b>de la Nouvelle Lune et de <i>Shavuot</i>,</b> comme mentionné dans <b>le livre des Nombres</b> (28:11, 27).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

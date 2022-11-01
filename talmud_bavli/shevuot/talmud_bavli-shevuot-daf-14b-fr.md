@@ -54,4 +54,4 @@ La Gemara explique : <b>Non,</b> il est <b>nécessaire</b> de soulever le dilemm
 § La mishna enseigne : <b>La même</b> <i>halakha</i> s'applique à <b>celui qui entre dans la zone</b> qui faisait partie de la <b>cour</b> originale du Temple et à celui qui entre dans l'ajout ultérieur à la cour du Temple, car les ajouts ne peuvent être faits à la ville de Jérusalem ou aux cours du Temple que par un corps spécial comprenant le roi, un prophète, le <i>Urim VeTummim</i>, et le Sanhedrin de soixante et onze juges, et avec deux offrandes de remerciement et avec un chant spécial. La Gemara demande : <b>D'où vient cette affaire</b> ? <b>Rav Shimi bar Ḥiyya a dit : Comme le dit le verset : "Selon tout ce que je te montre, la forme du Tabernacle, et la forme de tous ses ustensiles,</b>".
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara demande : <b>À quel cas</b> <b>avez-vous interprété</b> que la <i>b
 La Guemara demande en outre : <b>À quel cas</b> <b>avez-vous interprété</b> la <i>baraita</i> comme faisant référence ? L'avez-vous interprété comme faisant référence à un cas <b>où il ne fournit pas</b> aux esclaves <b>de la nourriture ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

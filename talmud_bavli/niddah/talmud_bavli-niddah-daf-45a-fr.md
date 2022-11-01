@@ -72,4 +72,4 @@ Par conséquent, on peut affirmer ce qui suit : <b>Juste comme</b> après <b>des
 <b>Rav a dit</b> en réponse que <b>ceci</b> est ce que la <i>tanna</i> de la mishna <b>dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

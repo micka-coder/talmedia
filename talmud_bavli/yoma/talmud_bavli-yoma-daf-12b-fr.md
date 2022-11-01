@@ -42,4 +42,4 @@ La Guemara rejette cette preuve. Les Sages <b>disent : Non,</b> ce n'est pas une
 <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

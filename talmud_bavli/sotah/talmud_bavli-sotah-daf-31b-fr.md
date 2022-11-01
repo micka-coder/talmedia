@@ -60,4 +60,4 @@ La Guemara explique : <b>Au contraire,</b> la bonne compréhension est que <b>l'
 <b>Et certains disent</b> que Rabbi Neḥemya a en fait affirmé quelque chose de différent : <b>Et il y a</b> ceux <b>qui disent</b> une version différente de la démarche de Rabbi Neḥemya : <b>Où qu'un seul témoin valable soit venu initialement, même cent femmes</b> qui le contredisent par la suite <b>sont considérées comme un</b> témoin, et n'annulent pas son témoignage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -166,4 +166,4 @@
 <b>et des tuniques de prêtres</b> dans lesquelles on sert.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

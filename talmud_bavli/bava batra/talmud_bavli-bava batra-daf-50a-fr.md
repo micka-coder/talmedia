@@ -33,4 +33,4 @@ Le <i>baraita</i> continue : <b>Rabbi Yehuda dit</b> que <b>le second</b> maîtr
 Le <i>baraita</i> continue : <b>Rabbi Yosei dit</b> que
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

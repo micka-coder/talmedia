@@ -39,4 +39,4 @@ Si <b>les</b> fils de lignée certaine, <b>infecte</b> sont ceux qui sont <b>mor
 Dans le cas d'une <b>prêtresse dont la progéniture a été mélangée avec celle de sa servante, ils peuvent participer au <i>teruma</i>,</b> comme un prêtre et l'esclave d'un prêtre participent au <i>teruma</i>. <b>Et ils reçoivent une part</b> de <i>teruma</i> <b>dans le grenier.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

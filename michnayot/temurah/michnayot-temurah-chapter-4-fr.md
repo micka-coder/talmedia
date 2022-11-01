@@ -11,5 +11,5 @@ Si quelqu'un a mis de l'argent de côté pour sa hatat, qu'il l'a perdu et qu'il
 ### michna 4
 Si l'on met de côté une hatat et qu'elle est tachée, on la vend et on en apporte une autre avec son argent. Rabbi Elazar fils de Rabbi Shimon dit : si le deuxième animal a été offert avant que le premier ne soit tué, on le laisse mourir, puisque les propriétaires ont [déjà] obtenu l'expiation.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

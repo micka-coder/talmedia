@@ -36,4 +36,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de la mishna. S
 § Après avoir analysé la mishna elle-même, la Gemara se tourne vers une question connexe. <b>Rabbi Yitzḥak bar Yosef a dit</b> que <b>Rabbi Yoḥanan a dit : Celui qui dit à son agent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

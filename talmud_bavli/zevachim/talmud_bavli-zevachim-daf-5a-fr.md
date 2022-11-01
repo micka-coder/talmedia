@@ -51,4 +51,4 @@ La Gemara rejette également cette idée : <b>Qu'est-ce qui</b> est unique <b>de
 La Gemara répond : <b>Une offrande de remerciement peut prouver</b> le point, puisqu'il n'y a pas d'offrandes de remerciement communautaires, et encore une offrande de remerciement abattue pas pour elle ne satisfait pas l'obligation de son propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

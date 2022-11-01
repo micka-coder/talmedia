@@ -48,4 +48,4 @@ Le <i>baraita</i> conclut : Cette décision s'applique <b>à moins que quelqu'un
 La Guemara explique qu'aucune preuve ne peut être citée à partir de <b>là, car</b> cette <i>baraita</i> enseigne explicitement <b>la <b>raison</b> de sa décision :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

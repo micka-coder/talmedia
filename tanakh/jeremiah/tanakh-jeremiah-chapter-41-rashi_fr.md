@@ -40,7 +40,7 @@
 <b>En Geruth Chimham</b> Dans le lieu de séjour que David donna à Chimham, fils de Barzilai, le Galaadite, lorsqu'il revint de la guerre d'Absalom, comme il est dit dans le Livre de Samuel (II 19 : 39) : "Chimham passera avec moi."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>et les officiers du roi</b> Ils étaient jaloux de lui parce qu'il avait pris une position élevée.
 
@@ -82,4 +82,4 @@
 <b>En Geruth Chimham</b> Dans le lieu de séjour que David donna à Chimham, fils de Barzilai, le Galaadite, lorsqu'il revint de la guerre d'Absalom, comme il est dit dans le Livre de Samuel (II 19 : 39) : "Chimham passera avec moi."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

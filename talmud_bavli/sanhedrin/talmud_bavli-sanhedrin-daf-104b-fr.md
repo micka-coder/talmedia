@@ -45,4 +45,4 @@ En ce qui concerne le verset : <b>"Les mangeurs de mon peuple ont mangé du pain
 La Gemara ajoute : <b>Ceux qui interprètent la Torah de manière métaphorique diraient : Tous ceux qui sont énumérés et qui n'ont pas de part finissent par <b>entrer dans le monde à venir, comme il est dit : "Galaad est à Moi, et Manassé est à Moi, et Ephraïm aussi est la force de Ma tête ; Juda est Mon sceptre ; Moab est Mon lavoir ; sur Edom Je jetterai Ma chaussure ; Philistia, crie à haute voix à cause de Moi"</b> (Psaumes 60:9-10, et voir 108:9-10). <b>"Galaad est à moi et Manassé est à moi" ; ceci</b> fait référence à <b>Ahab, qui est tombé à Ramoth Galaad. "Manassé", dans son sens courant,</b> fait référence au roi Manassé. <b>"Ephraïm aussi est la force de Ma tête" ; ceci</b> fait référence à <b>Jéroboam, qui vient</b> de la tribu d' <b>Ephraïm. "Juda est Mon sceptre" ; ceci</b> fait référence à <b>Ahithophel,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

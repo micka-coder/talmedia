@@ -66,4 +66,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <
 La Guemara objecte : <b>Mais le Maître n'a-t-il pas dit : La décision</b> d'un <b>troisième</b> avis qui fait un compromis entre les deux premiers avis n'est <b>pas</b> considérée comme <b>décisive</b> si elle est basée sur des considérations qui n'ont pas été mentionnées par les deux autres avis. Bien que l'opinion de Rabbi Yosei soit un compromis entre les opinions de Beit Shammai et Beit Hillel, elle est basée sur une source différente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

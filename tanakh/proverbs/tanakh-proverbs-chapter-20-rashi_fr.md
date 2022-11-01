@@ -88,4 +88,4 @@
 <b>et des plaies dans les parties les plus intimes</b> C'est l'hydropisie.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

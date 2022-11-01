@@ -42,4 +42,4 @@ Si un document <b>se trouve parmi les documents d'une personne</b> indiquant : <
 <strong>GEMARA :</strong> Il y avait <b>un certain</b> billet à ordre qui a été présenté à la cour de Rav Huna, dans lequel il était écrit : Moi, untel fils d'untel, je vous ai emprunté cent dinars.</b> Aucun nom n'était donné comme créancier, mais celui qui présentait le document prétendait que l'argent lui était dû.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

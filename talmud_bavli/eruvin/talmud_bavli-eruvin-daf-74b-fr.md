@@ -21,4 +21,4 @@ Abaye a répondu : <b>J'aurais dit</b> que <b>la justification de</b> l'opinion 
 Rav Yosef a dit : Si telle était la raison, <b>pourquoi</b> aurais-je besoin de deux</b> décisions concernant la même question ? Rav a déjà déclaré qu'une ruelle peut être rendue permise pour le portage en son sein uniquement si des maisons et des cours s'y ouvrent. Abaye explique que les deux décisions sont <b>nécessaires. Comme, si</b> Rav avait enseigné cette <i>halakha</i> uniquement <b>à partir de cette</b> règle générale,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara explique la preuve à partir de cette source : <b>Et pourtant</b> Na�
 Rabbi Eliezer <b>me dit : Qu'est-ce que c'est, Akiva ? On ne peut pas argumenter au moyen d'une déduction <i>a fortiori</i> ici,</b> dans ce cas particulier. Cependant, Rabbi Eliezer n'a pas donné de raison à cette réponse. Rabbi Akiva poursuit : <b>Et lorsque je suis venu présenter</b> ces <b>matières devant Rabbi Yehoshua, il m'a dit : Tu as bien parlé,</b> c'est-à-dire que ta logique est sans faille, <b>mais ils ont effectivement dit</b> qu'il s'agit d'une <b><i>halakha</i></b> transmise à Moïse depuis le Sinaï, ce qui ne peut être réfuté au moyen d'une déduction <i>a fortiori</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

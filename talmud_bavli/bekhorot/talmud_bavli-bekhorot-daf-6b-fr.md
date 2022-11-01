@@ -72,4 +72,4 @@ La Gemara conteste : Si c'est le cas, alors la double référence de <b>"chameau
 La Guemara explique : <b>En ce qui concerne</b> la <i>halakha</i> du statut de <b>premier-né</b>, <b>il est écrit : "Mais le premier-né d'un bœuf"</b> (Nombres 18:17), ce qui indique qu'il n'a pas le statut de premier-né <b>sauf s'il est un bœuf et que son premier-né est un bœuf.</b> Si sa tête et la majeure partie de son corps ne ressemblent pas à un bœuf, il n'a pas le statut de premier-né selon Rabbi Shimon. <b>Mais en ce qui concerne la consommation,</b> là où Rabbi Shimon soutient qu'un chameau né d'un animal casher est interdit, peut-être n'est-ce <b>qu'un <b>camel d'apparence ordinaire que le Miséricordieux déclare interdit, mais</b> si...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

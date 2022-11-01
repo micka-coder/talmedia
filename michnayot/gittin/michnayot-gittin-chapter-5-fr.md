@@ -26,5 +26,5 @@ Voici les règles qu'ils ont établies en raison des voies de la paix : Un prêt
 ### michna 9
 Une femme peut prêter à une autre femme soupçonnée de ne pas observer l'année sabbatique un éventail ou un tamis ou un moulin à main ou un fourneau, mais elle ne doit pas tamiser ou moudre avec elle. La femme d'un "fainéant" peut prêter à la femme d'un "am ha-aretz" un éventail ou un tamis et peut vanner, moudre et tamiser avec elle, mais une fois qu'elle a versé de l'eau sur la farine, elle ne doit rien toucher avec elle, car on n'aide pas ceux qui commettent une transgression. Toutes ces règles n'ont été dites qu'en raison des voies de la paix. On peut souhaiter bonne chance aux Gentils pendant l'année sabbatique, mais pas aux Israélites et on peut les saluer, en raison des voies de la paix.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

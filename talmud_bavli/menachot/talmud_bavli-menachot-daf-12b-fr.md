@@ -54,7 +54,7 @@ La Guemara cite la décision pertinente de Rabbi Eliezer. <b>Comme nous l'avons 
 La Gemara demande : <b>Et qu'est-ce que</b> cela nous apprend ? </b> La mishna précédente <b>enseigne</b> déjà ce principe <b>explicitement : </b> Si l'on a accompli l'un de ces rites avec l'intention de <b>participer à une olive-bulk en dehors</b> de sa zone désignée <b>et à une olive-bulk le lendemain,</b> ou <b>à une olive-bulk le lendemain et à une olive-bulk en dehors</b> de sa zone désignée, ou <b>une demi-bulle d'olive en dehors</b> de sa zone désignée <b>et une demi-bulle d'olive le lendemain,</b> ou <b>une demi-bulle d'olive le lendemain et une demi-bulle d'olive en dehors</b> de sa zone désignée, l'offrande est <b>infructueuse mais il n'y a pas</b> d'assujettissement à <b><i>karet</i>. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Ou une botte d'olives, dans</b> le cas de l'intention de quelqu'un par rapport à la consommation du <b>reste,</b> car le reste a déjà la taille d'une botte d'olives. Par conséquent, <b>dans</b> le cas du <b>retrait de la poignée également,</b> c'est-à-dire lorsqu'il enseigne : Celui qui enlève une poignée <b>pour prendre part</b> à <b>son reste,</b> Rabbi Ḥiyya <b>n'enseigne pas : Ou</b> de consommer <b>une olive-bulk</b> de son reste, malgré le fait qu'il aurait pu le faire dans cette clause. Rava conclut sa preuve : <b>Et</b> pourtant <b>la dernière clause enseigne</b> que si l'on a brûlé la poignée avec l'intention de consommer le reste après son temps désigné, l'offrande est <b><i>piggul</i> et l'on est susceptible</b> de recevoir <b><i>karet</i> à cause de</b> elle. De toute évidence, le brûlage est efficace pour</b> rendre un reste manquant comme <i>piggul</i>.
 
@@ -110,4 +110,4 @@ La Guemara cite la décision pertinente de Rabbi Eliezer. <b>Comme nous l'avons 
 La Gemara demande : <b>Et qu'est-ce que</b> cela nous apprend ? </b> La mishna précédente <b>enseigne</b> déjà ce principe <b>explicitement : </b> Si l'on a accompli l'un de ces rites avec l'intention de <b>participer à une olive-bulk en dehors</b> de sa zone désignée <b>et à une olive-bulk le lendemain,</b> ou <b>à une olive-bulk le lendemain et à une olive-bulk en dehors</b> de sa zone désignée, ou <b>une demi-bulle d'olive en dehors</b> de sa zone désignée <b>et une demi-bulle d'olive le lendemain,</b> ou <b>une demi-bulle d'olive le lendemain et une demi-bulle d'olive en dehors</b> de sa zone désignée, l'offrande est <b>infructueuse mais il n'y a pas</b> d'assujettissement à <b><i>karet</i>. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara explique : <b>Il y a,</b> dans le cas du <i>baraita</i>, <b>il veut</b
 § La mishna enseigne en outre : <b>Et <i>tarit</i></b> le poisson <b>qui n'est pas haché</b> et la saumure qui contient du poisson sont autorisés. <b>Les Sages ont enseigné : Qu'est-ce qui est</b> considéré comme <b><i>tarit</i> qui n'a pas été haché ? Tout</b> poisson dont la <b>tête et la colonne vertébrale sont reconnaissables. Et qu'est-ce qui est</b> considéré comme de la <b>saumure qui contient du poisson ? Toute</b> saumure <b>qui</b> comporte <b>un <i>kilbit</i> ou deux <i>kilbiyot</i></b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

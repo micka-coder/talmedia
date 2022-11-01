@@ -27,7 +27,7 @@ La Gemara demande : <b>Mais comment retire-t-on une poignée</b> de cette offran
 La Guemara conteste cette suggestion : <b>Mais</b> si le vœu était d'apporter une offrande de repas qui soit moitié pains et moitié galettes, <b>il nécessite de retirer une poignée des pains</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>avec elle et dit</b> la stipulation suivante : <b>Si cette</b> offrande est celle <b>d'un lépreux,</b> c'est-à-dire si je suis lépreux, <b>c'est son offrande de culpabilité et c'est son <i>log</i></b> d'huile. <b>Et si</b> je ne suis <b>pas</b> un lépreux, <b>cette</b> bête que j'ai apportée pour <b>une offrande de culpabilité</b> sera <b>une offrande de paix en cadeau,</b> car leurs rites sacrificiels sont équivalents.
 
@@ -56,7 +56,7 @@ La Gemara demande : <b>Mais comment retire-t-on une poignée</b> de cette offran
 La Guemara conteste cette suggestion : <b>Mais</b> si le vœu était d'apporter une offrande de repas qui soit moitié pains et moitié galettes, <b>il nécessite de retirer une poignée des pains</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>avec elle et dit</b> la stipulation suivante : <b>Si cette</b> offrande est celle <b>d'un lépreux,</b> c'est-à-dire si je suis lépreux, <b>c'est son offrande de culpabilité et c'est son <i>log</i></b> d'huile. <b>Et si</b> je ne suis <b>pas</b> un lépreux, <b>cette</b> bête que j'ai apportée pour <b>une offrande de culpabilité</b> sera <b>une offrande de paix en cadeau,</b> car leurs rites sacrificiels sont équivalents.
 
@@ -85,4 +85,4 @@ La Gemara demande : <b>Mais comment retire-t-on une poignée</b> de cette offran
 La Guemara conteste cette suggestion : <b>Mais</b> si le vœu était d'apporter une offrande de repas qui soit moitié pains et moitié galettes, <b>il nécessite de retirer une poignée des pains</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

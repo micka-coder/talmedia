@@ -62,7 +62,7 @@
 <b>que Mon nom est le Seigneur</b> Comme son sens apparent, un dirigeant et un souverain pour accomplir Mon décret.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -126,4 +126,4 @@
 <b>que Mon nom est le Seigneur</b> Comme son sens apparent, un dirigeant et un souverain pour accomplir Mon décret.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

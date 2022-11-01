@@ -78,4 +78,4 @@ Rabba discute cette mishna : <b>Quelles sont les circonstances</b> de <b>ces deu
 <b>Et Rava dit</b> en guise d'explication : <b>D'où est-ce que j'énonce</b> cette <i>halakha</i> ? Du fait <b>qu'il est écrit</b> à propos des deux pains : <b>"Vous apporterez de vos habitations</b> deux <b>pains d'agitation</b> de deux dixièmes d'épha ; ils seront de fine farine, ils seront cuits au levain, <b>pour les prémices du Seigneur"</b> (Lévitique 23:17). <b>De même que les prémices</b> sont apportées <b>par elles-mêmes,</b> sans offrande animale d'accompagnement, <b>de même les deux pains</b> sont apportés <b>par eux-mêmes</b> lorsqu'il n'y a pas de mouton disponible. <b>Et</b> apprendre <b>de cette comparaison</b> avec les prémices que <b>comme les prémices</b> sont apportées <b>pour être mangées, de même les deux pains</b> sont <b>aussi</b> apportés <b>pour être mangés,</b> même en l'absence des moutons apportés en offrande de paix.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

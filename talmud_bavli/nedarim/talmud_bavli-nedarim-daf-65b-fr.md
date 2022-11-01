@@ -21,4 +21,4 @@ La mishna relate : <b>Et un incident</b> s'est produit <b>en ce qui concerne cel
 La Guemara pose une question : <b>Doit-on conclure de</b> la mishna que <b>des arrangements ne sont pas faits avec un créancier,</b> mais qu'au contraire, la totalité de la somme est perçue immédiatement, sans parvenir à un accord avec les créanciers du mari pour lui laisser un peu d'argent pour subvenir à ses besoins ? La Guemara réfute cette suggestion : <b>Rav Naḥman, fils de Rabbi Yitzḥak, a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

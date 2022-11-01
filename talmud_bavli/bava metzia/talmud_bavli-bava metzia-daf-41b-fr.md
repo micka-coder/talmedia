@@ -24,4 +24,4 @@ La Gemara demande : <b>Et selon celui qui dit : Le détournement nécessite une 
 <b>Et l'autre</b> mention est <b>pour ce qui est enseigné</b> dans un <i>baraita</i>. Il est écrit : <b>"Et le maître de maison s'adressera aux juges</b> pour déterminer s'il a détourné les biens de son voisin" (Exode 22, 7). Ceci est énoncé par rapport à <b>un serment.</b> Est-ce que <b>vous dites</b> que c'est énoncé par rapport à <b>un serment, ou</b> est-ce que c'est énoncé <b>uniquement</b> par rapport à <b>un jugement ? Le détournement est énoncé ci-dessous,</b> dans un verset ultérieur du chapitre : "Qu'il ait détourné les biens de son prochain" (Exode 22:10), <b>et le détournement est énoncé ci-dessus,</b> dans un verset antérieur du chapitre : "Qu'il ait détourné les biens de son prochain" (Exode 22:7). <b>Comme ci-dessous</b> il est dit explicitement à propos d'un <b>serment :</b> "Le serment du Seigneur sera entre eux deux pour déterminer s'il a détourné les biens de son prochain" (Exode 22:10), <b>de même ici,</b> il est dit à propos d'un <b>serment</b> et pas seulement pour le jugement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

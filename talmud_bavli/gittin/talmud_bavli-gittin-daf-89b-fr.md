@@ -51,4 +51,4 @@ La Gemara demande : <b>Qu'est</b> la <i>halakha</i> si <b>ils n'ont pas trouvé 
 La Gemara demande : <b>Quel est</b> le <i>halakha</i> si <b>une rumeur a circulé sur le fait qu'elle</b> a été fiancée <b>à cet</b> homme <b>et</b> ensuite une autre rumeur a été répandue qu'elle est devenue fiancée <b>à cet</b> homme ? <b>Rav Pappa dit :</b> Dans <b>cette</b> cas également,</b> le <b>premier</b> homme <b>divorce</b> d'elle <b>et</b> le <b>second</b> homme <b>se marie</b> avec elle, en raison de la crainte précédemment évoquée que les gens pensent qu'il se remarie avec sa divorcée après qu'elle se soit fiancée à un autre homme. <b>Ameimar dit : Elle est permise à la fois</b> au premier et au second homme. L'un d'eux doit la divorcer tandis que l'autre peut l'épouser.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

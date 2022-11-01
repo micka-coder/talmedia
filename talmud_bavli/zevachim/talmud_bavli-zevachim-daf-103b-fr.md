@@ -54,4 +54,4 @@ La Gemara conteste : <b>Dit la dernière clause,</b> c'est à dire la mishna ici
 <b>Rava dit :</b> Au contraire, <b>puisque la première clause</b> est l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon,</b> il faut que <b>la dernière clause soit aussi</b> l'avis de <b>Rabbi Elazar, fils de Rabbi Shimon. </b> Lorsque la mishna indique que les prêtres acquièrent les peaux si la chair était disqualifiée après l'écorchage, elle doit signifier que la chair était disqualifiée après l'aspersion. Par conséquent, <b>Qu'est-ce que</b> le mishna veut dire par la phrase : <b>Avant l'écorchement,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

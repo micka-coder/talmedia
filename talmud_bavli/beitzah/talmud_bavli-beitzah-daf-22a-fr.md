@@ -51,4 +51,4 @@ Cependant, <b>cela ne s'applique</b> que <b>lorsque</b> la personne malade, ou t
 La Guemara relate encore que <b>Ameimar a permis de peindre un œil</b> avec une pommade médicinale <b>le deuxième jour de la fête de Rosh HaShana</b> si l'œil provoque une douleur et nécessite un traitement. <b>Rav Ashi a dit à Ameimar : Mais Rava n'a-t-il pas dit</b> que si une personne <b>morte le premier jour d'une Fête, les Gentils peuvent assister à son</b> enterrement ; si elle meurt <b>le deuxième jour d'une Fête</b> observée en Diaspora, les <b>Juifs peuvent assister à son</b> enterrement ? <b>Et</b> c'est la <i>halakha</i> <b>même le deuxième jour de la fête de Rosh HaShana,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

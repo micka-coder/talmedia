@@ -51,4 +51,4 @@ La Gemara répond : <b>Nous ne soulevons pas le dilemme</b> par rapport à un ca
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve à partir du différend suivant : En ce qui concerne le prêtre qui accomplit le rite du <b>heifer rouge, Rabbi Ḥiyya, fils de Rabbi Yosef, dit :</b> Il doit <b>sanctifier</b> ses mains et ses pieds <b>avec un récipient de service à l'intérieur</b> du Temple, <b>et</b> ensuite il <b>sort</b> du Temple pour accomplir le service. <b>Et Rabbi Yoḥanan dit : </b> Il peut sanctifier ses mains <b>même à l'extérieur</b> du Temple, <b>et même avec un récipient non sacré, et même avec un bol en terre.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

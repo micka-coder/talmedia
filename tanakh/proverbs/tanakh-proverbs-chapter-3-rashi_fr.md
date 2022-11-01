@@ -110,4 +110,4 @@
 <b>Les sages hériteront de l'honneur, mais les fous prendront l'opprobre pour leur part</b> Pour lui-même, il prend l'opprobre pour sa part.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

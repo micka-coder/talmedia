@@ -26,4 +26,4 @@
 <b>Les villes séparées.</b> Celles-ci aussi étaient incluses dans l'héritage d'Ephraïm. Ils avaient des villes qui étaient séparées de leur portion et qui étaient incorporées dans la limite de l'héritage de Menashé.<sup>4</sup><i class="footnote">Ces villes appartenaient en fait à Ephraïm mais étaient situées dans les limites de Menashé, et n'étaient pas reliées à la portion d'Ephraïm.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

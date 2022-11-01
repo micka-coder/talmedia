@@ -45,4 +45,4 @@ Le <i>baraita</i> a dit : <b>Elle ne doit pas manger</b> ensemble <b>avec lui de
 La Guemara cite d'autres conséquences possibles du comportement d'une mère qui pourraient affecter ses enfants : <b>Une femme qui a des rapports sexuels dans un moulin aura des enfants épileptiques ;</b> celle qui <b>a des rapports sexuels sur le sol aura des enfants au long cou ;</b> celle qui <b>marche sur le fumier d'un âne</b> lorsqu'elle est enceinte <b>aura des enfants chauves ;</b> celle qui <b>consomme de la moutarde</b> pendant sa grossesse <b>aura des enfants gloutons ; </b> celui qui <b>mange du cresson de jardin [<i>taḥlei</i>] aura des enfants larmoyants ;</b> celui qui <b>mange</b> de la <b>brine de poisson [<i>moninei</i>] aura des enfants aux yeux clignotants ; </b> celui qui <b>mange de la terre aura des enfants laids ;</b> celui qui <b>buve de liqueur enivrante aura des enfants noirs ;</b> celui qui <b>mange de la viande et boit du vin</b> pendant la grossesse <b>aura des enfants</b> qui sont .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Geviha ben Pesisa <b>dit aux</b> descendants d'Ismaël : <b>D'où cites-tu la pr
 § A propos d'échanges avec d'éminents dirigeants gentils, la Gemara cite un échange où <b>Antoninos,</b> l'empereur romain, <b>dit à Rabbi</b> Yehuda HaNasi : <b>Le corps et l'âme sont capables de s'exempter du jugement</b> pour leurs péchés. <b>Comment cela ? Le corps dit : L'âme a péché, car depuis le jour</b> de ma mort <b>où elle s'est éloignée de moi, je suis jeté comme une pierre silencieuse dans la tombe,</b> et je ne pèche pas. <b>Et l'âme dit : Le corps a péché, car depuis le jour où je me suis séparé de lui, je vole dans les airs comme un oiseau,</b> incapable de pécher. Rabbi Yehuda HaNasi <b>lui dit : Je vais te raconter une parabole. A quoi est comparable cette affaire ? </b> Elle est comparable <b>à un roi de chair et de sang qui avait un beau verger, et dans lequel il y avait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

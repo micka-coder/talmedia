@@ -21,4 +21,4 @@ La Gemara répond : Emendez la <i>baraita</i> et <b>dites</b> que la référence
 La Gemara conteste : <b>Cela marche bien selon celui qui dit</b> que dans un cas où <b>cette</b> facteur permis <b>et ce</b> facteur interdit <b>causent</b> un résultat à produire, ce résultat est <b>interdit.</b> La progéniture qui a été produite à partir d'un taureau dont il est permis de tirer un bénéfice et d'une vache dont il est interdit de tirer un bénéfice est donc interdite également.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

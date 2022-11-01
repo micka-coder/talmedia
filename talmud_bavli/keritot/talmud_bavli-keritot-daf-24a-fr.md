@@ -48,4 +48,4 @@ La Guemara répond : En ce qui concerne <b>une ville idolâtre, qui</b> implique
 La Guemara soulève une difficulté : <b>Et qu'est-ce qui est différent entre</b> ce cas et <b>cette</b> déclaration <b>que Rabba bar Avuh dit</b> que <b>Rav Sheshet dit, et certains disent</b> que <b>Rabbi Abbahu dit</b> que <b>Rav Sheshet dit :</b> En ce qui concerne <b>celui qui reçoit un cadeau qui, après que le cadeau soit entré en sa possession, a dit : Que ce cadeau devienne nul,</b> ou a dit : Ce cadeau <b>est rendu nul,</b> ou a dit : <b>Je n'en veux pas, sa déclaration est effective.</b> Mais s'il a dit : <b>C'est nul,</b> ou : <b>Ce n'est pas un don,</b> c'est comme si <b>il n'avait rien dit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

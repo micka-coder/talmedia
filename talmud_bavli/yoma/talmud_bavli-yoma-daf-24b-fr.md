@@ -54,4 +54,4 @@ La Guemara explique les deux approches. <b>Rav Naḥman dit :</b> Les prêtres �
 <b>Rav Naḥman a dit : D'où est-ce que j'énonce</b> mon opinion ? <b>Comme nous l'avons appris</b> dans une mishna : Après le tirage au sort, <b>ils remettaient</b> les prêtres <b>aux préposés, et ils leur enlevaient leurs vêtements et ils ne laissaient sur eux que</b> leur <b>pantalon.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,7 +72,7 @@ La Gemara demande : <b>Mais</b> même <b>selon celui qui dit</b> que la <i>halak
 § <b>Un dilemme a été soulevé</b> devant les Sages : L'identification d'un objet sur la base de <b>marques distinctives est-elle par la loi de la Torah ou</b> est-elle <b>par la loi rabbinique ?</b> La Gemara demande : <b>Quelle différence y a-t-il</b> si c'est par la loi de la Torah ou par la loi rabbinique ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Dans</b> le cas de celui <b>qui achète</b> des produits <b>auprès d'un commerçant,</b> qui a acquis ces produits auprès de plusieurs fournisseurs et qui est incapable de déterminer la provenance des pièces. <b>Mais dans</b> le cas de celui <b>qui achète</b> le produit <b>auprès</b> d'un seul <b>propriétaire,</b> il est <b>obligé de rendre</b> les pièces au vendeur. <b>Et de même, le <i>tanna</i></b> qui récitait des <i>mishnayot</i> et des <i>baraitot</i> dans la salle d'étude de Rav Naḥman <b>a enseigné</b> une <i>baraita</i> <b>avant Rav Naḥman : </b> Les Sages <b>ont enseigné</b> que les pièces appartiennent à l'acheteur <b>seulement dans</b> le cas de celui <b>qui achète</b> un produit <b>auprès d'un commerçant, mais dans</b> le cas de celui <b>qui achète</b> un produit <b>auprès d'un</b> seul <b>propriétaire,</b> il est <b>obligé de rendre</b> les pièces au vendeur.
 
@@ -146,4 +146,4 @@ La Gemara demande : <b>Mais</b> même <b>selon celui qui dit</b> que la <i>halak
 § <b>Un dilemme a été soulevé</b> devant les Sages : L'identification d'un objet sur la base de <b>marques distinctives est-elle par la loi de la Torah ou</b> est-elle <b>par la loi rabbinique ?</b> La Gemara demande : <b>Quelle différence y a-t-il</b> si c'est par la loi de la Torah ou par la loi rabbinique ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

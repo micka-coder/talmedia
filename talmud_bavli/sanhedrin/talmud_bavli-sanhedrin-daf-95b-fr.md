@@ -48,4 +48,4 @@ La Gemara demande : <b>Avec quoi</b> l'ange les a-t-il <b>frappés ? Rabbi Eliez
 Il s'agit plutôt de l'incident dépeint dans le verset : <b>Le Saint, Béni soit-Il, vint et apparut à</b> Sennacherib <b>comme un vieil homme.</b> Dieu <b>lui dit : Quand tu iras vers les rois de l'Orient et de l'Occident dont tu as amené et tué les enfants, que leur diras-tu ? </b> Sennacherib <b>répondit</b> au Saint, Béni soit-il : <b>Cet homme,</b> en parlant de lui-même, <b>est aussi assis</b> accablé <b>par la même crainte,</b> car je ne sais pas quoi leur dire. Sennacherib <b>dit au Saint, Béni soit-il : <b>Que devons-nous faire ?</b> Le Saint, Béni soit-Il, <b>lui dit : Va</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

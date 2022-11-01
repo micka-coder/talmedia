@@ -45,4 +45,4 @@ La Gemara rejette cette suggestion : <b>Non,</b> cela sert <b>à exclure</b> un 
 § La Gemara relate : <b>Rabba bar bar Ḥana était faible,</b> et <b>Rav Yehuda et Rabba entrèrent pour</b> rendre visite à <b>lui</b> et <b>s'enquérir</b> de <b>son</b> bien-être. Pendant qu'ils étaient là, <b>ils ont soulevé un dilemme devant lui :</b> En ce qui concerne <b>deux</b> personnes <b>qui ont apporté un acte de divorce d'un pays d'outre-mer, sont-ils tenus de dire : Il a été écrit en notre présence et il a été signé en notre présence, ou bien ne sont-ils pas tenus</b> d'émettre cette déclaration ? <b>Il leur a dit : Ils ne sont pas tenus</b> de le dire, pour la raison suivante : <b>Et s'ils disaient : Elle a divorcé en notre présence, ne seraient-ils pas jugés crédibles ? </b> Par conséquent, ils ne sont pas tenus d'énoncer cette déclaration. <b>Dans l'intervalle,</b> alors qu'ils étaient assis, <b>arrivait un certain</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

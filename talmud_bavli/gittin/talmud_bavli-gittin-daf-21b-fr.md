@@ -51,4 +51,4 @@ La Gemara demande : <b>Et l'autre</b> <i>tanna</i>, Rabbi Yosei HaGelili, d'où 
 § En relation avec cette discussion, la Guemara mentionne plusieurs <i>halakhot</i> qui sont affectées par des éléments attachés au sol ou détachés. Si <b>il a écrit</b> l'acte de divorce <b>sur l'argile d'un pot perforé [<i>atzitz</i>],</b> qui est considéré comme attaché au sol, alors il est <b>valide, car il</b> peut <b>prendre</b> ce pot <b>et le lui donner. </b> Par contre, s'il l'a écrite <b>sur une feuille de</b> une plante poussant dans <b>un pot perforé,</b> alors quelle est la <i>halakha</i> ? <b>Abaye dit : </b> C'est <b>valide. Et Rava dit :</b> Il est <b>invalide.</b> La Gemara clarifie leur différend en détail : <b>Abaye dit</b> qu'il est <b>valide</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

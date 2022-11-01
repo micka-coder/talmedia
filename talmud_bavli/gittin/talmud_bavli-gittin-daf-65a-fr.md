@@ -51,4 +51,4 @@ La Gemara répond : <b>Il,</b> le mari, <b>qui divorce</b> de sa femme <b>de sa 
 La Gemara demande : <b>Non,</b> cette <i>halakha</i> est <b>nécessaire</b> par rapport à un cas <b>où elle lui a dit : Reçois l'acte de divorce pour moi dans</b> la ville de <b>Mata Meḥasya, et parfois tu</b> peux le <b>trouver dans</b> la ville de <b>Babylone. Et voici ce qu'elle dit :</b> Lorsque vous <b>prenez</b> l'acte de divorce, <b>partout où vous le trouvez, prenez-le de lui,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

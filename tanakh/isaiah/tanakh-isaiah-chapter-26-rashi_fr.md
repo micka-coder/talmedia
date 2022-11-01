@@ -93,7 +93,7 @@
 <b>Ses tués</b> qu'ils ont tués d'Israël.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>La ville qui était notre force, le salut, Il la placera</b> La ville de Jérusalem, qui a toujours été notre force depuis des temps immémoriaux, le Sauveur placera le salut pour ses murs et son rempart.
 <b>et un rempart</b> un mur bas avant le mur haut.
@@ -188,4 +188,4 @@
 <b>Ses tués</b> qu'ils ont tués d'Israël.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

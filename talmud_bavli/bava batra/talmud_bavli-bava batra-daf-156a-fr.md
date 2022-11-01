@@ -30,4 +30,4 @@ La Guemara poursuit : <b>Et la <i>halakha</i></b> est <b>conforme</b> à la déc
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui divise ses biens</b> entre divers destinataires <b>par</b> moyen d'instruction <b>verbale</b>, <b>Rabbi Elazar dit :</b> Tant dans le cas de <b>une personne</b> qui est <b>en bonne santé que</b> dans le cas de <b>une personne</b> qui est <b>dangereusement malade,</b> la <i>halakha</i> est la suivante : <b>Les biens qui servent de garantie,</b> c'est-à-dire les terrains, <b>sont acquis par</b> moyen d'une <b>argent, par un acte</b> de transfert, <b>ou par la prise de possession</b> de ceux-ci. <b>Et ce</b> qui <b>ne sert pas de garantie,</b> c'est-à-dire les biens meubles, <b>ne peut être acquis que par tirage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

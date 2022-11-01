@@ -60,4 +60,4 @@ La mishna enseigne : <b>Et s'il faisait</b> son travail <b>dans</b> le domaine d
 <b>Rav Yehuda dit : La cuscute [<i>keshut</i>] et le grain vert [<i>veḥaziz</i>], ne sont pas soumis</b> à l'interdiction de <b>voler,</b> car ils poussent par eux-mêmes et personne ne s'en occupe. Mais <b>dans un endroit où</b> les gens <b>sont particuliers</b> quant à la propriété de la cuscute et du grain vert, <b>ils sont soumis</b> à l'interdiction du <b>vol. Ravina a dit : Et la ville</b> de <b>Meḥasya est une ville où</b> les habitants <b>sont particuliers</b> à propos de la cuscute et du blé vert.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

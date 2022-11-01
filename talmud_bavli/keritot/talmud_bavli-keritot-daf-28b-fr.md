@@ -24,4 +24,4 @@ La Guemara demande : <b>Que</b> finalement <b>il est arrivé à</b> Yissakhar du
 <b>Rabbi Elazar dit</b> que <b>Rabbi Ḥanina dit : Les érudits de la Torah augmentent la paix dans le monde, comme il est dit : "Et tous tes enfants [<i>banayikh</i>] seront instruits du Seigneur, et grande sera la paix de tes enfants [<i>banayikh</i>]"</b> (Isaïe 54:13). Les Sages ont interprété ce verset de manière homilétique : Ne lisez pas : Tes enfants [<i>banayikh</i>], mais plutôt : Vos bâtisseurs [<i>bonayikh</i>], en référence aux érudits qui construisent le monde par leur étude de la Torah et l'accomplissement des mitzvot.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

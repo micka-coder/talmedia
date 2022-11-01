@@ -72,4 +72,4 @@ La Gemara demande : <b>Jusqu'à quelle</b> distance est-on considéré comme adj
 La Gemara demande : <b>Et</b> comment pouvez-vous <b>le comprendre</b> de cette façon ? <b>N'est-il pas écrit : "Ce sont les commandements</b> que le Seigneur a prescrits à Moïse pour les enfants d'Israël sur le mont Sinaï" (LévitiqueÂ 27:34), ce qui indique <b>qu'il n'est pas permis à un prophète d'initier</b> ou de changer <b>tout sujet</b> de <i>halakha</i> <b>désormais ?</b> Par conséquent, comment les prophètes pourraient-ils établir de nouvelles formes pour les lettres ? <b>Et en outre, le Rav Ḥisda n'a-t-il pas dit :</b> Les lettres <b><i>mem</i> et <i>samekh</i> dans les tablettes</b> de l'alliance donnée au Sinaï...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

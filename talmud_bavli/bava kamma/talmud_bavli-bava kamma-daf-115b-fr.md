@@ -54,4 +54,4 @@ La Guemara demande : <b>L'huile</b> devrait <b>également</b> être soumise à l
 La Guemara note : <b>Et</b> l'inquiétude par rapport à <b>un accident en soi est</b> une dispute entre <b><i>tanna'im</i>. Comme il est enseigné</b> dans un <i>baraita</i> : En ce qui concerne <b>un tonneau de <i>teruma</i> de vin devenu impur</b> et donc interdit à la consommation, <b>Beit Shammai disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

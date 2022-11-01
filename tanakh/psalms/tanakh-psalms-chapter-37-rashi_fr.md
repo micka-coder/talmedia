@@ -114,4 +114,4 @@
 <b>Pour l'homme de paix, il y a un avenir</b> S'il n'a pas de commencement, il a un avenir, mais les transgresseurs, les pécheurs et les méchants leur avenir a été coupé et ils ont été détruits ensemble.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -36,4 +36,4 @@ Voici <b>comme cela est enseigné</b> dans une <i>baraita</i> : la Torah prévoi
 <b>Et nous disons</b> à propos de cette dispute : <b>A propos de quoi sont-ils en désaccord ? Rabbi</b> Yehuda HaNasi <b>explique</b> des versets en utilisant la méthode des <b>généralisations et des détails, et Rabbi Yosei, fils de Rabbi Yehuda, explique</b> des versets.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

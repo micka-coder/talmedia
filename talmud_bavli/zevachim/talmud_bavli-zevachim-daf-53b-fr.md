@@ -27,4 +27,4 @@ La Gemara demande : <b>Quelle est la raison</b> pour laquelle il n'y avait pas d
 <b>Rabbi Levi bar Ḥama dit</b> que <b>Rabbi Ḥama, fils de Rabbi Ḥanina, dit : Une bande</b> de terre <b>sortait de la portion de Juda et entrait dans la portion de Benjamin,</b> et le coin sud-est de la base était sur cette bande. <b>Et</b> la tribu de <b>Benjamin le juste</b> s'y angoissait chaque jour,</b> désirant <b>la prendre</b> dans sa portion, en raison de sa sainteté unique. <b>Comme il est dit</b> dans la bénédiction de Moïse à la tribu de Benjamin :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

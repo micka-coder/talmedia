@@ -72,4 +72,4 @@ En outre, en ce qui concerne <b>le peuple de Judée,</b> qui <b>étudiait auprè
 La Guemara relate que le roi <b>David divulguait à l'avance le tractat</b> à étudier, alors que <b>Saoul ne divulguait pas le tractat</b> à étudier. <b>En ce qui concerne David, qui divulguait le tractat, il est écrit : "Ceux qui te craignent me verront et seront heureux"</b> (Psaumes 119:74), puisque tous étaient préparés et pouvaient profiter de sa Torah. <b>A l'égard de Saül, qui ne voulait pas divulguer le tractat</b> à étudier, <b>il est écrit : "Et partout où il se tournait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

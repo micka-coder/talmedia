@@ -60,4 +60,4 @@ La Guemara explique : L'interdiction de <b>séclusion</b> prescrite <b>par la lo
 <b>Et lorsque je suis revenu</b> <b>et que j'ai relayé</b> la <b>déclaration de Rabbi Ḥiyya devant Rabbi</b> Yehuda HaNasi, <b>il m'a dit : Ecarte ma déclaration, et saisis la déclaration de Rabbi Ḥiyya, qui dit :</b> A partir de <b>quand</b> un enfant gentil transmet-il une impureté rituelle comme</b> celui qui fait l'expérience de la <b><i>ziva</i> ? </b> A partir du moment où il a <b>neuf ans et un jour.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

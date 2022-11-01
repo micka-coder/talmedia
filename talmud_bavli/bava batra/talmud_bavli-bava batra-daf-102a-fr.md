@@ -18,4 +18,4 @@ La Guemara répond : <b>En fait,</b> la mishna <b>est</b> conforme à l'avis des
 La Gemara demande : <b>Mais comme</b> il a examiné <b>cette</b> chambre le long de <b>la diagonale, cette</b> deuxième chambre de l'autre côté de la cour devrait <b>également</b> être examinée le long de <b>la diagonale.</b> Si c'est le cas, cela <b>fournirait vingt-deux</b> coudées. La Guemara répond : <b>Nous disons</b> qu'il doit examiner <b>une</b> chambre le long de <b>la diagonale,</b> mais <b>nous ne disons pas</b> qu'il doit examiner <b>deux</b> chambres le long de <b>la diagonale.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

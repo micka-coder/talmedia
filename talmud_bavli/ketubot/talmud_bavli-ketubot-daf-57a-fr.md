@@ -39,4 +39,4 @@ La mishna poursuit : Un prêtre qui est un <b><i>yavam</i>,</b> c'est-à-dire qu
 <b>Cette</b> série de décisions, concernant la permission accordée à une femme fiancée dont la date du mariage est arrivée de prendre part à la <i>teruma</i>, est conforme à <b>la version initiale</b> de la <b>mishna.</b> Cependant, <b>un tribunal</b> qui s'est réuni <b>après eux,</b> dans une génération ultérieure, <b>a dit:</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

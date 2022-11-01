@@ -30,4 +30,4 @@ La Guemara clarifie la question de Rabbi Yirmeya : <b>Ne soulevez pas le dilemme
 Les deux aspects de la question sont les suivants : <b>Disons-nous</b> que, <b>puisque</b> ce cas est <b>initialement par négligence et finalement par accident,</b> il est <b>exonéré</b> de responsabilité ? <b>Ou peut-être ici,</b> dans ce cas, <b>c'est entièrement</b> dû à sa <b>négligence ; puisqu'il a vu que</b> l'animal <b>était sur le point de mettre bas, il aurait dû le sauvegarder</b> de manière adéquate.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

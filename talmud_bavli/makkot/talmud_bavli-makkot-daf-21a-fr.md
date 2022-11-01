@@ -48,4 +48,4 @@ La Gemara aborde la question de placer des cendres brûlées sur une plaie. La G
 Si une personne <b>portait</b> un vêtement composé de <b>diverses sortes</b> de laine et de lin <b>toute la journée, elle est passible</b> de recevoir <b>une seule</b> série de coups de fouet. Si <b>ils lui ont dit : Ne le porte pas</b>, <b>ne le porte pas</b>, <b>et qu'il l'enlève</b> <b>et le revêt</b> après chaque avertissement préalable, il est <b>responsable de chaque</b> fois qu'il revêt le vêtement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

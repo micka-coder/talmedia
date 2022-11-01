@@ -53,5 +53,5 @@ Shimon, son fils, avait l'habitude de dire : toute ma vie, j'ai grandi parmi les
 ### michna 18
 Rabban Shimon ben Gamaliel disait : le monde repose sur trois choses : Sur la justice, sur la vérité et sur la paix, comme il est dit : "Exécute le jugement de la vérité et de la paix dans tes portes" (Zacharie 8:16).
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

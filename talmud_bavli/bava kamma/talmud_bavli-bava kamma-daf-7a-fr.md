@@ -51,4 +51,4 @@ Rava résout la contradiction : Ce n'est <b>pas difficile. Ici,</b> l'expression
 <b>Au contraire,</b> il faut que ce soit <b>que les <b>terres de tout le monde</b> se soient appréciées</b> en valeur, <b>et</b> en ce qui concerne <b>ses terres, puisque</b> les gens voient <b>qu'il entre et sort pour de l'argent,</b> c'est-à-dire qu'il a besoin d'argent, ils raisonnent qu'il sera obligé d'accepter une offre inférieure pour sa propriété. Par conséquent, <b>son terrain s'est déprécié</b> en valeur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

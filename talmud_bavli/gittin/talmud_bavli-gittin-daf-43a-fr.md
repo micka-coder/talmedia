@@ -54,4 +54,4 @@ Rav Sheshet remet en question sa propre déclaration : <b>Mais une servante cana
 <b>Rav Ḥisda dit : </b> S'il y avait <b>une femme mi-servante mi-libre qui était fiancée à Reuven, et</b> par la suite <b>elle a été émancipée</b> entièrement, <b>et elle est retournée et s'est fiancée à Shimon</b> son frère, <b>et les deux</b> frères sont <b>morts</b> sans enfants, alors <b>elle entre en lévirat avec Lévi,</b> le troisième frère, car elle était considérée comme l'épouse complète d'un seul des frères,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

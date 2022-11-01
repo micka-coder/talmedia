@@ -63,4 +63,4 @@ La Guemara cite <b>ce que nous avons appris</b> dans la même mishna (<i>Terumot
 La Gemara répond : <b>C'est</b> conformément à l'avis de <b>Rabbi Yehoshua, qui dit : En déduire mais interpréter</b> la <i>halakha</i> <b>selon son</b> propre <b>lieu, et il dérive</b> la <i>halakha</i> <b>du</b> liquide qui sort des <b>premiers fruits de <i>teruma</i>. </b> Par conséquent, même en ce qui concerne les premiers fruits, le statut du liquide qui émerge du produit est comme celui du produit lui-même uniquement en ce qui concerne le vin et l'huile.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

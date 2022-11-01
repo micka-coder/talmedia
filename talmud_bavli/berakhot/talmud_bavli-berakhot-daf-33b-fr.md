@@ -93,4 +93,4 @@ La Guemara repond : <b>Ce n'est pas difficile ; ce</b> cas, ou bien qu'il soit r
 Abaye <b>lui a dit :</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

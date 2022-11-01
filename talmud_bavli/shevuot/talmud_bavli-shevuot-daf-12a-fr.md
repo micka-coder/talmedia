@@ -48,4 +48,4 @@ Ravina explique comment cette mishna soutient l'affirmation de Rav Shmuel bar Yi
 Rabbi Yoḥanan explique que Rabbi Shimon considère que les agneaux qui ont été consacrés pour les offrandes quotidiennes et qui restent inutilisés à la fin de l'année fiscale sont offerts comme offrandes supplémentaires. La Guemara note : <b>Cela est également enseigné</b> dans une <i>baraita</i> : <b>Quel</b> type d'offrandes <b>on apporterait des agneaux excédentaires</b> consacrés aux offrandes quotidiennes ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Elazar dit : De mê
 <b>Abaye lui dit : Et n'y a-t-il pas</b> de charnières <b>dans un homme ? Mais n'est-il pas écrit : "Des douleurs [<i>tzirim</i>] se sont emparées de moi, comme les douleurs d'une femme en travail"</b> (Isaïe 21, 3) ? La Gemara répond : Le verset fait spécifiquement référence aux <b>charnières de chair,</b> qui ne sont pas considérées comme des membres, car elles ne contiennent pas d'os. La Guemara persiste : <b>Mais n'est-il pas écrit : "Mon seigneur, à cause de la vision, mes douleurs [<i>tzirai</i>] arrivent"</b> (Daniel 10:16) ? La Gemara répond : <b>Ici aussi,</b> le verset fait référence aux <b>charnières de la chair.</b> La Gemara note : <b>Aussi, il est raisonnable</b> que les charnières d'un homme ne soient que de chair, <b>car si vous ne le dites pas,</b> alors en ce qui concerne les <b>248</b> membres qui, selon les Sages, constituent un corps humain, <b>comment pouvez-vous les trouver</b> ? <b>Pas dans un homme ni dans une femme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

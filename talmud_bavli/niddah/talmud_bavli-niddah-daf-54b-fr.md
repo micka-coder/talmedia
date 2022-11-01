@@ -24,4 +24,4 @@ La Guemara conclut sa citation de la <i>baraïta</i> : Dans le cas d'une femme d
 Dans le cas d'une femme dont le schéma établi est que <b>dix jours</b> elle est <b>impure et dix jours</b> elle est <b>pure,</b> le nombre de <b>jours où elle</b> est autorisée à <b>avoir des rapports sexuels</b> avec son mari <b>est équivalent</b> au nombre de <b>jours où elle</b> connaît le flux de <b><i>ziva</i>. </b> Pendant les sept premiers jours, elle est une femme menstruée, suivis de trois jours de sang qui la rendent <i>zava</i>. Elle doit compter sept des dix jours sans sang pour être purifiée de sa <i>ziva</i>, ce qui lui laisse trois jours pendant lesquels elle peut avoir des rapports sexuels, exactement les mêmes que les trois jours de <i>ziva</i> pendant lesquels elle a vu du sang. <b>Et de même,</b> il en est de même dans le cas <b>de cent</b> jours, puisqu'elle subit des saignements de <i>ziva</i> pendant quatre-vingt-treize jours, et est ensuite autorisée à son mari pendant quatre-vingt-treize jours, <b>et de même</b> dans le cas <b>de mille</b> jours.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

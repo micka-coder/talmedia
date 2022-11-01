@@ -45,4 +45,4 @@ La Guemara répond : La déclaration de Rava est nécessaire, <b>de peur que l'o
 La mishna a enseigné que <b><i>piggul</i> et <i>notar</i> rendent les mains d'une personne rituellement impures.</b> Cette question fait l'objet d'une dispute entre <b>Rav Huna et Rav Ḥisda. L'un</b> d'entre eux <b>dit :</b> La raison de cette promulgation est <b>du fait des prêtres suspects,</b> c'est-à-dire des prêtres qui étaient soupçonnés d'invalider les offrandes ; <b>et</b> l'autre <b>dit</b> la raison est <b>du fait des prêtres paresseux.</b> Rav Huna et Rav Ḥisda sont également en désaccord sur une autre question : <b>L'un</b> d'entre eux <b>dit</b> que l'impureté rituelle du <i>notar</i> et du <i>piggul</i> s'applique même à <b>une olive-bulk</b> de la viande ; <b>et l'un</b> d'entre eux <b>dit</b> qu'elle ne s'applique qu'à <b>une olive-bulk.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

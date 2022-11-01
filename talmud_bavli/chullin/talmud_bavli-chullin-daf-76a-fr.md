@@ -48,4 +48,4 @@ La Gemara demande : <b>Et quelle est la distance</b> ? <b>Abaye a dit : Quatre m
 Abaye ajoute : Les tendons qui sont <b>durs font</b> partie de <b>la convergence des tendons</b> dans la cuisse ; ceux qui sont <b>mous ne font pas</b> partie de <b>la convergence des tendons. </b> Ceux qui sont <b>épais font</b> partie de <b>la convergence des tendons ;</b> ceux qui sont <b>minces ne font pas</b> partie de <b>la convergence des tendons.</b> Ceux qui sont <b>blancs font</b> partie de <b>la convergence des tendons ;</b> ceux qui sont <b>non blancs ne font pas</b> partie de <b>la convergence des tendons.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

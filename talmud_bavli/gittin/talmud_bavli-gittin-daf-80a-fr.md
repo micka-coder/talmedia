@@ -57,4 +57,4 @@ Il a été dit dans la mishna : S'il a écrit la date sur un acte de divorce <b>
 <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -91,4 +91,4 @@
 <b>Ne pas supprimer une ancienne frontière</b> Ne vous détournez pas de la coutume de vos ancêtres. Nos Sages de mémoire bénie ont dit : Si l'on place un panier sous une vigne au moment de la vendange afin que les raisins tombés tombent dedans, à ce sujet il a été dit : " Ne supprimez pas une ancienne limite, etc. " <b>Supprimer</b> Heb.  תסג', comme dans (Ps. 129:5) " et reculeront (ויסגו-) ".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

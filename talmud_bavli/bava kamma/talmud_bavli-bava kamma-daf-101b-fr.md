@@ -24,7 +24,7 @@ La Gemara objecte : <b>Mais n'y a-t-il pas du bois</b> qui est utilisé pour fou
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara affirme que <b>Rava soulève une contradiction : Nous avons appris</b> dans une mishna (<i>Orla</i> 3:1) : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite de <b>pelures d'<i>orla</i> doit être brûlé. Apparemment,</b> le changement d'<b>apparence</b> précipité par les pelures de <i>orla</i> <b>est</b> considéré comme une <b>matière significative,</b> et la teinture conserve son statut de <i>orla</i>. <b>Et soulève une contradiction</b> d'une autre mishna (<i>Oholot</i> 3:2) : En ce qui concerne <b>un quart</b> -<i>log</i> <b>de sang</b> d'un cadavre <b>qui a été absorbé dans</b> le sol d'une <b>maison,</b> chaque récipient de <b>la maison est rituellement impur</b> du fait qu'il se trouve sous le même toit que le sang. <b>Et certains disent</b> que tout récipient dans <b>la maison est rituellement pur. Et</b> ces deux affirmations <b>ne sont pas en désaccord,</b> car <b>cette</b> première affirmation était <b>en référence aux récipients qui étaient</b> dans la maison <b>au début,</b> avant que le sang ne soit absorbé ; et <b>cette</b> seconde affirmation était <b>en référence aux récipients qui sont venus</b> dans la maison <b>à la fin,</b> après que le sang ait déjà été absorbé.
 
@@ -50,7 +50,7 @@ La Gemara objecte : <b>Mais n'y a-t-il pas du bois</b> qui est utilisé pour fou
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara affirme que <b>Rava soulève une contradiction : Nous avons appris</b> dans une mishna (<i>Orla</i> 3:1) : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite de <b>peaux d'<i>orla</i> doit être brûlé. Apparemment,</b> le changement d'<b>apparence</b> précipité par les pelures de <i>orla</i> <b>est</b> considéré comme une <b>matière significative,</b> et la teinture conserve son statut de <i>orla</i>. <b>Et soulève une contradiction</b> d'une autre mishna (<i>Oholot</i> 3:2) : En ce qui concerne <b>un quart</b> -<i>log</i> <b>de sang</b> d'un cadavre <b>qui a été absorbé dans</b> le sol d'une <b>maison,</b> chaque récipient de <b>la maison est rituellement impur</b> du fait qu'il se trouve sous le même toit que le sang. <b>Et certains disent</b> que tout récipient dans <b>la maison est rituellement pur. Et</b> ces deux affirmations <b>ne sont pas en désaccord,</b> car <b>cette</b> première affirmation était <b>en référence aux récipients qui étaient</b> dans la maison <b>au début,</b> avant que le sang ne soit absorbé ; et <b>cette</b> seconde affirmation était <b>en référence aux récipients qui sont venus</b> dans la maison <b>à la fin,</b> après que le sang ait déjà été absorbé.
 
@@ -76,7 +76,7 @@ La Gemara objecte : <b>Mais n'y a-t-il pas du bois</b> qui est utilisé pour fou
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara affirme que <b>Rava soulève une contradiction : Nous avons appris</b> dans une mishna (<i>Orla</i> 3:1) : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite de <b>peaux d'<i>orla</i> doit être brûlé. Apparemment,</b> le changement d'<b>apparence</b> précipité par les pelures de <i>orla</i> <b>est</b> considéré comme une <b>matière significative,</b> et la teinture conserve son statut de <i>orla</i>. <b>Et soulève une contradiction</b> d'une autre mishna (<i>Oholot</i> 3:2) : En ce qui concerne <b>un quart</b> -<i>log</i> <b>de sang</b> d'un cadavre <b>qui a été absorbé dans</b> le sol d'une <b>maison,</b> chaque récipient de <b>la maison est rituellement impur</b> du fait qu'il se trouve sous le même toit que le sang. <b>Et certains disent</b> que tout récipient dans <b>la maison est rituellement pur. Et</b> ces deux affirmations <b>ne sont pas en désaccord,</b> car <b>cette</b> première affirmation était <b>en référence aux récipients qui étaient</b> dans la maison <b>au début,</b> avant que le sang ne soit absorbé ; et <b>cette</b> seconde affirmation était <b>en référence aux récipients qui sont venus</b> dans la maison <b>à la fin,</b> après que le sang ait déjà été absorbé.
 
@@ -102,4 +102,4 @@ La Gemara objecte : <b>Mais n'y a-t-il pas du bois</b> qui est utilisé pour fou
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

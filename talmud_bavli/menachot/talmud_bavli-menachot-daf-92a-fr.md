@@ -54,4 +54,4 @@ Cette compréhension de leur différend est juste <b>comme celle</b> qui <b>est 
 <b>Et</b> la Guemara <b>souleve une contradiction</b> d'une autre <i>baraita</i> : En ce qui concerne le bouc émissaire de Yom Kippour, le verset dit : "Aaron posera ses deux mains sur la tête du bouc vivant et confessera sur lui toutes les iniquités des enfants d'Israël, toutes leurs transgressions, tous leurs péchés" (Lévitique 16:21). L'accent mis sur <b>"le bouc vivant</b> indique qu'en ce qui concerne les offrandes communautaires de chèvres, seul <b>le bouc vivant</b>, c'est-à-dire le bouc émissaire, <b>exige de placer les mains, mais les chèvres</b> apportées <b>pour le culte des idoles n'exigent pas de placer les mains;</b> c'est <b>la déclaration de Rabbi Yehuda. Rabbi Shimon dit :</b> Les deux offrandes nécessitent de placer les mains. Le verset précise l'exigence concernant le bouc <b>vivant</b> pour enseigner qu'il <b>exige</b> que l'imposition des mains</b> soit effectuée <b>par Aaron,</b> c'est-à-dire le Grand Prêtre,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

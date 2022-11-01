@@ -63,7 +63,7 @@ La Gemara ajoute : <b>Et</b> ceci est <b>conforme à ce</b> que <b>Ravin bar Rav
 § <b>Rabbi Abba bar Memel a soulevé un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> Dans le cas de <b>la maison et l'étage supérieur appartenant à deux</b> personnes, c'est-à-dire que l'étage inférieur appartenait à un individu, tandis que l'étage supérieur appartenait à quelqu'un d'autre, <b>qui s'est effondré, les deux se partagent le bois et les pierres et la terre</b> de la structure effondrée. <b>Et</b> le tribunal <b>considère quelles pierres étaient susceptibles de se briser,</b> celles de l'étage inférieur ou supérieur, et donne ces pierres brisées à celui qui en était vraisemblablement propriétaire. <b>Si l'un d'eux a reconnu certaines de ses pierres</b> il peut les <b>prendre</b> pour lui, <b>et elles comptent dans sa quantité</b> de pierres, et l'autre partie prend les autres pierres en conséquence. Ils ne divisent pas les pierres restantes de manière égale.
 
@@ -128,4 +128,4 @@ La Gemara ajoute : <b>Et</b> ceci est <b>conforme à ce</b> que <b>Ravin bar Rav
 § <b>Rabbi Abba bar Memel a soulevé un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

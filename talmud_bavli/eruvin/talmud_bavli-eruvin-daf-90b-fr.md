@@ -30,4 +30,4 @@ La Guemara demande : <b>Si c'est le cas, il ne faut pas non plus</b> être autor
 <b>Rav Yehouda a dit :</b> Après une analyse attentive, <b>vous trouverez</b> que vous pouvez <b>savoir</b> que <b>selon la déclaration de Rabbi Meir, les toits sont un domaine en soi,</b> et on peut porter d'un toit à un autre ; et de même <b>les cours intérieures sont</b> considérées <b>comme un domaine en soi,</b> et on peut de même porter d'une cour intérieure à une autre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

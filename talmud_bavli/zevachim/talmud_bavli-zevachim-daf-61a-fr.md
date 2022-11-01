@@ -6,4 +6,4 @@
 <b>Et si tu veux, dis</b> qu'il y a une résolution différente des deux <i>baraitot</i> : Tant <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> font référence <b>aux offrandes de l'ordre le plus sacré. Et que</b> signifie la seconde <i>baraita</i> quand elle dit que la nourriture peut être consommée <b>en deux endroits ?</b> Elle fait référence au moment où les Israélites arrivent dans un nouveau camp, <b>avant que les Lévites n'érigent le Tabernacle,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

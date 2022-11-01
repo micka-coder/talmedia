@@ -89,5 +89,5 @@
 ### passuk 38
 <b>Devant les yeux de tout Beis Yisrael dans tous leurs voyages.</b> A chaque station où ils s'arrêtaient, la nuée se reposait à l'endroit où ils campaient. Leur campement est aussi appelé מַסָּע De même : "Il est allé vers ses ( לְמַסָּעָיו ) lieux de repos." De même : "Ce furent ( מַסְעֵי ) les stations." Parce qu'à partir du lieu de campement ils ont de nouveau voyagé, par conséquent, ils sont appelés מַסָּעוֹת . 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

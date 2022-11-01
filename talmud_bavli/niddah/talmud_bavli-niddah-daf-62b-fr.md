@@ -45,4 +45,4 @@ La mishna poursuit : Dans le cas où le sang <b>a été absorbé dans un vêteme
 <b>Ils ne sont pas d'accord quand</b> le liquide <b>est capable de sortir et</b> le propriétaire <b>n'est pas particulier à ce sujet.</b> Un <b>Sage,</b> Reish Lakish, <b>soutient</b> que <b>puisque</b> le liquide <b>est capable de sortir, même si</b> le propriétaire <b>n'est pas particulier à ce sujet,</b> le vêtement est impur. <b>Et</b> un <b>Sage,</b> Rabbi Yoḥanan, <b>soutient</b> que <b>même si</b> le liquide <b>peut sortir,</b> <b>il est impur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

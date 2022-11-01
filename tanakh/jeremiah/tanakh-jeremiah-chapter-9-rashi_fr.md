@@ -78,7 +78,7 @@
 <b>Jeté aux coins</b> Heb. פאה, expression d'une fin, ceux qui sont rejetés au coin du désert.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Une compagnie de traîtres</b> Compagnies de traîtres.
 
@@ -158,4 +158,4 @@
 <b>Jeté aux coins</b> Heb. פאה, expression d'une fin, ceux qui sont rejetés au coin du désert.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

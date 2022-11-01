@@ -35,5 +35,5 @@ Si la queue d'un veau n'atteint pas l'articulation, [c'est une tare]. Les sages 
 ### michna 12
 En raison des défauts suivants, il est interdit d'abattre un premier-né, que ce soit dans le Temple ou dans le reste de l'État : Des taches blanches sur la cornée et de l'eau [qui coule de l'œil] qui ne sont pas permanentes, ou des molaires cassées mais non arrachées [complètement] ; ou [un animal] atteint de garav, d'une verrue ou de hazazit. Un [animal] vieux ou malade, [un animal] à l'odeur nauséabonde ; ou [un animal] qui a commis une transgression ou un animal dont on sait qu'il a tué un être humain sur la foi d'un témoin ou des propriétaires. Un tumtum ou un hermaphrodite ne peut être abattu, ni dans le Temple ni dans le reste de l'État. Rabbi Ismaël dit cependant : il n'y a pas de plus grande tare que celle [d'un hermaphrodite]. Mais les sages disent : il n'est pas considéré comme un premier-né et on peut le tondre et le travailler.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

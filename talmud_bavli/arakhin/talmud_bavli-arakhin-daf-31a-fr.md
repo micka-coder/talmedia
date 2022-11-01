@@ -39,4 +39,4 @@ La Guemara objecte : <b>Mais Rabbi</b> Yehuda HaNasi <b>exige également que</b>
 La Gemara demande : <b>Quel est</b> le fondement de la dispute <b>entre</b> Rabbi Yehuda et les rabbins ? La Guemara répond : Le différend <b>entre eux</b> concerne la licéité d'un accord impliquant <b>un intérêt incertain,</b> c'est-à-dire un accord qui n'impliquera un intérêt que dans certaines circonstances. C'est le cas ici, puisque si le prêt est remboursé, le produit consommé par le prêteur constitue un intérêt, mais si le prêt n'est pas remboursé, alors le champ est acquis rétroactivement par le prêteur et aucun intérêt n'est impliqué. La Gemara développe : <b>La première <i>tanna</i>,</b> c'est-à-dire les rabbins, <b>soutient</b> que <b>l'intérêt incertain est interdit, et Rabbi Yehuda soutient</b> que <b>l'intérêt incertain est permis.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

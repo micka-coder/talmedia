@@ -101,4 +101,4 @@ J'ai trouvé : "et toutes ses formes" n'est pas clair.
 <b>et je vous accepterai avec satisfaction</b> [Heb. וְרָצִאתִי,] de רָצוֹן volonté.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

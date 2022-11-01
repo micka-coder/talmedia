@@ -42,4 +42,4 @@ La Guemara répond : Le cas <b>où Rava a soulevé un dilemme</b> est plus compl
 Rava soulève une question liée aux dilemmes précédents, et avant cela, il cherche à clarifier certains points. <b>Rava dit : Il me paraît évident</b> que si l'on a versé <b>de l'eau sur de l'eau, c'est son placement,</b> et si on l'a fait d'un domaine à un autre, on est responsable. Si quelqu'un a placé <b>une noix sur de l'eau,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

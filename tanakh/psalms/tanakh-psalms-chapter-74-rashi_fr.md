@@ -80,4 +80,4 @@
 <b>Ton déshonneur</b> Tes blasphèmes, comme (verset 18) : " Rappelle-toi comment l'ennemi a injurié ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -84,4 +84,4 @@ La <i>baraita</i> continue : <b>Rabbi Eliezer a ensuite présenté une déductio
 <b>Et</b> si tel est le cas, on peut en déduire <i>a fortiori</i> : <b>De même que</b> en ce qui concerne <b>une offrande pascale, dont le reliquat</b> d'offrande <b>est apporté</b> comme <b>offrande de paix,</b> et néanmoins, si on l'a <b>abattu à son</b> moment désigné en vue d'une offrande de paix</b> il est <b>inapte,</b> de même, en ce qui concerne <b>une offrande de paix, dont le reliquat</b> d'offrande <b>n'est pas apporté</b> comme <b>offrande pascale, si</b> on l'a <b>abattu</b> <b>en vue d'une offrande pascale à son</b> moment désigné, n'est-il pas logique que</b> il <b>soit impropre ? </b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

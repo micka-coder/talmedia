@@ -42,4 +42,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> du cas discuté ? <b>S
 La Gemara répond : <b>En fait,</b> le <i>baraita</i> fait référence à celui <b>qui accomplit ces</b> actions <b>de manière déréglée, mais</b> chaque action en soi pourrait être expliquée rationnellement. En ce qui concerne <b>celui qui dort dans le cimetière,</b> on pourrait <b>dire qu'il fait</b> ainsi <b>afin qu'un esprit impur s'installe sur lui.</b> Bien qu'il soit inapproprié de faire cela, comme il y a une raison pour ce comportement, ce n'est pas un signe de folie. <b>Et</b> en ce qui concerne <b>celui qui sort seul la nuit,</b> on pourrait <b>dire</b> que peut-être <b>une fièvre s'est emparée de lui</b> et qu'il cherche à se rafraîchir. <b>Et</b> quant à <b>celui qui déchire ses vêtements,</b> on pourrait <b>dire</b> que <b>c'est un homme</b> engagé dans la <b>réflexion,</b> et que, par anxiété, il déchire ses vêtements involontairement. Malgré ces explications possibles, <b>puisqu'on a effectué tout cela</b> ensemble <b>ils sont</b> considérés.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

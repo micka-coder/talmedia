@@ -39,4 +39,4 @@ La Gemara demande : Pourquoi dire cela ? <b>Et dit</b> une interprétation alter
 <b>La raison</b> de l'avis <b>de Rabbi Yosei HaGelili vient de là, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yirmeya dirait : Il est dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

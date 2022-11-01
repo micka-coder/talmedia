@@ -30,4 +30,4 @@ La Guemara soulève une difficulté : <b>Mais</b> on peut <b>saisir</b> que <b>e
 § La mishna enseigne : Si l'animal <b>a donné naissance à un <i>tumtum</i> ou à un hermaphrodite,</b> Rabban Shimon ben Gamliel dit : Ils ne sont pas imprégnés de sainteté. Cela indique qu'ils ne sont en aucun cas imprégnés de sainteté, même s'ils sont la progéniture d'un animal consacré.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

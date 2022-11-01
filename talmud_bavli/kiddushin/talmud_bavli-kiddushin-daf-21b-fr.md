@@ -63,4 +63,4 @@ La Guemara commente : <b>Pour ce qui est du premier acte sexuel</b> entre le pr�
 <b>Les Sages ont enseigné :</b> A propos d'une belle captive, le verset dit : <b>"Et voit parmi les captives"</b>, enseignant que cette <i>halakha</i> ne s'applique que s'il la remarque <b>alors qu'elle est captive.</b> L'expression <b>"une femme"</b> enseigne qu'elle est autorisée <b>même</b> si elle est <b>une femme mariée. </b> L'expression <b>"une belle femme"</b> indique que <b>la Torah</b> ici <b>n'a parlé qu'en réponse au mauvais penchant,</b> puisque c'est en raison de sa beauté qu'il la désirait. Et pourquoi la Torah permet-elle cela ? <b>Il est préférable pour les Juifs de manger la viande</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara demande : <b>Et Rav Naḥman est-il de</b> l'avis qu'il y a une prise 
 La Guemara répond : Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

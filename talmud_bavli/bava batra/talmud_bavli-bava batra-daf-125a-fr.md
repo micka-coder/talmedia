@@ -18,4 +18,4 @@ Rabba <b>a dit à</b> Abaye : <b>Selon mon</b> avis, il <b>n'est pas difficile, 
 Après avoir mentionné en passant le cas de l'arrière-grand-mère, la Guemara discute ce cas en profondeur. <b>Qu'est-ce que</b> le cas de l'arrière-<b>grand-mère</b> qui a été mentionné par Abaye ? La Gemara explique : Il y avait <b>une certaine</b> personne moribonde <b>qui a dit à</b> ceux qui étaient présents :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

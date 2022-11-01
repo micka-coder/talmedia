@@ -78,5 +78,5 @@
 <b>Si le prophète parle.</b> Et dit : 'Ce qui suit est destiné à leur arriver', <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> et que vous observez que cela ne se produit pas - <b>C'est quelque chose qu'Hachem n'a pas dit,</b> et vous devez le tuer. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais vous pouvez demander, ceci s'applique avec un prophète qui prédit l'avenir. Que se passe-t-il s'il apparaît et dit 'Vous devez faire ce qui suit. Je parle par la parole de Dieu !"? Ils ont déjà été instruits : <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>S'il tente de vous détourner de l'un des commandements, "ne l'écoutez pas" ; à moins qu'il n'ait été établi dans ton estime comme un saint parfait, comme, par exemple, Eliyahou sur le mont Carmel, qui a offert un sacrifice sur un autel extra-sanctuaire alors que de tels autels étaient interdits, afin de créer une enceinte restrictive autour de Israël - strictement selon le besoin du moment, afin que la violation [de l'observance de la Torah] soit contenue. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est pourquoi il est dit : "Tu lui obéiras." 
 <b>Ne le craignez pas.</b> Ne vous abstenez pas de le déclarer coupable. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ne craignez pas la punition à cause de lui.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

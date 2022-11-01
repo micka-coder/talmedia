@@ -71,7 +71,7 @@
 <b>Avec des vêtements déchirés</b> Parce qu'ils ont entendu des blasphèmes du Nom de Dieu, et cela équivaut à maudire le Nom.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -144,4 +144,4 @@
 <b>Avec des vêtements déchirés</b> Parce qu'ils ont entendu des blasphèmes du Nom de Dieu, et cela équivaut à maudire le Nom.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

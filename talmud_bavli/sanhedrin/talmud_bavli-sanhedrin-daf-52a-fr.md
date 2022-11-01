@@ -81,4 +81,4 @@ A propos de la mort de Nadav et Avihu, on cite un midrash aggadique sur ce sujet
 <b>Rabbi Eliezer dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

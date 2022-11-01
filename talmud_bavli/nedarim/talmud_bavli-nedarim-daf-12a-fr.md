@@ -24,4 +24,4 @@ La Guemara répond que <b>C'est ainsi</b> que le commentaire <b>de Shmuel a ét�
 La Gemara cite une autre tentative de preuve. <b>Ravina a dit : Venez</b> et <b>entendez</b> ce qui a été enseigné dans la mishna (13b) : Si l'on déclare qu'un objet est <b>comme la <i>ḥalla</i> d'Aaron,</b> c'est-à-dire la portion de pâte donnée aux prêtres, <b>ou comme sa <i>teruma</i>,</b> la portion de produits agricoles donnée aux prêtres, l'objet reste <b>permis.</b> Bien que ces objets soient interdits aux non-prêtres dès qu'ils sont désignés, ils sont considérés comme interdits par la Torah plutôt qu'interdits par un vœu. La Guemara en déduit : <b>Mais</b> si l'on déclare qu'un objet est <b>comme le <i>teruma</i> des pains de l'offrande de remerciement,</b> c'est-à-dire les quatre pains de l'offrande de remerciement qui étaient consommés par les prêtres, cet objet est <b>interdit.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

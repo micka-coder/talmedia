@@ -33,4 +33,4 @@ Après avoir discuté des <i>halakhot</i> d'un champ en ce qui concerne la cons�
 <strong>GEMARA:</strong> <b>Rabbi Ḥanina ben Gamliel dit bien,</b> c'est-à-dire qu'il présente une objection raisonnable, <b>à Rabbi Meir.</b> Il réfute apparemment entièrement l'opinion de Rabbi Meir. Comment Rabbi Meir aurait-il répondu ? La Guemara répond : <b>Rabbi Meir</b> aurait pu <b>vous dire : S'il te vient à l'esprit</b> que le verset <b>ne vient pas</b> enseigner l'exigence d'une <b>condition composée</b> pour stipuler des résultats positifs et négatifs, <b>laisse-le</b> simplement <b>écrire : Mais s'ils ne passent pas, ils recevront une possession parmi vous,</b> ce qui indiquerait qu'ils ont une part dans le pays. En fait, le verset poursuit en disant : <b>"Dans le pays de Canaan."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

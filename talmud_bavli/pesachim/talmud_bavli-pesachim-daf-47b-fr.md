@@ -42,4 +42,4 @@ Le mot <b>un</b> indique qu'un sacrifice ne peut <b>pas</b> être apporté de l'
 L'expression : <b>Du troupeau</b> indique que seuls certains animaux du troupeau peuvent être offerts, alors qu'on ne peut <b>pas</b> offrir <b>un <i>palges</i>,</b> qui n'est plus un agneau mais n'est pas encore considéré comme un bélier.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

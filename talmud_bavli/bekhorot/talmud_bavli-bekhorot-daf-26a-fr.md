@@ -45,4 +45,4 @@ Rav Naḥman bar Yitzḥak explique la preuve : Conformément à l'avis de <b>qu
 La Guemara développe : <b>Ne soulevez pas le dilemme</b> concernant la laine <b>d'un sacrifice pour le péché et d'un sacrifice pour la culpabilité. Puisque</b> ces offrandes <b>viennent pour l'expiation</b>, le propriétaire <b>ne les garde pas</b> plus longtemps que nécessaire, et il n'y a donc aucune raison de considérer la laine comme interdite. De même, en ce qui concerne la laine <b>d'un premier-né et</b> d'une offrande <b>tithe</b> animale, il n'y a <b>également</b> pas de dilemme. <b>Puisqu'ils ne viennent pas pour l'expiation on</b> pourrait <b>les garder</b> plus longtemps que nécessaire, et donc la laine est interdite afin d'éviter que l'on viole l'interdiction de tondre l'animal ou de l'utiliser pour le travail. Au contraire, <b>lorsque vous soulevez le dilemme,</b> c'est à propos de la laine <b>d'un holocauste. Quelle</b> est la <i>halakha</i> ? Est-ce qu'on dit que <b>puisque</b>...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

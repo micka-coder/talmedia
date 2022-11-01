@@ -45,4 +45,4 @@ La Guemara demande : <b>Quel est le raisonnement de Rabbi Yosei HaGelili ? Il</b
 <b>Et la première <i>tanna</b> dirait que le verset est écrit de cette façon <b>parce que</b> la Torah <b>veut juxtaposer "aîné"</b> avec <b>"et tu craindras"</b> conformément à la déclaration de Rabbi Chimon ben Elazar ci-dessus selon laquelle un aîné ne doit pas troubler les autres pour l'honorer. La Guemara demande : <b>Et quel est le raisonnement du premier <i>tanna</i> ?</b> Pourquoi soutient-il qu'on est obligé de se tenir uniquement devant un aîné, un sage ? La Guemara répond : Le premier <i>tanna</i> soutient que <b>s'il te vient à l'esprit</b> d'expliquer <b>comme le dit Rabbi Yosei HaGelili, que le Miséricordieux écrive :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

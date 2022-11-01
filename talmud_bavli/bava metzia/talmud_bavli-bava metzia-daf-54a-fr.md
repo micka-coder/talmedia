@@ -57,4 +57,4 @@ Rami bar Ḥama n'a pas pu résoudre cette série de dilemmes, et <b>l'affaire a
 <b>Ravina a dit : Nous apprenons aussi</b> ceci dans une mishna (<i>Terumot</i> 6:4) : <b>La personne qui vole le <i>teruma</i> et qui n'y a pas participé paie un paiement du double</b> du principal au <b>prix</b> du <b><i>teruma</i>,</b> comme un voleur paie le double de la valeur de l'objet qu'il a volé. Les deux paiements sont calculés sur la base du prix du <i>teruma</i>, qui est inférieur au prix de la nourriture non sacrée, car la demande est plus faible du fait qu'elle est consommée uniquement par les prêtres. Si le voleur <b>l'emporte</b> involontairement, <b>il paie</b> un paiement valant la valeur de <b>deux principautés et</b> ajoute <b>un cinquième</b> de cette manière : Il paie un <b>principal et un cinquième à partir d'objets non sacrés</b>, comme tout non-prêtre qui participe au <i>teruma</i>, <b>et</b> en ce qui concerne <b>le</b> autre <b>principal,</b> il le paie selon <b>le prix du <i>teruma</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

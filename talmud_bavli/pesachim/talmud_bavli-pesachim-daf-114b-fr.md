@@ -36,4 +36,4 @@ En ce qui concerne la <i>halakha</i> de manger des légumes, la Guemara clarifie
 Cependant, <b>Quel est</b> le <i>halakha</i> <b>lorsqu'il n'y a que de la laitue</b> disponible ? A quel moment doit-on réciter chaque bénédiction ? <b>Rav Huna a dit : On récite initialement la bénédiction : Qui crée des fruits du sol, sur les herbes amères,</b> c'est-à-dire la laitue, <b>et les mange</b>. <b>Et finalement,</b> après la <i>matza</i>, <b>on récite la bénédiction :</b> nous a commandé sur <b>les herbes amères, sur</b> la laitue <b>et la mange</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

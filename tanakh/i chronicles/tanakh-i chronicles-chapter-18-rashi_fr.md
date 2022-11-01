@@ -52,4 +52,4 @@
 <b>et les fils de David étaient les premiers auprès du roi</b> Le sens est que les fils de David étaient toujours les premiers auprès du roi pour accomplir toutes ses nécessités.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

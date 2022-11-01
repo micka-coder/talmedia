@@ -60,4 +60,4 @@ La Guemara aborde <b>la</b> question <b>elle-même</b> abordée dans la <i>barai
 <b>Rabbi Elazar ben Matya dit : L'individu ne peut pas faire pencher</b> la balance de tout le <b>public vers l'impureté rituelle, comme il est dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

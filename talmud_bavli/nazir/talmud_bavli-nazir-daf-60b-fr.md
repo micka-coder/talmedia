@@ -30,4 +30,4 @@ Les élèves de Rabbi Shimon ben Yoḥai lui posèrent encore une autre question
 <b>Il leur dit :</b> Ici aussi les actes de rasage pour la naziréité et la lèpre ne sont pas exactement les mêmes : S'il est <b>un nazirite pur et qu'il est</b> aussi <b>un lépreux,</b> la différence est que le but de <b>celui-ci</b>, le rasage d'un lépreux, est <b>de faire pousser</b> les cheveux, <b>et</b> le but de <b>celui-là</b>, le rasage du nazirite pur, est <b>d'enlever</b> ses cheveux. <b>Et si</b> il est <b>un nazirite impur et qu'il est</b> également <b>un lépreux,</b> la différence est que <b>ce rasage</b>, du lépreux, a lieu <b>avant l'immersion dans l'eau, et que</b> celui-là, le rasage du nazirite impur, est effectué <b>après l'immersion dans l'eau.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

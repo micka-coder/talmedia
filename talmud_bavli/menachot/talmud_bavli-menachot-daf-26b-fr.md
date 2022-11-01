@@ -60,4 +60,4 @@ La Guemara demande : <b>Et Rabbi Yannai</b> a-t-il effectivement <b>dit cela ? M
 <b>Rabbi Yitzḥak Nappaḥa soulève un dilemme :</b> En ce qui concerne les <b>limbes</b> d'une offrande <b>que</b> un prêtre <b>arrange à côté de l'arrangement</b> de bois sur l'autel, <b>qu'est-ce que</b> la <i>halakha</i> ? La Gemara explique : <b>Ne soulevez pas le dilemme selon</b> l'opinion <b>de celui qui dit</b> que l'expression <b>"sur [<i>al</i>]</b> le bois" est signifiée <b>littéralement,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

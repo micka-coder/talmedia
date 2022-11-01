@@ -42,4 +42,4 @@ Rabbi Ḥiyya bar Abba dit à Rabbi Ami que <b>ceci</b> est <b>le dilemme</b> qu
 <b>Rabbi Ami dit</b> que <b>ceci</b> est ce que la mishna <b>enseigne : l'abattage</b> effectué par <b>un Gentil</b> rend l'animal <b>une carcasse non abattue, mais</b> l'abattage effectué <b>par un hérétique</b> est <b>pour</b> l'adoration d'une <b>idole.</b> La Gemara note : <b>Nous apprenons</b> d'une déduction dans la mishna <b>ce que les Sages ont enseigné</b> explicitement dans une <i>baraita</i> : <b>L'abattage</b> effectué par <b>un hérétique</b> est <b>pour</b> le culte des <b>idoles</b> et en tirer un bénéfice est interdit, le statut halakhique de <b>son pain</b> est celui du <b>pain d'un Samaritain,</b> le statut de <b>son vin</b> est celui du <b>vin</b> utilisé pour <b>une libation</b> dans le culte des idoles, <b>son</b> <b>rouleaux sacrés</b> qu'il écrit <b>sont les rouleaux des sorciers</b> et c'est une mitzva de les brûler, <b>son produit est un produit non mité</b> même s'il a séparé <i>teruma</i> et dîmes, <b>et certains disent : Même</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

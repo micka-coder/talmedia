@@ -45,4 +45,4 @@ La Guemara examine la décision de la <i>Tosefta</i> citée dans la discussion p
 <b>Rabbi Eliezer ben Ya'akov dit : En fait,</b> le Gentil <b>ne rend pas interdit</b> au Juif de porter <b>à moins qu'il n'y ait deux Juifs</b> vivant dans la même cour qui eux-mêmes <b>interdiraient à l'autre</b> de porter s'il n'y avait pas <i>eirouv</i>, et que la présence du Gentil rende le <i>eirouv</i> inefficace.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

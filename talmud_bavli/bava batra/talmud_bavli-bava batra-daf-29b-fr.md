@@ -33,4 +33,4 @@ Celui qui résidait dans la maison <b>se présenta devant Rav Naḥman</b> pour 
 <b>Et</b> la Gemara <b>souleve une contradiction</b> entre cette déclaration <b>de Rava et</b> une autre déclaration <b>de Rava, et</b> elle <b>souleve une contradiction</b> entre cette déclaration <b>de Rav Naḥman et</b> une autre déclaration <b>de Rav Naḥman. Comme</b> il y avait <b>une certaine</b> personne...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

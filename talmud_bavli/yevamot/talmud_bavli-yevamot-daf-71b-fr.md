@@ -57,4 +57,4 @@ A propos de cette question, <b>Ravina a dit, et certains disent</b> que c'est <b
 La Guemara revient sur l'incident impliquant Josué. <b>Et quelle est la raison</b> pour laquelle <b>ils ne se sont pas circoncis</b> eux-mêmes <b>dans le désert</b> après que la Torah ait déjà été donnée ? La Gemara répond : <b>Si tu veux, dis</b> que c'était <b>en raison de la fatigue</b> causée par <b>leur voyage.</b> Comme ils voyageaient sans cesse, ils étaient trop faibles pour se faire circoncire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara demande : <b>Et les rabbins,</b> qui expliquent tout ce verset comme 
 <b>Rav Naḥman bar Yitzḥak dit : Nous aussi avons appris</b> ceci explicitement dans une <i>baraita</i> qui dit : <b>Rabbi Eliezer dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

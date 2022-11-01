@@ -66,4 +66,4 @@ La Guemara clarifie : <b>Par rapport à quel</b> principe <b>ils sont <b>en dés
 Après avoir discuté de la quantité d'encens que l'on apporte généralement avec l'offrande du gîte, la Guemara aborde maintenant un cas où le Grand Prêtre est décédé. <b>Rabbi Yoḥanan soulève un dilemme :</b> Dans le cas d'un <b>grand prêtre qui est décédé et qu'on n'a pas</b> encore <b>désigné un autre à sa place,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

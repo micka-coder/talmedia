@@ -54,4 +54,4 @@ La Guemara demande : <b>Et les fils cadets</b> <b>s'imposent-ils avant les fils 
 <b>Les Sages ont enseigné : Il est Shallum, il est Sédécias. Et pourquoi fut-il appelé Shallum ? </b> C'est <b>en raison</b> du fait <b>qu'il était parfait [<i>meshullam</i>] dans ses actions. Certains disent :</b> Il a été appelé <b>Shallum parce que le royaume de la maison de David a été conclu [<i>sheshalema</i>] pendant ses jours. Et quel</b> était <b>son</b> véritable <b>nom ? Mattaniah</b> était <b>son nom, comme il est dit : "Et le roi de Babylone couronna Mattania son oncle à sa place, et changea son nom en Sédécias"</b> (II Rois 24:17). Pourquoi Nabuchodonosor l'a-t-il appelé Sédécias ? <b>Il lui a dit : Dieu justifiera le jugement contre toi si tu te rebelles contre moi ; et il est écrit : "Et il se rebella aussi contre le roi Nabuchodonosor, qui lui avait imposé un serment de Dieu"</b> (II Chroniques 36, 13).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

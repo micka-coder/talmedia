@@ -36,4 +36,4 @@ La Gemara résout la deuxième contradiction : La prophétie d'Isaïe : <b>"Cher
 La résolution de la troisième contradiction du verset : <b>"J'accomplirai le nombre de tes jours", fait</b> l'objet d'une dispute entre <b><i>tanna'im</i>, comme il est enseigné</b> dans une <i>baraita</i> : Le verset dit : <b>"J'accomplirai le nombre de vos jours";</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -94,4 +94,4 @@
 <b>Merib-Baal</b> C'est Mephibosheth (II Sam 4:4). Dit Rabbi Isaac le fils de Samuel de Narbonne : A partir du moment où Israël a adoré le Baal, le Baal a été appelé du nom de Bosheth (honte), comme il est écrit (Jer. 11:13) : "autels pour la chose honteuse, etc.", car le Baal est une chose honteuse. Gédéon fut appelé Jerubaal, d'après l'expression (Jud. 6:32) : "Que Baal conteste avec lui." On l'appelait aussi Jerubesheth, car il est écrit à propos d'Abimélec : "qui frappa Abimélec, fils de Jerubesheth, etc." dans le Livre de Samuel (II 11, 21). Il est appelé Jerubesheth et Jerubaal, car Baal et Bosheth sont synonymes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

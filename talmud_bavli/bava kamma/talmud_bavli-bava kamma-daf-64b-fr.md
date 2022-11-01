@@ -63,4 +63,4 @@ La Gemara demande : <b>Quel</b> est le sens de la phrase : <b>Ce n'était pas</b
 La Gemara demande : <b>Et ce</b> verset, qui énonce <b>"si</b> le vol <b>est constaté"</b> et conclut "il devra payer double", <b>vient-il dans ce</b> but ? <N'est-ce pas nécessaire pour ce qui est enseigné</b> dans un <i>baraita</i> : Le verset dit : "Si le vol est trouvé en sa possession." D'après le terme "en <b>sa possession [<i>yado</i>],"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

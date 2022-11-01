@@ -39,4 +39,4 @@ La Guemara répond : <b>Quand est-ce que</b> cette graisse <b>se liquéfie ? Apr
 La mishna ajoute : C'est le cas de tous les liquides <b>à l'exception du <i>zifim</i> miel,</b> un type de miel très épais, <b>et de la pâte à frire,</b> par exemple, de la farine mélangée à du miel. Comme ces substances sont très visqueuses, elles ne sont pas considérées comme des liquides. Il s'agit plutôt d'une sorte d'aliment solide mou, ce qui signifie qu'elles constituent une unité unique qui relie les deux récipients en ce qui concerne l'impureté.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

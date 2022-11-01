@@ -63,4 +63,4 @@ La Guemara rejette les déductions des <i>baraita</i> : Chacune de ces déductio
 La Gemara demande : <b>Mais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

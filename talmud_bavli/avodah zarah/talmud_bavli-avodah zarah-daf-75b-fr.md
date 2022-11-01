@@ -63,4 +63,4 @@ La Gemara demande : <b>Mais selon celui qui dit</b> que si une substance interdi
 <b>Rav Ḥiyya, fils de Rav Huna, dit : La Torah rend interdit seulement un pot</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

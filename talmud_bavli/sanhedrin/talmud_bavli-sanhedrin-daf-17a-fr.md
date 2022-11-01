@@ -66,4 +66,4 @@ La Gemara objecte : <b>En définitive, on ne trouve pas</b> une occurrence de l'
 <b>Rav Yehuda dit</b> que <b>Rav dit : </b> Ils <b>placent au Sanhédrin un seul qui sait</b> comment <b>rendre</b> une carcasse d'un <b>animal rampant pur par la loi de la Torah.</b> Les juges du Sanhédrin doivent être si habiles en raisonnement logique qu'ils pourraient même produire un argument convaincant selon lequel les animaux rampants, que la Torah déclare explicitement impurs rituellement, sont en fait purs. <b>Rav a dit : Je vais discuter</b> la <i>halakha</i> de l'animal rampant <b>et le rendre pur,</b> c'est-à-dire que je suis capable de démontrer comment il est possible de construire une telle preuve :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

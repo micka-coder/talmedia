@@ -48,4 +48,4 @@ La Guemara répond : <b>Ce</b> <i>baraita</i> n'est <b>pas conforme</b> à l'opi
 <b>A¸¤izkiya a dit : D'où vient</b> qu'ils sont <b>égaux</b> en ce qui concerne <b>leur écorchage et leur découpage ?</b> D'où vient que l'écorchage et le découpage des offrandes, qu'elles soient individuelles ou collectives, peuvent être effectués <b>par un non-prêtre ?</b> D'abord, il est dit à propos de l'holocauste : "Il écorchera l'holocauste et le coupera en morceaux" (Lévitique 1:6), et ensuite <b>il est dit : "Les fils du sacrificateur Aaron placeront le feu sur l'autel"</b> (Lv 1,7). Le fait que les fils d'Aaron soient mentionnés dans le verset concernant la mise du feu sur l'autel mais pas dans celui concernant l'écorchage et l'incision enseigne que la <b>mise du feu</b> sur l'autel <b>exige le sacerdoce,</b> c'est-à-dire qu'elle doit être effectuée par des prêtres, mais que <b>l'écorchage et l'incision n'exigent pas le sacerdoce</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

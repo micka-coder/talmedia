@@ -42,4 +42,4 @@ La Guemara répond : Les deux questions ne sont <b>pas</b> les mêmes. <b>Un tri
 <strong>GEMARA:</strong> La mishna indique que ce que le père a laissé <b>détaché, oui,</b> il est hérité par tous les héritiers ; mais le produit qui est <b>connecté</b> au sol au moment de sa mort, <b>non,</b> il n'est pas hérité par eux. Au contraire, elle appartient au fils qui a reçu le bien.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

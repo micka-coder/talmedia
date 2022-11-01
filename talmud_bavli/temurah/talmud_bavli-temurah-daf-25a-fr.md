@@ -60,4 +60,4 @@ La Guemara <b>souleve</b> une autre <b>objection</b> à la déclaration de Rabbi
 La Gemara explique l'objection : <b>Grâce à toi, si tu dis</b> que <b>si l'on a réservé</b> une certaine consécration, elle n'est <b>pas</b> considérée comme <b>réservée,</b> et donc la sainteté de la mère prend effet sur sa progéniture, et de même que <b>un fœtus est</b> considéré comme <b>la cuisse de sa mère,</b> c'est <b>pour cette</b> raison qu'elle a <b>acquis</b> la liberté <b>pour</b> l'enfant à naître. <b>Et</b> l'explication est que <b>cette affaire</b> <b>est comme</b> celle de <b>celui qui affranchit la moitié de son esclave,</b> puisque cette moitié est ainsi affranchie. <b>Et de quel</b> avis s'agit-il ? <b>C'est</b> l'avis de <b>Rabbi Meir, tel qu'il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

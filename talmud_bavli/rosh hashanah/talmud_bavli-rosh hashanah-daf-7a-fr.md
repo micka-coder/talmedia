@@ -63,4 +63,4 @@ La Guemara commente : <b>Cette</b> <i>halakha</i> <b>est également enseignée</
 La Gemara demande : Il est <b>évident</b> que l'on peut faire don de ses propres biens à la communauté, à condition qu'il les transfère à la communauté de la manière appropriée. La Gemara répond : <b>Tu dis</b> que <b>nous devrions nous inquiéter</b> que <b>peut-être</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

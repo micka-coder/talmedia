@@ -54,4 +54,4 @@ La Guemara explique : Il le fait <b>afin que les gens voient</b> l'arbre <b>et p
 <b>Pour une arête de poisson</b> coincée dans la gorge, <b>il faut dire comme suit : Tu es coincé comme une aiguille, bloqué comme un volet, descends, descends.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -18,4 +18,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution à cette qu
 La Gemara commente : <b>Aussi, il est raisonnable</b> que ce soit le cas, <b>à partir du fait <b>que</b> la mishna enseigne également <b> : Et les récipients qui touchent un cadavre.</b> Or, les personnes qui touchent <b>ces récipients doivent-elles être aspergées ?</b> Celui qui touche un récipient rituellement impur provenant d'un cadavre doit-il être aspergé d'eau de purification ? Cet individu n'est impur que jusqu'à ce soir-là. <b>Apprenez plutôt de ceci</b> que la <i>halakha</i> qu'il est aspergé le troisième et le septième jour ne se réfère pas à tous les cas de la mishna mais seulement <b>à</b> certains des <b>autres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

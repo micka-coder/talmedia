@@ -35,5 +35,5 @@ Tout objet susceptible d'être souillé par un cadavre, bien qu'il ne soit pas s
 ### michna 12
 Si un vêtement qui avait été isolé a été mélangé à d'autres, tous sont propres. S'il a été découpé et réduit en lambeaux, il est pur et on peut en tirer un bénéfice. Mais si un vêtement certifié impur est mélangé à d'autres, tous sont impurs. S'il a été découpé et réduit en lambeaux, il reste également impur et il est interdit d'en tirer un quelconque bénéfice.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

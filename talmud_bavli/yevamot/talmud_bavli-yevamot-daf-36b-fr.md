@@ -48,4 +48,4 @@ La Guemara cite une version différente de l'opinion du Rav : <b>Rav Mesharshiyy
 <b>Ravina dit à Rav Mesharshiyya :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

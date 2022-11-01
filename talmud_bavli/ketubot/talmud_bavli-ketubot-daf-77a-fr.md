@@ -54,4 +54,4 @@ La Gemara demande : <b>Et</b> comment le <b>Rav</b> répond à cet argument ? Il
 <b>Rav Naḥman a dit :</b> Ceci n'est <b>pas difficile,</b> car dans <b>cette affaire</b> la mishna discute de quelqu'un qui est contraint de divorcer de sa femme <b>par des moyens verbaux</b> uniquement, mais dans <b>cette affaire</b> il est question de le contraindre <b>en</b> le battant avec des <b>barres. </b> Bien que le tribunal contraigne un homme à divorcer de sa femme si elle n'a pas eu d'enfants, le tribunal ne le fait qu'en lui parlant. <b>Rabbi Abba s'oppose fortement à cela :</b> Peut-il y avoir une <i>halakha</i> de contrainte par des moyens uniquement verbaux ? Mais le verset dit : <b>"Un serviteur ne se laisse pas corriger par des paroles"</b> (Proverbes 29:19). <b>Rabbi Abba a plutôt dit :</b> Tant <b>ceci que cela</b> font référence à la coercition <b>en le battant</b> avec des <b>baguettes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

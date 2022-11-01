@@ -33,4 +33,4 @@ La Guemara rejette cette affirmation : <b>Non, elle exclut</b> un remède diffé
 <b>Et les sages disent : Ceux-ci n'ont aucune</b> valeur <b>de remède.</b> Les sages ont utilisé le terme <b>ceux-ci pour exclure quoi ? Quoi, n'est-ce pas</b> limiter leur argument uniquement aux <b>deux derniers éléments</b>, qui ne guérissent rien, et <b>exclure le premier</b> élément, la saignée pour <i>serunkhi</i>, dont tout le monde s'accorde à dire qu'elle est un remède efficace ? La Guemara rejette cette idée : <b>Non,</b> il n'y a pas de preuve à partir de là, puisqu'il est possible de dire qu'elle se réfère <b>aux deux premiers</b> items de la <b>première</b> <i>baraita</i> <b>et exclut la dernière clause</b> concernant la médecine le Chabbat, avec laquelle ils sont d'accord.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

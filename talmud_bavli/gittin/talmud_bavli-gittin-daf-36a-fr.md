@@ -42,4 +42,4 @@ La Gemara s'interroge sur le <i>prosbol</i> lui-même : <b>Mais y a-t-il quelque
 <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Le verset indique dans le contexte de l'annulation des dettes : <b>"Et voici la manière de l'abrogation : Il abrogera"</b> (Deutéronome 15:2). <b>Le verset parle de deux</b> types d'<b>abrogation : L'une</b> est la <b>libération de la terre et l'autre</b> est l'<b>abrogation des dettes monétaires</b>. Puisque les deux sont assimilés, on peut apprendre ce qui suit : <b>Au moment où vous libérez la terre,</b> lorsque l'année jubilaire est pratiquée, <b>vous abrogez les dettes monétaires</b> ; <b>Au moment où vous ne libérez pas la terre,</b> comme actuellement, lorsque l'année jubilaire n'est plus pratiquée, <b>vous</b> également <b>n'abrogez pas les dettes monétaires</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

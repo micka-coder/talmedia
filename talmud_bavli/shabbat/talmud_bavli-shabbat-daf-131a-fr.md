@@ -27,4 +27,4 @@ La Guemara pose une question par rapport à la déclaration de Rabbi Yoḥanan' 
 La Gemara demande : <b>Quelle est la raison</b> pour laquelle Rabbi Eliezer concède que les actions qui facilitent l'accomplissement de ces mitzvot ne dérogent pas à Chabbat ? <b>Rav Yossef répond : Parce qu'elles n'ont pas d'heure fixe</b> et que ces mitzvot n'ont pas besoin d'être accomplies le Chabbat. <b>Abaye lui a dit : Au contraire, à partir</b> du fait <b>qu'elles n'ont pas de temps fixe,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

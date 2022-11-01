@@ -75,4 +75,4 @@ En ce qui concerne la <i>halakha</i> de Rav Malkiyyu elle-même, concernant les 
 La Gemara demande : <b>Et existe-t-il</b> réellement <b>un cas comme celui-ci,</b> de deux cheveux dans un follicule ? <b>Mais n'est-il pas écrit : "Il m'écrase par une tempête, et multiplie mes blessures sans cause"</b> (Job 9:17) ; <b>et Rava a dit</b> à propos de ce verset : <b>Job a blasphémé avec une tempête,</b> et <b>avec une tempête il a été répondu. Il a blasphémé avec une tempête,</b> comme Job <b>a dit devant</b> Dieu : <b>Maître de l'Univers, peut-être une tempête a-t-elle passé devant Toi et Tu as confondu Iyyov</b> Job, <b>avec <i>oyev</i>, </b> ennemi. <b>Avec une tempête, il a été répondu,</b> comme le dit le verset : <b>"Alors le Seigneur répondit</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

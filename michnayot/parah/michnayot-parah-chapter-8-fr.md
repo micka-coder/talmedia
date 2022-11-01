@@ -32,5 +32,5 @@ Les eaux du Karmiyon et les eaux de Pugah sont impropres, car ce sont des eaux d
 ### michna 11
 Le puits d'Achab et la piscine de la grotte de Banias sont aptes. Une eau qui a changé de couleur et dont le changement est venu d'elle-même, reste apte. Un canal d'eau qui vient de loin est convenable, à condition qu'on le surveille pour que personne ne le coupe. Rabbi Judah dit : la présomption est que cela est permis. Si de l'argile ou de la terre est tombée dans un puits, il faut attendre que [l'eau] redevienne claire, parole de Rabbi Ismaël. Rabbi Akiba dit : il n'est pas nécessaire d'attendre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

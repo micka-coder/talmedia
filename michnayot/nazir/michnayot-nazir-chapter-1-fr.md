@@ -20,5 +20,5 @@ Si quelqu'un dit : "Voici, je suis nazirite, aussi longtemps qu'il faut pour all
 ### michna 7
 Si quelqu'un dit] : "Voici, je suis un nazirite, comme le nombre de jours dans une année solaire", il doit compter autant de nazirites qu'il y a de jours dans l'année solaire. Rabbi Juda a dit : un tel cas s'est produit une fois, et lorsque l'homme a terminé [ses nazirites], il est mort.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

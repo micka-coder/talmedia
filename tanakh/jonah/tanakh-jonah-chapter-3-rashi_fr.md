@@ -27,7 +27,7 @@
 <b>et Dieu s'apaisera</b> - Il pensera au mal pour s'en repentir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -56,4 +56,4 @@
 <b>et Dieu s'apaisera</b> - Il pensera au mal pour s'en repentir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

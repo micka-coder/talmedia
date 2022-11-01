@@ -78,4 +78,4 @@ La Gemara relate que <b>Ameimar</b> a permis aux gens <b>de puiser</b> de l'eau 
 Cependant, <b>quand il vit que</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

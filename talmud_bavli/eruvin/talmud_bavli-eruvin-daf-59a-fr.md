@@ -33,4 +33,4 @@ Nous avons appris dans la mishna : <b>Comme les Sages n'ont pas énoncé la ques
 Le <i>baraita</i> continue : Si <b>elle était</b> à l'origine <b>une ville publique</b>, <b>et elle</b> reste <b>une ville publique</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

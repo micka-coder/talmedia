@@ -57,4 +57,4 @@ Le verset stipule : <b>"A vous les hommes</b> [<b><i>ishim</i></b>] <b>J'appelle
 <b>Et Rabbi Berekhya a dit : Si une personne voit que la Torah cesse chez ses enfants,</b> et qu'ils ne deviennent pas des érudits de la Torah comme lui, <b>il doit épouser la fille d'un érudit de la Torah.</b> Cela garantira que ses enfants issus d'elle seront élevés avec la Torah, <b>comme il est dit : <b>Même si sa racine vieillit dans la terre et que son tronc meurt dans le sol,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

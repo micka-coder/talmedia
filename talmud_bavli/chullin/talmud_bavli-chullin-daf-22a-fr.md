@@ -45,4 +45,4 @@ Il est enseigné dans la <i>baraita</i> que Rabbi Yishmael a dérivé du terme "
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> à propos du verset : "Et il apportera son offrande de colombes, ou de jeunes pigeons" (Lévitique 1:14), que les <b>colombes</b> sont <b>plus âgées et non plus jeunes. Comme</b> on <b>pourrait</b> le penser : <b>Et ceci</b> ne pourrait-il pas être dérivé par une <i>a fortiori</i> <b>inférence :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

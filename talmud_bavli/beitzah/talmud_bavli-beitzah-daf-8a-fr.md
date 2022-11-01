@@ -33,4 +33,4 @@ La Gemara demande : <b>Si oui,</b> si la mishna fait référence à une situatio
 La Guemara explique que cette <i>baraita</i> <b>parle</b> en utilisant le style de : <b>Il n'est pas nécessaire,</b> comme suit : <b>Il n'est pas nécessaire</b> d'énoncer la <i>halakha</b> en ce qui concerne les animaux non domestiques et les oiseaux <b>définis</b>, <b>que</b> il n'est <b>pas permis</b> de les abattre</b> ; <b>cependant,</b> en ce qui concerne <b>une incertitude,</b> on pourrait <b>dire : En raison de la joie de la Fête, qu'on l'égorge</b> <b>et qu'on ne couvre pas</b> son sang, car il y a une <b>incertitude</b> quant à savoir s'il y a une mitsva de couvrir son sang, et donc elle est annulée par la mitsva de se réjouir lors d'une Fête. La <i>baraita</i> nous <b>enseigne donc</b> que l'on ne doit pas l'abattre <i>ab initio</i> s'il n'a pas préparé quelque chose avec quoi couvrir le sang.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

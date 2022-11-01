@@ -27,4 +27,4 @@ Rabbi Akiva <b>leur dit : La chose est ainsi,</b> et cela prouve que mon opinion
 La Gemara demande : <b>Et d'où dites-vous que nous n'édictons pas</b> un <b>décret rabbinique pour</b> empêcher la violation d'un autre <b>décret rabbinique ?</b> La source est <b>comme nous l'avons appris</b> dans une mishna (<i>Ḥalla</i> 4:8) : <b><i><i>Ḥalla</i> de l'extérieur d'Eretz</b> Yisrael, qui doit être mangé par un prêtre,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

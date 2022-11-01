@@ -39,4 +39,4 @@ La Gemara demande : <b>Dans ce cas,</b> s'il a été prévenu par rapport à ce 
 La Gemara répond : <b>Ici aussi</b> le cas est <b>où il s'est frotté contre le mur pour son plaisir</b> et non dans le but de tuer. La Gemara demande : <b>Et d'où savons-nous</b> qu'il n'avait pas l'intention de tuer ? La Guemara répond : <b>Parce que</b> même <b>après</b> que le mur soit <b>tombé, il continuait à s'y frotter,</b> ce qui prouve que telle était son intention.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

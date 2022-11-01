@@ -15,4 +15,4 @@ La mishna poursuit : <b>Rabbi Elazar dit : Même s'il n'y a pas</b> de signature
 <b>Mais plutôt,</b> on peut dire que la mishna <b>est</b> en accord avec l'opinion de <b>Rabbi Meir, et quand Rabbi Meir n'exige pas</b> que l'<b>écriture</b> doit être <b>pour elle,</b> il voulait dire <b>par la loi de la Torah,</b> alors que <b>par la loi rabbinique il exige</b> que l'écriture doit être pour elle. Cependant, la Gemara soulève une difficulté contre cette explication également : <b>Mais Rav Naḥman n'a-t-il pas dit</b> que <b>Rabbi Meir dirait : </b> Un acte de divorce n'a pas besoin d'être écrit pour elle, et <b>même</b> si un mari <b>trouve</b> un acte de divorce <b>dans les poubelles,</b> et que les noms de l'homme et de la femme dans l'acte de divorce sont les mêmes que son nom et celui de sa femme,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

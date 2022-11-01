@@ -32,5 +32,5 @@ Ils l'a liait [la vache] avec une corde de roseau et la placait sur le tas [de b
 ### michna 11
 Il les enveloppait alors ensemble avec les restes de la bande de laine et les jetait dans le feu. Lorsqu'elle était brûlée, ils la battaient avec des bâtons, puis la tamisaient avec des tamis. Rabbi Ishmael dit : cela se faisait avec des marteaux de pierre et des tamis de pierre. S'il y avait un charbon noir sur lequel il y avait des cendres, ils l'écrasaient, mais s'il n'y avait pas de [cendres], ils le laissaient. Un os était écrasé dans les deux cas. Il était ensuite divisé en trois parties : une partie était déposée sur le Heil, une autre sur le Mont des Oliviers, et une dernière était répartie entre les gardes sacerdotales.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

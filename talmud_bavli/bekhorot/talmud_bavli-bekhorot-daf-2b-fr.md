@@ -66,4 +66,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution au dilemme
 <b>Et les rabbins disent : Tant que la propriété du Gentil est impliquée,</b> en ce sens qu'il possède au moins une propriété partielle de la mère ou du fœtus, l'animal <b>est exempt de</b> sa progéniture étant comptée <b>comme un premier-né.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

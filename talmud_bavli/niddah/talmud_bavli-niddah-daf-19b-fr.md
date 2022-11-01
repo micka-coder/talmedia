@@ -63,4 +63,4 @@ La Guemara <b>souleve une objection</b> de la mishna précitée (58b) : Si le ma
 <b>Rav Naḥman dit :</b> Ce rouge est <b>comme le sang</b> répandu dans le processus <b>de la saignée.</b> La Gemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Un incident</b> s'est produit concernant une tache de sang trouvée sur le vêtement d'une femme, <b>et Rabbi Meir a attribué</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

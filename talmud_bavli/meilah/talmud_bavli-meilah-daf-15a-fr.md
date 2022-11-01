@@ -39,4 +39,4 @@ La Guemara soulève une difficulté : <b>Mais Ulla n'a-t-il pas dit</b> que <b>R
 <b>Au contraire,</b> la Guemara rejette la version précédente de l'opinion de Rabbi Yannaï, et affirme qu'en fait, il soutient que les animaux consacrés au sacrifice sur l'autel sont soumis aux <i>halakhot</i> de mauvais usage par la loi de la Torah. Comme <b>l'école de Rabbi Yannai dit ce qui suit : De ce verset :</b> "Si quelqu'un commet un mauvais usage, et pèche par erreur, dans les objets sacrés du Seigneur" (Lévitique 5:15), <b>nous apprenons</b> que les objets <b>consacrés</b> pour <b>l'entretien du Temple</b> sont soumis aux <i>halakhot</i> de mauvais usage. Mais <b>nous n'apprenons pas</b> de ce verset que les animaux consacrés pour l'<b>autel</b> sont sujets aux <i>halakhot</i> de mauvais usage. Au lieu de cela, cette <i>halakhot</i> est dérivée du verset : "Et si un homme mange des objets sacrés par erreur" (Lévitique 22:14), ce qui fait référence à tous les objets sacrés, ou du verset (Lévitique 3:16) : "Toute la graisse est à l'Éternel."
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

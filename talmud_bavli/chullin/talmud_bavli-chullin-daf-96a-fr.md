@@ -39,4 +39,4 @@ Bar Peyoli prit <b>peur</b> à cause de la réprimande de Shmuel et <b>le coutea
 Le Rav Pappa explique le rapport entre ce qui précède et la déclaration de Shmuel. <b>Quelle est la raison</b> de l'opinion <b>des rabbins,</b> qui ne sont pas d'accord avec Rabbi Yehuda ? Ils soutiennent que le nerf sciatique <b>est une entité distincte.</b> Par conséquent, même si l'on mange moins d'une botte d'olives, il s'agit d'un acte alimentaire significatif, et l'on est responsable.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

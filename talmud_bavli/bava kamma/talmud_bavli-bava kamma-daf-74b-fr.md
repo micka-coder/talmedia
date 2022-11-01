@@ -66,4 +66,4 @@ La Gemara déduit de la <i>baraita</i> : <b>Mais</b> si Tavi <b>avait des témoi
 Rav Huna <b>dit à</b> Rav Ḥisda : Ce cas impliquant <b>Rabban Gamliel est différent, car il a admis</b> ses actes alors qu'il n'était <b>pas en présence d'un tribunal.</b> Un aveu hors de la présence d'un tribunal ne dispense pas l'auteur de payer l'amende correspondante. La Guemara conteste : <b>Mais Rabbi Yehoshua était le président du tribunal,</b> il est donc probable que la rencontre ait eu lieu au tribunal.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

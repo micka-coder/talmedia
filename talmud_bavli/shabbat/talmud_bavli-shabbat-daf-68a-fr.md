@@ -27,4 +27,4 @@ La mishna discute d'un individu qui oublie l'essence même du Shabbat. La Guemar
 La Guemara demande en outre : <b>Cependant,</b> sur la base de cette compréhension, dans le cas de <b>celui qui connaissait</b> l'essence du Chabbat <b>et qui l'a finalement oublié, quelle</b> est la <i>halakha</i> ? Est-il <b>responsable de chaque Chabbat</b> Si oui, <b>au lieu que</b> la mishna <b>enseigne</b> la <i>halakha</i> suivante : <b>Quelqu'un qui connaît l'essence du Shabbat et accomplit de nombreux travaux pendant plusieurs <i>Shabbatot</i></b> est <b>compétent pour</b> apporter un sacrifice pour le péché <b>pour chaque Shabbat, qu'il enseigne : Celui qui connaissait</b> l'essence du Chabbat <b>et a fini par l'oublier et, à plus forte raison, celui</b> qui connaît l'essence du Chabbat serait responsable pour chaque Chabbat. La Gemara répond : Selon l'opinion de Rav et de Shmuel, <b>Quel</b> est le sens de la phrase : <b>Celui qui connaît l'essence du Shabbat ? Celui qui</b> autrefois <b>connaissait l'essence du Shabbat et</b> l'a maintenant <b>oublié.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

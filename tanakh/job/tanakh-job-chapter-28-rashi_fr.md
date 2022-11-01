@@ -97,4 +97,4 @@
 <b>Voici, la crainte du Seigneur est sagesse</b> L'une nécessite l'autre, et la sagesse est inconvenante sans [la] crainte [du Seigneur].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -30,4 +30,4 @@ Il y avait <b>un certain</b> homme <b>qui disait à</b> ceux qui l'entouraient :
 La Gemara demande : <b>C'est le cas ? Mais Rabbi Ḥanina ne dit-il pas : Même</b> si <b>leur père ne leur a rien laissé d'autre</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

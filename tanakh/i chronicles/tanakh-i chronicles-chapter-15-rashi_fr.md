@@ -74,4 +74,4 @@
 <b>Et Mical, fille de Saül, etc.</b> Comme le livre des Chroniques est pour l'honneur de David, il n'écrit pas ici ce que Mical a dit à David, comme cela est écrit dans Samuel (II 6:20) : "Quelle estime pour le roi d'Israël, qui paraissait aujourd'hui aux yeux des servantes de ses serviteurs, comme paraîtrait un des oisifs !" car c'était une honte pour David qu'une femme lui dise cela.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

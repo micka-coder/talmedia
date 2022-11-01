@@ -51,7 +51,7 @@
 <b>L'héritage de Jacob ton père</b> Un héritage sans frontières, comme il est dit (Gen. 28 : 14) : "Et tu t'étendras à l'ouest et à l'est, etc.". Pas comme Abraham, au sujet duquel il est dit (ibid. 13, 15) : "Le pays que tu vois..." Et Jacob a effectivement observé le sabbat, comme il est dit (ibid. 33, 18) : " Et il campa devant la ville ", c'est-à-dire qu'il fixa les limites du sabbat au crépuscule. C'est ainsi que Rabbi Samson l'a expliqué.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>et relater à Mon peuple leur transgression</b> Ce sont les érudits de la Torah, dont chaque péché involontaire est compté comme une transgression, car une erreur d'étude est comptabilisée comme un péché intentionnel.
 <b>et à la maison de Jacob leurs péchés</b> Ce sont les ignorants, dont les péchés volontaires, sont comptabilisés comme des inadvertances.
@@ -104,4 +104,4 @@
 <b>L'héritage de Jacob ton père</b> Un héritage sans frontières, comme il est dit (Gen. 28 : 14) : "Et tu t'étendras à l'ouest et à l'est, etc.". Pas comme Abraham, au sujet duquel il est dit (ibid. 13, 15) : "Le pays que tu vois..." Et Jacob a effectivement observé le sabbat, comme il est dit (ibid. 33, 18) : " Et il campa devant la ville ", c'est-à-dire qu'il établit les limites du sabbat au crépuscule. C'est ainsi que Rabbi Samson l'a expliqué.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

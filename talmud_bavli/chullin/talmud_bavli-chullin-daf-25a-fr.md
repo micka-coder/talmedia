@@ -45,4 +45,4 @@ La Gemara demande : N'est-il pas <b>évident</b> que si le récipient est <b>san
 <b>Et voici</b> les <b>vases métalliques inachevés : Tout</b> récipient <b>que</b> l'on projette dans le <b>futur</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

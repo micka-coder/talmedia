@@ -45,4 +45,4 @@ En revanche, dans <b>la dernière clause, puisqu'il s'agit d'une vente, et</b> l
 <b>Quelle est la raison</b> de ceci ? Rav Ḥama a dit : Il est <b>convenable pour eux</b> que la marchandise reste <b>établie dans mon domaine, car partout où ils vont,</b> les autorités les <b>laissent tranquilles</b> en ce qui concerne les <b>taxes et</b> d'autres personnes <b>maintiennent le marché pour</b> ces vendeurs. Les marchands qui vendaient les marchandises de Rav Ḥama bénéficiaient d'un traitement préférentiel, car Rav Ḥama était un érudit de la maison de l'Exilarque, dont les membres recevraient l'aide de tous. Le prix plus élevé qu'ils payaient était en contrepartie de ces avantages ; ce n'était pas un paiement pour l'attente.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

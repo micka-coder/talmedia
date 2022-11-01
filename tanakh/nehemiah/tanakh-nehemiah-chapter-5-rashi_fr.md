@@ -88,4 +88,4 @@
 <b>La nourriture</b> de l'impôt, qui convient au gouverneur, je ne l'ai pas cherchée, et je ne l'ai pas demandée au peuple, car le travail de la construction de la muraille était lourd et fort sur eux. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

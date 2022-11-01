@@ -39,4 +39,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez</b> une preuve de la mishna : S
 <b>Rav Yehuda dit</b> que <b>Rav dit :</b> Il y eut <b>un incident impliquant un homme à qui l'on avait dit</b> que <b>sa femme,</b> c'est-à-dire sa fiancée, <b>était une personne dont l'odorat était altéré, et il la suivit dans une ruine,</b> en emportant un rendez-vous galant avec lui, <b>pour la vérifier</b> afin de voir si elle pouvait identifier correctement l'odeur. <b>Il lui a dit : Je sens</b> le <b>sens du radis en Galilée.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

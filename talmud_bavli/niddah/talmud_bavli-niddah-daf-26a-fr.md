@@ -63,4 +63,4 @@ La Guemara répond : <b>Lorsque nous avons dit</b> qu'il y a cinq articles dont 
 La Gemara demande : <b>Mais n'y a-t-il pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

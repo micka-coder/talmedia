@@ -54,4 +54,4 @@
 <b>Vin doux</b> Heb. עָסִיס. Un vin bon et doux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

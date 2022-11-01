@@ -45,7 +45,7 @@ La Gemara demande : <b>Quoi</b> est la signification de : <b>Comme</b> s'il éta
 § La mishna enseigne : <b>Si trois hommes</b> peuvent se réunir en tant que <b>tribunal,</b> il <b>peut stipuler devant</b> le tribunal qu'il s'engagera à restituer l'objet à condition de recevoir une compensation complète pour la perte de revenu. La Gemara relate : <b>Issur et Rav Safra ont formé une entreprise commune entre eux. Rav Safra est allé dissoudre</b> leur partenariat <b>à l'insu d'Issur et en présence de deux</b> témoins. Rav Safra <b>se présenta devant Rabba bar Rav Huna</b> afin de ratifier la dissolution de l'association. Rabba bar Rav Huna <b>lui dit : Va</b> et <b>amène-moi</b> le tribunal des <b>trois devant lequel tu as dissous</b> ton partenariat. <b>Alternativement,</b> vous pouvez apporter...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>mais</b> dans le cas de <b>ces deux</b> mitzvot de déchargement et de chargement, <b>lorsque son propriétaire est avec lui,</b> je pourrais <b>dire non,</b> il n'y a pas besoin de l'assister. Par conséquent, il était <b>nécessaire</b> pour la Torah d'écrire les deux.
 
@@ -92,4 +92,4 @@ La Gemara demande : <b>Quoi</b> est la signification de : <b>Comme</b> s'il éta
 § La mishna enseigne : <b>Si trois hommes</b> peuvent se réunir en tant que <b>tribunal,</b> il <b>peut stipuler devant</b> le tribunal qu'il s'engagera à restituer l'objet à condition de recevoir une compensation complète pour la perte de revenu. La Gemara relate : <b>Issur et Rav Safra ont formé une entreprise commune entre eux. Rav Safra est allé dissoudre</b> leur partenariat <b>à l'insu d'Issur et en présence de deux</b> témoins. Rav Safra <b>se présenta devant Rabba bar Rav Huna</b> afin de ratifier la dissolution de l'association. Rabba bar Rav Huna <b>lui dit : Va</b> et <b>amène-moi</b> le tribunal des <b>trois devant lequel tu as dissous</b> ton partenariat. <b>Alternativement,</b> vous pouvez apporter...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

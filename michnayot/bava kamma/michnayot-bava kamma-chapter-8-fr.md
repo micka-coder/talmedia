@@ -20,5 +20,5 @@ Si un homme a boxé l'oreille de son compagnon, il doit lui payer une sela (quat
 ### michna 7
 Même si un homme paie [celui qui subit l'indignité], il n'est pas pardonné tant qu'il n'a pas demandé [le pardon] à celui-ci, car il est dit :  "Rends donc la femme de cet homme"¦ [et il priera pour toi] "(Genèse 20, 7). Et d'où nous vient l'idée que celui qui doit pardonner ne doit pas être cruel ?  Comme il est dit :  "Abraham pria Dieu et Dieu guérit Avimelech" (Genèse 20:17). Si un homme dit : "Rendez-moi aveugle", "Coupez-moi la main "ou "Brisez-moi le pied", il est responsable. S'il ajoute : "A condition que tu sois exempt", il est encore responsable. S'il a dit : "Déchire mon vêtement", ou "Brise ma cruche", celui qui le fait est responsable. S'il a ajouté : "Ã€ condition que tu sois exempté", il est exempté. S'il dit : "Fais cela à untel, à condition que tu sois exempté", il est responsable, qu'il s'agisse d'une atteinte à sa personne ou à ses biens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara répond : <b>Une</b> de ces phrases vient <b>exclure</b> le sang de l
 En revanche, <b>Rabbi Neḥemya dit : Dans quel</b> cas <b>on dit cette affirmation,</b> que l'ordre est indispensable ? Elle est dite en ce qui concerne <b>les actions accomplies en vêtements blancs, que ce soit à l'intérieur ou à l'extérieur</b> du Sanctuaire. <b>Cependant,</b> en ce qui concerne <b>les</b> actions accomplies en habits d'or à l'extérieur</b> du Sanctuaire, le service régulier du Temple et les services supplémentaires, si l'ordre a été modifié, <b>ce qu'il a fait est fait. Rabbi Yoḥanan dit : Et tous deux,</b> Rabbi Yehuda et Rabbi Neḥemya, <b>dérivèrent</b> leurs opinions <b>à partir d'un seul verset : "Et ceci sera pour vous une loi perpétuelle,</b> faire l'expiation pour les enfants d'Israël de tous leurs péchés <b>une fois par an"</b> (Lévitique 16:34).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

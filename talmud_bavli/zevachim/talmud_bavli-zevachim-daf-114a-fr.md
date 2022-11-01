@@ -42,4 +42,4 @@ La Gemara commente : <b>Et</b> tous ces cas <b>sont nécessaires. Car, si</b> la
 <b>Rabbi Yirmeya dit à Rabbi Zeira :</b> Il est donc interdit de sacrifier des offrandes dont le temps n'est pas encore arrivé, même si elles sont sacrifiées dans le Tabernacle comme c'était le cas à Gilgal. <b>Si tel est le cas,</b> quiconque sacrifie une offrande dont le temps n'est pas encore arrivé, même s'il la sacrifie à l'intérieur de la cour du Temple,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

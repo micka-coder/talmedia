@@ -36,4 +36,4 @@ Dans le cas où l'on <b>enduit</b> l'agneau pascal <b>d'huile de <i>teruma</i>, 
 <strong>GEMARA:</strong> Sur la base de la mishna, la Gemara introduit une discussion générale concernant les <i>halakhot</i> des aliments interdits qui entrent en contact avec d'autres aliments. <b>Il a été dit</b> que les <i>amora'im</i> n'étaient pas d'accord en ce qui concerne ces questions, mais la Guemara mentionne d'abord les cas qui sont clairs : Si <b>un aliment chaud</b> tombe <b>dans</b> un autre aliment <b>chaud</b>, par exemple, une viande chaude tombe dans du lait bouillant ou une viande chaude autorisée tombe dans une soupe chaude interdite, <b>tous sont d'accord</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

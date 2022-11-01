@@ -36,4 +36,4 @@ La Guemara commente : <b>Cela fonctionne bien selon Shmuel, qui a dit</b> que le
 Et la Guemara <b>souleve une contradiction</b> entre la déclaration <b>de Rabbi Yehuda et</b> une autre déclaration <b>de Rabbi Yehuda. Rabbi Yehuda</b> a-t-il effectivement <b>savoir</b> que <b>une personne n'entre pas</b> dans un état d'<b>incertitude,</b> et donc que tant que le volume du tas est inconnu, la naziréité ne prend pas effet ? <b>Et</b> la Gemara <b>souleve une contradiction</b> de la mishna, où <b>Rabbi Yehuda dit : Le <i>teruma</i> non spécifié en Judée est interdit mais en Galilée il est permis, car les gens de la Galilée ne connaissent pas la collecte de la chambre.</b> La Gemara en déduit : <b>La raison</b> pour laquelle il est permis est <b>qu'ils ne sont pas familiers;</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

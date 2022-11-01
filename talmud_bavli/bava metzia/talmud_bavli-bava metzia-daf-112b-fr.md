@@ -27,7 +27,7 @@ La Gemara demande : <b>Si oui,</b> c'est-à-dire si la préoccupation existe que
 La Gemara demande : <b>Mais n'avez-vous pas dit</b> que <b>l'employeur est préoccupé par ses ouvriers ?</b> La Gemara répond : <b>Cette affirmation</b> ne s'applique qu'<b>avant que le moment de son obligation</b> de payer <b>arrive,</b> car il est possible que sa préoccupation pour d'autres affaires lui fasse oublier s'il l'a déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La mishna enseigne : Si <b>un ouvrier engagé</b> demande à être payé <b>à</b> l'heure convenable <b>et que l'employeur prétend l'avoir déjà payé, l'ouvrier <b>prête serment</b> qu'il n'a pas reçu son salaire <b>et</b> reçoit alors <b>le salaire</b> de l'employeur. La Gemara demande : <b>Pourquoi</b> les Sages ont-ils institué pour <b>un travailleur salarié,</b> qui est le demandeur, <b>de prêter serment et de recevoir</b> son salaire, en opposition au principe selon lequel dans le cas d'un litige monétaire entre deux parties, le défendeur prête serment qu'il n'est pas responsable et se dispense ainsi du paiement ?
 
@@ -56,4 +56,4 @@ La Gemara demande : <b>Si oui,</b> c'est-à-dire si la préoccupation existe que
 La Gemara demande : <b>Mais n'avez-vous pas dit</b> que <b>l'employeur est préoccupé par ses ouvriers ?</b> La Gemara répond : <b>Cette affirmation</b> ne s'applique qu'<b>avant que le moment de son obligation</b> de payer <b>arrive,</b> car il est possible que sa préoccupation pour d'autres affaires lui fasse oublier s'il l'a déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

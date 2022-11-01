@@ -54,4 +54,4 @@ La Gemara répond : C'est <b>il,</b> Rav, <b>qui a dit</b> sa décision <b>confo
 <b>Rava dit</b> que <b>Rav Naḥman dit :</b> Il s'ensuit que si l'on <b>dit à deux</b> personnes : <b>Allez et fiancez la femme pour moi, ces mêmes</b> personnes qui sont <b>ses agents</b> pour les fiançailles <b>sont ses témoins. Et une semblable</b> <i>halakha</i> est vraie <b>en ce qui concerne le divorce :</b> Si un homme a envoyé un acte de divorce à sa femme avec deux personnes, celles-ci servent à la fois d'agents de livraison et de témoins du divorce.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara soulève une objection : <b>Si oui,</b> si chaque jour l'ustensile ex
 La Guemara demande : <b>Que</b> fait-on avec <b>une grande bouilloire ?</b> La Gemara suggère : <b>Venez</b> et <b>entendez</b> une réponse à partir d'un incident <b>concernant un certain chaudron qui se trouvait</b> dans <b>la maison de Rav Akavya</b> et qui devait être purgé. <b>Il l'a entouré</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

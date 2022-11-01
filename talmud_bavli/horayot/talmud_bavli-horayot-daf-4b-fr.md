@@ -57,4 +57,4 @@ La Guemara suggère : Si c'est le cas, <b>disons : Résolvez</b> d'ici <b>ce que
 <strong>MISHNA :</strong> Si les juges de <b>la cour ont émis</b> une <b>décision erronée et que toute la congrégation ou une majorité d'entre elle a effectué</b> une transgression <b>sur la base de leur</b> décision, les juges <b>emportent un taureau</b> comme offrande de péché commun involontaire. <b>Et</b> si la décision erronée <b>impliquait l'adoration d'une idole,</b> les juges <b>emportent un taureau et une chèvre,</b> comme il est écrit dans la Torah (voir Nombres 15:24) ; c'est <b>la déclaration de Rabbi Meir. Rabbi Yehouda dit :</b> Ce n'est pas le tribunal qui apporte l'offrande, c'est le peuple. <b>Douze tribus,</b> chacune d'entre elles ayant accompli une transgression, <b>apporteront douze taureaux,</b> c'est-à-dire que chaque tribu en apporte un, <b>et pour le culte des idoles, on apporte douze taureaux et douze boucs,</b> car chaque tribu est une assemblée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

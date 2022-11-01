@@ -42,4 +42,4 @@ Rabbi Yirmeya demande : Lorsque la mishna dit : <b>C'est</b> le serment sur un �
 La Gemara répond : <b>Non.</b> Cela sert à <b>exclure</b> celui qui fait un serment en disant : <b>J'ai mangé, ou : Je n'ai pas mangé, de</b> l'obligation d'apporter <b>une offrande.</b> La Gemara explique : <b>C'est</b> le serment sur un énoncé <b>pour lequel</b> celui qui le viole <b>sans le vouloir</b> est tenu d'apporter <b>une offrande glissante. Mais</b> si l'on prête serment en disant : <b>J'ai mangé, ou : Je n'ai pas mangé,</b> alors <b>non,</b> on n'apporte pas d'offrande. <b>Et ceci est</b> conforme à l'avis de <b>Rabbi Yishmael, qui dit : On est passible</b> d'apporter une offrande <b>seulement pour</b> briser des serments relatifs à <b>l'avenir, mais on est fouetté</b> même pour de faux serments relatifs au passé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,7 +57,7 @@ La Gemara réfute cette preuve : <b>N'a-t-il pas été dit</b> par <i>amora'im</
 La Guemara soulève une objection : <b>Mais</b> si tel est bien le souci, <b>n'avez-vous pas dit</b> que <b>il suffit</b> que <b>quelqu'un se lève et dise : je</b> vais <b>prendre celui-ci</b> <b>et celui-là</b>. Dans ce cas également, il ne les touche pas. Il est donc possible qu'il reconsidère son choix d'oisillons lors de la Fête après les avoir manipulés. La Guemara répond : <b>Cela ne s'applique que</b> lorsqu'on a fait son choix <b>la veille de la Fête.</b> Comme il sait qu'il ne pourra pas revenir sur sa décision le jour de la Fête même s'il n'aime pas ceux qu'il a choisis, il décide définitivement de prendre ces oisillons et ne manipulera pas les autres.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Cependant, lorsqu'il n'y a pas de pelle encastrée,</b> même Beit Shammai ne l'a <b>pas</b> permis. <b>Alternativement,</b> il est possible que <b>Beit Hillel disent</b> leur avis <b>uniquement ici, puisque</b> une colombe <b>est <i>muktze</i>,</b> ce qui est interdit par la loi rabbinique, et donc <b>quand il se tient et dit : je prendrai ceci et cela,</b> c'est <b>suffisant. Cependant là,</b> où l'interdiction s'applique par la loi de la Torah, ils n'ont <b>pas</b> dit cela.
 
@@ -116,4 +116,4 @@ La Gemara réfute cette preuve : <b>N'a-t-il pas été dit</b> par <i>amora'im</
 La Guemara soulève une objection : <b>Mais</b> si tel est bien le souci, <b>n'avez-vous pas dit</b> que <b>il suffit</b> que <b>quelqu'un se lève et dise : je</b> vais <b>prendre celui-ci</b> <b>et celui-là</b>. Dans ce cas également, il ne les touche pas. Il est donc possible qu'il reconsidère son choix d'oisillons lors de la Fête après les avoir manipulés. La Guemara répond : <b>Cela ne s'applique que</b> lorsqu'on a fait son choix <b>la veille de la Fête.</b> Comme il sait qu'il ne pourra pas revenir sur sa décision le jour de la Fête même s'il n'aime pas ceux qu'il a choisis, il décide définitivement de prendre ces oisillons et ne manipulera pas les autres.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

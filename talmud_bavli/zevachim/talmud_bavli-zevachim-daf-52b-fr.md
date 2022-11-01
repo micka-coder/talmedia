@@ -54,4 +54,4 @@ La Gemara demande : <b>C'est pour dire</b> que <b>Rabbi Yoḥanan n'est pas</b> 
 <strong>MISHNA :</strong> Voici les <i>halakhot</i> des <b>offrandes de péché communales et individuelles. Voici les offrandes de péché communales : Les boucs de la Nouvelle Lune et des Fêtes. Leur abattage</b> est <b>au nord</b> de la cour du Temple, <b>et</b> la <b>collecte de leur sang dans un récipient de service</b> est <b>au nord, et leur sang nécessite quatre placements aux quatre coins de l'autel. Comment</b> le prêtre a-t-il procédé ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Le <i>baraita</i> demande alors : <b>Laissons</b> le verset <b>dire</b> seulemen
 <b>Que pouvez-vous inclure</b> dans cette catégorie qui n'est pas déjà répertoriée ? <b>Animaux autres</b> que les bœufs, les moutons et les ânes. <b>Lorsque le verset <b>dit "vivant", les animaux sont ainsi énoncés</b> explicitement. Par conséquent, les détails de "bœuf", "mouton" et "âne" ne peuvent pas être écrits pour inclure les animaux. <b>Comment</b> alors <b>je réalise</b> le sens de <b>"vol,"</b> c'est-à-dire quelle est la catégorie d'éléments dérivés du détail et de la généralisation ? Il faut croire qu'elle sert <b>à inclure tous</b> les types d'<b>articles</b> dans l'exigence du double paiement. Si c'est le cas, <b>pourquoi ai-je</b> besoin de la phrase <b>"si</b> le vol <b>se trouve [<i>himmatze timmatze</i>]"?</b> C'est la conclusion de la <i>baraita</i> telle qu'expliquée par Rava.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

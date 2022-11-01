@@ -75,4 +75,4 @@ C'est <b>parce que le colorant bleu ciel</b> <b>est semblable</b> dans sa couleu
 <strong>MISHNA:</strong> Le prêtre <b>n'écrit pas</b> le rouleau de la <i>sota</i> <b>sur</b> une <b>tablette de bois, et non sur du papier</b> fait d'herbe, <b>et non sur</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

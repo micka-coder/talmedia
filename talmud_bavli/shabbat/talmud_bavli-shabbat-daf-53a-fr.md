@@ -45,4 +45,4 @@ La Guemara <b>souleve une objection</b> de la <i>Tosefta</i> à ceux qui interdi
 La Gemara répond : <b>Non</b>, elle fait référence <b>aux petits</b> poulains, <b>et</b> les paniers sont suspendus <b>pour</b> éviter leur <b>inconfort.</b> Les jambes d'un jeune poulain sont longues et son cou est court. Par conséquent, manger à même le sol est difficile. Le fait de suspendre le panier à fourrage autour de son cou lui permet de manger sans se pencher. La Guemara ajoute : <b>Ceci est également précis</b> dans la langue de la <i>Tosefta</i>, <b>car elle enseigne</b> le cas des poulains.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

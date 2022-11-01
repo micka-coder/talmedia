@@ -24,4 +24,4 @@ La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> : Dans le cas de <
 <b>Quelles sont les circonstances ? Si nous disons que</b> c'est un cas où <b>il a dit : Je suis par la présente nazirite aujourd'hui, je suis par la présente nazirite demain, pourquoi le deuxième</b> terme de <b>nazirite est-il compté pour lui au lieu du premier ? N'y a-t-il pas un jour supplémentaire</b> dans le second terme de naziréité qu'il n'a pas encore observé, puisque le second terme de trente jours commence le jour après que la première période de trente jours ait commencé ? Comment, alors, est-il possible que la seconde obligation ait été accomplie par son observation de la première ? <b>Au contraire,</b> il <b>est évident que</b> c'est un cas où <b>il a dit : Je suis par la présente un nazirite aujourd'hui, je suis par la présente un nazirite aujourd'hui,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

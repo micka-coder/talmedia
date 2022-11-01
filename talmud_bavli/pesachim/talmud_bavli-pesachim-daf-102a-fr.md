@@ -24,4 +24,4 @@ La Guemara souligne qu'il <b>a été enseigné</b> dans une <i>baraita</i> <b>co
 La Guemara revient sur le sujet de l'interruption de son repas pour réciter le <i>kiddouch</i>. <b>Les Sages ont enseigné :</b> En ce qui concerne les <b>membres d'un groupe qui étaient allongés</b> et prenaient un repas, <b>et le jour</b> de Chabbat <b>était sanctifié, ils apportent</b> l'un des convives <b>une coupe de vin et il récite dessus la sanctification du jour,</b> c'est-à-dire, <i>kiddush</i>, <b>et une seconde</b> tasse <b>sur laquelle il récite la grâce après le repas;</b> c'est <b>la déclaration de Rabbi Yehuda. Rabbi Yosei dit : On</b> peut <b>continuer à manger</b> le reste de son repas, même <b>jusqu'à la nuit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

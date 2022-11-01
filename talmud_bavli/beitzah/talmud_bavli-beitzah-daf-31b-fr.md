@@ -33,4 +33,4 @@ La Guemara <b>souleve une objection</b> à cela à partir de la <i>baraïta</i> 
 Shmuel pourrait répondre : Conformément à <b>l'avis de qui</b> <b>c'est</b> <i>baraita</i> ? <b>C'est</b> conformément à l'avis de <b>Rabbi Meir, qui a dit : On peut même faire un trou et retirer</b> des produits <b><i>ab initio</i>, alors que les sages ne sont pas d'accord avec lui</b> et l'interdisent, <b>et j'ai parlé conformément</b> à l'avis des <b>sages.</b> La Guemara demande : <b>Et les sages ne sont pas d'accord avec lui en ce qui concerne</b> les portes <b>scellées au sol ? Mais n'est-ce pas enseigné</b> dans une <i>baraïta</i> : <b>Les sages concèdent à Rabbi Meir en ce qui concerne</b> les portes <b>scellées au sol qu'on peut les délier</b> le Chabbat mais pas les défaire ou les couper</b>, <b>alors que lors d'une fête on peut les délier ou les défaire ou les couper</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

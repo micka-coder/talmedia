@@ -33,4 +33,4 @@ Cependant, <b>Rabbi Meir soutient</b> que l'on peut tirer <b>une déduction <i>a
 <strong>GEMARA:</strong> <b>On a appris</b> dans une mishna <b>là,</b> dans <i>Terumot</i> : <b>Celui qui mange involontairement du <i>teruma</i> paie le principal et un</b> <b>cinquième supplémentaire, aussi bien celui qui en mange</b> que celui qui en boit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

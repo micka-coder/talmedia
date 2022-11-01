@@ -30,4 +30,4 @@ Si dans ce cas ils sont considérés comme séparés, on peut aussi se demander 
 <b>Et si on dit que</b> une carcasse d'animal dissoute <b>est</b> considérée comme <b>alimentation,</b> on peut soulever un dilemme supplémentaire. Si <b>un animal rampant</b> était placé <b>sur du sperme,</b> qui est certainement liquide, <b>qu'en est-il</b> de la <i>halakha</i> ? Cet animal rampant est-il considéré comme une impureté flottante ? <b>Et si l'on dit</b> que <b>une fois</b> le sperme <b>éjaculé</b> du corps <b>il est considéré comme de la nourriture</b> plutôt que de la boisson, car il est visqueux, on peut soulever un dilemme supplémentaire. Si <b>un animal rampant</b> a été placé <b>au-dessus des eaux de purification,</b> c'est-à-dire l'eau dans laquelle sont mélangées les cendres de la génisse rouge, qui devient très visqueuse, <b>et</b> les <b>eaux de purification flottent sur l'eau, quelle est</b> la <i>halakha</i> ? La Gemara répond : <b>Nous ne connaissons</b> la réponse à aucune de ces questions, et donc les dilemmes <b>seront</b> non résolus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

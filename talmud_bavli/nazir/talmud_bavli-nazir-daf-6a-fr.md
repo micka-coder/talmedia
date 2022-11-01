@@ -21,4 +21,4 @@ La Guemara répond : Bar Padda aurait pu <b>vous dire : Moi aussi je me fie à c
 La Gemara continue à demander : <b>Nous avons appris</b> dans la mishna (16a) : Dans le cas de <b>quelqu'un qui a dit : Je suis par la présente nazirite,</b> s'il <b>est devenu rituellement impur</b> le <b>trentième jour, cela annule tout le</b> décompte, et il doit recommencer sa nazirite à zéro. <b>Accordé,</b> selon <b>le Rav Mattana</b> cela <b>fonctionne bien,</b> puisqu'il est devenu impur avant la conclusion de sa naziréité. <b>Cependant, selon le bar Padda</b> c'est <b>difficile,</b> car le terme de naziréité s'est terminé à la conclusion du vingt-neuvième jour, et celui qui devient impur après avoir terminé son terme n'a pas à observer un nouveau terme de naziréité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

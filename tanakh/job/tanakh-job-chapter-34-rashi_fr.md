@@ -114,4 +114,4 @@
 <b>Au milieu de nous, il parle de manière loquace</b> Il demande : " Pourquoi devrions-nous nous préoccuper de ses paroles ? ". (ci-dessus 19:4), 'Et même si j'ai effectivement commis une erreur, que mon erreur reste avec moi', et il ne sait pas que nous sommes punis, et il augmente les iniquités pour nous parce que nous écoutons. C'est ainsi qu'il est expliqué dans Leviticus Rabbah (4:6).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

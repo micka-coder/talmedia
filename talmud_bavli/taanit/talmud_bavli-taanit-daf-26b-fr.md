@@ -51,4 +51,4 @@ La Gemara clarifie ces déclarations . <b>Celui qui a dit</b> que <b>la <i>halak
 <b>Le père de Rabbi Zeira, et certains disent</b> que c'était <b>Oshaya bar Zavda, s'oppose fortement à cette</b> explication. <b>Si</b> vous souhaitez comparer ces deux cas, vous pouvez argumenter comme suit : <b>De même qu'il est interdit</b> à un <b>nazirite</b> de manger des <b>morceaux de raisin,</b> comme il ne peut prendre part à aucun des produits de la vigne, <b>de même,</b> il devrait être <b>interdit à un prêtre qui récite la bénédiction</b> de manger des <b>morceaux de raisin.</b> Certes, il n'est pas interdit à un prêtre de lever les mains après avoir mangé quelques noyaux de raisin. Au contraire, <b>Rabbi Yitzḥak dit</b> que <b>le verset dit : "Pour le servir et bénir en son nom"</b> (Deutéronome 10:8). <b>De même que</b> il <b>est permis</b> à un prêtre <b>qui exerce son ministère</b> auprès de Dieu dans le Temple de prendre part à <b>des</b> noyaux de raisin, de même,</b> il <b>est permis</b> à <b>un prêtre qui récite la bénédiction</b> de prendre part à <b>des</b> noyaux de raisin.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

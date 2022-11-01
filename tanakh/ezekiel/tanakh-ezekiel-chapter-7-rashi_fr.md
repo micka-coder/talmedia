@@ -86,4 +86,4 @@
 <b>et l'on perdra l'instruction d'un prêtre</b> qui donnait habituellement l'instruction, comme il est dit (Mal. 2, 7) : "et l'on cherchera l'enseignement de sa bouche."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

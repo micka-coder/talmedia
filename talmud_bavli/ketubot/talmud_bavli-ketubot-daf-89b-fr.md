@@ -63,4 +63,4 @@ La Gemara répond : <b>N'a-t-il pas été dit à propos</b> de la <i>halakha</i>
 <b>Les Sages ont enseigné :</b> Si <b>elle a produit un acte de divorce, un contrat de mariage, et</b> des témoins du <b>décès de son mari,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

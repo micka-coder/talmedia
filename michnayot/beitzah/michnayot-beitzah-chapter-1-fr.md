@@ -29,5 +29,5 @@ Bet Shammai disent : on ne peut pas envoyer [des cadeaux à un voisin] le jour d
 ### michna 10
 On peut envoyer des vêtements, qu'ils soient cousus ou non, et même s'ils contiennent des kil'ayim (laine et lin mélangés), à condition qu'ils soient nécessaires pour la fête. Mais il est interdit d'envoyer des sandales clouées ou des chaussures inachevées. Rabbi Judah dit : pas même des chaussures blanches car elles nécessitent un artisan pour les noircir. C'est la règle générale : tout ce qui peut être utilisé à Yom Tov peut [également] être envoyé [à Yom Tov].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

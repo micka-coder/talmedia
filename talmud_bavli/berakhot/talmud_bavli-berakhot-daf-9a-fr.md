@@ -87,4 +87,4 @@ Similaire a la declaration de Rabbi Abba, <b>il a egalement ete enseigne</b> dan
 Puisque le dernier sujet aborde dans la Guemara tournait autour de l'exode d'Egypte, la Guemara cite un midrash aggadique supplementaire sur ce sujet. En ce qui concerne le verset : <b>Parlez, s'il vous plait [<i>na</i>] aux oreilles du peuple,</b> et ils devront emprunter, chaque homme a son compagnon et chaque femme a son compagnon, des recipients en argent et en or" (Exode 11:2), le mot s'il vous plait [na] n'est pas clair. Les etudiants de <b>l'ecole de Rabbi Yannai ont dit : S'il te plait</b> [<b><i>na</i>] n'est rien d'autre qu'une expression de supplication.</b> Pourquoi Dieu emploierait-il une expression de supplication en s'approchant d'Israel ? La Guemara explique que le <b>Saint, beni soit-Il, a dit a Moise</b> : <b>Je t'en supplie, va et dis a Israel : Je t'en conjure, emprunte aux Egyptiens des vases d'argent et des vases d'or</b> afin d'accomplir la promesse que j'ai faite a Abraham dans l'"Alliance entre les pieces", <b>de sorte que</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

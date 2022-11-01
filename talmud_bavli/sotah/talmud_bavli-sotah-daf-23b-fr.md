@@ -36,4 +36,4 @@ La mishna déclare : <b>Un homme est pendu, mais</b> une femme est <b>non</b> pe
 La mishna déclare : <b>Un homme est vendu pour son</b> commettre un acte de <b>vol, mais une femme n'est pas vendue pour son</b> commettre un acte de <b>vol.</b> La Gemara demande : <b>Quelle est la raison</b> de ceci ? <b>Le verset indique :</b> "Si le soleil s'est levé sur lui, il y a faute de sang pour lui ; il fera restitution ; s'il n'a rien, <b>alors il sera vendu pour son vol"</b> (Exode 22:2). Le verset indique qu'il est vendu <b>pour son vol, mais</b> elle n'est <b>pas</b> vendue <b>pour son vol.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@
 <b>to falter</b> Heb.  מוט, le fléchissement du pied.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

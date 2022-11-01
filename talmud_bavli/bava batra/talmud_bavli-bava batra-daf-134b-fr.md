@@ -45,4 +45,4 @@ La Gemara demande : En <b>quelle</b> manière <b>cette affaire est-elle</b> diff
 La Gemara répond : <b>A l'égard de deux</b> <b>corps distincts, on divise</b> la déclaration. Par conséquent, le témoignage du mari est accepté en ce qui concerne l'homme mais rejeté en ce qui concerne sa femme. <b>A l'égard d'un seul corps on ne le divise pas</b>. C'est pourquoi un Sage soutient que la déclaration d'un mari selon laquelle il a divorcé de sa femme dans le passé ne peut être divisée, de sorte que sa déclaration selon laquelle il a divorcé d'elle serait acceptée tandis que sa déclaration concernant le moment où il a divorcé d'elle serait rejetée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

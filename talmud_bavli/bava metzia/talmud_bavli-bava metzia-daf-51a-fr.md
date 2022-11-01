@@ -66,4 +66,4 @@ Ceci est <b>comme il est enseigné</b> dans une <i>baraita</i> : En ce qui conce
 La Guemara réfute ce parallèle. <b>Rav</b> aurait pu <b>vous dire : J'ai énoncé</b> mon opinion <b>même en accord</b> avec l'opinion de <b>Rabbi Yehuda,</b> car <b>Rabbi Yehuda énonce</b> son opinion selon laquelle une stipulation est valable en matière monétaire <b>uniquement là, où</b> une femme <b>sait</b> qu'elle a droit à la nourriture et aux vêtements <b>mais renonce</b> à ses droits sur ceux-ci.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

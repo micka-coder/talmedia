@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais peut-être</b> le verset <b>les a listés dans l'ord
 Accessoirement à la discussion du verset "Et Dieu bénit Abraham de tout" (Genèse 24:1), la Guemara indique que <b>les Sages ont enseigné :</b> Il y avait <b>trois</b> personnes <b>à qui le Saint, Béni soit-Il, a donné</b> déjà <b>dans ce monde</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

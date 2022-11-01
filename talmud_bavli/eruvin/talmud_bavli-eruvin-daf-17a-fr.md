@@ -66,4 +66,4 @@ Il a été enseigné dans la <i>Tosefta</i> que <b>Rabbi Yehuda ben Teima dit : 
 La Gemara répond : <b>Non,</b> cette déclaration ostensiblement évidente est en effet <b>nécessaire</b> pour enseigner que ce principe s'applique dans le cas d'un camp militaire, <b>même si</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

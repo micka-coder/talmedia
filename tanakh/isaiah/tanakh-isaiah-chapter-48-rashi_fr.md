@@ -80,7 +80,7 @@
 <b>Pour les méchants</b> Pour Nabuchodonosor et sa descendance.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>La maison de Jacob</b> Les deux tribus destinées à partir en exil à Babylone.
 <b>O maison de Jacob, qui est appelée du nom d'Israël</b> C'est-à-dire la tribu de Benjamin, qui n'est pas appelée par la tribu de Juda, mais par le nom général des tribus d'Israël.
@@ -162,4 +162,4 @@
 <b>Pour les méchants</b> Pour Nabuchodonosor et sa descendance.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

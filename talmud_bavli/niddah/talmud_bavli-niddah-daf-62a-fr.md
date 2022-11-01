@@ -36,4 +36,4 @@ La Guemara soulève une objection à l'égard de cette décision : Mais <b>le sa
 En explication de cette <i>baraita</i>, <b>Rabbi Zeira dit : Ils ont enseigné</b> que les objets purs restent purs <b>seulement</b> en ce qui concerne <b>les objets rituellement purs</b> <b>qui ont été manipulés entre</b> le <b>premier lavage</b> avec les sept substances <b>et le second</b> lavage. <b>Mais</b> en ce qui concerne les objets <b>purs</b> <b>qui ont été manipulés</b> avec le vêtement <b>après</b> le <b>second lavage,</b> ces objets <b>purs</b> deviennent <b>impurs, car il a été particulier à ce sujet,</b> c'est-à-dire, en répétant la procédure de lavage, il a montré qu'il était préoccupé par le fait qu'il pouvait s'agir de sang, <b>et</b> la tache <b>disparaît,</b> démontrant qu'il s'agissait bien de sang.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

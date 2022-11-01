@@ -48,4 +48,4 @@ Rabba <b>dit à</b> Abaye : <b>Ne fais-tu pas la distinction entre</b> un cas <b
 Abaye a soulevé une difficulté : <b>Et</b> dans un cas <b>où il n'a pas acquis</b> son lieu de résidence à l'intérieur de ces partitions avant Chabbat, le principe régissant la subsomption des limites <b>ne s'applique-t-il pas</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

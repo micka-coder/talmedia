@@ -30,4 +30,4 @@ La Gemara demande : En ce qui concerne <b>ce fils</b>, <b>le jeune homme [<i>let
 <b>Rabbi Abbahou dit à Rabbi Yirmeya :</b> Est-ce que <b>la <i>halakha</i> est conforme à notre</b> avis, <b>ou</b> est-ce que <b>la <i>halakha</i> est conforme à votre</b> avis ? Rabbi Yirmeya <b>dit à</b> Rabbi Abbahou : Il est <b>évident que la <i>halakha</i></b> est <b>conforme à notre</b> avis, <b>puisque nous sommes plus âgés que vous, et la <i>halakha</i></b> n'est <b>pas conforme à votre</b> avis, <b>puisque vous êtes des jeunes [<i>dardekei</i>]. </b> Rabbi Abbahou <b>dit à</b> Rabbi Yirmeya en réponse : <b>La question dépend-elle de l'âge ? La question dépend de la raison</b> derrière la décision. Rabbi Yirmeya lui demanda : <b>Et quelle est</b> votre <b>raison ?</b> Rabbi Abbahou répondit : <b>Allez voir Rabbi Avin, comme j'ai expliqué</b> cette <i>halakha</i> <b>à lui,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

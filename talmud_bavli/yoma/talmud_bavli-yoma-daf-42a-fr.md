@@ -42,4 +42,4 @@ La Guemara analyse l'opinion de Shmuel : <b>Et</b> selon <b>Shmuel, qui a dit</b
 Comme la condition est mentionnée par rapport à deux étapes du rite de la vache rousse, cela suggère qu'elle n'existe pas pour chaque étape. Par conséquent, la Guemara demande : Il est écrit de cette manière afin <b>d'exclure quelle</b> étape ? <b>Si nous disons, pour exclure</b> de la condition les étapes de <b>récolte de ses cendres et de remplissage de l'eau pour la sanctification,</b> c'est-à-dire prendre l'eau pour la verser sur les cendres et les mélanger ensemble,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

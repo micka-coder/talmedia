@@ -57,4 +57,4 @@ La Gemara demande : <b>Quelle est la raison</b> de cela, c'est-à-dire d'où cel
 La mishna poursuit : <b>Et</b> les caractéristiques déterminantes de <b>cette</b> catégorie de Bœuf <b>et de cette</b> catégorie de <i>Maveh</i>, <b>dans laquelle il y a un esprit vivant,</b> ne sont pas similaires à la caractéristique déterminante de la catégorie de Feu, dans laquelle il n'y a pas d'esprit vivant. La Guemara demande : <b>Qu'est-ce que</b> le <i>tanna</i> <b>dit ? Rav Mesharshiyya dit au nom de Rava</b> que <b>ceci est</b> ce que le <i>tanna</i> <b>dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

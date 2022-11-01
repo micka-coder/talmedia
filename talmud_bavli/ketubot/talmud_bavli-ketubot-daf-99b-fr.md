@@ -54,4 +54,4 @@ La Guemara répond : <b>Rav Sheisha, fils de Rav Idi, dit :</b> Ceci est énonc�
 <strong>GEMARA:</strong> <b>Un dilemme a été soulevé devant</b> les Sages : <b>Un agent</b> qui a vendu par erreur un terrain à un prix inférieur à sa valeur est <b>comparable à qui ?</b> Est-il comparable à un juge, dont la vente est effective s'il ne s'est pas trompé de plus d'un sixième du prix du marché, ou est-il comparable à une veuve, dont la vente est nulle si elle a vendu à un prix inférieur au prix du marché ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ De même, <b>selon Rabbi Yonatan ben Amram</b> il n'y a pas non plus de difficul
 <b>Rabbi Yoḥanan a dit :</b> C'est <b>une présomption</b> que <b>une personne ne garde pas ce qui est dans la main d'un autre'.</b> Puisque l'objet est dans les mains d'un autre, il sera inévitablement distrait de le garder. La Guemara demande : <b>Et</b> peut-on effectivement <b>ne pas</b> garder un objet dans la main d'un autre ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

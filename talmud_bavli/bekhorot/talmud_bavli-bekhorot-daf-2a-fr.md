@@ -36,4 +36,4 @@ La Guemara rejette cette résolution : <b>Et selon votre raisonnement,</b> conce
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution d'un <i>baraita</i> : <b>Rabbi Yehuda dit</b> que dans le cas de <b>celui qui reçoit un animal d'un Gentil</b> pour le soigner et reçoit une partie de la progéniture en échange de son travail, <b>et il a donné naissance</b> à un premier-né, <b>ils évaluent sa valeur, et</b> le Juif <b>donne la moitié de sa valeur au prêtre</b> pour racheter sa part, qui est sanctifiée par le statut de premier-né. <b>Et</b> dans le cas de <b>celui qui donne</b> au Gentil un animal <b>sous séquestre alors qu'il n'est pas autorisé</b> à le faire, les Sages le <b>pénalisent</b> en exigeant qu'il achète la portion de l'animal du Gentil pour <b>jusqu'à dix</b> fois <b>sa valeur, et qu'il donne toute sa valeur au prêtre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

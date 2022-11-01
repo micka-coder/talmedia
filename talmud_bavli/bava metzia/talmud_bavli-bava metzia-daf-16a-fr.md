@@ -60,7 +60,7 @@ La Guemara relate que les Sages ont <b>envoyé</b> l'objection de Rav Sheshet et
 La Gemara demande concernant la <i>baraita</i> citée précédemment : <b>Et qu'est-ce qui est différent</b> dans <b>la première clause,</b> où la vente n'est pas valable, <b>et qu'est-ce qui est différent</b> dans <b>la dernière clause,</b> où la vente est valable ? Dans les deux cas, le vendeur n'est pas encore propriétaire de la marchandise. <b>Rabbi Yoḥanan a dit:</b> Dans <b>la dernière clause,</b> lorsque le vendeur déclare : Je vends <b>ce que j'hériterai de mon père aujourd'hui,</b> il le fait <b>pour l'honneur de son père.</b> Il croit que son père mourra ce jour-là, et son intention est de réunir de l'argent pour l'enterrement. Par conséquent, les Sages ont institué une ordonnance selon laquelle la vente est valide. De même, dans le cas d'une personne qui dit : <b>Ce que mon filet va attraper aujourd'hui</b> vous est vendu,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 dans ce cas, puisque l'acheteur est déjà <b>décédé,</b> le propriétaire n'est pas présent pour traiter le vendeur de voleur, donc il n'avait vraisemblablement pas l'intention de valider rétroactivement la vente. <b>Et</b> inversement, selon <b>celui qui dit</b> qu'il a acheté le terrain parce que <b>il est préférable pour lui de maintenir sa fiabilité, il est préférable pour lui de maintenir sa fiabilité à l'égard</b> des <b>enfants de l'acheteur aussi.</b>
 
@@ -122,4 +122,4 @@ La Guemara relate que les Sages <b>envoyèrent</b> l'objection de Rav Sheshet et
 La Gemara demande concernant la <i>baraita</i> citée précédemment : <b>Et qu'est-ce qui est différent</b> dans <b>la première clause,</b> où la vente n'est pas valable, <b>et qu'est-ce qui est différent</b> dans <b>la dernière clause,</b> où la vente est valable ? Dans les deux cas, le vendeur n'est pas encore propriétaire de la marchandise. <b>Rabbi Yoḥanan a dit:</b> Dans <b>la dernière clause,</b> lorsque le vendeur déclare : Je vends <b>ce que j'hériterai de mon père aujourd'hui,</b> il le fait <b>pour l'honneur de son père.</b> Il croit que son père mourra ce jour-là, et son intention est de réunir de l'argent pour l'enterrement. Par conséquent, les Sages ont institué une ordonnance selon laquelle la vente est valide. De même, dans le cas d'une personne qui dit : <b>Ce que mon filet va attraper aujourd'hui</b> vous est vendu,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

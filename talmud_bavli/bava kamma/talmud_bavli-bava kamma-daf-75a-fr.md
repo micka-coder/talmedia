@@ -57,4 +57,4 @@ La Guemara note : <b>Il a également été dit</b> que <b>Rabbi Ḥiyya bar Abba
 <b>Pourquoi ai-je</b> besoin de la mishna pour <b>enseigner</b> au début de ce cas : Si l'on <b>stole</b> un bœuf ou un mouton, comme établi <b>sur la base</b> de la déposition de <b>deux</b> témoins ? <b>Laissons</b> le mishna <b>enseigner</b> le cas plus simplement : Si quelqu'un <b>stole</b> un animal <b>et</b> ensuite <b>l'abat ou le vend</b>, comme établi <b>sur la base</b> du témoignage d'<b>un témoin ou sur la base de sa propre</b> admission, <b>il ne paie que le principal.</b> Cela servirait à enseigner le même principe d'une manière moins compliquée, sans la nécessité de deux témoins supplémentaires.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

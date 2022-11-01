@@ -45,4 +45,4 @@ La Gemara répond : <b>Rava dit</b> que <b>la mishna était difficile pour</b> R
 <strong>GEMARA:</strong> <b>Quel est le sens de : <b>À condition que</b> mon <b>père veuille</b> ces fiançailles ? <b>Si l'on dit</b> que cela signifie qu'ils ne sont pas mariés <b>jusqu'à ce que</b> son <b>père dise oui,</b> indiquant son accord, alors <b>dit la clause médiane</b> de la mishna : Si <b>le père meurt, elle est fiancée. Mais</b> comment peut-elle être fiancée ? Après tout, <b>il n'a pas dit oui,</b> et la condition n'a pas été remplie. <b>Au contraire,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

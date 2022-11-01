@@ -39,4 +39,4 @@ La Guemara rejette cette contestation : <b>Comment peut-on</b> ces cas <b>être 
 La Gemara rejette cette idée : <b>Comment</b> ces cas peuvent-ils <b>être comparés ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

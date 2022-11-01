@@ -54,4 +54,4 @@
 <b>Et cela s'accomplira si vous écoutez</b> Et cette chose s'accomplira pour vous si vous écoutez, etc.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

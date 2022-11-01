@@ -36,4 +36,4 @@ La Guemara conteste : <b>Si oui, dites la dernière clause : Rabbi Elazar, fils 
 Abba Elazar ben Gomel explique : <b>De même que la <i>teruma</i> standard est prélevée par estimation,</b> car il n'est pas nécessaire de mesurer précisément la quantité séparée ; <b>et</b> elle peut être prélevée <b>par la pensée,</b> car on n'est pas tenu de la séparer physiquement avant de consommer le reste des produits, <b>de même, la <i>teruma</i> de la dîme peut être prélevée par estimation</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

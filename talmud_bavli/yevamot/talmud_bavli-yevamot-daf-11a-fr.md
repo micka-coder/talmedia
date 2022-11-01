@@ -42,4 +42,4 @@ Puisque cette réponse est d'une évidence écrasante, la Gemara demande : <b>Et
 <b>Rav Ashi a soulevé une objection</b> à l'opinion du Rav à partir d'une source différente : La <i>halakha</i> est qu'une femme qui a été avertie par son mari de ne pas s'isoler avec un homme spécifique et qui pourtant est <b>entrée</b> seule <b>avec lui en privé, et est restée avec lui</b> assez longtemps <b>pour être souillée,</b> c'est-à-dire suffisamment de temps pour avoir des relations sexuelles, elle <b>est interdite à sa maison,</b> c'est-à-dire à son mari, à partir de ce moment jusqu'à ce qu'elle subisse le rituel de la <i>sota</i>. <b>Et</b> de même, si elle était l'épouse d'un prêtre <b>elle est interdite de participer au <i>teruma</i>,</b> car elle était éventuellement disqualifiée par l'infidélité. <b>Et s'il meurt, elle accomplit la <i>ḥalitza</i></b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

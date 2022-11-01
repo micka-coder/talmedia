@@ -40,4 +40,4 @@
 <b>Et Shophach le général</b> Et dans Samuel (ad loc.) il est écrit : "et Shobach le général." Nos rabbins ont expliqué dans Sotah (42b) : "Shobach, parce qu'il était aussi grand qu'un pigeonnier (שׁוֹבָךְ). Shophach, parce qu'il verserait (שׁוֹפֵךְ) du sang comme de l'eau."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

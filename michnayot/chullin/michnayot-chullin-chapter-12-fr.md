@@ -14,5 +14,5 @@ Si l'on a pris la mère avec les petits : Rabbi Juda dit : il a subi [quarante] 
 ### michna 5
 On ne doit pas prendre la mère avec le petit, même pour purifier la metzora. Si pour un commandement aussi léger, qui traite de ce qui ne vaut qu'un issar, la Torah a dit : "Afin que vous vous portiez bien et que vous ayez une longue vie", combien plus [doit être la récompense] pour l'observance des commandements plus difficiles de la Torah !
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -12,4 +12,4 @@
 La Guemara commente : <b>Mais tout le monde,</b> aussi bien Rabbi Meir que les sages, <b>s'accordent à dire que</b> les vêtements du <b>matin sont supérieurs</b> et doivent avoir plus de valeur que ceux de l'après-midi. <b>D'où dérive-t-on</b> cela ? <b>Rav Huna, fils de Rav Ilai, dit</b> qu'en ce qui concerne les vêtements de lin revêtus par le Grand Prêtre le matin, <b>le verset dit : </b> "Il sera vêtu d'une tunique sacrée en lin, d'un pantalon en lin à cèté de sa chair, il sera ceint d'une ceinture en lin, et il portera une mitre en lin" (Léviticus 16:4). Du fait que le verset répète quatre fois le terme lin, on en déduit que le <b>linge le plus chic</b> doit être utilisé à cet effet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -11,5 +11,5 @@ Une coupe dont la plus grande partie est brisée est pure. Si elle a été bris�
 ### michna 4
 Un petit flacon dont on a enlevé le col reste susceptible d'être impur, mais un grand flacon dont on a enlevé le col devient pur. [Un petit flacon] d'huile de nard dont le col a été enlevé devient pur, car il égratigne la main. Les grands flacons dont le col a été retiré restent susceptibles d'être impurs, car ils sont adaptés à l'usage de contenir des aliments marinés. Un entonnoir en verre est pur. Rabbi Yose a dit : Heureux es-tu Kelim, car tu as commencé par l'impureté, mais tu as fini par la pureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

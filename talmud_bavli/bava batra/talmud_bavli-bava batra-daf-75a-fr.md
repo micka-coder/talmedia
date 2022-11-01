@@ -54,4 +54,4 @@ La Guemara pose une question par rapport au verset ci-dessus : <b>Pourquoi</b> d
 La Gemara demande : <b>Quel est le sens de la phrase : <b>"Le travail de tes tambours et de tes trous [<i>nekavekha</i>]"</b> (Ezéchiel 28:13) ? <b>Rav Yehuda dit</b> que <b>Rav dit : Le Saint, Béni soit-Il, dit à Hiram, roi de Tyr :</b> Etais-tu dans le jardin d'Eden quand j'ai créé tout cela pour toi ? <b>Je t'ai regardé,</b> j'ai vu que tu revendiquerais un jour la divinité pour toi-même, <b>et j'ai créé de nombreux orifices [<i>nekavim</i>] dans l'homme,</b> c'est-à-dire le système excréteur, afin que tu saches que tu es un humain et non un dieu. <b>Et il y a</b> ceux <b>qui disent</b> que <b>ceci</b> est ce que Dieu <b>a dit</b> à Hiram : <b>Je t'ai regardé</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

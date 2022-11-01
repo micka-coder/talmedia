@@ -48,4 +48,4 @@ La Gemara objecte : Ceci est <b>difficile,</b> car il y a une contradiction <b>e
 La Gemara demande : <b>Et d'où dites-vous que</b> il y a <b>une différence pour nous entre</b> une lame qui était <b>attachée dès le départ</b> et une lame qui était <b>attachée et finalement il l'a rattachée ? Comme il est enseigné</b> dans un <i>baraita</i> : En ce qui concerne <b>celui qui égorge avec un mécanisme [<i>bemukhni</i>]</b> d'une roue à laquelle est attaché un couteau, <b>son abattage est valable ; avec</b> un objet qui est <b>attaché au sol, son abattage est valable ;</b> si <b>quelqu'un a encastré un couteau dans un mur et a abattu avec, son abattage est valable. </b> S'il y avait <b>un silex émergeant d'un mur ou un roseau surgissant</b> du sol <b>par lui-même et qu'il a abattu avec, son abattage n'est pas valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

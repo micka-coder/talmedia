@@ -101,7 +101,7 @@
 <b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Chmouel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La troisième année.</b> De la rébellion de Hoshei'a.</sup>1</sup><i class="footnote">Voir ci-dessus, 17:1, et Rachi à cet endroit.</i> <sup>2</sup><i class="footnote">C'est-à-dire que la troisième année de la rébellion de Hoshei'a contre Ashur et de la déclaration de son indépendance, Chizkiyoh devint roi.-Metzudas David</i>
 
@@ -204,4 +204,4 @@
 <b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Chmouel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

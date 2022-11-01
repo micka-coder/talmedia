@@ -27,4 +27,4 @@ La mishna conclut : <b>Et quand</b> le Grand Prêtre <b>veut, il</b> peut simple
 Cette mishna démontre apparemment un cas de placement des mains effectué sur un animal abattu. Pour résoudre cette difficulté, <b>Abaye dit:</b> Dans la mishna <b>là,</b> l'imposition des mains n'est pas en accomplissement de l'exigence de le faire à une offrande ; plutôt, il est fait simplement <b>en raison de l'éminence du Grand Prêtre,</b> afin que son sacrifice des membres d'une offrande soit plus distingué que lorsqu'il est effectué par des prêtres ordinaires.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

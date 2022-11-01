@@ -39,4 +39,4 @@ La Gemara demande : <b>Qui</b> sont les Sages auxquels il est fait référence i
 La Guemara relate que <b>Rabbi Yona et Rabbi Yirmeya,</b> qui étaient <b>élèves de Rabbi Zeira,</b> étaient en désaccord sur cette question. <b>Et certains disent</b> que ce sont <b>Rabbi Yona et Rabbi Zeira, élèves de Rabbi Yoḥanan,</b> qui étaient en désaccord. <b>L'un d'eux dit : Mais les rabbins disent</b> que celui qui est <b>suspect à l'égard</b> des produits de l'année <b>sabbatique</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

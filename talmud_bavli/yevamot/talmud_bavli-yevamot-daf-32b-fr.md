@@ -33,4 +33,4 @@ Ils étaient également en désaccord sur une question similaire. Ce différend 
 <b>Rabbi Ḥiyya a commencé à délibérer. Une carcasse d'animal non abattu était interdite à tous. Lorsqu'elle était autorisée dans le Temple, elle était autorisée aux prêtres</b> uniquement. Puisque <b>elle était permise aux prêtres et non aux non-prêtres, il y a</b> une transgression <b>ici due à</b> son <b>statut de non-prêtre</b> qui a mangé de l'offrande pour le péché <b>et il y a une</b> transgression <b>ici due à</b> la consommation d'un animal tué par <b>épinglage</b>. Bar Kappara commença à délibérer : Une carcasse d'animal non abattu était interdite à tous. Lorsqu'elle était autorisée dans le Temple, elle était autorisée</b> à tous. Par conséquent, <b>il y a</b> une transgression <b>ici seulement pour avoir été un non-prêtre,</b> puisque s'il était prêtre, il n'y aurait pas d'interdiction du tout.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

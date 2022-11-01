@@ -36,7 +36,7 @@ La Guemara fournit <b>un moyen mnémotechnique</b> pour les noms des <i>amora'im
 <b>Rav Ashi a dit : En fait,</b> ce sont <b>les témoins qui le disent</b>, <b>et</b> c'est un cas <b>où leur écriture ne sort pas d'un autre endroit. Et</b> en ce qui concerne <b>ce que vous dites : Pourquoi ne sont-ils pas jugés crédibles,</b> c'est <b>conforme</b> à l'avis de <b>Rav Kahana, car Rav Kahana a dit : Il est interdit à une personne de conserver un document de confiance dans sa maison, comme il est dit :</b> "Et <b>ne laissez pas l'injustice habiter dans vos tentes"</b> (Job 11:14). Ce faux document est susceptible d'engendrer l'injustice lorsque le prêteur cherche à percevoir le paiement avec ce document.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Il y a <b>une présomption que les témoins signent sur le document seulement si</b> la transaction <b>a été faite lorsque</b> les deux parties à la transaction sont <b>adultes.</b> Un corollaire de cette présomption est que chaque partie ne signerait que des témoins adultes sur le document. <b>Cependant,</b> si leur témoignage était qu'ils ont été <b>contraints</b> de signer le document, <b>quelle est la raison</b> pour laquelle Rabbi Meir juge que leur témoignage n'est pas accepté ?
 
@@ -74,4 +74,4 @@ La Guemara fournit <b>un moyen mnémotechnique</b> pour les noms des <i>amora'im
 <b>Rav Ashi a dit : En fait,</b> ce sont <b>les témoins qui le disent</b>, <b>et</b> c'est un cas <b>où leur écriture ne sort pas d'un autre endroit. Et</b> en ce qui concerne <b>ce que vous dites : Pourquoi ne sont-ils pas jugés crédibles,</b> c'est <b>conforme</b> à l'avis de <b>Rav Kahana, car Rav Kahana a dit : Il est interdit à une personne de conserver un document de confiance dans sa maison, comme il est dit :</b> "Et <b>ne laissez pas l'injustice habiter dans vos tentes"</b> (Job 11:14). Ce faux document est susceptible d'engendrer l'injustice lorsque le prêteur cherche à percevoir le paiement avec ce document.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ De même, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Un tissu d
 <b>Rava lui a dit : Il a dérivé</b> au moyen d'une analogie verbale.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

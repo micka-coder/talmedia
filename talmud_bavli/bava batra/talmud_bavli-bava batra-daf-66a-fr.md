@@ -24,4 +24,4 @@ La Guemara répond : <b>En fait,</b> on peut expliquer que la <i>baraita</i> <b>
 La Gemara demande : <b>Par déduction,</b> du fait que Rabbi Eliezer est plus sévère dans le cas du conduit et fait la distinction entre un conduit qui a été d'abord creusé et seulement ensuite fixé au sol, et un conduit qui a été d'abord fixé au sol et seulement ensuite creusé, ne s'ensuit-il pas <b>que</b> la <i>halakha</i> régissant l'eau <b>tirée</b>, c'est-à-dire, que l'eau tirée ajoutée à un bain rituel qui ne contient pas déjà la quantité d'eau nécessaire l'invalide, s'applique <b>selon la loi de la Torah ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

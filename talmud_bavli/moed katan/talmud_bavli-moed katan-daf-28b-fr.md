@@ -87,4 +87,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> que <b>le prêtre lui-même</b> es
 § La Guemara revient à sa discussion sur la mort : <b>Rabbi Ḥanina a dit : Le départ de l'âme du corps est aussi difficile</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

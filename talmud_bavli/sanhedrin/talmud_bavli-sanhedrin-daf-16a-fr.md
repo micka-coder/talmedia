@@ -63,4 +63,4 @@ Une fois, <b>ils lui ont dit : Notre maître le roi, votre nation, Israël, a be
 Les Sages ont <b>immédiatement demandé conseil à Ahithophel</b> pour déterminer s'il était approprié ou non de partir en guerre à ce moment-là et comment ils devaient se conduire ; <b>et ils ont consulté le Sanhédrin</b> afin de recevoir l'autorisation requise pour faire la guerre dans ces circonstances ; <b>et ils ont demandé aux <i>Urim VeTummim</i></b> s'ils devaient ou non partir en guerre, et s'ils allaient réussir ou non. <b>Rav Yosef dit : Quel</b> est <b>le verset</b> dont est issue cette <i>aggada</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

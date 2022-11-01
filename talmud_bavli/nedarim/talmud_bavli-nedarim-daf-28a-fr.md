@@ -42,4 +42,4 @@ La Guemara résout la contradiction : <b>La mishna a enseigné</b> la <i>halakha
 <strong>MISHNA :</strong> Si quelqu'un voit ses biens en danger d'être détruits, et qu'il fait un vœu en déclarant, par exemple : <b>Ces jeunes arbres sont</b> comme <b>une offrande s'ils ne sont pas coupés</b>, ou : <b>Ce vêtement est</b> comme <b>une offrande s'il n'est pas brûlé,</b> ces objets sont consacrés si les jeunes arbres restent debout ou si le vêtement n'est pas brûlé. De plus, <b>ils sont sujets</b> à la possibilité de <b>rachat</b> tout comme les autres objets consacrés pour l'entretien du Temple peuvent être rachetés. Mais si l'on dit : <b>Ces jeunes arbres sont</b> comme <b>une offrande jusqu'à ce qu'ils soient coupés</b>, ou : <b>Ce vêtement est</b> comme <b>une offrande jusqu'à ce qu'il soit brûlé,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

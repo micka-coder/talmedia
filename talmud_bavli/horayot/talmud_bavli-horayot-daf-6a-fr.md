@@ -42,4 +42,4 @@ La Gemara demande : <b>Mais est-ce que</b> ceux qui s'adonnaient au culte des id
 <b>Rav Yosef dit à</b> Abaye : <b>Les prêtres, tu dis ? Les prêtres sont différents, car ils sont caractérisés comme une congrégation</b> en soi, <b>comme il est écrit : "Et pour les prêtres et pour tout le peuple de la congrégation, il fera l'expiation"</b> (Lévitique 16:33).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

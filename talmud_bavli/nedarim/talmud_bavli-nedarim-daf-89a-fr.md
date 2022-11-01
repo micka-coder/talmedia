@@ -24,4 +24,4 @@ La mishna de : <b>C'est le principe, qui est enseigné dans</b> ce chapitre, app
 <strong>MISHNA :</strong> Il y a <b>neuf jeunes femmes dont les vœux sont maintenus</b> et ne peuvent être annulés : Si elle a fait un vœu lorsqu'elle était <b>une femme adulte et qu'elle est orpheline;</b> si elle a fait un vœu lorsqu'elle était <b>une jeune femme, et qu'elle a atteint sa majorité, et qu'elle est orpheline;</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

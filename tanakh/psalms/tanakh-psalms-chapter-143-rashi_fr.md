@@ -27,4 +27,4 @@
 <b>Vers Toi j'ai caché</b> Mes tribulations, je les cache à tous les hommes pour te les raconter.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

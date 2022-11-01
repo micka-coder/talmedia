@@ -57,4 +57,4 @@ La Guemara explique pourquoi un tribunal ne peut pas statuer sur les affaires de
 La Guemara revient sur le commentaire antérieur de Rabbi Yishmael au nom de son père Rabbi Yosei ben Ḥalafta, selon lequel l'Empire romain a régné sur Israël cent quatre-vingts ans avant la destruction du second Temple. La Guemara demande : Rome a-t-elle régné sur Israël pendant <b>cent quatre-vingt</b> ans avant la destruction du Temple <b>et pas plus ? Mais Rabbi Yosei le Grand,</b> c'est-à-dire Rabbi Yosei ben Ḥalafta lui-même, n'a-t-il pas <b>enseigné :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

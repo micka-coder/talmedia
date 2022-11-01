@@ -39,4 +39,4 @@ C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Teharot</i> 6:5) : A 
 La Guemara rejette cet avis : <b>Non,</b> il <b>est différent là,</b> en ce qui concerne les tonneaux de vin. <b>Puisqu'il y a</b> des voleurs <b>qui ouvrent</b> des tonneaux <b>pour peut-être</b> y trouver de l'argent</b> et ne s'intéressent pas au vin, <b>c'est</b> un cas d'incertitude composée,</b> car on ne sait pas si les voleurs étaient des Gentils ou des Juifs, et même s'ils étaient des Gentils, on ne sait pas s'ils ont touché le vin ou non. Dans un cas d'incertitude composée, tout le monde est d'accord pour dire que le vin n'est pas interdit.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

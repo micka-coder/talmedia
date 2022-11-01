@@ -48,4 +48,4 @@ La Guemara rejette cet argument : <b>Au contraire, que</b> peut-on dire ? <b>Que
 La Guemara demande : <b>Au contraire, d'où déduit-on</b> que les années pour les produits suivent le premier tiers de leur croissance ? La Gemara répond : <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yonatan ben Yosef dit :</b> Le verset dit : <b>"Et il donnera du fruit pendant les trois années"</b> (Lévitique 25:21) ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,7 +51,7 @@ La Guemara demande : En <b>quel</b> sens <b>est-il</b> cet enfant <b>un <i>shetu
 A propos de la paternité, la Gemara raconte : Il y avait <b>un certain homme fiancé et sa fiancée,</b> qui était enceinte, <b>qui se présentèrent devant Rav Yosef. Elle a dit</b> qu'elle avait conçu <b>à partir de</b> relations avec <b>lui, et il a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>ou dans une ruine,</b> qui est généralement située en dehors de la ville, et si un homme et une femme s'y rencontrent, c'est vraisemblablement pour avoir des relations sexuelles, <b>et</b> les gens lui <b>disent : Quelle est la nature de cet homme</b> avec lequel tu t'es isolée ? Elle leur a répondu : <b>Il est prêtre, et c'est le fils du frère de mon père,</b> une personne respectable et de lignée irréprochable. <b>Rabban Gamliel et Rabbi Eliezer disent : Elle est jugée crédible. Rabbi Yehoshua dit : </b> Ce n'est <b>pas</b> sur la base de la déclaration sortant <b>de sa bouche</b> que <b>nous menons notre vie ; plutôt, elle</b> assume <b>le statut présumé de</b> celle qui <b>a eu des rapports sexuels avec un Gibéonite ou avec un <i>mamzer</i>,</b> des hommes de lignée défectueuse qui la disqualifient pour épouser un prêtre, <b>jusqu'à ce qu'elle apporte une preuve</b> soutenant <b>sa déclaration. </b>
 
@@ -104,4 +104,4 @@ La Guemara demande : En <b>quel</b> sens <b>est-il</b> cet enfant <b>un <i>shetu
 A propos de la paternité, la Gemara raconte : Il y avait <b>un certain homme fiancé et sa fiancée,</b> qui était enceinte, <b>qui se présentèrent devant Rav Yosef. Elle a dit</b> qu'elle avait conçu <b>des relations avec <b>lui</b>, et il a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

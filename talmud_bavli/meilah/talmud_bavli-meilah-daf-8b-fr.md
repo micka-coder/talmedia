@@ -33,4 +33,4 @@ La Guemara répond que Rav Huna explique ce verset <b>comme il est enseigné</b>
 <b>Rav Aḥa, fils de Rava, dit à Rav Ashi : Si c'est le cas,</b> considérez le fait <b>qu'il est écrit à propos d'une offrande de repas : "Mais ce qui restera</b> de l'offrande de repas appartiendra à Aaron et à ses fils ; c'est une chose très sainte parmi les offrandes de l'Eternel faites par le feu" (Lévitique 2:3). Cela <b>aussi</b> signifie-t-il <b>que si</b> une partie de l'offrande de repas <b>reste</b> alors elle est donnée aux prêtres, mais qu'il n'est pas nécessaire de s'assurer qu'une partie reste <i>ab initio</i> ? <b>Et si vous disiez</b> que c'est <b>en effet</b> le cas ,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

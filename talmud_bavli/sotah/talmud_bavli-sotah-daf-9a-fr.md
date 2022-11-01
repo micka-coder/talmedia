@@ -45,4 +45,4 @@ En ce qui concerne <b>David,</b> la citadelle qui abritait sa maison et sa ville
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> dans la <i>Tosefta</i> (4:16-19) : La <b><i>sota</i> a posé ses yeux,</b> a fixé son regard, <b>sur celui qui est impropre pour elle,</b> c'est-à-dire un autre homme, c'est donc sa punition : <b>Ce qu'elle désirait,</b> c'est-à-dire être avec son amant, <b>ne lui est pas donné,</b> car elle lui devient interdite pour toujours. <b>Et ce qu'elle avait,</b> c'est-à-dire son mari, <b>lui a été retiré,</b> car elle lui est désormais interdite également. Ceci enseigne <b>que quiconque pose ses yeux sur ce qui ne lui appartient pas n'obtient pas ce qu'il désire, et ce qu'il avait lui est retiré.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

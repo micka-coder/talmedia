@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais Ravina ne s'est-il pas opposé</b> à la décision 
 La Guemara rejette cette preuve : <b>Dites la dernière clause : Si</b> ils sont <b>venus pour calculer</b> leurs bénéfices, c'est <b>interdit;</b> cela indique que <b>sans spécification,</b> le faire est <b>permis.</b> La Gemara conclut : <b>Au contraire, aucune</b> déduction n'est <b>à tirer de cette</b> <i>baraita</i>, car les déductions se contredisent.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

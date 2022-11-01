@@ -26,5 +26,5 @@ Il est interdit de planter des légumes dans le tronc d'un sycomore. On ne peut 
 ### michna 9
 Celui qui enterre des navets ou des radis sous une vigne, si certaines de leurs feuilles sont découvertes, il n'a pas à craindre [d'avoir transgressé] les kilayim, ou l'année sabbatique, ou les dîmes et ils peuvent aussi être arrachés le Chabbat. Celui qui plante un [grain] de blé et [un grain] d'orge en même temps, voici le kilayim. Rabbi Judah dit : ce n'est pas un kilayim à moins qu'il y ait deux grains de blé et deux grains d'orge, ou un grain de blé et deux grains d'orge, ou un grain de blé, un grain d'orge et un grain d'épeautre.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

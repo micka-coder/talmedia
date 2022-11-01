@@ -63,4 +63,4 @@ La Gemara note : <b>Et il a été dit</b> que les <i>amora'im</i> n'étaient pas
 La mishna poursuit : Mais si la fenêtre <b>a été faite par la main d'une personne, sa mesure</b> pour laquelle l'impureté rituelle est transmise est <b>comme la taille du trou percé</b> de la <b>grande</b> perceuse <b>de la chambre</b> dans le Temple, <b>qui est comme</b> la taille du <b>pundeyon</b> italien et comme</b> la taille d'une <b>sela</b> de</b> l'empereur <b>Néron. Et sa</b> taille <b>est</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

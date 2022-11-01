@@ -45,4 +45,4 @@ La Gemara relate : <b>Rav Yeimar a connu un témoignage</b> pertinent <b>pour</b
 <b>D'où vient</b> que dans un cas où <b>un juge qui sait</b> que les témoins qui témoignent devant lui mentent même s'il ne peut pas le prouver par leur contre-interrogatoire et <b>en ce qui concerne le verdict</b> le résultat sera <b>qu'il est frauduleux, qu'il ne doit pas dire : Puisque les témoins témoignent</b> et que je ne peux pas prouver leur tromperie, <b>je déciderai</b> de l'affaire sur la base de leur témoignage, <b>et laisserai</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

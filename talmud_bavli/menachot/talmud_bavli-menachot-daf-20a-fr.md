@@ -72,4 +72,4 @@ Dans le cas des membres d'un holocauste, <b>d'autres</b> éléments <b>sont requ
 Il est interdit de participer à un holocauste alors que l'on est en état d'<b>impureté rituelle, comme</b> l'est la <i>halakha</i> à l'égard d'une offrande de repas, ce qui ne concerne pas le sang. Il est soumis aux <i>halakhot</i> de <b>mauvais usage</b> des biens consacrés, <b>comme</b> l'est la <i>halakha</i> par rapport à une offrande de repas, ce qui ne l'est pas par rapport au sang.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

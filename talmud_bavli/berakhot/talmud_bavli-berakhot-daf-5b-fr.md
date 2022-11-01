@@ -81,4 +81,4 @@ Une autre des declarations d'Abba Binyamin concernant les lois de la priere <b>a
 <b>Et s'il l'attend</b> dans la synagogue, quelle est sa recompense ? Sa recompense est-elle proportionnelle a la punition recue par celui qui a omis de le faire ?
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

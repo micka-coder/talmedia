@@ -76,4 +76,4 @@
 <b>Celui qui écoute écoutera</b> Cela ne fait pas partie de la mission. Au contraire, l'esprit saint a dit au prophète : "Tu leur dis Mon message, et quant à eux, celui qui écoute écoutera, et celui qui s'abstient s'abstiendra, car je sais qu'ils n'écouteront pas tous, car c'est une maison rebelle."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

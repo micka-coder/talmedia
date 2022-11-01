@@ -63,4 +63,4 @@ Rav Ḥisda <b>lui a dit :</b> L'offrande reste <b>adéquate, et un verset appui
 <b>Rav Sheshet soulève une objection</b> à partir d'une <i>baraita</i> : Si <b>un non-prêtre, ou une personne en deuil aigu,</b>...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

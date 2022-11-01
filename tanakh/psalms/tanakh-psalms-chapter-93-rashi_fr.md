@@ -17,4 +17,4 @@
 <b>Hébergement</b> Héb.  נאוה", comme (83:13) : "les habitations  נְאוֹת  de Dieu," une expression de  נָוֶה". Vous devez savoir [qu'il en est ainsi] parce qu'aucun exemple de  נָאוָה " n'a un "halèphe" prononcé, car ils sont une expression de  נוֹי  beauté, mais celui-ci a un "halèphe" qui est prononcé.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -78,4 +78,4 @@
 <b>Jusqu'au jour de l'exil du pays.</b> A l'époque de Sancheriv, lors du premier exil.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

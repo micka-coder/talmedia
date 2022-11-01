@@ -45,4 +45,4 @@ Rav Asi <b>se présenta devant Rabbi Elazar,</b> car il ne savait pas comment in
 <b>Un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

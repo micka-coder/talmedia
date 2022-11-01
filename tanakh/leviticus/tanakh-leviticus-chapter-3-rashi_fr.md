@@ -47,5 +47,5 @@
 ### passuk 17
 <b>Un statut éternel. </b><i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce verset entier est bien expliqué dans le Toras Kohanim.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

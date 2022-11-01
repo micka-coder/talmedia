@@ -42,4 +42,4 @@ La Guemara demande : <b>Selon les rabbins,</b> qui soutiennent que trois ans, et
 <b>Abaye lui dit : Peut-être là, il</b> ne fait que <b>nous donner un bon conseil,</b> à savoir qu'il est conseillé d'avoir des documents pour éviter d'avoir à présenter des témoins qui peuvent attester que l'on avait vécu sur la terre. Il ne s'agit pas d'une preuve que la présomption de propriété ne peut être établie en moins de trois ans.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

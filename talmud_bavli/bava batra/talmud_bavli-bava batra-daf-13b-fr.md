@@ -36,4 +36,4 @@ La Guemara déclare : Lorsque différents livres sont inclus dans le même roule
 <b>Les Sages ont enseigné</b> dans un <i>baraita</i> : <b>Celui qui souhaite attacher la Torah, les Prophètes et les Écrits ensemble en un</b> rouleau <b>peut les attacher</b>. <b>Il doit laisser suffisamment</b> de parchemin vide <b>au début</b> du rouleau <b>pour l'enrouler autour du poteau</b> auquel est fixé le début du rouleau. <b>Et à la fin</b> du parchemin, il doit laisser suffisamment de parchemin vide <b>pour l'enrouler autour de</b> toute la <b>circonférence</b> du parchemin enroulé. <b>Et il peut terminer</b> un livre <b>au bas</b> d'une colonne <b>et commencer</b> le livre suivant <b>au haut</b> de la colonne suivante sans laisser d'espace vide entre eux.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

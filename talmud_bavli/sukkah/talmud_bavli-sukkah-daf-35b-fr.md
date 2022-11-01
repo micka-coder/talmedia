@@ -45,4 +45,4 @@ La mishna poursuit : <b>Et si l'on a pris</b> un <i>térogène</i> de seconde d�
 La mishna poursuit : Une <i>crogue</i> qui <b>a été épluchée</b> est impropre. <b>Rava dit : Cette <i>crogue</i> qui a été pelée comme une datte rouge</b> de sorte que seule sa fine pelure extérieure est enlevée mais que le reste reste reste intact, <b>est apte.</b> La Gemara objecte : <b>Mais n'avons-nous pas appris</b> explicitement dans la mishna : Si la <i>crogue</i> <b>était pelée</b> elle est impropre ? La Guemara répond : Ce n'est <b>pas difficile;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

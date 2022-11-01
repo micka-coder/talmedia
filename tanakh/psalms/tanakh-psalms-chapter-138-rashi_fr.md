@@ -22,4 +22,4 @@
 <b>Les oeuvres de tes mains</b> Le Temple, au sujet duquel il est dit (Exod. 15:16) : "Tes mains ont établi."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

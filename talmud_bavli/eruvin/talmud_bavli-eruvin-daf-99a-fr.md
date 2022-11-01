@@ -66,4 +66,4 @@ La Guemara exprime sa surprise face à cette décision : <b>Mais ne le fait-il p
 <b>Abaye a dit</b> en explication de son opinion : <b>D'où est-ce que je dis que</b> <i>halakha</i> ? <b>D'après</b> le fait <b>qu'il est enseigné</b> dans la mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

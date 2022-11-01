@@ -115,4 +115,4 @@
 <b>Elle monte aussi en haut</b> Heb. על. Il [s'élève] aussi de plus en plus haut [de cette manière], comme (Osée 7, 16) : "Ils reviendront, mais pas vers le Très-Haut (על)" ou (II Sam. 23, 1) : "élevé en haut (על)." [Nos Sages, cependant, l'interprètent (Taanith 8a) comme l'acquisition de la colère et de la fureur sur celui qui devient hautain [après que ses prières aient été exaucées], mais la voyellisation, à savoir que  est voyellisé dans le sens d'une augmentation du nombre d'enfants. que מִקְנֶה est voyellé avec un "pattah" [signifiant un "seggol"], ne corrobore pas [la théorie] qu'il est relié à אַף, car s'il était relié à אַף, il serait voyellé avec un "kamatz" [signifiant un "tzeireh"], et il ne serait pas ponctué par un signe de cantillation qui dénote une pause, à savoir. un revi'i.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara demande : S'il en est ainsi, il y a une <b>difficulté</b> en ce qui c
 La Gemara demande : <b>Mais en ce qui concerne un esclave dont le temps d'être transféré est arrivé,</b> est-il <b>nécessaire de dire</b> qu'il est émancipé ? N'est-il pas évident qu'une fois transféré sous l'autorité du Gentil, il est émancipé, comme dans le cas d'une vente ? <b>Au contraire,</b> la Gemara propose une explication différente : <b>Ce</b> cas <b>et ce</b> cas font référence à <b>lorsque son moment</b> d'être transféré <b>n'est pas</b> encore <b>arrivé, et</b> ce n'est <b>pas difficile : Ceci,</b> le cas de l'esclave qui est affranchi, est par rapport <b>à</b> l'esclave <b>lui-même,</b> comme l'esclave lui-même doit être transféré au Gentil, <b>et ce</b> cas est par rapport <b>à</b> la <b>production. </b> En d'autres termes, le créancier juif a les droits sur le produit du champ, mais il ne prend pas possession du champ lui-même. Par conséquent, il reste exempté de la dîme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

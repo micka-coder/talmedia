@@ -57,4 +57,4 @@ Nous avons appris dans la mishna que <b>Rabbi Yehuda dit : Si</b> le propriétai
 La Gemara relate un autre incident impliquant Bonyas et sa richesse : Le <b>fils de Bonyas se présenta devant Rabbi</b> Yehuda HaNasi. Se rendant compte, au vu des vêtements de son visiteur, qu'il avait affaire à un individu fortuné, Rabbi Yehuda HaNasi <b>dit à</b> ses préposés : <b>Faites place à celui</b> qui possède <b>cent <i>maneh</i>,</b> c'est-à-dire cent fois cent <i>zuz</i>, car une personne de ce statut mérite d'être honorée en fonction de ses richesses. Plus tard, <b>une autre personne se présenta</b> devant lui, et Rabbi Yehuda HaNasi se tourna à nouveau vers ses assistants et leur <b>dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

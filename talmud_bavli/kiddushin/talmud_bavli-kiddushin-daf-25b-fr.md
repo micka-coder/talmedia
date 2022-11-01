@@ -18,4 +18,4 @@ La Guemara demande : Rabbi Yehuda pourrait-il éventuellement vouloir dire que c
 <b>Rabbi Zeira dit</b> qu'il existe une autre méthode : On <b>apporte quatre récipients et on les place sous</b> les <b>pieds de l'éléphant,</b> et il l'acquiert ainsi comme tout autre objet qui se trouve à l'intérieur des récipients de l'acheteur. La Gemara demande : Peut-on <b>apprendre de</b> la déclaration de Rabbi Zeira que si les <b>vases de l'acheteur,</b> utilisés pour acquérir un objet du vendeur, <b>se trouvent dans le domaine du vendeur, l'acheteur acquiert</b> l'objet ? La Gemara rejette cette affirmation : Ce n'est pas une preuve, car <b>De quoi s'agit-il ici ?</b> Le cas en question est celui où les récipients ne sont pas dans le domaine du vendeur mais <b>dans une ruelle [<i>simta</i>],</b> qui n'est ni un domaine public ni un domaine privé. Dans un lieu de ce genre, les navires de l'acheteur effectuent certainement l'acquisition pour lui.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara conteste : <b>Accordé, selon celui qui dit</b> qu'en ce qui concerne 
 § En ce qui concerne les mots "repos" et "héritage" dans le verset précité, <b>l'école de Rabbi Yishmael a enseigné</b> que <b>ceci et cela,</b> c'est-à-dire les deux termes, sont une référence à <b>Shiloh. Rabbi Shimon ben Yoḥai dit : Ceci et cela</b> sont une référence à <b>Jérusalem.</b> La Gemara demande : <b>Accordé, selon celui qui dit</b> qu'en ce qui concerne le <b>"repos", ceci</b> est...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

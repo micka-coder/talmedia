@@ -20,5 +20,5 @@ Une personne entre dans une ville et ne connaît personne. Il dit : "Qui est dig
 ### michna 7
 Si des conducteurs d'ânes entraient dans une ville et que l'un d'eux déclarait : "Mon produit est neuf mais celui de mon ami est vieux," ou, "Mon produit n'a pas été soumis à la dîme mais celui de mon ami l'a été," on ne peut pas leur faire confiance. Rabbi Judah dit : on peut leur faire confiance.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

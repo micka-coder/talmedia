@@ -48,4 +48,4 @@ Ceci vient enseigner : <b>Vous</b> [<b><i>atem</i></b>] êtes autorisés à dét
 <b>Et</b> de même <b>il est dit : "Et Samuel dit au peuple : C'est le Seigneur qui a fait Moïse et Aaron"</b> (I Samuel 12:6). <b>Et il est dit</b> plus loin : <b>Et le Seigneur envoya Jerubaal et Bedan et Jephthah et Samuel"</b> (I Samuel 12:11). La Gemara explique : <b>Jerubaal, c'est Gédéon. Et pourquoi est-il appelé Jerubaal ? </b> La raison est <b>qu'il a mené une querelle contre Baal. Bedan, c'est Samson. Et pourquoi est-il appelé Bedan ? Car il venait de</b> la tribu de <b>Dan. Jephthah, conformément à son</b> <b>sens régulier,</b> c'est-à-dire qu'il s'agit de Jephthah lui-même et non d'un surnom.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

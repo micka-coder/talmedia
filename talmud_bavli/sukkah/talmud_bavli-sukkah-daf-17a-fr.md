@@ -33,4 +33,4 @@ Dans le cas d'une <b>maison qui a fait l'objet d'une brèche,</b> créant un tro
 <b>Et je leur ai dit : Quelle est cette</b> comparaison ? <b>Accordé, selon</b> mon opinion, <b>que je dis</b> que la mesure de toiture impropre qui rend une <i>sukka</i> impropre est de <b>quatre coudées,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

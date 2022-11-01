@@ -130,5 +130,5 @@
 ### passuk 33
 <b>Pour que vous [puissiez] adorer.</b> Vous avez ici le mot כִּי utilisé dans le sens de אֲשֶׁר . C'est également vrai en divers endroits. Ceci (l'usage ici) est en fait אִי qui est l'un des quatre sens de כִּי . On trouve souvent [le mot] אִם utilisé pour véhiculer אֲשֶׁר , comme dans : " וְאִם tu offriras une <i>minchah</i> des premiers fruits " qui est en fait obligatoire. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

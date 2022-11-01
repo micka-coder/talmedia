@@ -12,4 +12,4 @@ Rabbi Akiva <b>leur dit : C'est pourquoi je ris, comme il est écrit,</b> lorsqu
 <b>Dans</b> la prophétie d' <b>Urie, il est écrit : "C'est pourquoi, à cause de toi, Sion sera labourée comme un champ,</b> Jérusalem deviendra des décombres, et le Mont du Temple comme les hauts lieux d'une forêt" (Michée 3:12), où l'on trouve des renards. Une tradition rabbinique veut que cela ait été prophétisé par Urie. <b>Dans</b> la prophétie de <b>Zacharie, il est écrit : "Il y aura encore des hommes âgés et des femmes âgées assis dans les rues de Jérusalem"</b> (Zacharie 8:4). <b>Jusqu'à ce que la prophétie d'Urie</b> concernant la destruction de la ville <b>se réalise, je craignais que la prophétie de Zacharie ne se réalise pas,</b> car les deux prophéties sont liées. <b>Maintenant que la prophétie d'Urie s'est accomplie, il</b> est <b>évident que la prophétie de Zacharie</b> reste <b>valide.</b> La Gemara ajoute : Les Sages lui ont <b>dit,</b> en employant <b>cette formulation : Akiva, tu nous as réconfortés ; Akiva, tu nous as réconfortés.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

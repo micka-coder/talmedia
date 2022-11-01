@@ -84,4 +84,4 @@ Les Sages ont rejete cette pretention <b>et lui ont dit</b> que ces versets ne <
 <b>Sur une note similaire</b>, <b>vous dites :</b> Le sens des expressions : Il ne dira pas, et ils ne mentionneront plus, n'est pas absolu, comme dans le verset : <b>Votre nom ne sera plus appele Jacob ; plutot, Israel sera votre nom</b> (Genese 35, 10). La aussi, le sens est
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

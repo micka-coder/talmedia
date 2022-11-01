@@ -57,4 +57,4 @@ Ceci est <b>tel qu'il est enseigné</b> dans un <i>baraita</i> : <b>Ḥanan l'é
 § La Gemara traite de <b>la</b> matière <b>elle-même : Elle est enseignée</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b> Un prêtre <b>remplissait une coupe avec le sang mêlé,</b> de sorte <b>que si l'une</b> des coupes contenant le sang recueilli d'une des offrandes pascales <b>se renversait,</b> il serait <b>trouvé que cette</b> coupe du sang mêlé qui a été aspergée <b>rendrait</b> le sacrifice <b>valide.</b> Les rabbins <b>ont dit à Rabbi Yehuda : Mais</b> le sang mélangé <b>n'a pas été recueilli dans un récipient.</b> La Guemara demande : <D'où les rabbins savent-ils que le sang n'a pas été recueilli dans un récipient ? Peut-être a-t-il été recueilli et s'est-il répandu. <b>Au contraire,</b> c'est ce qu'ils disent : <b>Peut-être qu'il n'a pas été recueilli dans un récipient.</b> Rabbi Yehuda <b>leur a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

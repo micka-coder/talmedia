@@ -24,4 +24,4 @@ La Guemara répond : <b>Rav Hamnuna soutient</b> que <b>là aussi,</b> la femme 
 § On raconte qu'il y avait <b>une certaine femme, qui</b> tous les jours où elle avait des <b>rapports sexuels</b> avec son mari, <b>se levait tôt</b> le matin <b>et lavait</b> les mains de son <b>mari. Un jour, elle lui apporta de l'eau pour laver</b> ses mains, en réponse à quoi <b>il lui dit : Cette affaire,</b> c'est-à-dire le rapport sexuel, <b>n'a pas eu lieu maintenant. Elle lui a répondu : Si c'est le cas,</b> il se peut que <b>quelqu'un des <b>gentils</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

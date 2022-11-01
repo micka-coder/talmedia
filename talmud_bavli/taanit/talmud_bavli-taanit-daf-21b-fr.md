@@ -48,4 +48,4 @@ La Guemara demande : <b>Et quels étaient ces</b> actes justes d'Abba le Sanguin
 <b>Quand un érudit de la Torah venait le voir</b> pour une saignée, <b>il ne prenait aucun salaire de sa part, et après</b> que l'érudit ait <b>arossé,</b> Abba <b>lui donnait de l'argent et lui disait : Va</b> et achète de la nourriture avec cet argent <b>pour te soigner,</b> car il est important de manger une nourriture saine après une saignée. <b>Un jour, Abaye envoya une paire de Sages pour enquêter</b> l'étendue de la droiture d'Abba le Sanguinaire'. Abba le Sanguinaire <b>les fit asseoir, et leur donna</b> de la nourriture <b>à manger, et leur donna</b> quelque chose <b>à boire. Et la nuit, il étendit des nattes [<i>bistarkei</i>] pour qu'ils</b> puissent y dormir.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

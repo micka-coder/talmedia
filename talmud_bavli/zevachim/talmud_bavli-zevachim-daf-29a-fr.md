@@ -42,4 +42,4 @@ La Guemara demande : <b>Et ben Azzai,</b> qui interprète le terme "il" comme ex
 La Gemara demande : <b>Et</b> en ce qui concerne l'affirmation de <b>ben Azzai</b> selon laquelle on déduit du mot "il" que <b>il,</b> c'est-à-dire <i>piggul</i>, est inclus <b>dans</b> la <i>halakha</i> de : <b>"Il ne sera pas accepté", mais</b> l'animal de celui qui <b>est en retard</b> dans l'accomplissement de <b>son vœu n'est pas</b> inclus <b>dans</b> le <i>halakha</i> de : <b>"Il ne sera pas accepté"</b>, cette <i>halakha</b> est-elle <b>dérivée d'ici ? Elle est dérivée de</b> l'énoncé <b>de <i>Aḥerim</i>, tel qu'il est enseigné</b> dans un <i>baraita</i> : <b><i>Aḥerim</i> disent :</b> On <b>pourrait</b> avoir pensé qu'un <b>premier-né</b> animal <b>dont</b> la première <b>année s'est écoulée,</b> pendant laquelle il aurait dû être sacrifié, <b>devrait être</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

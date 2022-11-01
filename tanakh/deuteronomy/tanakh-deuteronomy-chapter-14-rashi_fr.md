@@ -94,5 +94,5 @@
 <b>Et le prosélyte et l'orphelin.</b> Ils prennent la deuxième dîme, qui appartient à l'indigent cette année. Vous n'êtes pas tenus de la manger à Jérusalem, comme vous êtes tenus de manger la deuxième dîme pendant les deux premières années. 
 <b>Laissez-les manger à leur faim.</b> Donnez-leur de quoi les rassasier. De là, on déduit : "On ne doit pas donner à l'indigent de l'aire de battage moins de, etc.". <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Vous devez apporter à Jérusalem les dîmes de la première et de la deuxième année que vous avez retenues, et confesser : " J'ai dessaisi ma maison des produits sacrés ", comme spécifié dans " Quand vous aurez fini de payer la dîme. " 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

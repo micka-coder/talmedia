@@ -42,4 +42,4 @@
 <b>Espérer pour le Seigneur</b> et si votre prière n'est pas acceptée, renforcez votre espoir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

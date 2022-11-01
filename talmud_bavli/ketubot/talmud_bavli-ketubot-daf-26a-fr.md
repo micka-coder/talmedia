@@ -30,7 +30,7 @@ La Gemara demande : Il <b>est évident</b> que recevoir le <i>teruma</i> en just
 <b>Au contraire, de quel</b> cas <b>s'agit-il ici ? </b> C'est dans un cas <b>où le père de cet</b> homme a établi son <b>statut présomptif de prêtrise devant nous, et une rumeur a émergé à propos</b> du fils <b>selon laquelle il est le fils d'une femme divorcée ou le fils d'une <i>ḥalutza</i>, et</b> par conséquent <b>nous l'avons déclassé</b> du statut présomptif de prêtrise. <b>Et un</b> témoin <b>vint et dit : Je sais qu'il est un prêtre</b> de lignée sans défaut,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara répond : Rabbi Ḥiyya parle <b>d'un cas où le frère <b>s'exprime avec désinvolture</b> dans le contexte d'une conversation sur un autre sujet. On a compris de ce fait que son frère est un lévite. Ceci est <b>similaire à ce que Rav Yehuda a dit</b> que <b>Shmuel a dit :</b> Il y avait <b>un incident impliquant une personne qui parlait avec désinvolture et disait : Je me souviens que lorsque j'étais enfant et</b> encore assez jeune pour être <b>porté sur l'épaule de mon père, on m'a sorti de l'école, on m'a enlevé mon manteau et on m'a immergé</b> pour me purifier de toute impureté rituelle éventuelle, afin que je puisse <b>participer au <i>teruma</i> ce soir-là.</b>
 
@@ -62,4 +62,4 @@ La Gemara demande : Il <b>est évident</b> que recevoir le <i>teruma</i> en just
 <b>Au contraire, de quel</b> cas <b>s'agit-il ici ? </b> C'est dans un cas <b>où le père de cet</b> homme a établi son <b>statut présomptif de prêtrise devant nous, et une rumeur a émergé à propos</b> du fils <b>selon laquelle il est le fils d'une femme divorcée ou le fils d'une <i>ḥalutza</i>, et</b> par conséquent <b>nous l'avons déclassé</b> du statut présomptif de prêtrise. <b>Et un</b> témoin <b>vint et dit : Je sais qu'il est un prêtre</b> de lignée sans défaut,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

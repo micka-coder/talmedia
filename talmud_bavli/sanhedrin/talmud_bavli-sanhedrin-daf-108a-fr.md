@@ -69,4 +69,4 @@ Il est écrit : <b>"De tout ce qui était sur la terre ferme est mort"</b> (Gen�
 La conclusion de ce verset : <b>"Il ne tourne pas par le chemin des vignes", enseigne qu'ils défrichaient un chemin à travers les vignes. Ils ont dit à</b> Noé : <b>Et qui empêche</b> le déluge de venir ? Noé <b>leur répondit : J'ai un pigeon,</b> Mathusalem, qui mourra à son heure, et que je dois <b>éloigner du milieu de vous</b> avant le déluge.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

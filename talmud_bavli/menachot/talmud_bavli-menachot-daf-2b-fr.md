@@ -63,4 +63,4 @@ La guemara rejette cette idée : <b>Est-ce à dire</b> qu'un cas d'<b>offrande d
 La Gemara soulève une autre difficulté : Si une intention fausse reconnaissable ne disqualifie pas une offrande, alors <b>un holocauste d'oiseau où</b> un prêtre a <b>pincé son sang au-dessus</b> de la ligne rouge <b>en vue d'une offrande de péché d'oiseau devrait effectuer l'acceptation,</b> car <b>les actions</b> effectuées <b>sur lui prouvent qu'il s'agit d'un holocauste d'oiseau. Car s'il s'agit</b> en fait d'un oiseau en sacrifice pour le péché, il aurait accompli</b> l'acte requis de tenir le corps de l'oiseau et de <b>sprinkler</b> son sang <b>sous</b> la ligne rouge, au lieu de presser son sang au-dessus de cette ligne.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

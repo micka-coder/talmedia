@@ -78,4 +78,4 @@ La Guemara développe : <b>Rabbi Yoḥanan dit</b> qu'il est <b>fiable,</b> car 
 <b>Rava soulève un dilemme :</b> En ce qui concerne <b>celui qui fait des offrandes</b> à l'extérieur de la cour du Temple.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

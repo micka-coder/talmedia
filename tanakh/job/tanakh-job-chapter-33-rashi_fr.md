@@ -88,4 +88,4 @@
 <b>Deux fois ou trois fois</b> Il le châtie pour ses iniquités avec sa maladie afin de ne pas le détruire, mais s'il Le provoque davantage, il devrait être concerné par le Gehinnom ou la mort, comme il est écrit : "Oui pour quatre, je ne les rendrai pas" (Amos 1:3).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

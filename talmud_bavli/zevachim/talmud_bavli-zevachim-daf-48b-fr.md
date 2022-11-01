@@ -84,4 +84,4 @@ La Guemara rejette cette déduction logique : <b>Qu'y a-t-il de remarquable</b> 
 <b>Mar Zutra, fils de Rav Mari, dit à Ravina : Mais</b> n'avons-nous <b>pas</b> trouvé une interdiction secondaire plus rigoureuse que la principale ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

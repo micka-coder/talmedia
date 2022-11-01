@@ -75,4 +75,4 @@ La Guemara continue : <b>Quel est</b> la <i>halakha</i> concernant <b>un lépreu
 § La Guemara passe à une autre question : <b>Un endeuillé est obligé de renverser</b> son <b>lit,</b> afin de dormir sur le dessous de celui-ci, <b>comme l'a enseigné bar Kappara</b> une <i>baraita</i> qui stipule :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

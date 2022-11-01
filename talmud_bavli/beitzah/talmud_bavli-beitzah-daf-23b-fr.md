@@ -27,4 +27,4 @@ La Guemara soulève une difficulté : Si c'est le cas, <b>dit la dernière claus
 La Guemara répond : Il faut expliquer qu'il s'agit d'une dispute entre <b>deux <i>tanna'im</i></b> qui tiennent <b>conformément</b> à l'avis de <b>Rabbi Yehuda</b> mais diffèrent quant au contenu de cet avis. Le premier <i>tanna</i> soutient que même un chariot fait un sillon, alors que l'autre <i>tanna</i> soutient au nom de Rabbi Yehuda qu'un chariot ne fait pas un sillon.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

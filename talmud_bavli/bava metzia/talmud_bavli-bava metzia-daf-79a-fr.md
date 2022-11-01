@@ -48,4 +48,4 @@ La Gemara répond : <b>Si</b> la contestation de l'opinion de Rav est <b>due à 
 La Gemara demande : <b>Quelles sont les circonstances</b> de ce contrat ? <b>Si l'on dit</b> que le propriétaire a déclaré qu'il lui louait <b>cette</b> <b>bateau particulier et</b> le locataire a déclaré qu'il transportait <b>un vin non spécifié,</b> alors même <b>s'il a donné</b> de l'argent, <b>pourquoi ne devrait-il pas recevoir</b> un remboursement ? <b>Qu'il dise à</b> l'armateur : <b>Donnez-moi le bateau</b> pour <b>que je puisse transporter du vin,</b> et si vous ne pouvez pas le faire, remboursez les frais de location pour que je puisse louer un autre bateau. <b>On pourrait plutôt dire que cela fait référence à une situation où le propriétaire a dit qu'il lui louerait <b>un bateau non spécifié, et</b> le locataire a dit qu'il transporterait <b>cette</b> <b>vigne particulière.</b> Mais dans ce cas, même <b>s'il n'a pas donné</b> d'argent, <b>pourquoi ne devrait-il pas donner</b> au propriétaire les frais de location ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

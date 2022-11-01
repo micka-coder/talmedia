@@ -50,5 +50,5 @@
 <b>Il porte son iniquité,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> s'il mange une nourriture sainte ou entre dans le Sanctuaire, il est responsable de cette impureté comme des autres impuretés. 
 <b>Et ne baigne pas sa chair. . . . il porte son iniquité.</b> Il est puni de <i>koreis</i> pour ne pas avoir lavé son corps, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et pour ne pas avoir lavé ses vêtements [il est puni] de coups de fouet. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

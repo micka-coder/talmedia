@@ -48,4 +48,4 @@ La Guemara demande : <b>Si c'est le cas,</b> si le décret rabbinique qui interd
 La Gemara demande : <b>Cependant, si c'est le cas,</b> alors selon ce raisonnement, <b>l'esclave d'un prêtre que</b> le prêtre a <b>acheté à un Israélite ne doit pas prendre part au <i>teruma</i>, en raison</b> d'un souci d' <b>abrogation.</b> Peut-être le prêtre découvrira-t-il un défaut chez l'esclave, ce qui entraînera l'annulation rétroactive de l'acquisition et fera que l'esclave retournera chez son maître israélite après avoir mangé par erreur du <i>teruma</i>. La Gemara répond : <b>Il n'y a pas d'abrogation en ce qui concerne les esclaves,</b> car aucun type de défaut ne pourrait provoquer l'annulation de la transaction. La raison en est <b>que si</b> le défaut <b>est externe, alors il le voit</b> au point de vente et l'accepte. <b>Et si</b> le défaut <b>est interne,</b> puisque <b>il a besoin de lui pour le travail, les défauts cachés</b> ne le concernent pas.</b> En ce qui concerne les autres types de défauts, par exemple, si <b>il a été découvert</b> qu'il est <b>un voleur ou</b> .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

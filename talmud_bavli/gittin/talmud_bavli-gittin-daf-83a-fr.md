@@ -84,4 +84,4 @@ La <i>baraita</i> précise que Rabbi Akiva a ajouté <b>une réponse alternative
 La Guemara demande : <b>Et à propos de quel</b> cas cette objection a-t-elle été soulevée ? <b>Si nous disons</b> que c'était <b>à l'égard</b> d'un cas d'<b>condition,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

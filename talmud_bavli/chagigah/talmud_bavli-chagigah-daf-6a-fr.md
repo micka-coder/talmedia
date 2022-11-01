@@ -51,4 +51,4 @@ La Gemara répond : <b>Beit Hillel soutiennent</b> que <b>l'holocauste</b> que l
 La Guemara explique la source de chaque opinion. <b>Beit Shammai</b> est <b>ce que nous avons dit. Rabbi Yishmael, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yishmael dit : Des déclarations générales ont été dites au Sinaï,</b> c'est-à-dire que Moïse a reçu des mitzvot générales au Sinaï, dont les dix commandements.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

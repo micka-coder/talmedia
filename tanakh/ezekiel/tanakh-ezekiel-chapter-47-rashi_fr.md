@@ -97,4 +97,4 @@
 <b>avec laquelle séjourne l'étranger</b> qui s'est fait prosélyte en exil au sein de cette tribu.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

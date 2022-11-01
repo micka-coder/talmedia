@@ -42,4 +42,4 @@ Rabbi Yehouda poursuit : <b>Par rapport à quel</b> cas <b>Rabbi Eliezer et les 
 La Guemara demande : <b>Et</b> concernant l'avis de <b>Rabbi Eliezer, qu'est-ce qui est différent</b> des membres d'un <b>animal qui</b> a activement <b>copulé avec une personne, ou</b> des membres d'un <b>animal qui a fait l'objet de bestialité,</b> pour qu'ils ne soient pas sacrifiés ? Si l'on dit que la raison est <b>qu'ils ne sont pas propres</b> à l'autel, ce ne peut être la raison, car <b>un animal taché</b> <b>n'est pas propre</b> à l'autel <b>aussi,</b> et là, il soutient que les membres sont brûlés.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

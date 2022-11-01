@@ -121,7 +121,7 @@
 <b>et j'exilerai</b> une expression du "nerf qui a été disloqué (גִיד הַנָֹּשֶה)" (Gen. 32:33), et une expression de "leur puissance a failli (נָֹשְתָה)", elle saute et se déplace d'un endroit à l'autre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Malheur aux bergers</b> Les rois de Judée.
 
@@ -244,4 +244,4 @@
 <b>et j'exilerai</b> une expression du "nerf qui a été disloqué (גִיד הַנָֹּשֶה)" (Gen. 32:33), et une expression de "leur puissance a failli (נָֹשְתָה)", elle saute et se déplace d'un endroit à l'autre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

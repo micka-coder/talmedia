@@ -33,4 +33,4 @@ La Guemara commente : <b>Et ils sont en désaccord sur</b> la déclaration de Ra
 Le tractat se termine sur une note positive : <b>Rabbi Elazar a dit</b> que <b>Rabbi Ḥanina a dit : Les érudits de la Torah augmentent la paix dans le monde, comme il est dit : "Et tous vos enfants seront instruits du Seigneur, et grande sera la paix de vos enfants"</b> (Isaïe 54:13). Cela indique que parce que les enfants seront des érudits de la Torah, qui sont enseignés du Seigneur et de Sa Torah, ils vivront dans une grande paix, et la paix sera ainsi accrue pour le monde entier.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

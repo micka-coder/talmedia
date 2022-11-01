@@ -46,4 +46,4 @@
 <b>Vont briller</b> Heb.  יציץ, qui brillent, comme (Ezek. 1:7) : "Et ils brillaient (ונצצים) comme la couleur du cuivre bruni."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

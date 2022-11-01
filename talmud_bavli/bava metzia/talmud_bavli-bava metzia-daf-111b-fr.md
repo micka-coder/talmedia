@@ -51,7 +51,7 @@ La Guemara demande : <b>Et que</b> fait <b>Rabbi Yosei, fils de Rabbi Yehuda, av
 La Gemara demande : <b>Et</b> d'où l'autre</b> Sage, c'est-à-dire le premier <i>tanna</i>, tire-t-il cette <i>halakha</i> ? La Guemara répond : Il la dérive de la phrase suivante : <b>"Car il y met son âme"</b> (Deutéronome 24:15). Cela indique que l'on est responsable du retard du paiement du salaire dû pour tout travail ; comme un ouvrier s'oblige à exécuter le travail, c'est <b>quelque chose pour laquelle il donne son âme.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Le verset dit : "Tu n'opprimeras pas un ouvrier salarié qui est pauvre et nécessiteux, qu'il soit de tes frères ou de l'étranger qui se trouve dans ton pays, à l'intérieur de tes portes" (Deutéronome 24:14), ce qui s'interprète comme suit : Le terme <b>"de tes frères"</b> sert <b>à exclure les autres,</b> c'est-à-dire les gentils, qui ne sont pas tes frères. Quant au terme <b>"ton étranger", cela</b> fait référence à <b>un converti vertueux.</b> Quant au terme <b>"à l'intérieur de tes portes", cela</b> fait référence à un <i>ger toshav</i> qui vit en Eretz Yisrael et <b>mange des carcasses d'animaux non abattus</b> parce qu'il n'a pas accepté le judaïsme sur lui-même.
 
@@ -104,4 +104,4 @@ La Guemara demande : <b>Et que</b> fait <b>Rabbi Yosei, fils de Rabbi Yehuda, av
 La Gemara demande : <b>Et</b> d'où l'autre</b> Sage, c'est-à-dire le premier <i>tanna</i>, tire-t-il cette <i>halakha</i> ? La Guemara répond : Il la dérive de la phrase suivante : <b>"Car il y met son âme"</b> (Deutéronome 24:15). Cela indique que l'on est responsable du retard du paiement du salaire dû pour tout travail ; comme un ouvrier s'oblige à exécuter le travail, c'est <b>quelque chose pour laquelle il donne son âme.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

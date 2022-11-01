@@ -51,4 +51,4 @@ La Guemara analyse la conduite du père de Shmuel : <b>Il ne leur permettait pas
 <b>Il ne permettait pas qu'ils soient couchés les uns à côté des autres. Disons que cela conforte</b> l'avis de <b>Rav Huna, car Rav Huna a dit : Les femmes qui se frottent l'une contre l'autre</b> motivées par le désir sexuel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ Rav Huna poursuit : <b>Celui qui a dit</b> que la Megilla doit être lue <b>dans
 On a raconté que <b>Levi bar Shmuel</b> lisait un jour devant Rav Yehuda une Megilla</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

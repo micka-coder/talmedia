@@ -96,4 +96,4 @@
 <b>Quand le foin sera emporté</b> Quand ses lois seront diffusées et que la Torah sera magnifiée à travers lui, alors ces agneaux seront son vêtement, et les disciples seront pour lui un nom et un vêtement de gloire et de beauté.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

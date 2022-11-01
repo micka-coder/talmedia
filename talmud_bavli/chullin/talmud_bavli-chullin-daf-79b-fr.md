@@ -54,4 +54,4 @@ La Guemara analyse la <i>baraita</i> : <b>Quel</b> type de <i>koy</i> <b>nous av
 La Guemara répond : <b>En fait,</b> il fait référence <b>à un cerf qui s'accouple avec une chèvre femelle, et celle-ci met bas, et Rabbi Eliezer n'est pas non plus certain si,</b> pour déterminer l'espèce d'un animal, <b>on</b> doit <b>se préoccuper de sa paternité ou non.</b> La Guemara demande : <b>Mais puisque</b> la conclusion est <b>que les rabbins sont incertains et que Rabbi Eliezer est incertain, dans quel</b> cas <b>ils sont en désaccord</b> où Rabbi Eliezer juge le propriétaire exempté de donner les cadeaux entièrement ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

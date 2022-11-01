@@ -36,4 +36,4 @@ La Gemara répond : Dans <b>cette</b> affaire, il est fouetté parce qu'il s'est
 <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan a dit :</b> Un homme <b>qui enlève</b> le poil <b>de l'aisselle ou le poil pubien</b> <b>est fouetté.</b> La Gemara <b>souleve une objection</b> contre cette décision : <b>L'épilation n'est pas</b> interdite <b>par la loi de la Torah mais par la loi rabbinique.</b> Pourquoi, alors, est-il passible de recevoir des coups de fouet ? La Gemara explique : <b>Que signifie <b>que</b> Rabbi Yoḥanan <b>dit</b> qu'il <b>est fouetté ?</b> Cela signifie qu'il est fouetté <b>par la loi rabbinique,</b> une punition connue sous le nom de coups de fouet pour rébellion, pour avoir désobéi à un décret rabbinique.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

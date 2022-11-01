@@ -120,4 +120,4 @@
 <b>Et le nom de la ville, à partir de ce jour, sera "Le Seigneur est là"</b> Jonathan rend : "Et le nom de la ville avait été déclaré à partir de ce jour où le Seigneur y a fait reposer sa Shechinah". Elle ne sera pas appelée d'un autre nom que le nom originel qu'elle portait depuis le jour où Abraham y a lié son fils Isaac, car il l'a appelée Yireh, et son nom avait été Shalem, formant ainsi "Jérusalem" (Gen. Rabba 56:16). On peut aussi l'interpréter ainsi : et le nom de la ville dans l'avenir, à partir du moment où elle sera construite et à l'avenir, sera "L'Éternel est là."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

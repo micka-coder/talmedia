@@ -54,4 +54,4 @@ Les rabbins lui <b>Répondirent :</b> L'abattage d'un animal <b>a un effet plus 
 La Guemara <b>souleve une objection</b> à l'opinion de Rabbi Yoḥanan à partir de la <i>baraita</i> citée plus haut : <b>Rabbi Meir leur a dit : Non,</b> même <b>si l'abattage d'un <i>tereifa</i> rend pur</b> l'animal lui-même <b>et</b> de même l'abattage de tout animal rend pur <b>le membre qui y est suspendu</b> d'avoir l'impureté d'une carcasse, ceci est vrai en ce qui concerne <b>quelque chose qui fait</b> partie de <b>son propre corps. </b> S'ensuit-il nécessairement qu'il doit également <b>rendre pur le membre</b> de son fœtus, qui est <b>quelque chose qui ne fait pas</b> partie de <b>son propre corps ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

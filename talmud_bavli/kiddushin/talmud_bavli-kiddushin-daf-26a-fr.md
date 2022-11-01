@@ -42,4 +42,4 @@ La Gemara demande : <b>Et selon</b> l'opinion de <b>Rabbi Yoḥanan, qui dit</b>
 <b>Un dilemme a été soulevé devant</b> les Sages à propos de cette question de l'acquisition de biens mobiliers par voie foncière : Doit-on <b>exiger</b> que ce bien mobilier soit effectivement <b>pilé</b> sur le terrain qui est vendu <b>ou non ? Rav Yosef a répondu : Venez</b> et <b>entendre</b> une preuve à partir de la mishna suivante (<i>Pe'a</i> 3:6) . <b>Rabbi Akiva dit :</b> Le propriétaire de <b>toute quantité de terre est obligé en <i>pe'a</i> et en prémices,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

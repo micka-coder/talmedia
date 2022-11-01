@@ -69,4 +69,4 @@ La mishna énumère parmi les personnes susceptibles d'être exécutées comme f
 La mishna énumère parmi les personnes susceptibles de recevoir la mort de la main du Ciel <b>celui qui supprime sa prophétie.</b> La Gemara commente : <b>Par exemple, Jonas, fils d'Amittai</b> (Jonas 1:1-3). La mishna énumère également : <b>Et celui qui renonce à la déclaration d'un prophète.</b> La Gemara commente : <b>Par exemple,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

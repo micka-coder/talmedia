@@ -57,7 +57,7 @@ La Guemara demande : <b>Et Rabbi Shimon</b> exige-t-il vraiment <b>les deux ? Ma
 La Gemara demande : <b>Mais</b> selon Rabbi Shimon, si la seule mention du sacerdoce ne suffit pas à disqualifier la main droite, alors <b>pourquoi ai-je</b> besoin de la référence superflue à <b>un prêtre</b> en ce qui concerne la collecte du sang ? Après tout, le verset indique déjà que la collecte doit être effectuée par les fils d'Aaron. La Guemara répond : La mention supplémentaire du sacerdoce indique qu'un prêtre doit effectuer la collecte du sang <b>dans son état sacerdotal,</b> c'est-à-dire en portant les vêtements sacerdotaux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Après tout, un verset indique déjà que l'huile doit être placée sur le pouce et le gros orteil droits, <b>comme</b> il est <b>écrit : "Sur le sang du sacrifice de culpabilité"</b> (Lévitique 14:17). Puisque la Torah a déjà spécifié que le sang est placé sur le pouce et le gros orteil droits (Lévitique 14:14), il est clair que l'huile est placée là aussi. De même, pourquoi le verset doit-il préciser, en ce qui concerne un pauvre lépreux, que l'huile est placée sur le pouce et le gros orteil droits ? N'est-il pas déjà clair dans le verset où l'huile doit être placée, comme il est dit : "Sur le lieu du sang de l'offrande de culpabilité" (Lévitique 14:28) ? La Gemara répond : <b>Une</b> spécification, énoncée à propos d'un lépreux riche, sert <b>à permettre</b> de placer l'huile sur les <b>côtés</b> du pouce et les côtés du gros orteil en plus du côté de l'ongle du pouce et du gros orteil, <b>et une,</b> énoncée à propos d'un lépreux pauvre, sert <b>à disqualifier les côtés des côtés,</b> c'est-à-dire leurs dessous.
 
@@ -116,4 +116,4 @@ La Guemara demande : <b>Et Rabbi Shimon</b> exige-t-il vraiment <b>les deux ? Ma
 La Gemara demande : <b>Mais</b> selon Rabbi Shimon, si la seule mention du sacerdoce ne suffit pas à disqualifier la main droite, alors <b>pourquoi ai-je</b> besoin de la référence superflue à <b>un prêtre</b> en ce qui concerne la collecte du sang ? Après tout, le verset indique déjà que la collecte doit être effectuée par les fils d'Aaron. La Guemara répond : La mention supplémentaire du sacerdoce indique qu'un prêtre doit effectuer la collecte du sang <b>dans son état sacerdotal,</b> c'est-à-dire en portant les vêtements sacerdotaux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

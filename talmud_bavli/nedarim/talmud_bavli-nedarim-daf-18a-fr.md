@@ -30,4 +30,4 @@ La Guemara propose : <b>Disons</b> que la mishna suivante (<i>Shevuot</i> 27b) <
 La Gemara réfute cette preuve : Cette mishna peut se référer à un cas <b>où il a accepté sur lui deux</b> termes de <b>nazirite simultanément.</b> Puisque deux termes ne peuvent pas être observés simultanément, lorsqu'il accepte deux termes simultanément, la <i>halakha</i> est que le second terme commence immédiatement après la clôture du premier, qui a immédiatement pris effet sur des périodes de temps séquentielles. Cependant, lorsqu'on prête un serment s'interdisant une chose qui est déjà interdite par un serment dans la même période de temps, le second serment peut ne pas prendre effet du tout.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

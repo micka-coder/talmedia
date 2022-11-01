@@ -75,4 +75,4 @@ La Gemara note : <b>Rava</b> se conforme <b>à sa ligne standard de <b>raisonnem
 La Gemara clarifie : <b>Qu'y a-t-il de différent</b> dans l'indemnisation pour le <b>dommage</b> à <b>une personne</b> causé <b>par une personne et</b> pour le <b>dommage</b> à <b>une personne</b> causé <b>par un bœuf,</b> qu'il n'est <b>pas</b> perçu en Babylonie ? Si vous dites que <b>nous avons besoin de juges ordonnés</b> pour collecter les dommages, <b>et il n'y a pas</b> de juges ordonnés en Babylonie, alors <b>aussi,</b> dans un cas de <b>dommage</b> causé par <b>un bœuf à un bœuf, et</b> de dommage causé par <b>une personne à un bœuf,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

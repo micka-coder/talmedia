@@ -45,4 +45,4 @@ Le Sage <b>enseignait</b> (<i>Tosefta</i>, <i>Eduyyot</i> 3:4) : <b>Il y avait u
 La Guemara est perplexe face à cette dernière affirmation : <b>Cette question elle-même est difficile :</b> D'abord, <b>vous avez dit</b> qu'une famille qui <b>a un statut présumé de lignée viciée</b> est de <b>lignée viciée</b>, ce qui indique qu'une famille au statut <b>indéterminé</b> est de <b>lignée non viciée</b>. <b>Et ensuite</b> vous <b>enseignez :</b> Une famille qui <b>a un statut présumé de lignée non fautive</b> est de <b>lignée non fautive</b>, ce qui indique qu'une famille au statut <b>non spécifié</b> est de <b>lignée fautive</b>. <b>Rav Huna bar Taḥalifa a dit au nom du Rav :</b> Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

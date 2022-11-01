@@ -39,4 +39,4 @@ De même, <b>Rav Pappa a dit :</b> Il est <b>évident pour moi</b> que lorsque l
 § Un autre <b>dilemme</b> a été <b>souligné</b> par .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

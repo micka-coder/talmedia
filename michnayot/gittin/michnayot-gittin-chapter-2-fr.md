@@ -20,5 +20,5 @@ Si le mineur a reçu le get [pour le délivrer] et qu'ensuite il est devenu maje
 ### michna 7
 Même les femmes à qui l'on ne fait pas confiance pour dire "son mari est mort", sont chargées d'apporter son get : sa belle-mère, la fille de sa belle-mère, sa femme rivale, sa belle-sœur (femme du frère du mari) et la fille de son mari. Quelle est la différence entre le get et la mort ? Une femme peut apporter son propre get mais elle doit dire : "En ma présence, il a été signé et en ma présence, il a été délivré".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

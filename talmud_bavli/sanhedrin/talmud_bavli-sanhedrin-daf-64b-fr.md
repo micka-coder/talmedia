@@ -66,4 +66,4 @@ La Gemara répond qu'il est nécessaire <b>pour ce qui est enseigné</b> dans un
 <b>Rabbi Yishmael lui a dit : Mais n'est-il pas déjà dit</b> dans le verset précédent : "Il blasphème le Seigneur ; cette âme <b>sera excisée [<i>venikhreta</i>]"</b> (Nombres 15:30) ? <b>Y a-t-il trois mondes</b> dans lesquels le pécheur est excisé ? <b>Au contraire,</b> du terme du verset <b>"<i>venikhreta</i>"</b> on déduit que le pécheur est excisé <b>dans ce monde,</b> du terme <b>"<i>hikkaret</i>"</b> on déduit que le pécheur est excisé <b>dans le Monde-à-Venir, </b> et rien n'est dérivé du verbe doublé "<i>hikkaret <b>tikkaret</b></i><b>,"</b> car <b>la Torah parlait dans la langue des gens. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

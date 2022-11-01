@@ -100,4 +100,4 @@
 <b>Et avant l'honneur, il y a l'humilité</b> L'humilité fait venir l'honneur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

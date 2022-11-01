@@ -77,4 +77,4 @@
 <b>Et ils bénirent le peuple</b> Si l'on veut, on peut dire qu'ils les bénirent par cette [bénédiction] qu'ils supplièrent de revenir du pays de leurs geôliers, et le Seigneur écouta leur voix et les fit revenir. Autre explication possible : et Il a écouté leur voix, et c'est ainsi qu'il est écrit plus haut (v. 20) : "et le Seigneur a écouté Ezéchias et a guéri le peuple."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

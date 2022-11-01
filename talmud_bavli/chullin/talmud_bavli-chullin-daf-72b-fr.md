@@ -42,4 +42,4 @@ La Guemara répond : <b>N'a-t-il pas été dit à propos de cette</b> mishna dan
 <b>Ravina dit</b> il existe une explication différente de la façon dont la mishna peut être conciliée avec l'opinion de Rabbi Yosei : <b>Un vêtement ne tient pas,</b> c'est-à-dire n'est pas destiné, <b>à être coupé.</b> Au contraire, il est préférable qu'il reste entier. Par conséquent, les liaisons entre ses pièces sont considérées comme se trouvant dans une zone cachée qui ne peut pas transmettre d'impureté. En revanche, en ce qui concerne un <b>fœtus</b> qui étend sa patte avant, celle-ci <b>doit être coupée,</b> car elle est interdite à la consommation alors que le reste du fœtus est autorisé, <b>et</b> le principe halakhique est que <b>toute chose</b> <b>qui doit être coupée</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

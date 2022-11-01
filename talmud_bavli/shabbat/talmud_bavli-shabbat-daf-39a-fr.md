@@ -24,4 +24,4 @@ La Guemara répond : <b>Vous pensez</b> que <b>l'histoire de Tibériade fait ré
 Sur le même sujet, <b>Rav Hisda a dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

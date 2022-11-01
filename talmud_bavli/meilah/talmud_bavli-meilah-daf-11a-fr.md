@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais</b> si le fondement de cette <i>halakha</i> est que 
 La Gemara rejette cette affirmation par une question rhétorique : <b>Y a-t-il une chose dont la mitsva a été accomplie et qui est</b> encore <b>soumise à un mauvais usage</b> des biens consacrés ? La Guemara remet en cause cette hypothèse : <b>Pourquoi pas ?</b> Pourquoi ne pas le dire ; n'y a-t-il vraiment aucun précédent à une telle suggestion ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

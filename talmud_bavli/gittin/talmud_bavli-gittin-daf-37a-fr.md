@@ -51,4 +51,4 @@ Rava <b>lui a dit : Le nantissement est différent, car</b> le créancier <b>l'a
 § <b>On a appris</b> dans une mishna <b>là</b> (<i>Shevi'it</i> 10:8) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

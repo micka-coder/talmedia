@@ -115,4 +115,4 @@
 <b>Et certains d'entre eux avaient des femmes par lesquelles ils avaient des enfants</b> Et certains d'entre eux avaient des femmes païennes par lesquelles ils avaient des enfants. Ils les chassèrent tous, tant les femmes que les enfants.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

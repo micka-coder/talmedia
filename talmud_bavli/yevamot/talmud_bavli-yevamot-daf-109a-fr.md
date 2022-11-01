@@ -57,4 +57,4 @@ Mais <b>si le mari de l'adulte meurt,</b> cela génère une obligation Torah de 
 Il faut s'attacher à <b>faire régner la paix, comme il est écrit "Cherchez la paix et poursuivez-la"</b> (Psaumes 34:15).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

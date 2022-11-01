@@ -48,4 +48,4 @@ Rabbi Zeira a demandé : <b>Un nazirite</b> comme <b>Samson est-il soumis</b> à
 <b>On évalue</b> le nombre de coups de fouet que celui qui est puni est capable de supporter <b>seulement avec</b> un nombre de <b>coups de fouet aptes à être divisés en trois</b> groupes égaux. Si l'évaluation était qu'il peut survivre à vingt coups de fouet, il est fouetté avec dix-huit. De même, si les médecins ont <b>évalué</b> concernant <b>lui</b> qu'il est capable <b>de recevoir quarante</b> coups de fouet et de survivre, <b>et il est</b> alors <b>fouetté une partie</b> de ces quarante coups de fouet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

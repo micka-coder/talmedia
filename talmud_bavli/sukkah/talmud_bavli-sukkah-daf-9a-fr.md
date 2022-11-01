@@ -39,4 +39,4 @@ La Guemara répond que <b>cette expression</b> "pour toi" <b>est requise pour ex
 La Guemara répond : <b>Là,</b> en ce qui concerne les franges rituelles, <b>un autre verset est écrit : "Et ils feront pour eux</b> des franges rituelles" (Nombres 15:38), d'où l'on déduit : "Pour eux," <b>de leur propre chef,</b> pour exclure l'utilisation de franges rituelles volées. On peut donc déduire de l'expression "pour vous" que les franges rituelles doivent être produites pour le bien de la mitsva.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

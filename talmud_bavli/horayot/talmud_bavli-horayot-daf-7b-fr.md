@@ -63,4 +63,4 @@ La Guemara demande : <b>Quelle est la raison</b> de l'opinion <b>de Rabbi</b> Ye
 Le <i>baraita</i> enseigne : <b>Et ils sont d'accord pour dire que</b> l'expiation d'un prêtre oint se fait <b>avec une chèvre</b> comme offrande pour le péché, <b>comme</b> dans le cas d'un <b>individu ordinaire.</b> La Gemara demande : <b>D'où dérive-t-on</b> cette <i>halakha</i> ? La Gemara répond : Elle est dérivée d'un verset, <b>comme le dit le verset : "Et si une âme</b> pèche involontairement, elle offrira une chèvre de première année en sacrifice pour le péché" (Nombres 15:27). Un <b>individu ordinaire, un roi et un prêtre oint</b> sont tous susceptibles d'apporter une offrande, car <b>ils sont tous</b> inclus <b>dans la catégorie "une âme"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ Si quelqu'un a un cheveu de la taille d'un haricot fendu et qu'il s'étend sur t
 ### michna 10
 La calvitie du cuir chevelu (karahat) ou la calvitie du front (gabahat) peut devenir impure en deux semaines et par deux signes : par une chair rapide ou par un étalement. Qu'est-ce qui constitue une calvitie ? Si quelqu'un a mangé du neshem ou s'est enduit de neshem ou a eu une blessure à partir de laquelle les cheveux ne peuvent plus pousser. Quelle est l'étendue de la calvitie du cuir chevelu ? De la couronne inclinée vers l'arrière jusqu'aux cartilages saillants du cou. Quelle est l'étendue de la calvitie du front ? De la couronne inclinée vers l'avant à la région qui fait face aux cheveux du dessus. La calvitie du cuir chevelu et la calvitie du front ne peuvent être combinées, et la propagation de l'une à l'autre n'est pas efficace. Rabbi Judah dit : s'il y a des cheveux entre eux, ils ne peuvent pas être combinés, mais s'il n'y en a pas, ils doivent être combinés.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

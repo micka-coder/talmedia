@@ -27,4 +27,4 @@ La Gemara cite d'autres interprétations homilétiques sur le sujet de la révé
 La Guemara relate que <b>un hérétique vit que Rava était plongé dans</b> l'étude de la <b><i>halakha</i>, et que ses doigts étaient sous sa jambe et qu'il les pressait, et que ses doigts giclaient de sang.</b> Rava ne remarqua pas qu'il saignait car il était absorbé par l'étude. L'hérétique <b>dit à</b> Rava : <b>Nation impulsive, qui accordait la priorité à tes bouches sur tes oreilles. Vous portez encore votre impulsivité,</b> car vous agissez sans réfléchir. <b>Vous devez d'abord écouter.</b> Ensuite, <b>si vous êtes capables</b> d'accomplir les commandements, <b>acceptez-les</b>. <b>Et si non,</b> ne les <b>pas accepter</b>. Il lui <b>dit :</b> A propos de <b>nous,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

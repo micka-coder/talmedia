@@ -23,5 +23,5 @@ Si des conducteurs d'ânes traversaient une rivière et que leurs sacs [remplis 
 ### michna 8
 Si l'on a descendu dans l'eau des roues ou l'engrenage des bœufs au moment du vent chaud d'est, afin qu'ils se resserrent, cela relève de la loi de "si l'eau est déposée [ki youtane]". Si l'on fait descendre une bête pour la faire boire, l'eau qui est montée sur sa bouche relève de la loi du "si l'eau est déposée [ki youtane]", mais celle qui est montée sur ses pieds ne relève pas de la loi du "si l'eau est déposée [ki youtane]". S'il a voulu que ses pieds soient lavés, même l'eau qui est montée sur ses pieds relève de la loi du "si l'eau est déposée [ki youtane]". Au moment du pédiluve ou du battage, il provoque toujours une susceptibilité à l'impureté. Si un sourd-muet, un imbécile ou un mineur l'a descendu, alors que son intention était que ses pieds soient lavés, il ne relève pas de la loi de "si l'eau est déposée [ki youtane]", car chez ces derniers l'acte seul compte, mais pas l'intention.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

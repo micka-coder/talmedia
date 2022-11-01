@@ -78,4 +78,4 @@
 <b>Et sois comme une gazelle.</b> Pour hâter la rédemption, et pour que Ta Présence Divine repose <b>sur les montagnes d'épices.</b> C'est le Mont Moriyah et le Beit Hamikdash, qu'il soit reconstruit rapidement et de nos jours, Amen. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

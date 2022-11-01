@@ -39,4 +39,4 @@ La Gemara demande : <b>Et selon</b> l'avis des <b>autres,</b> qui font dériver 
 La Guemara demande : <b>Et les rabbins,</b> Rabbi Yishmael, Rabbi Akiva et ben Azzai, <b>d'où tirent-ils</b> la <i>halakha</i> <b>que</b> une offrande de premier-né <b>peut être mangée pendant deux jours et une nuit ?</b> La Guemara répond que <b>le verset dit</b> à propos du premier-né : "Et leur chair <b>serait à toi, comme la poitrine de l'ondine</b> et la cuisse droite, elle serait à toi" (Nombres 18:18). La répétition de l'expression "Elle sera à toi" enseigne que l'on peut manger le premier-né pendant un jour de plus qu'une offrande de remerciement standard, qui ne peut être mangée que pendant un jour et une nuit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Si <b>quelqu'un a recueilli son sang dans deux coupes</b> et <b>placé</b> le sa
 La mishna ajoute : Dans le cas où l'on a abattu les deux à l'intérieur de la cour, <b>comme</b> le fait de placer <b>le sang du premier animal <b>exonère</b> celui qui consomme <b>sa viande</b> de la responsabilité de l'abus de biens consacrés, <b>de même, il exonère</b> celui qui consomme <b>la viande de son homologue,</b> le second animal, de la responsabilité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

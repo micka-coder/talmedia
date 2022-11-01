@@ -45,4 +45,4 @@ La Gemara clarifie : <b>Et</b> il faut <b>qu'ils soutiennent que tout le monde e
 La Gemara rejette cette idée : <b>Non,</b> il est possible que <b>tout le monde</b> soit d'accord pour dire que dans le cas de <b>ceux qui fiancent</b> une femme <b>avec un prêt, elle n'est pas fiancée, et ici</b> ils sont en fait <b>en désaccord</b> sur la question de savoir si oui ou non l'obligation de payer <b>un salaire est</b> encourue de manière continue <b>du début</b> de la période où il a été embauché <b>jusqu'à</b> sa <b>fin. </b> Un <b>Sage,</b> Rabbi Meir, <b>dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ J'ai <b>pourrais</b> penser <b>que je</b> devrais <b>inclure</b> un esclave héb
 La Gemara demande : Un esclave hébreu <b>qui s'enfuit n'est-il pas tenu d'accomplir</b> les années restantes de son contrat, auquel cas il devrait avoir le droit de recevoir un cadeau de rupture ? <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>D'où vient</b> à propos d'un esclave hébreu <b>qui fuit</b> son maître <b>qu'il est obligé de terminer</b> son terme ? <b>Le verset dit : "Six ans, il travaillera"</b> (Exode 21:2), et pas moins. Par conséquent, si un esclave hébreu s'enfuit au milieu de cette période, il est tenu de terminer ses six années de service.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

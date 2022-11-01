@@ -91,4 +91,4 @@
 <b>Attendez qu'il vienne</b> car, en effet, il est prêt à venir ; alors ils sauront que tes paroles n'étaient pas une plaisanterie, mais qu'un vrai prophète était au milieu d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

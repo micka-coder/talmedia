@@ -30,4 +30,4 @@ La Gemara réfute cette affirmation. <b>Non, en fait</b> la mishna fait référe
 La Gemara demande : <b>Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> qu'en accomplissant les actions énumérées dans la mishna, on ne fait que prévenir un préjudice ? <b>Rav Hoshaya dit : Ceci</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

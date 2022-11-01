@@ -17,5 +17,5 @@
 <b>Le matériel était suffisant pour tout le travail.</b> [Signifiant :] le travail d'apport était suffisant pour les ouvriers du <i>mishkon.</i> Pour tout le "travail" du <i>mishkon</i> - le fabriquer et en avoir de reste.
 <b>Et il en restait.</b> Comme dans "( וְהַכְבֵּד ) <i>d'endurcir</i> son coeur," [ou :] "( וְהַכּוֹת ) <i>de frapper</i> Moav." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

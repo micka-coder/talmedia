@@ -23,4 +23,4 @@
 <b>Un vent de tempête</b> qui exécute sa parole et sa mission. Nos Sages ont dit (Chag. 12b) : Ces choses étaient à l'origine cachées dans le ciel, et David est venu les faire descendre sur terre, car ce sont des sortes de châtiments, et il ne convient pas qu'elles soient cachées dans les demeures du Saint, béni soit-Il.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

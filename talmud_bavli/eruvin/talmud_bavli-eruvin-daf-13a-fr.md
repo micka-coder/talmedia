@@ -63,4 +63,4 @@ En outre, <b>Rav Naḥman bar Yitzḥak a dit</b> dans une autre tentative de r�
 La Guemara demande : <b>Et Rabbi Aḥai bar Yoshiya ne tient-il pas</b> conformément à <b>ce que nous avons appris</b> dans une mishna : <b>Si quelqu'un écrit un acte de divorce pour divorcer de sa femme,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

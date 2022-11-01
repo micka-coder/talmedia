@@ -123,7 +123,7 @@
 <b>Le tuer par l'épée</b> car il a dit : "Si vous me sauvez que mes sujets ne me tuent pas car j'ai amené leurs fils ici (sic) et ils sont morts, je sacrifierai mes deux fils devant vous." Ils se levèrent et le tuèrent.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -248,4 +248,4 @@
 <b>Le tuer par l'épée</b> car il a dit : "Si vous me sauvez que mes sujets ne me tuent pas car j'ai amené leurs fils ici (sic) et ils sont morts, je sacrifierai mes deux fils devant vous." Ils se levèrent et le tuèrent.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

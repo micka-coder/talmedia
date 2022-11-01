@@ -42,4 +42,4 @@ A propos du verset de Osée, la Gemara y interprète des versets supplémentaire
 <b>Le Saint, Béni soit-Il, dit : Que ferai-je à cet Ancien</b> qui ne sait pas défendre Israël ? <b>Je lui dirai : Va prendre une prostituée et engendre pour toi des enfants de la prostitution. Et après cela, je lui dirai : Renvoie-la loin de toi. S'il est capable de la renvoyer</b> elle, <b>Je renverrai aussi</b> <b>le peuple juif.</b> Cette délibération fournit le contexte de la prophétie d'ouverture d'Osée, <b>comme il est dit : "Le Seigneur dit à Osée : Va, prends pour toi une femme de prostitution et des enfants de prostitution"</b> (Osée 1:2). <b>Et</b> ensuite <b>il est écrit : "Il alla donc prendre Gomer, fille de Diblaïm"</b> (Osée 1:3), et les Sages ont interprété son nom de manière homilétique. <b>"Gomer" ; Rav dit</b> qu'elle était ainsi appelée <b>parce que tout le monde finissait [<i>gomerim</i>]</b> d'avoir des relations avec elle et de satisfaire leurs désirs <b>avec elle. "La fille de</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

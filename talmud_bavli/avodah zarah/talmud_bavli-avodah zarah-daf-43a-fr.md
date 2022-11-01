@@ -54,4 +54,4 @@ La Guemara demande : <b>Et est-il</b> effectivement <b>permis</b> de façonner d
 <b>Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

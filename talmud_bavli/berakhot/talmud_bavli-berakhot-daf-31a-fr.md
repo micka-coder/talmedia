@@ -84,7 +84,7 @@ Ceci <b>a egalement ete affirme</b> par une <i>amora</i> ; <b>Rav Hiyya bar Ashi
 Au sujet de la reprimande d'Eli envers Hannah, comme il est dit : <b>"Et Eli lui dit : Jusqu'a quand resteras-tu ivre ?</b> Ote ton vin de toi-meme" (I Samuel 1:14) ; <b>Rabbi Elazar dit : D'ici</b> la <i>halakha</i> que <b>celui qui voit dans un autre</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il apporta une coupe de valeur de quatre cents <i>zuz</i> et la brisa devant eux et ils devinrent tristes.</b>
 
@@ -170,4 +170,4 @@ Ceci <b>a egalement ete affirme</b> par une <i>amora</i> ; <b>Rav Hiyya bar Ashi
 Au sujet de la reprimande d'Eli envers Hannah, comme il est dit : <b>"Et Eli lui dit : Jusqu'a quand resteras-tu ivre ?</b> Ote ton vin de toi-meme" (I Samuel 1:14) ; <b>Rabbi Elazar dit : D'ici</b> la <i>halakha</i> que <b>celui qui voit dans un autre</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

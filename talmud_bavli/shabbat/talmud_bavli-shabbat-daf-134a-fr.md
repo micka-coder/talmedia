@@ -48,4 +48,4 @@ Nous avons appris dans la mishna : <b>Et</b> le Chabbat <b>on ne peut pas faire 
 Rabbi Natan a encore raconté : <b>Une autre fois, je me suis rendu dans l'état de Cappadoce, et une femme s'est présentée devant moi</b> qui avait <b>circoncis son premier fils et il est mort,</b> et elle a circoncis son <b>second</b> fils <b>et il est mort.</b> Comme elle craignait de circoncire le <b>troisième</b> de peur qu'il ne meure aussi, <b>elle l'a amené devant moi. J'ai vu qu'il était pâle. Je l'ai regardé et je n'ai pas vu en lui le sang de l'alliance,</b> c'est-à-dire qu'il avait une déficience sanguine. <b>Je lui ai dit : Attends que le sang entre en lui. Et elle attendit, puis elle le circoncit, et il vécut. Et on lui donnera le nom de Natan le Babylonien, d'après mon nom.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

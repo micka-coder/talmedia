@@ -45,4 +45,4 @@ La Guemara conclut : <b>Et la <i>halakha</i> est conforme</b> à l'avis du <b>Ra
 <b>Et de même qu'ils l'informent</b> de la <b>punition pour</b> transgresser les <b>mitzvot, de même</b> ils l'informent</b> de la <b>récompense accordée pour</b> les accomplir. Ils lui disent : Sache que le monde à venir n'est fait que pour les justes,</b> et que si tu observes les mitzvot, tu le mériteras, <b>et</b> sache que <b>le peuple juif, à l'heure actuelle, ne peut recevoir</b> sa pleine récompense dans ce monde ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

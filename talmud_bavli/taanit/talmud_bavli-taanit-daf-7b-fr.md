@@ -48,4 +48,4 @@ Le Sage <b>Ze'iri de</b> la ville de <b>Dihavat dit à Ravina : Tu as appris cet
 La Gemara cite une interprétation différente du même verset. <b>Reish Lakish a dit : Si vous voyez un étudiant</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

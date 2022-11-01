@@ -112,4 +112,4 @@
 <b>Il pressa.</b> Le mot connote la pression. De même, "Ils n'étaient ni pressés ni bandés"<sup>23</sup><i class="footnote">Yeshaya, 1:6.</i> Ils n'étaient pas bandés pour faire sortir l'écoulement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

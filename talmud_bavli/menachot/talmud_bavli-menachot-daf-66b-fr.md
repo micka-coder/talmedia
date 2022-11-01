@@ -45,4 +45,4 @@ Rava poursuit : Le statut d'un tas de grains après <b>lissage</b> effectué par
 <b>Rabbi Yosei et Rabbi Shimon disent : On sépare <i>teruma</i> du</b> produit <b>d'un juif pour</b> exempter les autres produits <b>d'un juif, et du</b> produit acheté à des <b>gentils pour</b> exempter le produit acheté <b>à des samaritains, et du</b> produit acheté <b>à des samaritains pour</b> exempter le produit acheté <b>à des gentils. Mais</b> on ne peut <b>pas</b> séparer le <i>teruma</i> <b>du</b> produit <b>d'un juif au</b> produit exempté acheté <b>aux gentils ou aux Samaritains, ni du</b> produit acheté <b>aux gentils ou aux Samaritains au</b> produit exempté <b>d'un juif. </b> Selon Rabbi Yosei et Rabbi Yishmael, les produits ayant appartenu à un Gentil ou à un Samaritain sont exemptés de l'obligation de séparer la dîme. Par conséquent, on ne peut pas séparer la dîme du produit d'un Juif, auquel s'applique l'obligation de la dîme, pour exempter ce produit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

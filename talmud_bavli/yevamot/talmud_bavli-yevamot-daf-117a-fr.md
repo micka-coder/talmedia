@@ -54,4 +54,4 @@ La Gemara demande : <b>Au contraire, quelle est</b> la raison pour laquelle Rabb
 § <b>Rav Aḥa bar Avya dit : Ils soulèvent un dilemme en Occident,</b> c'est-à-dire en Eretz Yisrael. En ce qui concerne <b>sa belle-mère qui vient après, quelle est</b> la <i>halakha</i> ? Il s'agit de la mère du frère du mari, mais pas de la mère de son mari, c'est-à-dire de la future belle-mère de la femme si celle-ci contracte le lévirat. Cette femme peut-elle témoigner à l'égard de la future épouse de son fils ? La Guemara clarifie : <b>Est-il entré dans son esprit que</b> si le <b>mari de cette femme est décédé,</b> la veuve <b>se produira devant le <i>yavam</i>,</b> son fils, pour le mariage lévirat, <b>et</b> comme la veuve, lorsqu'elle épousera ensuite son fils, mangera sa nourriture <b>elle la déteste</b> déjà, <b>ou pas ?</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara demande : <b>Mais</b> selon <b>la première <i>tanna</i></b> du <i>ba
 <b>Rava a dit :</b> Des <i>halakhot</i> différentes s'appliquent à des cas différents : <b>A l'égard d'un mari</b> qui a accusé deux fois sa femme au sujet d'un <b>seul paramour, tout le monde s'accorde à dire que la femme ne boit pas et ne répète pas,</b> ayant été innocentée une fois,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

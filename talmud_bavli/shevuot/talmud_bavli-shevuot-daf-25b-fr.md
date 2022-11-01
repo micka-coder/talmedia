@@ -66,4 +66,4 @@ La Gemara demande : Doit-on comprendre <b>par déduction que Abaye soutient</b> 
 La Guemara répond : <b>Abaye a rétracté cet</b> avis. <b>Et si vous le souhaitez, dites</b> plutôt .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara demande : <b>Mais</b> si c'est le cas, <b>n'y a-t-il pas ce léger</b>
 La Guemara demande : <b>Mais n'y a-t-il pas</b> aussi les <b>boules</b> d'encens qui sont placées au-dessus des arrangements, ajoutant à la hauteur totale des éléments consacrés par la Table ? La Guemara répond : Les bols d'encens <b>reposaient à l'intérieur</b> du milieu <b>du pain et</b> par conséquent <b>leur</b> hauteur <b>correspondait à celle du pain.</b> La Guemara demande : <b>Mais n'y a-t-il pas</b> les <b>protrusions</b> en forme de cornes du pain de mie, qui ont une hauteur de sept doigts ? Ces protubérances doivent être ajoutées à la hauteur totale des arrangements. La Guemara répond : En ce qui concerne les <b>protubérances,</b> le prêtre les <b>pliait dans</b> le <b>pain, et</b> le pain <b>de mie</b> ci-dessus <b>reposait sur elles.</b> Les protubérances n'augmentaient donc pas la hauteur des arrangements.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

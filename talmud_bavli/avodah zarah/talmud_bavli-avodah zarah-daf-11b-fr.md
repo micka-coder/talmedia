@@ -36,4 +36,4 @@ La Gemara commente : <b>Ces</b> fêtes énumérées dans la mishna sont les fêt
 <strong>GEMARA:</strong> La Gemara demande : <b>Quelles sont les circonstances</b> qui déterminent si un lieu est suffisamment éloigné d'une ville pour être considéré comme <b>en dehors de celle-ci ? Rabbi Shimon ben Lakish dit au nom de Rabbi Ḥanina :</b> Un endroit suffisamment éloigné est, <b>par exemple, le bazar [<i>atluza</i>] de Gaza,</b> qui est situé en dehors des murs de la ville. <b>Et certains disent</b> que <b>Rabbi Shimon ben Lakish a interrogé Rabbi Ḥanina</b> sur cette question : <b>Quel est</b> la <i>halakha</i> en ce qui concerne <b>le bazar de Gaza ?</b> Peut-on y faire des affaires le jour d'une fête célébrée à Gaza ? Le rabbin Ḥanina <b>lui a dit : N'as-tu jamais, au cours de ta vie, voyagé à Tyr et vu un Juif et un Gentil</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

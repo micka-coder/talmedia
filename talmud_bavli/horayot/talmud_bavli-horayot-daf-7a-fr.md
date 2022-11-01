@@ -45,4 +45,4 @@ La <i>baraita</i> continue : <b>Puisqu'il ne réalise pas l'expiation avec le</b
 La Gemara développe : <b>Quelles sont les circonstances</b> d'un prêtre oint émettant une décision pour lui-même ? <b>Si nous disons</b> qu'il s'agit d'un cas <b>où le Grand Prêtre <b>est un érudit distingué</b> <b>et</b> les juges du tribunal <b>ne sont pas des érudits distingués</b>, il est <b>évident qu'il réalise l'expiation par lui-même,</b> car <b>leur décision n'est rien</b> du tout, puisqu'ils n'ont pas consulté l'érudit le plus éminent de la génération. <b>Et</b> en conséquence, <b>chacun</b> de ceux qui ont commis une transgression <b>doit apporter une brebis ou une chèvre</b> comme offrande individuelle pour le péché. <b>Et</b> s'il s'agit d'un cas <b>où les juges <b>sont des savants distingués</b> <b>et lui n'est pas un savant distingué</b>, <b>pourquoi réalise-t-il l'expiation par lui-même ? Sa décision n'est-elle pas rien du tout,</b> et sa transgression est l'exécution involontaire d'une action seule, plutôt qu'une transgression effectuée sur la base d'une décision ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

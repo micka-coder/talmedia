@@ -33,4 +33,4 @@ Rav Ashi lui <b>dit : En ce qui concerne ta</b> prétention, <b>le verset dit</b
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Dans le cas du <b>sang</b> d'une offrande <b>qui est devenue impure et</b> un prêtre l'a <b>aspergé</b> sur l'autel, s'il l'a fait <b>involontairement,</b> l'offrande est <b>acceptée</b> et effectue l'expiation pour le propriétaire de l'offrande. S'il a aspergé le sang <b>intentionnellement,</b> l'offrande est <b>non acceptée. Dans quel</b> cas <b>cette déclaration est-elle dite ? Dans</b> le cas de l'offrande d'un <b>individu. Mais dans</b> le cas d'une <b>offrande communale</b>, <b>qu'il ait aspergé le sang <b>involontairement</b> ou <b>qu'il l'ait fait <b>intentionnellement,</b> l'offrande est <b>acceptée. Et dans</b> le cas d'une offrande d'un <b>gentil</b> où le sang de l'offrande est devenu impur, <b>que le prêtre ait aspergé le sang <b>involontairement</b> ou <b>si</b> il l'a fait <b>intentionnellement, que</b> il l'ait fait <b>en raison de circonstances indépendantes de sa volonté</b> ou <b>si</b> il l'a fait <b>volontairement,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara soutient cette affirmation : la corruption est une référence à <b>
 <b>Et si vous disiez</b> que <b>en effet, c'est ainsi,</b> cela ne peut être correct. <b>Mais Rav Yehuda ne dit-il pas</b> que <b>Shmuel dit : </b> Les Sages ont <b>demandé à Rabbi Eliezer : Jusqu'à quel point</b> on doit s'efforcer d'accomplir la mitsva d'<b>honorer son père et sa mère ?</b> Rabbi Eliezer <b>leur a répondu : Allez voir ce qu'un certain Gentil a fait pour son père à Ashkelon, et son nom est Dama ben Netina. Une fois,</b> les Sages <b>souhaitaient</b> lui acheter des <b>pierres précieuses pour l'éphod</b> du Grand Prêtre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

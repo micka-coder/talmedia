@@ -57,4 +57,4 @@ La Guemara soulève une difficulté : <b>Par déduction,</b> on peut conclure <b
 La Guemara conclut sa question : <b>Devons-nous dire</b> que cette <i>baraita</i> <b>est</b> conforme à l'avis des <b>Rabbins et non</b> à l'avis du <b>Rabbi Dosa ?</b> La Gemara répond : <b>Vous</b> pouvez <b>même dire</b> que c'est conformément à l'avis de <b>Rabbi Dosa,</b> car on peut prétendre que <b>Rabbi Dosa n'est en désaccord avec les Rabbins que</b> dans le cas où une femme voit du sang menstruel <b>au moment fixe de son <b>cycle menstruel. Mais</b> si elle voit du sang <b>non au moment fixe de son</b> <b>cycle menstruel, il est d'accord</b> avec eux qu'elle est impure rétroactivement. <b>Et</b> selon cette réponse, <b>la mishna,</b> qui traite d'une femme qui découvre du sang <b>au moment fixe de son <b>cycle menstruel, est</b> uniquement conforme à l'opinion de <b>Rabbi Dosa,</b> contrairement à l'affirmation précédente.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ Rav Menashe <b>se rendit</b> et <b>demanda</b> aux Sages dans <b>la salle d'étu
 <b>Rava dit :</b> Ils ne partagent pas le même avis, car il y a une différence pratique <b>entre</b> leurs opinions dans un cas de <b>molekh temporaire.</b> Selon Rabbi Elazar, fils de Rabbi Shimon, on est responsable de faire passer son enfant par le feu seulement si c'est en adoration d'un Molekh permanent, alors que selon Rabbi Ḥanina ben Antigonus, on est responsable d'adorer même un Molekh temporaire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

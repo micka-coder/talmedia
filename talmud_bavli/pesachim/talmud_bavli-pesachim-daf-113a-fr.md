@@ -39,4 +39,4 @@ La Guemara continue à donner des conseils sur des questions banales. <b>Rav Pap
 <b>Rabbi Yoḥanan</b> a en outre <b>dit : Le Saint, Béni soit-Il, proclame à propos</b> de la bonté de <b>trois</b> sortes de personnes chaque jour,</b> comme des individus exceptionnels et remarquables : <b>A propos d'un célibataire qui vit dans une ville et ne pèche pas</b> avec les femmes ; <b>A propos d'une personne pauvre qui rend un objet perdu à ses propriétaires</b> malgré sa pauvreté ; <b>et à propos d'une personne riche qui paie la dîme de ses produits en privé,</b> sans rendre public son comportement. La Gemara rapporte : <b>Rav Safra était un célibataire vivant dans une ville.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -62,4 +62,4 @@
 <b>et rassasiés de jours</b> Heb. וּשְׂבַע.De וְשָׂבֵעַ il dit וּשְׂבַע, à l'état de construction.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

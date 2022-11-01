@@ -130,4 +130,4 @@
 <b>Pour avoir pressé du lait</b> Car, de même que le beurre sortira en pressant du lait et le sang en pressant trop le nez, de même la querelle sortira en pressant les narines de la colère. <b>pressing</b> Heb.  מיץ, presser, preindre en ancien français, comme dans (Jud. 6:38) : Et nos Sages ont expliqué (Ber. 63b) : Si tu as été mis dans la honte à cause des paroles de la Torah, en cherchant et en posant tes doutes à ton mentor, même si tu lui apparais comme un imbécile sans intelligence, tu seras finalement exalté ; וימץ, mais si tu as placé une muselière sur ta bouche et que tu l'as muselée, et que tu ne lui as rien demandé, ta fin sera que lorsqu'on te posera une question de halakha, tu porteras ta main à ta bouche et tu seras muet, car tu ne sauras rien répondre à ce sujet. De même que presser du lait donne du beurre, presser de la colère que ton mentor est en colère contre toi pour ne pas avoir compris facilement et que tu as été mis à la honte à cause de cela, finira par faire sortir de ta bouche après un certain temps de nombreuses ( ואם זמות) halachoth et instructions.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

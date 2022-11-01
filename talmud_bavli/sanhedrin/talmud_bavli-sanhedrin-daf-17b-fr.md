@@ -33,4 +33,4 @@ La Guemara demande : <b>Mais</b> dans un cas, il est rapporté que : <b>Ils ont 
 La mishna enseigne que <b>Rabbi Neḥemya dit :</b> Il doit y avoir 230 hommes dans la ville pour qu'elle soit éligible à un Sanhédrin inférieur, correspondant aux ministres des dizaines nommés dans le désert par Moïse à la suggestion de son beau-père, Yitro (voir Exode 18:21). Chaque membre du Sanhédrin peut être considéré comme un juge ayant la responsabilité de dix hommes. Il <b>est enseigné</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

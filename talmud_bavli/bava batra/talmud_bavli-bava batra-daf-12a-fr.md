@@ -45,4 +45,4 @@ En rapport avec cette discussion, la Gemara clarifie les conditions dans lesquel
 <b>Abaye a dit : Sachez</b> qu'il en est ainsi, que les Sages jouissent encore du don prophétique, <b>comme un grand homme fait une déclaration</b> par rapport à un point de <i>halakha</i> <b>et</b> la même déclaration <b>est</b> ensuite <b>citée au nom d'un grand homme différent conformément à sa</b> déclaration, ce qui indique que les Sages font leurs déclarations par voie de prophétie. <b>Rava</b> n'est pas d'accord et <b>dit : Et quelle est la difficulté</b> d'expliquer cela ? <b>Peut-être sont-ils nés sous la même constellation,</b> et comme ils sont semblables dans leurs traits, ils arrivent aux mêmes conclusions. <b>Au contraire, Rava a dit : Sachez</b> qu'il en est ainsi, <b>comme un grand homme fait une déclaration et</b> la même déclaration <b>est</b> ensuite <b>citée</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

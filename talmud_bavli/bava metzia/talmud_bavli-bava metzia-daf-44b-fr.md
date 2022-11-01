@@ -39,4 +39,4 @@ La Gemara demande : <b>Et selon celui qui dit :</b> Il y a <b>un différend mêm
 La Gemara suggère : <b>Conclure que</b> dans cette dispute entre Rabbi Yoḥanan et Reish Lakish <b>c'est Rabbi Yoḥanan qui a dit : On ne désacralise pas</b> les produits avec des dinars d'or, <b>comme l'a dit Rabbi Yoḥanan:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

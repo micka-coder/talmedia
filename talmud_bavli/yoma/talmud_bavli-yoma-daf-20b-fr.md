@@ -33,4 +33,4 @@ Et non seulement la distance était plus grande dans le cas du Grand Prêtre que
 A propos de sons, la Gemara cite que <b>les Sages ont enseigné : S'il n'y avait pas</b> le son de la <b>sphère du soleil,</b> le <b>son de</b> l'agitation de <b>la foule de Rome</b> serait <b>entendu</b> dans le monde entier ; <b>et s'il n'y avait pas le son de</b> l'agitation de <b>la foule de Rome, le son de la sphère du soleil</b> serait <b>entendu</b> dans le monde entier. Et <b>les Sages ont enseigné : Trois sons voyagent de l'extrémité du monde à son</b> autre <b>extrémité, et ce sont : Le son de la sphère du soleil, et</b> le <b>son de</b> l'agitation de <b>la foule de Rome, et le son de l'âme au moment où elle quitte le corps,</b> qui doit être audible dans le monde entier. <b>Et certains disent : Même</b> le son d'une femme qui donne <b>l'accouchement.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

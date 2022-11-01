@@ -42,4 +42,4 @@ La Guemara demande : Concernant <b>cette</b> faute d'adoration d'un <b>idole,</b
 La Guemara répond : L'offrande de bouc expie dans un cas où il a transgressé <b>intentionnellement mais</b> les témoins <b>ne l'ont pas averti</b> de sa transgression, et donc il n'est pas susceptible de recevoir la peine de mort. Il expie également dans un cas où il a transgressé <b>intentionnellement, mais</b> au moment où Yom Kippour est arrivé <b>il n'avait</b> toujours pas pris conscience</b> de sa transgression et donc il n'était pas tenu d'apporter une offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

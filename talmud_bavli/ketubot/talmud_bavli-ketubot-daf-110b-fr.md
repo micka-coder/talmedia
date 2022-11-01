@@ -75,7 +75,7 @@ La Gemara exprime sa surprise : <b>Et</b> peut-on vraiment dire que <b>toute per
 § La Gemara relate : <b>Rabbi Zeira évitait</b> d'être vu <b>par</b> son professeur, <b>Rav Yehuda,</b> car Rabbi Zeira <b>souhaitait monter en Eretz Yisrael</b> et son professeur désapprouvait. <b>Comme l'a dit Rav Yehuda : Toute personne qui monte de Babylone à Eretz Yisrael transgresse une mitzva positive, comme il est dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Cependant,</b> même à l'intérieur d'une même terre, on ne peut <b>pas</b> forcer sa femme à déménager <b>d'une ville à une ville, ni d'une ville à une ville.</b>
 
@@ -152,4 +152,4 @@ La Gemara exprime sa surprise : <b>Et</b> peut-on vraiment dire que <b>toute per
 § La Gemara relate : <b>Rabbi Zeira évitait</b> d'être vu <b>par</b> son professeur, <b>Rav Yehuda,</b> car Rabbi Zeira <b>souhaitait monter en Eretz Yisrael</b> et son professeur désapprouvait. <b>Comme l'a dit Rav Yehuda : Toute personne qui monte de Babylone à Eretz Yisrael transgresse une mitzva positive, comme il est dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara rejette cette suggestion. <b>Peut-être le trouvera-t-il</b> seulemen
 La Guemara revient sur la question de l'annulation du levain. Si oui, <b>qu'il rende</b> le levain <b>nul au cours de la quatrième heure ou qu'il le rende nul au cours de la cinquième heure</b> du quatorze de Nisan. Pourquoi est-il tenu de le faire lorsqu'il recherche du levain le soir du quatorze ? La Guemara répond : <b>Puisque</b> la quatrième heure <b>n'est ni l'heure</b> de l'<b>interdiction</b> du levain <b>ni l'heure</b> de son <b>enlèvement,</b> c'est un point indéfini dans le temps. On craint que <b>peut-être il soit négligent et ne le rende pas nul et non avenu,</b> et que le levain reste en sa possession.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

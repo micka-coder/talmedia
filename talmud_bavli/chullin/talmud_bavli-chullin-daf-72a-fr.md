@@ -36,4 +36,4 @@ Elle est dérivée d'un verset, <b>comme il est dit</b> à propos de l'interdict
 <b>Et les rabbins disent :</b> La chair a l'impureté rituelle d'avoir été en <b>contact avec un <i>tereifa</i> qui a été abattu,</b> car le membre est considéré comme un <i>tereifa</i> qui a été abattu. Selon la loi de la Torah, bien qu'il soit interdit de le consommer, il ne transmet pas d'impureté rituelle. Néanmoins, les Sages ont décrété qu'une <i>Téréifa</i> qui a été abattue, ainsi que tout ce qui entre en contact avec elle, est considérée comme rituellement impure au point de disqualifier les aliments sacrificiels qui entrent en contact avec elle.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -60,7 +60,7 @@ La Gemara rejette l'interprétation de Rav Sheshet pour une raison différente. 
 <b>Abaye a plutôt dit : Voici</b> ce que le <i>baraita</i> <b>dit :</b> En ce qui concerne <b>celui qui achète un champ au nom de son ami l'Exilarque,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>pour acheter du blé pour lui,</b> qu'il prévoit de vendre avec un bénéfice, <b>et</b> au lieu de cela l'agent <b>a acheté de l'orge avec</b> l'argent, ou s'il a donné à son agent de l'argent pour acheter de l'<b>orge et</b> au lieu de cela <b>il a acheté du blé avec</b> l'argent, deux <i>baraitot</i> émettent des décisions discordantes en ce qui concerne la <i>halakha</i>. <b>Il est enseigné</b> dans <b>une</b> <i>baraita</i> que <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>profit est pour</b> l'agent également, car on considère qu'il a abrogé son statut d'agent en s'écartant des instructions. <b>Et il est enseigné</b> dans <b>un</b> <i>baraita</i> (<i>Tosefta</i>, <i>Bava Metzia</i> 4:20) que s'il y avait un accord selon lequel les deux parties partageraient les bénéfices de la transaction, <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>bénéfice</b> va <b>au milieu,</b> c'est-à-dire, l'agent et l'investisseur partagent le bénéfice.
 
@@ -122,7 +122,7 @@ La Gemara rejette l'interprétation de Rav Sheshet pour une raison différente. 
 <b>Abaye a plutôt dit : Voici</b> ce que le <i>baraita</i> <b>dit :</b> En ce qui concerne <b>celui qui achète un champ au nom de son ami l'Exilarque,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>pour acheter du blé pour lui,</b> qu'il prévoit de vendre avec un bénéfice, <b>et</b> au lieu de cela l'agent <b>a acheté de l'orge avec</b> l'argent, ou s'il a donné à son agent de l'argent pour acheter de l'<b>orge et</b> au lieu de cela <b>il a acheté du blé avec</b> l'argent, deux <i>baraitot</i> émettent des décisions discordantes en ce qui concerne la <i>halakha</i>. <b>Il est enseigné</b> dans <b>un</b> <i>baraita</i> que <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>profit est pour</b> l'agent également, car on considère qu'il a abrogé son statut d'agent en s'écartant des instructions. <b>Et il est enseigné</b> dans <b>un</b> <i>baraita</i> (<i>Tosefta</i>, <i>Bava Metzia</i> 4:20) que s'il y avait un accord selon lequel les deux parties partageraient les bénéfices de la transaction, <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>bénéfice</b> va <b>au milieu,</b> c'est-à-dire, l'agent et l'investisseur partagent le bénéfice.
 
@@ -184,7 +184,7 @@ La Gemara rejette l'interprétation de Rav Sheshet pour une raison différente. 
 <b>Abaye a plutôt dit : Voici</b> ce que le <i>baraita</i> <b>dit :</b> En ce qui concerne <b>celui qui achète un champ au nom de son ami l'Exilarque,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>pour acheter du blé pour lui,</b> qu'il prévoit de vendre avec un bénéfice, <b>et</b> au lieu de cela l'agent <b>a acheté de l'orge avec</b> l'argent, ou s'il a donné à son agent de l'argent pour acheter de l'<b>orge et</b> au lieu de cela <b>il a acheté du blé avec</b> l'argent, deux <i>baraitot</i> émettent des décisions discordantes en ce qui concerne la <i>halakha</i>. <b>Il est enseigné</b> dans <b>une</b> <i>baraita</i> que <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>profit est pour</b> l'agent également, car on considère qu'il a abrogé son statut d'agent en s'écartant des instructions. <b>Et il est enseigné</b> dans <b>un</b> <i>baraita</i> (<i>Tosefta</i>, <i>Bava Metzia</i> 4:20) que s'il y avait un accord selon lequel les deux parties partageraient les bénéfices de la transaction, <b>s'il y a eu une perte, la perte est pour</b> l'agent, <b>et s'il y a eu un bénéfice,</b> le <b>bénéfice</b> va <b>au milieu,</b> c'est-à-dire, l'agent et l'investisseur partagent le bénéfice.
 
@@ -246,4 +246,4 @@ La Gemara rejette l'interprétation de Rav Sheshet pour une raison différente. 
 <b>Abaye a plutôt dit : Voici</b> ce que le <i>baraita</i> <b>dit :</b> En ce qui concerne <b>celui qui achète un champ au nom de son ami l'Exilarque,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

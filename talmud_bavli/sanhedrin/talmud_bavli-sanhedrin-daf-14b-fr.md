@@ -42,4 +42,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> <b>conformément</b> à l'avis <
 § La mishna enseigne que <b>les évaluations</b> qui sont des biens meubles sont effectuées par trois juges. La Guemara demande : <b>Qu'est-ce que</b> est la signification de : <b>Les évaluations qui sont des biens meubles?</b> Le terme : Valuations, fait généralement référence à un type de calcul unique dans lequel on fait le vœu de contribuer à la valeur d'une personne, selon les montants fixés explicitement dans la Torah (voir Lévitique 27:1-8). Ce type de calcul ne s'applique pas aux biens, alors à quoi la mishna fait-elle référence ? <b>Rav Giddel dit</b> que <b>Rav dit :</b> La mishna discutait d'un cas <b>où l'on dit : L'évaluation de cet ustensile</b> incombe <b>à moi</b> de contribuer. <b>Comme le dit le Rav Giddel</b> ce <b>Rav dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

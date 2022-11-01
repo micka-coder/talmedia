@@ -24,4 +24,4 @@ Dans le cas où <b>le père est mort et les fils sont vivants, Rabbi Meir dit : 
 Rava continue : <b>Et tout le monde accepte</b> l'avis <b>du Rav Asi, car Rav Asi dit :</b> Dans le cas de <b>frères qui ont divisé</b> des biens qu'ils ont reçus en héritage, en ce qui concerne <b>la moitié</b> de ceux-ci, ils sont considérés comme <b>héritiers et</b> en ce qui concerne l'autre <b>moitié</b> ils sont considérés comme <b>acheteurs</b> les uns des autres. <b>Et</b> en outre, <b>tout le monde</b> s'accorde à dire que <b>un prêt écrit dans la Torah,</b> c'est-à-dire une obligation financière par la loi de la Torah, comme le rachat du premier-né,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

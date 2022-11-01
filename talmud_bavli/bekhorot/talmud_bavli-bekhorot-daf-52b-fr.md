@@ -51,4 +51,4 @@ La Gemara répond : <b>En fait,</b> Rabbi Yoḥanan ben Beroka <b>soutient</b> q
 <b>Et</b> ceci est <b>comme il est enseigné</b> dans une <i>baraita</i> discutant des <i>halakhot</i> liées à l'enterrement qui servent à maintenir l'honneur de la famille : Dans le cas de <b>celui qui vend sa tombe, ou le chemin</b> menant à <b>sa tombe,</b> ou <b>l'endroit</b> où les visiteurs se <b>seraient</b> pour réconforter les endeuillés, <b>ou le lieu de ses éloges funèbres, les membres de</b> sa <b>famille peuvent venir l'enterrer</b> dans sa parcelle ancestrale <b>contre</b> la volonté de l'acquéreur, en raison</b> de la nécessité d'éviter <b>une tare familiale,</b> c'est-à-dire. e., l'atteinte au nom de la famille. <b>Et quel</b> est le sens de la clause : <b>Et déduire pour eux</b> une partie <b>de la valeur monétaire</b> du bien ? Cela signifie qu'il doit déduire <b>la valeur monétaire</b> <b>de la tombe de sa femme</b> de la valeur du champ, car un mari est obligé de payer pour la sépulture de sa femme (voir <i>Ketubot</i> 47b).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

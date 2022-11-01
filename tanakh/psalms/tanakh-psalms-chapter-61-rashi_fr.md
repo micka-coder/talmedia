@@ -27,4 +27,4 @@
 <b>Je chanterai aussi des louanges</b> Tout comme Tu me feras du bien, je chanterai aussi des louanges à Ton nom en payant mes voeux chaque jour.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> comment <b>l'autre</b> <i>tanna</i> explique-t-ell
 <b>Les Sages enseignaient</b> dans une <i>baraita</i> : <b>Un prêtre, à partir</b> du moment où il atteint la puberté et <b>laisse pousser deux</b> poils pubiens jusqu'à ce qu'il vieillisse, est apte au</b> service du Temple, et les taches le disqualifient. Un lévite, de l'âge de trente ans jusqu'à l'âge de cinquante ans, est apte à</b> au <b>service du Temple, et</b> le passage des <b>années le disqualifie. Dans quel</b> cas <b>cette déclaration est-elle dite ? </b> Elle est dite <b>en ce qui concerne la Tente de la Rencontre</b> du Tabernacle <b>dans le désert. Mais en ce qui concerne Silo et dans le Temple éternel,</b> les Lévites <b>sont disqualifiés uniquement</b> en raison d'un changement <b>de voix</b> qui les rend incapables de réciter les chants dans le Temple avec leurs frères. <b>Rabbi Yosei a dit : Quel est le verset</b> dont il est tiré ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@
 <b>Rav Ḥisda a dit : Le quart</b>-<i>log</i> de mesure <b>de la Torah est de deux paires de doigts par deux paires de doigts</b> en volume, <b>en hauteur de deux paires de doigts et d'une demi-paire de doigts et d'un cinquième de paires de doigts.</b> Cette affirmation est <b>telle qu'elle a été enseignée</b> dans une <i>baraita</i> concernant un bain rituel, au sujet duquel le verset indique : <b>"Et il baignera toute sa chair dans l'eau"</b> (Lévitique 15:16), à partir duquel les Sages ont exposé : Cette phrase enseigne <b>que rien ne doit s'interposer entre sa chair</b> et <b>l'eau.</b> L'expression <b>"dans l'eau"</b> indique que le verset se réfère à une étendue d'eau spécifique, c'est-à-dire <b>à l'eau d'un bain rituel.</b> La phrase <b>"toute sa chair"</b> enseigne que l'on doit s'immerger dans <b>une eau dans laquelle tout son corps peut entrer</b> en même temps. <b>Et combien cela représente-t-il ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

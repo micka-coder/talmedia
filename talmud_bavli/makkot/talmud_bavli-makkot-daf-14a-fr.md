@@ -36,4 +36,4 @@ La Gemara demande : <b>Et</b> selon <b>l'autre</b> avis des rabbins, qui déduis
 La Gemara demande : <b>Et</b> selon <b>l'autre</b> avis de Rabbi Yitzḥak, qui dérive une autre matière du terme "sœur" dans ce dernier verset, d'où dérive-t-il la responsabilité pour celui qui a engagé des rapports sexuels avec une femme qui est à la fois sa sœur paternelle et sa sœur maternelle ? La Gemara répond : <b>Si tu veux, dis qu'il dérive</b> la <b>punition de l'interdiction;</b> de même que l'interdiction inclut les rapports sexuels avec une femme qui est à la fois sa sœur paternelle et sa sœur maternelle, il en va de même pour la punition. <b>Et si vous voulez, dites</b> plutôt que <b>il en dérive</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

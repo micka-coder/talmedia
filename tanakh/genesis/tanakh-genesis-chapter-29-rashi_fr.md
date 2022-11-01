@@ -105,5 +105,5 @@
 ### passuk 35
 <b>Cette fois, je vais louer.</b> "Car j'ai pris plus que ma part par conséquent je devrais être reconnaissant."
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

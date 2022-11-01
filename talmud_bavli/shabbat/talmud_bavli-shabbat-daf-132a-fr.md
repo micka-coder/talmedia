@@ -75,4 +75,4 @@ Nous pouvons plutôt expliquer que <b>Voici ce qu'il dit :</b> "Le <b>huitième<
 <b>Quelle est la raison</b> de ceci ? <b>Elle est</b> dérivée au moyen d'une <b>déduction <i>a fortiori</i> : Tout comme la lèpre, qui outrepasse le</b> <b>service du Temple,</b> car un prêtre lépreux ne peut pas servir dans le Temple et il est interdit de couper les symptômes de la lèpre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

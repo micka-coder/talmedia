@@ -17,5 +17,5 @@ Les taureaux que l'on brûle et les chèvres que l'on brûle : lorsqu'ils sont b
 ### michna 6
 Ils les portaient sur des bâtons [hors de la cour du Temple]. Si ceux qui sont devant ont dépassé le mur de la cour du Temple, mais que ceux qui sont derrière ne sont pas [encore] sortis, ceux qui sont devant souillent leurs vêtements, tandis que ceux qui sont derrière ne souillent pas leurs vêtements, jusqu'à ce qu'ils sortent. Lorsqu'ils sortent tous les deux, ils souillent tous les deux leurs vêtements. Rabbi Shimon dit : ni l'un ni l'autre ne souillent [leurs vêtements] jusqu'à ce que le feu brûle dans la plus grande partie d'entre eux. Lorsque la chair est dissoute, celui qui la brûle ne souille pas ses vêtements.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

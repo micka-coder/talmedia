@@ -60,4 +60,4 @@ L'effet de cette détermination est <b>que</b> même <b>lorsque</b> le fruit <b>
 Dans le même ordre d'idées, <b>Ravina a dit : Si Rabbi Yoḥanan n'avait pas dit</b> que <b>les pieux et Rabbi Dosa disaient la même chose, je dirais : Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> l'avis des <b>pieux ? C'est Rabbi Dosa.</b> J'aurais dit cela <b>afin qu'une mishna non attribuée ne présente pas</b> <b>une difficulté à</b> l'opinion de <b>Rabbi Yoḥanan. Et</b> la raison pour laquelle cela aurait résolu la difficulté est que <b>Rabbi Yoḥanan</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

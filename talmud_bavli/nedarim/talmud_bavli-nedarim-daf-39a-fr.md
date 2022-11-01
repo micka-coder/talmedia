@@ -18,4 +18,4 @@ La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>S'il est tombé 
 La Guemara demande : <b>Pourquoi</b> cette distinction entre la mishna et la <i>baraita</i> a-t-elle été énoncée <b>sans qualification ? Rava dit : </b> En ce qui concerne <b>Shmuel,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

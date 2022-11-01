@@ -70,7 +70,7 @@
 <b>cry out</b> Heb. תַּעֲרֹג, criera, comme l'a interprété Dunash (<i>Teshuvoth Dunash</i>, p. 18) : ערג est le cri des biches. נהם est le rugissement des lions ; געה est le bêlement des veaux ; צהל est le hennissement des chevaux ; צִפצוּף est le gazouillis des oiseaux, et נבח est l'aboiement des chiens. [<b>Aussi les bêtes des champs</b> - c'est-à-dire les biches des champs].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>À Joël fils de Pethuel</b> - Le fils de Samuel le prophète qui a persuadé Dieu par sa prière (פִתָּה לְאֵל) . Certains disent que cette prophétie a été dite pendant ces sept années où Élisée a dit : "Car l'Éternel a décrété une famine etc." et elles ont eu lieu à l'époque de Jéhoram fils d'Achab.
 
@@ -142,4 +142,4 @@
 <b>cry out</b> Heb. תַּעֲרֹג, criera, comme l'a interprété Dunash (<i>Teshuvoth Dunash</i>, p. 18) : ערג est le cri des biches. נהם est le rugissement des lions ; געה est le bêlement des veaux ; צהל est le hennissement des chevaux ; צִפצוּף est le gazouillis des oiseaux, et נבח est l'aboiement des chiens. [<b>Aussi les bêtes des champs</b> - c'est-à-dire les biches des champs].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

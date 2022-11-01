@@ -33,4 +33,4 @@ La Guemara rejette cette affirmation : <b>Ici,</b> l'explication est en fonction
 La Guemara rejette cette preuve. <b>N'a-t-il pas été dit à propos de ce</b> différend <b>que Rav et Shmuel ont tous les deux dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

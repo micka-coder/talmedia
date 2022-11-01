@@ -72,4 +72,4 @@ Rav Ḥagga <b>le recueillit.</b> Le corps du fils de Rabbi Ḥiyya <b>Yehuda gi
 La Guemara relate que <b>lorsque Rabba bar Huna et Rav Hamnuna sont morts, on les a emmenés</b> tous les deux <b>là-haut,</b> en Eretz Yisrael.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

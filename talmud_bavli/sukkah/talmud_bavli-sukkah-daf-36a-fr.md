@@ -30,4 +30,4 @@ Cela a également été enseigné dans la <i>baraita</i> : En ce qui concerne <b
 <b>Alternativement, Rabbi Shimon a énoncé son opinion uniquement là</b> en ce qui concerne l'exemption de la dîme d'une <i>crogue</i> non mûre, <b>comme il est écrit : "Tu prélèveras la dîme sur tous les produits de ta plantation,</b> qui sortent du champ année après année" (Deutéronome 14:22). De ce verset, on déduit que l'obligation de donner la dîme ne s'applique qu'aux produits qui se sont développés au point où il est <b>typique pour les gens de les sortir</b> dans le champ <b>pour les semer;</b> on n'est pas obligé de donner la dîme des fruits non mûrs qui ne sont pas aptes à être plantés. <b>Cependant,</b> peut-être <b>Il tient ici conformément</b> à l'opinion des <b>Rabbins,</b> qui ne sont pas d'accord avec Rabbi Akiva et jugeraient un <i>crogue</i> non mûre apte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

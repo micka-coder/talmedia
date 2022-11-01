@@ -21,4 +21,4 @@ La Gemara demande : <b>Qu'y a-t-il de différent</b> dans <b>un vœu</b> qui lui
 § La Gemara demande : <b>Et</b> le principe <b>qu'on ne peut pas faire de serment pour transgresser les mitzvot découle-t-il d'ici,</b> c'est-à-dire du verset ci-dessus ? <b>Il est dérivé de là,</b> c'est-à-dire d'un autre verset, <b>comme cela est enseigné</b> dans une <i>baraita</i> : On <b>pourrait</b> avoir pensé que si l'on <b>fait le serment d'annuler une mitsva et qu'on ne l'annule pas,</b> on <b>pourrait</b> avoir pensé qu'on <b>serait responsable</b> de la violation d'un serment sur une déclaration.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

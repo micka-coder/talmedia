@@ -63,4 +63,4 @@ La Guemara poursuit : <b>Qui sont ces trois hommes ?</b> Ce sont les anges <b>Mi
 La Gemara demande : <b>Qu'est-ce qui est différent par rapport</b> à l'incident impliquant <b>Abraham,</b> où les anges ont acquiescé immédiatement à sa demande de rester avec lui, <b>comme il est écrit : "Fais ainsi, comme tu l'as dit"</b> (Genèse 18:5), <b>et ce qui est différent à l'égard de Lot,</b> où ils ont d'abord manifesté de la réticence, <b>comme il est écrit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

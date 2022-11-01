@@ -42,4 +42,4 @@ La Gemara demande : Même <b>si</b> les témoins <b>rétractent</b> leur témoig
 <strong>MISHNA:</strong> <b>Lorsque</b> le condamné <b>se trouve à une distance de quatre coudées du lieu de lapidation, on lui enlève ses vêtements. On couvre les organes génitaux</b> d'un homme <b>par devant, et une femme</b> est couverte à la fois <b>par devant et par derrière;</b> telle est <b>la déclaration de Rabbi Yehuda. Mais les rabbins disent : Un homme est lapidé nu,</b> c'est-à-dire ne portant que cette couverture de tissu, <b>mais une femme n'est pas lapidée nue,</b> mais est lapidée habillée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

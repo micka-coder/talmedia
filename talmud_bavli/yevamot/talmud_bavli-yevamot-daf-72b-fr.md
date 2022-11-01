@@ -57,4 +57,4 @@ La Guemara soulève une difficulté : <b>Si c'est le cas,</b> selon Rabbi Yehoud
 <b>Et si le Miséricordieux avait écrit : Et ils prendront...et ils placeront, je dirais que deux</b> personnes doivent <b>prendre</b> les cendres <b>et deux</b> doivent <b>placer</b> l'eau dessus, mais si ces rites sont accomplis par moins de deux personnes, ils sont invalides. <b>La Torah</b> déclare donc : "Et ils prendront... et il placera", </b> pour enseigner <b>que même</b> si <b>deux</b> personnes <b>prennent</b> les cendres <b>et qu'une</b> personne <b>placera</b> l'eau sur elles, le rituel est valide. Le verset ayant dû être formulé précisément de cette manière afin d'enseigner que <i>halakha</i>, les mots "et il placera" ne peuvent être compris comme venant exclure une femme.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

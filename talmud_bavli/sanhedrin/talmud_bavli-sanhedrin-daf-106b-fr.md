@@ -66,4 +66,4 @@ La Guemara cite <b>un moyen mnémotechnique</b> pour les <i>halakhot</i> qui sui
 <b>Et Rabbi Yoḥanan dit : Initialement, David a appelé Ahithophel son professeur, et finalement, il l'a appelé son collègue, et finalement, il l'a appelé son élève. Initialement,</b> David <b>appelait</b> Ahithophel <b>son professeur,</b> comme il est dit : <b>"Mais c'était toi, un homme mon égal, mon maître [<i>alufi</i>], et mon ami familier"</b> (Psaumes 55:14) ; un maître est appelé <i>aluf</i> car il forme [<i>me'alef</i> ] ses élèves. <b>Et finalement, il l'appelait son collègue,</b> comme il est dit : <b>"Nous avons pris ensemble un doux conseil, et nous avons marché vers la maison de Dieu avec la foule"</b> (Psaumes 55, 15) ; le terme ensemble indique qu'ils étaient égaux. <b>Et finalement, il l'appelait son élève,</b> comme il est dit : <b>"Même mon propre ami familier, en qui j'avais confiance,</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

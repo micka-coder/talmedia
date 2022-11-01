@@ -14,5 +14,5 @@ Une civière, le matelas et l'oreiller d'un cadavre sont susceptibles d'être so
 ### michna 5
 Un filet de pêche est susceptible d'être impur en raison de son sac. Les filets, les pièges, les pièges à oiseaux, les élingues et les écheveaux des pêcheurs sont susceptibles d'être impurs. Un piège à poissons, un panier à oiseaux et une cage à oiseaux ne sont pas susceptibles d'être impurs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara explique : <b>Puisque Rav Yitzḥak, fils de Rav Mesharshiyya, dit</b
 Abaye lui <b>dit : Nous avons ici affaire à</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

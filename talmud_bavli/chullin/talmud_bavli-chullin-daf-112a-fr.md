@@ -30,4 +30,4 @@ La Gemara relate : <b>Shmuel jetait à son chien</b> telle miche de pain qu'il t
 <b>Rav Ashi s'oppose à cela : Mais peut-être que le dessous</b> de la viande, qui est le plus proche des charbons, a été entièrement <b>rôti,</b> mais que sa partie <b>supérieure</b> est encore <b>non rôtie</b> et expulse encore du sang à ce stade. <b>Au contraire, Rav Ashi a dit :</b> Celui qui souhaite recueillir les coulures <b>n'a pas de remède sauf</b> à <b>y placer deux morceaux de sel,</b> c'est-à-dire un dans le réceptacle sous la viande et un au-dessus, dans la viande elle-même.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

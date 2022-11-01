@@ -48,4 +48,4 @@ La Guemara demande : Cette résolution <b>fonctionne bien</b> dans le cas des ob
 La Guemara demande : <b>Mais ne désire-t-il pas sa préservation</b> dans le sens <b>de ne pas être volé ou perdu ? Au contraire, Rav Pappa dit</b> qu'il y a une résolution différente : <b>Vous dites</b> qu'il y a une difficulté provenant du cas de <b>l'héritage d'un converti ? L'héritage d'un converti est différent, car les Sages ont été indulgents à son égard,</b> comme un <b>décret rabbinique, de peur qu'il ne retourne à ses habitudes corrompues</b> s'il lui était interdit d'hériter des biens de son père. Dans le cas de celui qui n'est pas converti et qui désire la conservation d'un objet de culte idolique, il lui est interdit d'en tirer profit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

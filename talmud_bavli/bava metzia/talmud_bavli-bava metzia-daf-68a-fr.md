@@ -42,4 +42,4 @@ La Gemara commente : <b>Et de nos jours, lorsque nous écrivons</b> un document 
 <strong>GEMARA :</strong> Les Sages <b>ont enseigné :</b> Lorsque la mishna indique que le propriétaire doit payer le gérant de l'entreprise comme un ouvrier salarié, cela signifie qu'il doit le payer <b>comme un ouvrier oisif.</b> La Gemara pose une question : <b>Qu'est-ce que cela signifie de payer quelqu'un <b>comme un ouvrier oisif ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

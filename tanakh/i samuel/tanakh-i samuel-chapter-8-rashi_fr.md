@@ -32,4 +32,4 @@
 <b>Pour les parfumeurs.</b> Qui préparent les parfums et les épices pour les cosmétiques de ses femmes. <sup>8</sup><i class="footnote">Comme ce verset traite de la préparation des aliments, <span>רַקָּחוֹת</span> peut aussi être traduit par confiseurs ou par les personnes qui produisent les différentes épices utilisées dans la préparation des viandes.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

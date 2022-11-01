@@ -60,4 +60,4 @@ La raison en est <b>qu'un esclave dirait n'importe quoi,</b> c'est-à-dire que t
 <b>Rabbi Zeira s'oppose</b> au postulat de base de la <i>baraita</i> selon lequel lorsqu'un maître inflige deux blessures à son esclave cananéen, il doit indemniser l'esclave pour la deuxième blessure. On peut <b>dire</b> au contraire que si le maître <b>éblouit</b> l'<b>oeil de son esclave,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

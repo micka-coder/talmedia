@@ -42,4 +42,4 @@ La Gemara demande : <b>Pourquoi ai-je</b> besoin de <b>tous ces</b> cas différe
 <b>Et si le Miséricordieux avait écrit</b> ces deux <b>matières,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

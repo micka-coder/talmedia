@@ -45,4 +45,4 @@ La Guemara poursuit l'analyse de ce différend. <b>Venez</b> et <b>entendez</b> 
 <b>Rabba a dit,</b> en explication de la dispute entre les <i>amora'im</i> : <b>Partout,</b> c'est-à-dire, en ce qui concerne tout article, <b>qui était initialement d'un volume équivalent à la mesure requise, <b>mais qui maintenant n'est pas</b> d'un tel volume, la <i>halakha</i> est déterminée en fonction du volume actuel de l'article, et <b>il n'est pas du</b> volume requis. Inversement, <b>partout,</b> c'est-à-dire en ce qui concerne tout article, <b>qui initialement n'était pas de</b> la mesure requise <b>mais qui maintenant est de</b> volume suffisant, l'article contracte l'impureté <b>par la loi rabbinique.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara répond à cette question : En fait, en ce qui concerne un aveugle, <
 § <b>Ils ont soulevé un dilemme devant Rabbi Ami :</b> En ce qui concerne <b>un esclave, quelle est</b> la <i>halakha</i> ? <b>Peut-on en faire un agent pour recevoir l'acte de divorce d'une femme de la main de son mari ?</b> Est-il qualifié pour agir en tant qu'agent ou non ? <b>Il leur répondit : Du</b> fait que la mishna <b>disqualifie un gentil,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

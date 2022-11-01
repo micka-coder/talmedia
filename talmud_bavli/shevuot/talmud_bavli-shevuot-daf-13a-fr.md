@@ -48,4 +48,4 @@ La Guemara remet en cause cette preuve : <b>Pourquoi pas ? Vous</b> pourriez <b>
 <b>Disons plutôt</b> que la preuve de Rava est la suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

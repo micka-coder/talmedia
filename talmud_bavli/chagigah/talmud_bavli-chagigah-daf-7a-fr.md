@@ -51,4 +51,4 @@ Cette explication est <b>conforme</b> à l'opinion de <b>Rabbi Levi, car ce dern
 § Plus tôt, le <i>baraita</i> enseignait : Le peuple <b>ne doit pas apparaître partiellement,</b> comme le dit le verset : "Tous vos hommes" (Exode 23:17). <b>Rav Yosef a pensé à dire : Celui qui a dix fils</b> ne doit <b>pas laisser cinq monter maintenant et</b> les autres <b>cinq demain.</b> Au contraire, ils doivent tous monter au Temple ensemble.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

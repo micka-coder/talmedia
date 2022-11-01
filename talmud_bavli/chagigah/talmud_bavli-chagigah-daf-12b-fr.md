@@ -45,4 +45,4 @@ La Guemara pose une question : En ce qui concerne <b>ces</b> choses énumérées
 <b>Et les ténèbres, les nuages et le brouillard L'entourent, comme il est dit : "Il a fait des ténébres sa cachette, de son pavillon son entourage ; des ténébres des eaux, des nuages épais des cieux"</b> (Psaumes 18:12). La Gemara demande : <b>Et y a-t-il des ténèbres devant le Ciel,</b> c'est-à-dire devant Dieu ? <b>Mais n'est-il pas écrit : <b>Il révèle des choses profondes et secrètes, Il sait ce qu'il y a dans les ténèbres, et la lumière demeure avec Lui"</b> (Daniel 2:22), démontrant que seule la lumière, et non les ténèbres, se trouve auprès de Dieu ? La Guemara répond : Ce n'est <b>pas difficile. Ce</b> verset, qui affirme que seule la lumière demeure avec Lui, fait référence...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara demande en outre : <b>Pourquoi ai-je</b> besoin du terme <b>venant, qu
 La Guemara s'interroge sur le terme habitation, écrit en rapport avec l'interdiction de la nouvelle récolte. <b>Accordé, selon celui qui dit</b> que le terme <b>habitation indique quel que soit le lieu où l'on habite, ceci</b> explique le fait <b>qu'il soit écrit</b> à propos du peuple juif immédiatement après son entrée en Eretz Yisrael : <b>"Et ils mangèrent les produits du pays le lendemain de la Pâque"</b> (Josué 5:11). Cela signifie que <b>le lendemain de la Pâque</b> ils <b>mangeaient</b> les produits d'Eretz Yisrael, mais <b>initialement,</b> avant cette date, ils <b>ne les mangeaient pas</b>. <b>Apparemment,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara demande : <b>Et Rav Naḥman</b> a-t-il réellement <b>dit cela ? Mai
 La Gemara demande : <b>Est-ce à dire que Rav Naḥman soutient</b> que seule <b>une matière qui peut être</b> conférée comme cadeau <b>par une personne en bonne santé</b> avec un acte d'acquisition <b>peut être</b> conférée comme cadeau <b>par une personne sur son lit de mort</b> au moyen d'une instruction verbale, mais une matière <b>qui ne peut être</b> conférée en don <b>par une personne saine ne peut être</b> conférée en don <b>par une personne sur son lit de mort ? </b> Par conséquent, une personne sur son lit de mort ne peut transférer la propriété d'un droit incorporel, tout comme une personne en bonne santé ne peut le faire. <b>Mais Rava ne dit-il pas</b> que <b>Rav Naḥman dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

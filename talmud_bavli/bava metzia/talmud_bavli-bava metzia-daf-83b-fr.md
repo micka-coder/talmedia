@@ -42,4 +42,4 @@ La Guemara s'interroge sur la nature de cette preuve : Ce n'est pas une preuve s
 La Gemara relate : <b>Et un incident similaire est également arrivé à Rabbi Yishmael, fils de Rabbi Yosei,</b> c'est-à-dire qu'il a lui aussi été nommé chef de service.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

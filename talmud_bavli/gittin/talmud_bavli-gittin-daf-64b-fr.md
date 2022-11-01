@@ -42,4 +42,4 @@ La Gemara rejette cette preuve : La <b>sortie des ruelles est différente,</b> c
 <b>Rav Ḥisda a dit :</b> Rav Ḥinnana de <b>Vardonia s'est tu</b> et n'a pas eu de réponse. La Gemara demande : <b>Qu'aurait-il pu dire</b> en réponse ? La Guemara répond qu'il aurait pu répondre : <b>Toutes</b> les ordonnances <b>que les Sages ont instituées,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

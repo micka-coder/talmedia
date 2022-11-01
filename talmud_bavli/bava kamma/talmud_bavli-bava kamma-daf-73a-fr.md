@@ -60,4 +60,4 @@ Et <b>Rabbi Yosei soutient,</b> comme Abaye, <b>que</b> un témoin conspirateur 
 Les Sages <b>Disent,</b> en rejetant cette opinion : <b>Si</b> on admettait que le statut juridique d'une pause ou d'une rétractation <b>dans</b> le temps nécessaire <b>pour prononcer</b> une courte phrase <b>est comme</b> celui d'une <b>parole continue, tout le monde</b> serait d'accord pour dire que les témoins sont <b>disqualifiés rétroactivement,</b> et leur témoignage concernant le vol serait également annulé. <b>Mais ici, ils sont en désaccord</b> sur cette question précise, à savoir si le statut juridique d'une pause ou d'une rétractation <b>dans le temps requis <b>pour prononcer</b> une courte phrase <b>est comme</b> celui d'une <b>parole continue. Les rabbins soutiennent que</b> si la pause est <b>dans</b> le temps nécessaire <b>pour parler</b> une courte phrase, alors les deux aspects du témoignage fourni par les témoins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

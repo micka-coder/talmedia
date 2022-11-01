@@ -69,4 +69,4 @@ La Guemara relate à propos de Rabbi Zeira : <b>Tous les trente jours, il s'exam
 § La Guemara aborde le sujet de l'acquisition de la connaissance de la Torah. <b>Rav Yehuda dit</b> que <b>Rav dit : Quel</b> est le sens de ce <b>qui est écrit : "Qui est l'homme sage, pour qu'il puisse comprendre ceci ? Et qui est celui à qui la bouche de l'Eternel a parlé, pour qu'il le déclare ? Pourquoi le pays a-t-il été perdu</b> et dévasté comme un désert, de sorte que personne n'y passe ? ". (Jérémie 9:11). <b>Cette affaire,</b> c'est-à-dire la question : Pourquoi la terre a-t-elle été perdue,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

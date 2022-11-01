@@ -51,4 +51,4 @@ La Gemara répond : <b>On le trouve dans</b> le cas du <b>mur bas</b> sur le Mon
 <b>Rabbi Shimon dit</b> que ces versets doivent être compris de manière opposée : <b>"Sur les maisons où ils le mangeront" enseigne que</b> une personne <b>qui mange</b> l'agneau pascal <b>peut le manger</b> dans deux endroits.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

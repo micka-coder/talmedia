@@ -33,4 +33,4 @@ La Guemara répond : <b>Rav Huna, fils de Rav Yehoshua,</b> n'est pas venu expli
 La Guemara considère un nouveau cas : <b>Rav Ḥanin bar Rava a dit</b> que <b>Rav a dit:</b> En ce qui concerne <b>une ruelle qui a été violée,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

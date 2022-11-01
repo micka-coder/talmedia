@@ -26,5 +26,5 @@ Celui qui a planté deux rangées [de vignes], s'il n'y a pas huit coudées entr
 ### michna 9
 Celui qui plante sa vigne à seize coudées, seize coudées [séparant chaque rangée], il peut y apporter de la semence. Rabbi Juda a dit : Il est arrivé à Tsalmon qu'un homme plante sa vigne sur [un plan de] seize coudées, seize coudées [séparant chaque rangée]. Une année], il tournait les pointes des pampres de deux [rangées adjacentes] vers un endroit, et semait le sillon [entre les deux], et l'année suivante, il tournait les pointes des pampres dans la direction opposée, et semait la terre qui n'avait pas été labourée [l'année précédente]. La question a été soumise aux sages, qui l'ont déclarée permise. Rabbi Meir et Rabbi Shimon disent : même celui qui a planté sa vigne avec huit coudées [entre deux rangées], cela est permis.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

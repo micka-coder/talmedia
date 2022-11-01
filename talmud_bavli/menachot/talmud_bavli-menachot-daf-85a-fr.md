@@ -39,4 +39,4 @@ La Guemara explique que le <i>baraita</i> apporte une résolution au dilemme : <
 La Gemara rejette cette preuve : <b>Mais</b> même <b>selon votre raisonnement,</b> en définitive <b>la mishna n'enseigne pas</b> qu'il laboure le champ et ensuite <b>répète</b> le labour ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

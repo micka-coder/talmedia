@@ -24,4 +24,4 @@ Si le vendeur a vendu du blé <b>brun rougeâtre</b> <b>et qu'il se trouve</b> �
 <strong>GEMARA:</strong> <b>Rav Ḥisda dit : </b> Si le vendeur lui <b>vendait</b> un objet qui valait <b>cinq</b> dinars <b>pour six</b> dinars, <b>et</b> l'objet <b>devenait plus cher et</b> sa valeur <b>était de huit</b> dinars, et que le vendeur souhaitait rendre l'argent et annuler la vente parce que la valeur de l'objet avait augmenté, <b>qui a été exploité</b> ici ? <b>L'acheteur;</b> donc, <b>l'acheteur, mais pas le vendeur, peut renier</b> la vente, malgré le fait que dans une telle situation, le vendeur est perdant. Ceci est <b>parce que</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

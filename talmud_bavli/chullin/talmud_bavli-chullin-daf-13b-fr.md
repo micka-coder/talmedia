@@ -39,4 +39,4 @@ La Gemara demande : <b>D'où tirez-vous cette conclusion</b> ? <b>Peut-être que
 <b>Rav Pappa a dit :</b> Le <i>tanna</i> de la <i>baraita</i> fait référence <b>à</b> un cas <b>où</b> il y a <b>une torche en face</b> de l'abatteur ; par conséquent, il est permis <i>ab initio</i>. <b>Rav Ashi a dit :</b> Le langage de la <i>baraita</i> <b>est également précis, car</b> l'abattage de nuit <b>est enseigné là</b> dans la <i>baraita</i> <b>similaire à</b> l'abattage <b>de jour,</b> basé sur la juxtaposition : Aussi bien le jour que la nuit. <b>Et ici</b> l'abattage de nuit est enseigné <b>similaire</b> à l'abattage effectué <b>par un aveugle</b>, sans lumière, sur la base de la juxtaposition : Celui qui égorge la nuit, et de même l'aveugle qui égorge. Par conséquent, l'abattage n'est valable qu'après coup. La Guemara conclut : <b>Les leçons à en tirer.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,7 +72,7 @@ Shmuel <b>a dit à</b> Rav Huna : <b>Nous avons déjà ceci</b> comme une <i>hal
 ...Y
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>et jurent au Seigneur des armées;</b> on l'appellera la ville de la destruction" (Isaïe 19:18). <b>Ils se rendirent à Alexandrie en Égypte, construisirent un autel et sacrifièrent</b> des offrandes <b>sur celui-ci à cause du Ciel, comme il est dit</b> dans le verset suivant : <b>"En ce jour-là, il y aura un autel au Seigneur au milieu du pays d'Égypte,</b> et une colonne à sa frontière, au Seigneur" (Isaïe 19:19).
 
@@ -146,4 +146,4 @@ Shmuel <b>a dit à</b> Rav Huna : <b>Nous avons déjà ceci</b> comme une <i>hal
 ...Y
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

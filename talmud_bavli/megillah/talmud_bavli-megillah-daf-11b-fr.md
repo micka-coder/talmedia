@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais il a calculé correctement;</b> pourquoi alors cela
 La Gemara demande : <b>Enfin, combien</b> d'années <b>ont manqué ? Onze,</b> car l'exil de Sédécias a eu lieu onze ans après celui de Yehoyachin. <b>Combien</b> d'années <b>ont-elles manqué</b> à Assuérus <b>de régner</b> comme roi ? <b>Quatorze.</b> En effet, <b>dans sa quatorzième année,</b> alors, <b>le Temple aurait dû être construit.</b> Si tel est le cas, <b>pourquoi est-il écrit : "Alors les travaux de la Maison de Dieu, qui est à Jérusalem, cessèrent,</b> ainsi ils cessèrent jusqu'à la deuxième année du règne de Darius, roi de Perse" (Esdras 4:24), ce qui indique que le Temple ne fut pas construit pendant tout le règne d'Assuérus ? <b>Rava a dit : Les années</b> comptées <b>étaient des années partielles</b>. Pour compléter les soixante-dix ans, il fallait attendre la deuxième année du règne de DariusÂ II, où effectivement le Temple a été construit.
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -93,4 +93,4 @@ En ce qui concerne l'endroit approprie pour prier, <b>Rav Kahana a dit : Je cons
 Employant un langage parallele, <b>Rav Kahana a egalement dit : Je considere impudent celui qui precise sa transgression, comme il est dit : "Heureux celui dont l'iniquite est pardonnee, dont la transgression est couverte"</b> (Psaumes 32:1) ; celui qui dissimule ses transgressions indique qu'il en a honte, et a cause de sa honte, il sera pardonne.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

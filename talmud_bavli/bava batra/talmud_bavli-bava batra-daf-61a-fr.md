@@ -21,4 +21,4 @@ Mar Zutra répondit : <b>Comment peut-on</b> ces cas <b>être comparés ? Là,</
 La mishna enseigne que celui qui vend une maison sans préciser ce qui est inclus dans la vente n'a pas vendu la galerie, <b>ni</b> n'a vendu <b>la pièce derrière</b> la maison, même si elle n'est accessible que <b>de celle-ci.</b> La Gemara demande : <b>Maintenant</b> que la mishna a enseigné que <b>une galerie n'est pas vendue</b> avec la maison, <b>est-il</b> nécessaire</b> d'enseigner que <b>une pièce</b> derrière la maison n'est pas incluse dans une telle vente ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

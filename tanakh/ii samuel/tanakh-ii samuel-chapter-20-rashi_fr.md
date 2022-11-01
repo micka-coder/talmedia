@@ -77,7 +77,7 @@
 <b>Etait un Kokein pour David.</b> Il [David] lui donnait [Eiroh] tous ses cadeaux de Kehunah, c'est ce que nos rabbins ont expliqué.<sup>17</sup><i class="footnote">Eiruvin 63a.</i>L'explication simple du verset est qu'il [David] l'a fait [Eiroh] officier et juge.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Il a invité.</b> Invité Langue comme celle de "Il a invité ses invités."<sup>1</sup><i class="footnote">Tsaphania 1:7.</i> "Avshalom a invité tous les enfants du roi."<sup>2</sup><i class="footnote">Chmouel II, 13:23.</i> Langue dénotant "inviter".
 
@@ -156,4 +156,4 @@
 <b>Etait un Kokein pour David.</b> Il [David] lui donnait [Eiroh] tous ses cadeaux de Kehunah, c'est ce que nos rabbins ont expliqué.<sup>17</sup><i class="footnote">Eiruvin 63a.</i>L'explication simple du verset est qu'il [David] l'a fait [Eiroh] officier et juge.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

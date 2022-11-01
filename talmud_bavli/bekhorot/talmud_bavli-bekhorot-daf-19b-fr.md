@@ -9,4 +9,4 @@
 <b>Mais</b> dans un cas <b>où une femelle a émergé par césarienne et</b> par la suite <b>un mâle</b> est né <b>par le ventre, qu'il soit sanctifié, car il est</b> le <b>premier-né des mâles et</b> le <b>premier-né du ventre. </b> On ne peut pas déduire les exclusions de ces deux cas à partir du mot "premier-né", et pourtant la <i>baraita</i> indique que même si une femme est née la première par césarienne, le mâle né ensuite n'est pas considéré comme le premier-né. La Guemara conclut : <b>Il est plutôt clair</b> que la <i>baraita</i> doit être interprétée <b>conformément</b> à l'explication de <b>Abaye,</b> qu'un premier né sous un aspect n'est pas appelé premier né.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

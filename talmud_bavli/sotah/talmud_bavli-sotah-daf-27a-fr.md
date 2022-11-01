@@ -30,4 +30,4 @@ La Gemara demande : <b>A propos de quoi sont-ils en désaccord ?</b> La Guemara 
 § <b>Les Sages ont enseigné</b> que le verset : "C'est la loi de la jalousie, <b>quand une femme, sous l'autorité de son mari, s'égare</b> et se souille" (Nombres 5:29), est superflu et sert <b>à comparer un homme à une femme et une femme à un homme.</b> La Gemara demande : <b>A l'égard de quelle <i>halakha</i></b> cette comparaison est-elle nécessaire ? <b>Rav Sheshet répond :</b> Cela enseigne que <b>comme si</b> le mari <b>était aveugle, il ne la ferait pas boire, comme il est écrit : "Et elle était cachée aux yeux de son mari"</b> (Nombres 5:13), indiquant que le rituel de la <i>sota</i> ne s'applique que si le mari était capable de voir son infidélité mais ne l'a pas fait ; <b>de même</b> en ce qui concerne la femme, <b>si elle était aveugle, elle ne boirait pas. Rav Ashi</b> dit également : De même qu'une femme boiteuse et une femme sans mains ne boiraient pas, comme il est écrit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne le jour <b>avant</b> la Nouvell
 § <b>Le Maître a dit</b> ci-dessus : <b>Du huit de</b> Nisan <b>jusqu'à la fin de la fête</b> de Pessah, la fête de <i>Shavuot</i> a été rétablie et il a été décrété de ne pas faire d'éloge. La Guemara demande : <b>Pourquoi ai-je besoin de <i>Megillat Ta'anit</i> pour dire : <b>Jusqu'à la fin de la fête ? Qu'il dise : Jusqu'à la Fête,</b> puisqu'il est de toute façon <b>interdit</b> de faire l'éloge de la fête de Pessah. Rav Pappa dit que cela aussi doit être expliqué <b>comme Rav l'a dit : Il est nécessaire</b> de mentionner le premier de Nisan.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

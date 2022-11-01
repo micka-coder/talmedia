@@ -69,4 +69,4 @@ La Gemara demande : <b>Cela marche bien selon celui qui dit : Celui qui admet</b
 La Gemara répond : Cette clause ne sert pas à exclure un autre cas ; plutôt, <b>elle est nécessaire</b> pour préfacer <b>cette dernière clause</b> qui enseigne que les seules personnes acceptées comme témoins en cas de dommages sont à la fois...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

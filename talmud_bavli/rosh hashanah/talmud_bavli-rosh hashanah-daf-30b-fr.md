@@ -45,4 +45,4 @@ La Guemara explique : <b>Puisqu'ils n'ont récité</b> aucun psaume <b>du tout, 
 La Guemara explique l'objection de cette <i>baraita</i> : <b>Grâce à toi, si tu dis</b> que <b>lorsqu'il y a un doute</b> par rapport à ce qu'il faut dire, <b>on récite le chant de</b> un <b>jour de semaine ordinaire, c'est</b> le sens de <b>ce que</b> la <i>tanna</i> <b>déclare : On récite</b> le psaume pour un jour de semaine ordinaire <b>et</b> ensuite <b>on le répète. Cependant, si vous dites</b> que dans un cas de doute <b>aucun</b> psaume <b>n'est récité du tout, quel est</b> le sens de la clause : <b>On le récite et on le répète ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

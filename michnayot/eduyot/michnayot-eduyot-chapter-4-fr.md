@@ -35,5 +35,5 @@ Celui qui a fait vœu [de garder] un naziréat plus long [que l'ordinaire] et qu
 ### michna 12
 Un homme qui a été placé sous le fossé : Beth Shammai dit : il ne fait pas passer l'impureté. Mais Beth Hillel dit : un homme est creux, et le côté supérieur fait passer l'impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

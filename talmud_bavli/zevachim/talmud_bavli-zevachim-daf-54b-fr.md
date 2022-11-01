@@ -33,4 +33,4 @@ Le verset qui suit ces versets dit : <b>"Nous en avons entendu parler comme éta
 Concernant tous ceux-ci, <b>leur abattage</b> est <b>au nord</b> de la cour du Temple <b>et la collecte de leur sang dans un récipient de service</b> est <b>au nord, et leur sang nécessite deux placements qui sont quatre. Et</b> les portions de viande de l'offrande <b>sont mangées à l'intérieur des rideaux,</b> c'est-à-dire dans la cour du Temple, <b>par les prêtres masculins.</b> Et elles sont mangées préparées <b>de n'importe quelle</b> manière de <b>alimentation</b> préparation, <b>le</b> jour</b> où l'offrande a été sacrifiée <b>et</b> pendant la <b>nuit</b> qui suit, <b>jusqu'à minuit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

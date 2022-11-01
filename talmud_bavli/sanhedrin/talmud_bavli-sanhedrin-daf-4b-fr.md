@@ -51,4 +51,4 @@ Il apparaît donc que même lorsqu'il n'y a pas de différence dans la façon do
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Les cas de <b>droit monétaire</b> sont jugés <b>par trois</b> juges.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

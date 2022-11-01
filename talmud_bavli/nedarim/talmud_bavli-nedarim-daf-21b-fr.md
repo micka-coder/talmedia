@@ -27,4 +27,4 @@ La Guemara fait précéder la discussion suivante d'un <b>dispositif mnémotechn
 La Guemara relate qu'il y avait <b>une certaine</b> personne <b>qui s'est présentée devant Rabbi Asi</b> pour demander la dissolution d'un vœu. Rabbi Asi <b>lui dit : As-tu des regrets ? Il lui a répondu</b> de manière rhétorique : <b>Non,</b> n'ai-je pas de regret ? En d'autres termes, certainement j'ai des regrets. <b>Et il a dissous</b> le vœu <b>pour lui.</b> De même, il y avait <b>une certaine</b> personne <b>qui est venue devant Rabbi Elazar,</b> et Rabbi Elazar <b>lui a dit : Voulais-tu faire un vœu ? </b> Était-ce vraiment ton désir ? <b>Il a dit à</b> Rabbi Elazar : <b>Si on ne m'avait pas mis en colère, je n'aurais rien voulu. Il lui a dit : Que ce soit comme tu le veux,</b> et le vœu est dissous. Dans un autre cas, il y avait <b>une certaine femme qui avait fait un vœu à l'égard de sa fille</b> que celle-ci ne puisse pas bénéficier d'elle, et elle <b>se présenta devant Rabbi Yoḥanan</b> pour dissoudre le vœu. <b>Il lui dit : Si tu avais su que tes voisins diraient à propos de ta fille :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

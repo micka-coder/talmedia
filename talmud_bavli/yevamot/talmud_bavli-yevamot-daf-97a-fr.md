@@ -21,4 +21,4 @@ La Guemara pose une question par rapport à la <i>halakha</i> elle-même : <b>Et
 Sur la même question, la Gemara relate : <b>Lorsqu'ils venaient devant Rava</b> pour s'enquérir de quelqu'un qui avait atteint l'âge de la maturité mais qui n'avait pas encore développé les signes physiques, <b>si</b> la personne en question était <b>mince, il leur disait : Allez</b> et <b>l'engraisser</b> avant que nous décidions de son statut. <b>Et s'il</b> était <b>gros, il leur dirait : Allez</b> et <b>rendez-le mince</b>. Comme ces signes,</b> les poils pubiens de la maturité, <b>parfois ils tombent à cause de la maigreur et parfois ils tombent à cause de la graisse.</b> Il est donc possible qu'après l'ajustement de sa forme corporelle, il développe les signes de la maturité et n'ait pas le statut d'eunuque.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

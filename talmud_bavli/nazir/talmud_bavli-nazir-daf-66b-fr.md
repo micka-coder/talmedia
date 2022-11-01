@@ -12,4 +12,4 @@ La Gemara répond : Ceci <b>est</b> une dispute entre <b><i>tanna'im</i>, comme 
 <b>Rabbi Elazar a dit</b> que <b>Rabbi Ḥanina a dit : Les érudits de la Torah augmentent la paix dans le monde, comme il est dit : "Et tous tes enfants [<i>banayikh</i>] seront instruits du Seigneur, et grande sera la paix de tes enfants"</b> (Isaïe 54:13). Les Sages ont interprété ce verset de manière homilétique : Ne le lisez pas comme : " Tes enfants [<i>banayikh</i>] ", mais comme : Vos bâtisseurs [<i>bonayikh</i>]. Les érudits de la Torah sont ceux qui construisent la paix pour leur génération.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

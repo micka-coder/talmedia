@@ -39,4 +39,4 @@ La mishna enseigne : <b>On évalue</b> le nombre de coups de fouet que celui qui
 <b>Si</b> celui qui est fouetté <b>mort à</b> la <b>main</b> du préposé, ce dernier est <b>exempté,</b> car il a agi selon les directives du tribunal. Si le préposé <b>a ajouté pour lui un coup de fouet</b> supplémentaire avec <b>une courroie et qu'il est mort,</b> le préposé <b>est exilé</b> dans une ville de refuge <b>pour son compte,</b> comme meurtrier involontaire. <b>Si</b> celui qui est fouetté involontairement <b>se souille,</b> par peur ou par douleur, <b>que ce soit avec des excréments ou de l'urine,</b> il est <b>exempté</b> de nouveaux coups de fouet. <b>Rabbi Yehuda dit</b> que le seuil de la honte pour les hommes et les femmes est différent : <b>L'homme</b> est exempté s'il se souille <b>avec des excréments, et la femme</b> est exemptée même <b>avec de l'urine.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

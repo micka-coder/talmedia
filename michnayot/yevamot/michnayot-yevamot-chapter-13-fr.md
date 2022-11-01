@@ -38,5 +38,5 @@ Si un yavam qui était mineur a eu des rapports sexuels avec un yevamah qui éta
 ### michna 13
 Si une femme a fait le vœu de ne pas bénéficier de son yavam : Si le vœu a été fait du vivant du mari, ils le forcent à accomplir la halitzah, [Si son vœu a été fait] après la mort de son mari, ils lui demandent d'accomplir la halitzah. Si telle était son intention, [même si son vœu a été fait] du vivant de son mari, ils lui demandent d'accomplir la halitzah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Guemara relate que <b>Rabbi Yirmeya</b> est un jour <b>allé visiter</b> cert
 <b>Rav Hamnuna a dit : On peut</b> également <b>établir un <i>eirouv</i> avec des betteraves crues.</b> La Gemara soulève une difficulté : <b>Est-ce le cas ? Rav Ḥisda n'a-t-il pas dit : La betterave crue tue une personne en bonne santé,</b> ce qui indique que la betterave est malsaine et doit donc être impropre à l'établissement d'un <i>eirouv</i> ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

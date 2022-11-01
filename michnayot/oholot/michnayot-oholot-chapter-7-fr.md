@@ -17,5 +17,5 @@ Si [à la naissance de jumeaux] le premier est sorti mort et le second est sorti
 ### michna 6
 Si une femme a du mal à accoucher, on coupe l'enfant dans son ventre et on le fait sortir membre par membre, car sa vie passe avant celle de [l'enfant]. Mais si la plus grande partie est sortie, on ne peut pas y toucher, car on ne peut pas mettre de côté la vie d'une personne pour celle d'une autre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

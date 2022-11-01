@@ -48,4 +48,4 @@ La Guemara répond : La première dérivation citée <b>était nécessaire.</b> 
 La Guemara demande plus loin : <b>Mais quand même,</b> on peut argumenter que cette dérivation n'est pas nécessaire,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Nous avons appris dans la mishna : Celui qui a recite : Qui cree des fruits de l
 Partant de la, <b>il a pu te venir a l'esprit de dire, puisque Rabbi Yehouda a dit</b> que <b>le ble est une sorte d'arbre, on doit reciter sur lui : Qui cree les fruits de l'arbre.</b> Par consequent, la mishna <b>nous a appris</b> qu'en ce qui concerne les benedictions, le principe est different. <b>Ou doit-on reciter : Qui cree le fruit de l'arbre ? </b> Uniquement dans un cas <b>ou, quand on prend le fruit, la branche reste et produit a nouveau</b> des fruits.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara répond : <b>C'est là qu'ils sont en désaccord</b> en ce qui concer
 En revanche, <b>Rabbi Elazar et Rabbi Shimon soutiennent</b> que le mot <b>vierge implique une vierge complète,</b> dont le signe de virginité est complètement intact. Par conséquent, lorsque le verset dit : <b>"Sa virginité"</b>, il indique que <b>même si</b> elle n'a qu'une <b>partie</b> de son signe de <b>virginité,</b> à cet égard, elle est toujours considérée comme vierge.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

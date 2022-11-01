@@ -57,4 +57,4 @@ La Gemara répond : La <b><i>tanna</i></b> de <b>cette</b> mishna <b>est en acco
 La Guemara discute des sources de ces exceptions. <b>D'où dérive-t-on</b> que <b>celui qui fait un serment</b> en utilisant le nom de Dieu est fouetté ? <b>Rabbi Yoḥanan dit au nom de Rabbi Meir</b> que <b>le verset dit : "Car l'Éternel ne tiendra pas pour innocent celui qui prend Son nom en vain"</b> (Exode 20, 7). On peut en déduire : <b>La cour supérieure,</b> c'est-à-dire céleste, <b>la cour</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

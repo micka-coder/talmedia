@@ -45,4 +45,4 @@ La Guemara relate : <b>Et</b> il y eut un <b>incident impliquant Rabban Gamliel 
 La Guemara rapporte une variation sur la dispute entre Rabban Gamliel et les sages : <b>Rabbi Yehuda dit en son nom,</b> le nom de Rabbi Akiva. En ce qui concerne <b>tout ce qui est des sept especes</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

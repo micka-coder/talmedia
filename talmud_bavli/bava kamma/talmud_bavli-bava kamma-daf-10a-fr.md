@@ -63,7 +63,7 @@ La Guemara rejette la possibilité que la mishna puisse faire référence à ce 
 La Guemara rejette cette suggestion : <b>Quelles sont les circonstances ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il y a <b>une rigueur qui s'applique à</b> la catégorie de <b>Ox par opposition à Feu,</b> et inversement, il y a <b>une rigueur qui s'applique à Feu par opposition à Ox.</b>
 
@@ -128,4 +128,4 @@ La Guemara rejette la possibilité que la mishna puisse faire référence à ce 
 La Guemara rejette cette suggestion : <b>Quelles sont les circonstances ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

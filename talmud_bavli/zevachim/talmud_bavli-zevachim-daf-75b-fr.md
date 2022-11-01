@@ -54,4 +54,4 @@ La mishna ajoute : Même selon l'avis des rabbins, si des <b>parties</b> de la v
 Rabba <b>leur a dit : Vous</b> pouvez <b>même dire</b> que la <i>baraita</i> est conforme à l'avis de <b>Rabbi Shimon. Cette affirmation,</b> selon laquelle on peut amener des animaux sacrifiés à l'état d'inaptitude, ne s'applique que dans un cas qui est <b>a posteriori,</b> comme dans la mishna, où les offrandes se sont entremêlées. Rabbi Shimon n'a <b>pas</b> permis que l'on amène des animaux sacrifiés à l'état d'inaptitude <b><i>ab initio</i>.</b> La Gemara demande : <b>Et</b> Rabbi Shimon <b>ne permet-il pas</b> d'amener des animaux sacrifiés à l'état d'inaptitude <b><i>ab initio</i> ? Abaye soulève une objection à</b> Rabba à partir d'une mishna qui traite de la manière de manger la viande des offrandes (Zevachim 90b) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

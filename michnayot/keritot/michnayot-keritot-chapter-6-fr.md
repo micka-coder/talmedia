@@ -26,5 +26,5 @@ On peut apporter avec [l'argent] destiné à l'achat d'un agneau [pour une hatat
 ### michna 9
 Rabbi Shimon dit : les agneaux sont mentionnés avant les chèvres dans tous les endroits. On pourrait penser que c'est parce qu'ils sont plus choisis, mais l'Écriture dit : "Et s'il apporte un agneau comme offrande," (Lévitique 4:32) pour enseigner que les deux sont égaux. Les tourterelles sont mentionnées avant les jeunes pigeons dans tous les endroits. On pourrait penser que c'est parce qu'elles sont plus appréciées, mais l'Ecriture dit : "Un jeune pigeon ou une tourterelle pour une hatat"(Lévitique 12:6) pour enseigner que les deux sont égaux. Le père passe avant la mère dans tous les cas. On pourrait penser que c'est parce que l'honneur dû à un père est plus grand que l'honneur dû à une mère, c'est pourquoi l'Écriture déclare : "L'homme craindra sa mère et son père" (Lévitique 19 : pour enseigner que les deux sont égaux. Mais les sages ont dit : le père passe avant la mère en tout lieu, car le fils et sa mère sont tous deux tenus d'honorer le père. Et il en va de même pour l'étude de la Torah : si le fils a été digne [de s'asseoir] devant le professeur, le professeur passe avant le père en tout lieu, car un homme et son père sont tenus d'honorer le professeur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

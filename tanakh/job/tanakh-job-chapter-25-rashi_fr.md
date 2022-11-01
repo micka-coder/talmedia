@@ -15,4 +15,4 @@
 <b>et ne brilleront pas</b> Heb. יאהיל, comme (Isa. 13:10), "ne permettra pas à leur lumière d'éclairer (יהלו)", et ce "alef" a la même fonction que (I Sam. 2:33), "et d'attrister (ולאדיב) ton cœur", dans lequel le "alef" est superflu. Autre explication : יַאֲהִיל, vous n'aurez pas d'ombre. Quand il ne brille pas, il n'y a pas d'ombre. Je préfère la première, mais j'ai entendu les deux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -15,4 +15,4 @@ La Guemara présente <b>un dispositif mnémotechnique</b> pour la série suivant
 La Guemara présente la première question. <b>Rav Pappa dit à Abaye : Accordé, selon celui qui dit</b> que <b>Eretz</b> Yisrael <b>a été divisé entre ceux qui ont quitté l'Egypte, c'est</b> le sens de ce <b>qui est écrit : "Au plus grand tu donneras le plus grand héritage, et au plus petit tu donneras le plus petit héritage"</b> (Nombres 26, 54). Le verset peut être compris comme enseignant la nouveauté que, même si le nombre de Juifs entrant en Eretz Yisrael différait du nombre de ceux qui ont quitté l'Égypte, la terre est néanmoins divisée selon le nombre au moment de l'Exode, et non selon le nombre au moment où ils ont reçu la terre.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

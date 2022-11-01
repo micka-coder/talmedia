@@ -66,4 +66,4 @@ En ce qui concerne <b>le lion, la fièvre le soutenait,</b> car lorsqu'il souffr
 A propos des armes miraculeuses d'Abraham, la Gemara relate : <b>Naḥum de Gam Zo avait l'habitude que</b> en réponse à <b>toute</b> circonstance <b>qui se présentait à son</b> égard, il <b>disait : Ceci aussi [<i>gam zo</i>] est pour le mieux. Un jour, le peuple juif chercha à envoyer un cadeau [<i>doron</i>] à l'empereur. Ils dirent : Avec</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

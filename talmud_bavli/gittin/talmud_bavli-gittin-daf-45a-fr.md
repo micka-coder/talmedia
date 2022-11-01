@@ -69,4 +69,4 @@ En entendant cela, Rav Ilish <b>arracha</b> et <b>s'échappa. Lui et cet homme</
 <strong>MISHNA:</strong> <b>Et</b> les <b>rubans de la Torah, les phylactères ou les <i>mezuzot</i> ne sont pas achetés aux Gentils</b> lorsqu'ils acquièrent ces objets, s'ils demandent <b>plus que leur</b> valeur monétaire réelle,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

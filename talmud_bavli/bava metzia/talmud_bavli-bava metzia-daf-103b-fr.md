@@ -42,7 +42,7 @@ La mishna enseigne : <b>Et tous les deux,</b> c'est-à-dire le propriétaire et 
 <strong>GEMARA:</strong> La Gemara demande : <b>Quelles sont les circonstances</b> de la décision de la mishna ? <b>Si l'on dit que le grand fleuve</b> dont partent tous les canaux <b>s'est asséché, pourquoi</b> ne soustrait-il pas de</b> la production <b>qu'il</b> doit dans le cadre de <b>sa location ? Que</b> le cultivateur <b>dise</b> qu'il <b>est</b> le résultat d'une <b>catastrophe régionale.</b> Par conséquent, il devrait pouvoir soustraire du produit qu'il doit. <b>Rav Pappa a dit :</b> Le cas dans la mishna est <b>lorsqu'une petite rivière</b> qui irrigue ce champ seul <b>s'est asséchée, comme</b> le propriétaire foncier peut lui <b>dire :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>les branches</b> taillées dans les vignes <b>et les perches. Et tous deux,</b> c'est-à-dire le propriétaire et celui qui cultive le champ, tous deux <b>fournissent les perches.</b>
 
@@ -86,4 +86,4 @@ La mishna enseigne : <b>Et tous les deux,</b> c'est-à-dire le propriétaire et 
 <strong>GEMARA:</strong> La Gemara demande : <b>Quelles sont les circonstances</b> de la décision de la mishna ? <b>Si l'on dit que le grand fleuve</b> dont partent tous les canaux <b>s'est asséché, pourquoi</b> ne soustrait-il pas de</b> la production <b>qu'il</b> doit dans le cadre de <b>sa location ? Que</b> le cultivateur <b>dise</b> qu'il <b>est</b> le résultat d'une <b>catastrophe régionale.</b> Par conséquent, il devrait pouvoir soustraire du produit qu'il doit. <b>Rav Pappa a dit :</b> Le cas dans la mishna est <b>lorsqu'une petite rivière</b> qui irrigue ce champ seul <b>s'est asséchée, comme</b> le propriétaire foncier peut lui <b>dire :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

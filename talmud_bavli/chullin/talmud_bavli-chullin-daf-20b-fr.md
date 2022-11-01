@@ -36,4 +36,4 @@ La Gemara demande : <b>Si c'est le cas,</b> il devrait y avoir une obligation de
 La Gemara objecte : <b>Mais n'y a-t-il pas</b> <b>la minorité des <i>simanim</i> selon les rabbins, qui n'invalident pas l'abattage,</b> comme, si l'on a abattu une majorité des <i>simanim</i> et qu'une minorité est restée non coupée, l'abattage est valide, <b>et</b> ils soutiennent que <b>ils invalident la séparation ?</b> La Gemara clarifie : <b>Disons plutôt : Tout</b> élément <b>qui est</b> en vigueur <b>en ce qui concerne l'abattage est</b> en vigueur <b>en ce qui concerne la séparation, et tout</b> élément <b>qui n'est pas</b> en vigueur <b>en ce qui concerne l'abattage n'est pas</b> en vigueur <b>en ce qui concerne la séparation. </b> Les deux <i>simanim</i>, bien qu'ils n'invalident pas l'abattage, font partie de la mitzva de l'abattage, tandis que la peau ne fait pas partie de la mitzva de l'abattage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

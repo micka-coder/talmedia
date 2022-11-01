@@ -28,4 +28,4 @@
 <b>Il incombe au Seigneur de sauver, etc.</b> Il lui incombe de sauver ses serviteurs et son peuple, et il incombe à son peuple de le bénir et de le remercier à jamais.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

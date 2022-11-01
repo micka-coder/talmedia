@@ -42,4 +42,4 @@ On raconte encore que <b>Ravina avait prêté de l'argent aux habitants de la fo
 La Guemara ajoute : <b>Aussi, il est enseigné</b> dans une <i>baraita</i> <b>en ce qui concerne le culte des idoles comme ce cas : On peut aller</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

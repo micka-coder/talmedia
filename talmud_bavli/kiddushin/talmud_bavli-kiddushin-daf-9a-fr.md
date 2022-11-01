@@ -39,4 +39,4 @@ La Gemara demande : <b>Là,</b> dans le cas d'une vente, <b>il est aussi écrit 
 § <b>Rabbi Shimon ben Lakish soulève un dilemme :</b> En ce qui concerne <b>un document de fiançailles qui n'a pas été écrit pour elle,</b> c'est-à-dire pas pour cette femme en particulier, <b>qu'est-ce que</b> la <i>halakha</i> ? Doit-on <b>juxtaposer</b> les <i>halakhot</i> des <b>modes de devenir</b> fiancé <b>aux</b> <i>halakhot</i> des <b>modes de quitter</b> un mariage, c'est-à-dire le divorce ? Si oui, il faut dire : <b>Juste comme</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara commente : <b>Du fait</b> qu'il est dit</b> que le <i>taḥash</i> <b
 La Guemara ajoute incidemment : <b>Et du fait</b> que <b>Rav Adda bar Ahava a interprété</b> cette mishna <b>conformément</b> à l'opinion de <b>Rabbi Yehuda, concluez de cela</b> qu'il <b>tient conformément</b> à l'opinion de <b>Rabbi Yehuda. Rav Adda bar Ahava</b> a-t-il réellement <b>dit cela ? Rav Adda bar Ahava</b> n'a-t-il pas lui-même <b>dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

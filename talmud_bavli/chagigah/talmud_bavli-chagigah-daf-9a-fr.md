@@ -54,4 +54,4 @@ La Guemara poursuit . <b>Ne dit-on pas Ḥizkiya</b> que si un nazirite <b>devie
 <b>Rav Pappa s'oppose fermement à ce</b> raisonnement : <b>Cela marche bien selon celui qui a dit</b> que <b>la seconde <i>Pesaḥ</i></b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara émend les détails de l'incident : Ceux qui ont loué la mule <b>n'on
 <strong>MISHNA :</strong> Il y a <b>quelqu'un qui a emprunté une vache. Il l'a empruntée</b> pour <b>la moitié</b> de la <b>journée et l'a louée</b> pour l'autre <b>moitié</b> de la <b>journée;</b> ou <b>il l'a empruntée</b> pour <b>aujourd'hui et l'a louée</b> pour <b>demain;</b> ou <b>il a loué une</b> vache <b>et en a emprunté</b> une autre <b>une</b> à la même personne. <b>Et</b> dans l'un des deux premiers cas, la vache <b>morte</b> et on ne sait pas pendant quelle période la vache est morte. Ou dans le dernier cas, une des vaches est morte et on ne sait pas si elle avait été la vache empruntée ou la vache louée. Si <b>le prêteur</b> dit alors :</b> La vache <b>empruntée</b> est celle qui est <b>morte;</b> ou : <b>Elle est morte le jour où elle a</b> été <b>empruntée;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

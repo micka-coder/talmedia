@@ -75,5 +75,5 @@
 ### passuk 20
 <b>Jusqu'à ce qu'elle soit conquise.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le sens est "conquête". Jusqu'à ce qu'elle vous soit assujettie.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

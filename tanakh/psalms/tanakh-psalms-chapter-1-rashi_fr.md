@@ -25,4 +25,4 @@
 <b>Parce que le Seigneur connaît la voie, etc.</b> Car Il connaît la voie du juste, et elle est devant Lui pour la reconnaître constamment ; la voie du méchant lui est odieuse, et Il l'enlève de devant Lui. C'est pourquoi le pied des méchants ne se lèvera pas au jour du jugement, et les pécheurs ne seront pas inscrits dans l'assemblée des justes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

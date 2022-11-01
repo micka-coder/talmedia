@@ -63,4 +63,4 @@ La mishna mentionne : <b>Et des cadeaux</b> distribués <b>aux pauvres. Rav Yose
 La Guemara relate que, le jour de Pourim, <b>Rabbi Yehuda Nesia envoya à Rabbi Oshaya la jambe d'un </b> veau de troisième naissance et une cruche de vin.</b> Rabbi Oshaya <b>lui envoya</b> un message de gratitude :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

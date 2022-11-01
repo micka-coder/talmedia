@@ -30,4 +30,4 @@ Nous avons appris dans la mishna qu'il existe une différence de <i>halakha</i> 
 Nous avons appris dans la mishna qu'il y a une différence entre <b>celui qui est conscient que</b> le jour <b>est Chabbat</b> et accomplit un travail et celui qui oublie l'essence du Chabbat et accomplit des travaux interdits.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

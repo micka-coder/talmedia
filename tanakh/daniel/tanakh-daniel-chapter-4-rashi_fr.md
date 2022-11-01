@@ -142,4 +142,4 @@
 <b>Ceux qui marchent avec arrogance</b> Ceux qui marchent avec arrogance Il peut les humilier.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

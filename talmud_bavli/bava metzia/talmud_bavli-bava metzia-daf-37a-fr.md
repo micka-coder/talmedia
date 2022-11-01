@@ -51,4 +51,4 @@ La Guemara répond : <b>Ici,</b> dans la mishna où l'on a volé de l'argent à 
 En ce qui concerne la restitution de l'argent volé, <b>le Maître dit : Là,</b> il fait référence à un cas <b>où</b> les demandeurs <b>demandent</b> un paiement <b>de sa part.</b> La Gemara demande : <b>Et l'autre</b> personne, le voleur, <b>que réclame-t-il</b> en réponse ? <b>Rav Yehuda</b> répond que <b>Rav dit : L'autre</b> personne <b>se tait,</b> car elle ne sait pas à qui elle doit l'argent. <b>Rav Mattana</b> dit que <b>Rav dit : L'autre</b> personne
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

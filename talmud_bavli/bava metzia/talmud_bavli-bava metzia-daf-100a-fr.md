@@ -72,7 +72,7 @@ La Gemara répond : <b>Sumakhos concède</b> que <b>lorsqu'il y a</b> une obliga
 <b>Et Shmuel dit :</b> La mishna fait référence à un cas <b>où l'acheteur <b>réclame</b> qu'il a acheté <b>un vêtement d'un grand esclave,</b> et le vendeur admet lui avoir vendu <b>un vêtement d'un petit esclave. </b> Et dans le cas du champ, l'acheteur prétend avoir acheté les <b>miches</b> produites par <b>un grand champ,</b> et le vendeur admet lui avoir vendu les <b>miches</b> produites par <b>un petit champ.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA : </strong>En ce qui concerne <b>celui qui échange une vache contre un âne,</b> de telle sorte qu'en vertu de l'acte d'acquisition du propriétaire de la vache sur l'âne, l'ancien propriétaire de l'âne acquiert simultanément la vache, où qu'elle se trouve, <b>et</b> par la suite, on constate que la vache a <b>calvré ; et de même,</b> en ce qui concerne <b>celui qui vend sa</b> <b>servante cananéenne,</b> l'acquisition étant effectuée par l'acheteur qui lui donne de l'argent, <b>et</b> par la suite <b>elle</b> se trouve avoir <b>donné naissance</b> à un enfant, qui sera un esclave appartenant au maître de sa mère, à des moments où l'on ne sait pas si la progéniture est née avant ou après la transaction. Si <b>ce vendeur</b> dit :</b> La naissance a eu lieu <b>avant que je vende</b> la vache ou la servante, et donc la progéniture m'appartient, <b>et que</b> l'acheteur <b>dit :</b> La naissance a eu lieu <b>après que j'ai acheté</b> la vache ou la servante, et donc la progéniture m'appartient, <b>ils divisent</b> la valeur de la progéniture entre eux.
 
@@ -146,4 +146,4 @@ La Gemara répond : <b>Sumakhos concède</b> que <b>lorsqu'il y a</b> une obliga
 <b>Et Shmuel dit :</b> La mishna fait référence à un cas <b>où l'acheteur <b>réclame</b> qu'il a acheté <b>un vêtement d'un grand esclave,</b> et le vendeur admet lui avoir vendu <b>un vêtement d'un petit esclave. </b> Et dans le cas du champ, l'acheteur prétend avoir acheté les <b>miches</b> produites par <b>un grand champ,</b> et le vendeur admet lui avoir vendu les <b>miches</b> produites par <b>un petit champ.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

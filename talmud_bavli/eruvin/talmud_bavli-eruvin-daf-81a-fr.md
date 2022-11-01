@@ -54,4 +54,4 @@ Après avoir mentionné ce verset, la Guemara pose une question connexe : <b>Que
 <b>Et les sages disent : Son argent ne lui a pas conféré la possession,</b> car le transfert d'argent seul n'est pas un mode d'acquisition valide et ne peut conférer la possession. Il faut effectuer un mode d'acquisition valide, par exemple, tirer un article en sa possession, pour transférer la propriété.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

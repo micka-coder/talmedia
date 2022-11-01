@@ -36,4 +36,4 @@ La mishna ayant cité un litige concernant les conditions dans lesquelles un pro
 <strong>MISHNA :</strong> En ce qui concerne <b>une saillie</b> émergeant du mur de sa maison, surplombant une cour, on <b>a</b> le moyen d'établir <b>un privilège acquis pour son</b> usage si elle fait saillie au moins <b>jusqu'à un brin de main,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

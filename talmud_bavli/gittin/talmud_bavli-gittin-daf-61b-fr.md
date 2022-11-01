@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> est-ce pour dire que dans le cas de personnes <b>o
 La Guemara demande : <b>Et encore,</b> dans le cas de personnes <b>ordinaires</b>, <b>ne sommes-nous pas concernés</b> par l'échange de nourriture ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Teharot</i> 8:4) : <b>La femme d'un <i>ḥaver</i> peut moudre avec la femme d'un <i>am ha'aretz</i> lorsqu'elle,</b> la femme du <i>ḥaver</i>, <b>est impure,</b> par exemple, lorsqu'elle a ses règles et qu'elle fait donc attention à ne pas toucher la nourriture. Et l'on ne craint pas qu'elle vienne manger des produits non lavés. <b>Mais</b> elle peut <b>ne pas</b> faire cela <b>quand elle est pure. Rabbi Shimon ben Elazar dit : Elle ne peut pas moudre même lorsqu'elle est impure, car l'autre</b> femme, l'épouse du <i>am ha'aretz</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

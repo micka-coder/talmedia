@@ -29,5 +29,5 @@ Si une rumeur circule dans la ville : Si une rumeur circule dans la ville : "Une
 ### michna 10
 Bet Shammai disent : un homme ne doit pas divorcer de sa femme à moins qu'il ne l'ait trouvée coupable d'une conduite inconvenante, comme il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Bet Hillel disent [qu'il peut divorcer] même si elle a simplement brûlé son plat, car il est dit : "Parce qu'il a trouvé quelque chose d'inconvenant en elle". Rabbi Akiva dit [qu'il peut divorcer] même s'il trouve une autre femme plus belle qu'elle, car il est dit : "Il arrive qu'elle ne trouve pas grâce à ses yeux.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

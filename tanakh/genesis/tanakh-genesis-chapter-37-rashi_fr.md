@@ -129,5 +129,5 @@
 ### passuk 36
 <b>Les abatteurs.</b> [הַטַבָּחִים signifie] les abatteurs des animaux rois.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -27,4 +27,4 @@ Ils ont également dit : <b>Du fait du péché d'abrogation des <i>terumot</i> e
 <b>Du fait du péché de vol, les sauterelles apparaissent, et la famine règne, et les gens mangent la chair de leurs fils et de leurs filles,</b> comme <b>il est dit : <b>Ecoutez cette parole, vaches de Basan, qui êtes dans la montagne de Samarie, qui opprimez le pauvre, qui écrasez le nécessiteux,</b> qui dites à leurs seigneurs : Apportez, que nous fassions un festin" (Amos 4:1). Ensuite, il est dit : "Et moi aussi, je vous ai donné la pénurie de dents dans toutes vos villes, et le manque de pain dans tous vos lieux" (Amos 4:6), ce qui fait référence à la famine. <b>Rava dit :</b> Les vaches de Bashan ; <b>comme ces femmes de</b> la ville de <b>Meḥoza,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

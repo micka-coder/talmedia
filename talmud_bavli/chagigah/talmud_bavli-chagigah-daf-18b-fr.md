@@ -36,4 +36,4 @@ La Guemara répond : Ce n'est <b>pas difficile. Ici</b> la mishna fait référen
 § <b>Les Sages ont enseigné : Celui qui se lave les mains,</b> si <b>il avait l'intention</b> de les purifier, <b>ses mains sont pures ; s'il n'avait pas l'intention</b> de le faire, <b>ses mains sont impures. De même,</b> dans le cas de <b>celui qui immerge ses mains</b> dans quarante <i>se'a</i> d'eau, si <b>il avait l'intention</b> de les purifier, <b>ses mains sont pures ; s'il n'a pas</b> ainsi <b>intentionné, ses mains sont impures.</b> La Gemara soulève une difficulté : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i> que <b>ses mains sont pures qu'il ait eu ou non l'intention</b> de les purifier ? <b>Rav Naḥman a répondu :</b> Ce n'est <b>pas difficile,</b> car <b>là</b>, la seconde <i>baraita</i> fait référence <b>à la nourriture non sacrée</b>, pour laquelle il n'est pas nécessaire d'avoir l'intention de purifier ses mains ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

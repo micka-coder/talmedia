@@ -48,4 +48,4 @@ Nous avons appris dans la mishna : Si, parmi les convives, quelqu'un a mange la 
 <b>Rav Pappa a dit a Abaye : Si oui, meme si</b> le levite <b>precede</b> le pretre apres que les grains de cereales aient ete retires des tiges et places <b>en tas,</b> le levite ne devrait pas avoir a separer <i>teruma gedola</i>. Abaye lui <b>dit : En ce qui concerne ta</b> pretention, <b>le verset stipule :</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

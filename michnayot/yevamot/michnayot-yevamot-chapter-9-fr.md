@@ -17,5 +17,5 @@ La fille d'un Israélite marié à un prêtre peut manger de la térouma. S'il e
 ### michna 6
 La fille d'un prêtre qui était mariée à un Israélite ne peut pas manger de teruma. S'il est mort et qu'elle a eu un fils de lui, elle ne pourra pas manger de térouma. Si elle s'est mariée [ensuite] à un Lévite, elle pourra manger la dîme. S'il est mort et qu'elle a eu un fils de lui, elle peut manger la dîme. Si elle a été mariée [par la suite] à un prêtre, elle pourra manger de la teroumah. S'il est mort et qu'elle a eu un fils de lui, elle pourra manger de la térouma. Si le fils qu'elle a eu du prêtre est mort, elle ne pourra pas manger de la térouma. Si son fils de lévite est mort, elle ne peut pas manger de dîme. Si son fils de l'israélite est mort, elle retourne dans la maison de son père ; et c'est à propos d'une telle femme qu'il est dit : "Si elle retourne dans la maison de son père, comme dans sa jeunesse, elle pourra manger le pain de son père" (Lévitique 22:13).
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

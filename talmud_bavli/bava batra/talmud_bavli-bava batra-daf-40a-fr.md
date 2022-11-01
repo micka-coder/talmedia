@@ -18,4 +18,4 @@ Rava discute maintenant de la déclaration du Rav Naḥman qu'il a citée. <b>Ra
 § La Guemara discute des <i>halakhot</i> d'une déclaration préventive. <Rabba et Rav Yosef disent tous les deux : On écrit</b> une <b>déclaration préventive uniquement concernant celui qui ne</b> généralement pas <b>écouter</b> et appliquer <b>le jugement</b> du tribunal. Dans un tel cas, il n'y a pas d'autre recours que de rédiger une déclaration préemptive au nom du vendeur annulant la transaction. Si l'acheteur était prêt à écouter le tribunal, le vendeur est censé régler l'affaire au tribunal, plutôt que de participer à la vente et de rédiger une déclaration de préemption. <b>Abaye et Rava disent tous deux :</b> Une déclaration préventive peut être écrite <b>même</b> concernant quelqu'un qui respecte la loi, comme <b>pour moi et pour toi,</b> car toutes les questions ne peuvent pas être réglées par les tribunaux. Les Sages <b>de Néharde'a disent : Toute <b>déclaration</b> préventive.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

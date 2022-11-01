@@ -30,4 +30,4 @@ Si c'est le cas, <b>Il y a une contradiction entre</b> la declaration des <b>sag
 De meme, la contradiction <b>entre</b> l'affirmation de <b>Rabban Shimon ben Gamliel</b> ici <b>et</b> l'affirmation de <b>Rabban Shimon ben Gamliel</b> la <b>n'est pas difficile. La,</b> dans le cas de la recitation du <i>Shema</i> lors de sa nuit de noces, <b>la question depend de sa</b> capacite a se <b>concentrer,</b> et <b>il est clair pour tous</b> qu'il <b>est incapable de se concentrer.</b> Reciter le <i>Shema</i> dans ces circonstances est une manifestation de presomption. <b>Mais ici,</b> dans le cas du 9 Av, <b>celui qui le voit</b> oisif <b>dit : C'est</b> parce que <b>il n'a pas de travail</b> a accomplir. <b>Sortez et voyez combien de personnes oisives il y a sur la place du marche,</b> meme les jours ou il est permis de travailler. Par consequent, son oisivete ne se remarque pas.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

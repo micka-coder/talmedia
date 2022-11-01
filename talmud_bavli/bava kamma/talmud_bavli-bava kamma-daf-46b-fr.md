@@ -45,4 +45,4 @@ La Guemara demande : <b>Mais</b> même dans ce cas, <b>si</b> la partie lésée 
 <b>Rava dit,</b> en contestant l'explication de Abaye : <b>C'est pour dire</b> que la mishna <b>enseigne : Un quart de</b> le coût du <b>dommage et un huitième du</b> coût du <b>dommage ?</b> La mishna <b>enseigne la moitié</b> du coût du <b>dommage et un quart du</b> coût du <b>dommage. Au contraire, Rava a dit : En fait,</b> le mishna se réfère <b>à</b> un cas où la <b>vache et</b> sa <b>production appartiennent à une</b> personne, <b>et voici ce que nous disons :</b> La <i>halakha</i> est qu'en ce qui concerne les dommages causés par un animal inoffensif, la restitution n'est payée que sur l'argent réalisé par la vente de l'animal belligérant. Par conséquent, si <b>la vache est ici, la moitié</b> du coût du <b>dommage est payé à partir</b> de la valeur de <b>la vache</b> elle-même ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

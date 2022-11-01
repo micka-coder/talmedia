@@ -42,4 +42,4 @@ La Guemara répond : C'est <b>différent là, car, si</b> des voleurs <b>avaient
 La Guemara relate encore que <b>Il y avait ces cruches de vin qui ont été trouvées entre les vignes [<i>bei kofa'ei</i>]</b> d'un Juif. <b>Rava</b> jugea le contenu <b>permis</b> et ne se préoccupa pas du fait qu'il puisse s'agir de vin appartenant à un Gentil. La Gemara demande : <b>Devons-nous dire</b> que Rava <b>ne se conforme pas</b> à l'avis du <b>Rabbi Ḥanina,</b> qui dit qu'il faut suivre la majorité, en l'occurrence les gentils ? La Gemara répond : <b>C'est différent ici, car la majorité</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

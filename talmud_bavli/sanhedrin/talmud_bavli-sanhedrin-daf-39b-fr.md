@@ -63,4 +63,4 @@ La Gemara discute de la fin de ce verset : <b>"Ils se séparèrent de lui et ret
 Le chapitre se termine par l'explication d'un verset énoncé à propos d'Abishag, qui a assisté le roi David avant sa mort : <b>"Et la demoiselle était très belle [<i>yafa ad me'od</i> ]"</b> (I Rois 1:4). <b>Rabbi Ḥanina bar Pappa dit : Elle n'atteignait pas encore la moitié de la beauté de Sarah, comme il est écrit :</b> "<i>Ad me'od</i>", ce qui peut être traduit par <b>"jusqu'à très</b> belle", <b>mais sans inclure</b> l'éloge de <b>"très</b> belle". En revanche, il est écrit à propos de Sarah : " Elle était très belle " (Genèse 12, 14).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

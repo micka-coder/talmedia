@@ -42,4 +42,4 @@ La Gemara <b>souleve une objection : Une personne doit s'allonger</b> en présen
 <b>Et Rabbi Yehoshua ben Levi dit : Les femmes sont obligées dans ces quatre coupes</b> de vin lors du seder de Pessah.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

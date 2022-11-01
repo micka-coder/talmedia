@@ -39,4 +39,4 @@ La Guemara répond : Le vœu ne prend pas effet s'il est formulé comme cité. L
 <strong>MISHNA :</strong> Si quelqu'un dit : Je fais <b>un serment que je ne dormirai pas,</b> ou : <b>que je ne parlerai pas,</b> ou : <b>que je ne marcherai pas,</b> cette activité lui est <b>interdite</b>. Comme enseigné précédemment (10a), l'une des principales méthodes pour faire un vœu est d'invoquer une offrande. La mishna donne plusieurs exemples où invoquer le terme <i>korban</i> n'est pas efficace. Si l'on dit : <b>Une offrande [<i>korban</i>] que je ne mangerai pas de la tienne,</b> ou : <b>Cette offrande [<i>ha korban</i>] que je mangerai de la tienne,</b> ou : Ce que <b>je ne mangerai pas du tien</b> n'est <b>pas une offrande [<i>la korban</i>],</b> la nourriture est <b>permise.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

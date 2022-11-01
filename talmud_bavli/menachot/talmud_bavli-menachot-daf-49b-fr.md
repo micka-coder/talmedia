@@ -36,4 +36,4 @@ Rav Ashi a répondu à Ravina : <b>Selon votre raisonnement</b> le nombre correc
 Ravina répondit : <b>Ceci</b> n'est <b>pas difficile,</b> car la mishna <b>dit qu'après avoir sacrifié</b> l'offrande quotidienne de l'après-midi, il doit y avoir six agneaux inspectés.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

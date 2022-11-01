@@ -23,4 +23,4 @@
 <b>Mais quand je parle</b> pacifiquement avec eux, ils viennent me faire la guerre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

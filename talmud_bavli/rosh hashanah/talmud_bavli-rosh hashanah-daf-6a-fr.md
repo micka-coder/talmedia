@@ -57,4 +57,4 @@ La Guemara clarifie les détails de cette histoire : <b>Grâce, à Pessah</b> m�
 <b>Rav Zevid a dit au nom de Rava : Par exemple,</b> ceci se produit
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

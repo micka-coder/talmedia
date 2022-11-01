@@ -54,4 +54,4 @@ La Guemara relate que <b>Lors du Chabbat et des fêtes,</b> lorsque les prières
 <b>Rav Aḥa bar Ya'akov a entendu son fils réciter la bénédiction : Qui n'a pas fait de moi un ignorant.</b> Rav Aḥa bar Ya'akov <b>lui dit :</b> Est-il <b>en fait</b> convenable d'aller <b>aussi loin</b> dans la récitation des bénédictions ? Rav Aḥa bar Ya'akov fils <b>lui répondit : Plutôt, quelle bénédiction</b> doit-on <b>réciter ? </b> Si tu dis qu'il faut réciter : <b>Qui n'a pas fait de moi un esclave, c'est</b> la même chose qu'une <b>femme;</b> pourquoi devrait-on réciter deux bénédictions sur la même question ? Rav Aḥa bar Ya'akov répondit : Néanmoins, <b>un esclave</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

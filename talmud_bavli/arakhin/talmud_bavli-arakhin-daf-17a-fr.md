@@ -21,4 +21,4 @@ Ce terme enseigne que <b>le Saint, Béni soit-Il, chercha à ramener le monde au
 La Gemara répond : <b>Nous parlons plutôt en termes de dureté et de douceur.</b> Un Sage soutient que si le leader est dur, alors la génération sera dure. Si le leader est doux et gentil, la génération sera la même. L'autre Sage soutient que si les gens d'une certaine génération sont durs, ils auront un leader dur ; si la génération est douce et gentille, le leader sera semblable.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

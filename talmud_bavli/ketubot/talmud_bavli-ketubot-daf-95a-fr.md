@@ -54,4 +54,4 @@ La Guemara rejette la tentative de résoudre le dilemme concernant le recouvreme
 <b>Rav Yeimar a dit à Rav Ashi:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

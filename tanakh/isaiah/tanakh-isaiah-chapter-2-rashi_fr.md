@@ -81,7 +81,7 @@
 <b>Dont le souffle est dans ses narines</b> Dont toute la vie et la force dépendent du souffle de ses narines, qui est un esprit éphémère, en lui aujourd'hui et le quittant demain. Certes, l'image des taupes et des chauves-souris n'a pas de substance. Une autre explication est : Retirez-vous de toutes les mauvaises voies et apprenez de l'homme qui a une âme dans ses narines. Avez-vous vu à quoi il est estimé ? L'image de son œuvre n'est pas estimable.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -164,4 +164,4 @@
 <b>Dont le souffle est dans ses narines</b> Dont toute la vie et la force dépendent du souffle de ses narines, qui est un esprit éphémère, en lui aujourd'hui et le quittant demain. Certes, l'image des taupes et des chauves-souris n'a pas de substance. Une autre explication est : Retirez-vous de toutes les mauvaises voies et apprenez de l'homme qui a une âme dans ses narines. Avez-vous vu à quoi il est estimé ? L'image de son œuvre n'est pas estimable.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

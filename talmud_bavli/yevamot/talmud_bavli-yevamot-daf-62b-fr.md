@@ -57,4 +57,4 @@ La Guemara demande : <b>Et combien de temps</b> avant le début prévu des règl
 § <b>Les Sages ont enseigné :</b> Celui <b>qui aime sa femme comme</b> il s'aime lui-même, et qui l'honore plus que lui-même, et qui instruit ses fils et ses filles dans une voie droite, et qui les marie vers le moment</b> où <b>ils</b> atteignent la maturité, <b>à propos de lui le verset dit : Et tu sauras que ta tente est en paix.</b> En conséquence de ses actes, il y aura la paix dans sa maison, car elle sera dépourvue de querelles et de péchés. Celui <b>qui aime ses voisins, et qui rapproche ses proches, et qui épouse la fille de sa sœur,</b> une femme qu'il connaît et affectionne en tant que parent de la famille et pas seulement en tant qu'épouse,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

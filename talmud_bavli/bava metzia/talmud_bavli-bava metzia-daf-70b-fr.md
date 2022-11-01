@@ -39,4 +39,4 @@ La Gemara conteste cette explication du verset : L'interdiction de payer des int
 Rava <b>soule une objection à</b> la déclaration de Rav Naḥman basée sur une autre difficulté de la mishna, qui enseigne : <b>On peut emprunter</b> de l'argent <b>à eux et on peut prêter</b> de l'argent <b>à eux avec intérêt. Et de même, en ce qui concerne un <i>ger toshav</i>,</b> on peut lui emprunter de l'argent et lui prêter de l'argent avec intérêt, puisqu'il n'est pas juif. La mishna indique qu'un juif peut prêter de l'argent avec intérêt à un gentil <i>ab initio</i>. <b>Rav Ḥiyya, fils de Rav Huna, dit :</b> Cette décision de la mishna <b>est nécessaire uniquement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

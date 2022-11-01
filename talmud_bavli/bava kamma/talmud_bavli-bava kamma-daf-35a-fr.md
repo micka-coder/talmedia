@@ -42,4 +42,4 @@ Rava répond que <b>c'est</b> ce que dit la mishna <b>:</b> Il est exempté, <b>
 Dans le cas où <b>deux</b> bœufs, appartenant à deux propriétaires différents, <b>poursuivaient un</b> bœuf appartenant à une troisième personne, et que ce bœuf a été blessé par l'un des bœufs poursuivants, et que <b>cette</b> personne, propriétaire d'un des bœufs poursuivants, <b>dit</b> au propriétaire de l'autre : C'est <b>votre bœuf</b> qui a <b>causé la blessure, et celui-là</b>, le propriétaire de l'autre bœuf poursuivant, <b>dit :</b> Non, c'est <b>votre bœuf</b> qui a <b>causé la blessure,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

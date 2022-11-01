@@ -45,4 +45,4 @@ Le <i>baraita</i> conclut : <b>Et</b> en ce qui concerne une fille <b>dont le te
 <b>Le Maître a dit</b> dans le <i>baraita</i> : Si la jeune fille qui avait commencé à avoir ses règles <b>a passé trois</b> cycles menstruels attendus sans connaître de saignement et qu'elle a ensuite vu du sang menstruel, elle revient au statut de jeune fille et <b>son temps est suffisant.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

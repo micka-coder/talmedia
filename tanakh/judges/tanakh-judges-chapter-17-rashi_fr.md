@@ -36,4 +36,4 @@
 <b>Les Levi acquiescèrent [lit. allèrent]</b> Suivirent ses conseils.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

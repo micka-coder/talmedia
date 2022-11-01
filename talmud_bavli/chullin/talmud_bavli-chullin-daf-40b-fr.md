@@ -30,4 +30,4 @@ La Guemara fournit <b>un moyen mnémotechnique</b> pour les noms des <i>amora'im
 La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> : <b>Quelqu'un qui</b> involontairement <b>atteint</b> un animal qui a été désigné comme <b>offrande pour le péché le Chabbat en dehors</b> du Temple <b>pour le culte des idoles est susceptible</b> d'apporter <b>trois offrandes pour le péché. Et nous avons interprété</b> la <i>baraita</i> comme étant <b>dans</b> le cas <b>d'une offrande pour le péché d'un oiseau, et</b> dans un cas <b>où la moitié de la trachée est déficiente. La raison</b> de la triple responsabilité <b>est qu'il s'agit d'une offrande pour le péché d'oiseau, car</b> alors, <b>les trois interdictions <b>viennent</b> être violées <b>simultanément.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

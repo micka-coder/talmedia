@@ -51,4 +51,4 @@ La Gemara demande : <b>N'est-il pas enseigné</b> dans une <i>baraita</i> que <b
 La Gemara répond : Ceci n'est <b>pas difficile. Ici,</b> la mishna traite d'un cas où il avait des relations sexuelles interdites <b>avec sa sœur non mariée.</b> Bien que les rapports sexuels en eux-mêmes soient un péché grave, s'il n'engendre pas d'enfant, il peut être rectifié par le repentir. <b>Là,</b> dans le <i>baraita</i>, il est question d'un cas où il a péché <b>avec une femme mariée,</b> causant un dommage irréparable à son mariage. <b>Et si vous le souhaitez, dites</b> plutôt : <b>Ceci et ça</b> font tous deux référence <b>à une femme mariée. Et</b> ce n'est <b>pas difficile. Ici,</b> la mishna traite .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

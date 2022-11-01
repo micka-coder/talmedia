@@ -36,4 +36,4 @@ Rav Ashi explique : <b>La raison</b> pour laquelle le vin est interdit est <b>qu
 <b>Rav Huna soulève une objection à Rav Ashi</b> à partir de la mishna : En ce qui concerne le cas où un Gentil <b>a pris le tonneau</b> de vin <b>et l'a jeté, dans sa colère, dans le <b>vat de collecte du vin</b>, il s'agit d'un incident</b> qui s'est produit <b>à Beit She'an et</b> les Sages ont <b>jugé</b> le vin <b>apte</b> à la consommation. On peut en déduire que si le Gentil a jeté le vin <b>dans sa colère, oui,</b> il est permis. Mais si ce n'était <b>pas dans sa colère</b> le vin est <b>non</b> permis, même si dans le cas d'un <i>zav</i>, s'il a jeté un objet sur un récipient, cela ne rend pas le récipient impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

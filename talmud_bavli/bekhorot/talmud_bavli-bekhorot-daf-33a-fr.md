@@ -51,4 +51,4 @@ Le <i>baraita</i> continue : <b>Si</b> l'animal <b>touché</b> a été</b> rache
 La Guemara soulève une difficulté : <b>Mais que Rav Ḥisda établisse l'ensemble</b> <i>de la baraita</i> <b>conforme</b> à l'avis de <b>Beit Shammai.</b> La Gemara explique : <b>Peut-être que Beit Shammai dit</b> que la sainteté d'une offrande souillée est conservée <b>uniquement dans</b> le cas d'une offrande de premier-né</b>, <b>car sa sainteté provient du ventre de la mère. Mais</b> en ce qui concerne <b>un animal consacré disqualifié</b>, <b>dont la sainteté ne provient pas du ventre de la mère,</b> peut-être ne soutiennent-ils pas <b>non</b> que sa sainteté demeure même après son abattage. Il est donc nécessaire d'attribuer cette dernière clause du <i>baraita</i> à Rabbi Elazar, fils de Rabbi Shimon.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

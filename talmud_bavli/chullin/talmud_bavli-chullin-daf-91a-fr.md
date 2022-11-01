@@ -69,4 +69,4 @@ La Guemara revient sur le verset de Jacob luttant avec l'ange. Le verset dit : <
 Le verset dit : <b>"Et un homme lutta avec lui jusqu'au lever du jour". Rabbi Yitzḥak dit : De là</b> on déduit <b>qu'un érudit de la Torah ne doit pas sortir</b> de sa maison <b>seul la nuit,</b> comme Jacob sortit seul la nuit et fut blessé. <b>Rabbi Abba bar Kahana a dit</b> que la source de cette instruction est <b>de là:</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

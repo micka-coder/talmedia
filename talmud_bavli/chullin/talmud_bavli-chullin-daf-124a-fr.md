@@ -78,4 +78,4 @@ Rav Oshaya <b>dit à</b> Rabbi Ami : <b>Le Maître enseigne-t-il</b> cette <i>ha
 <b>Lorsque Ravin et tous ceux qui descendent</b> d'Eretz Yisraël <b>sont venus</b> en Babylonie, <b>ils ont énoncé</b> cette <i>halakha</i> de Rabbi Yoḥanan <b>en ce qui concerne la première clause</b> de la mishna. La Guemara objecte : <b>Mais</b> la question est <b>difficile.</b> Si une olive-bulle de chair est annulée en étant coupée avec un couteau, il devrait en être de même pour des mesures plus importantes, comme une <i>tarta</i>, ce qui n'est pas raisonnable, car les gens ne feraient généralement pas abstraction d'une telle quantité. La Guemara résout cette difficulté <b>conformément à ce qu'a dit Rav Pappa</b> à propos d'une autre question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

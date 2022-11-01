@@ -30,4 +30,4 @@ La Guemara rejette cette explication. <b>Dispose que tu as entendu Rabbi Yehuda<
 <strong>MISHNA :</strong> <b>De même,</b> dans le cas d'un <b>meurtrier qui a été exilé dans une ville de refuge et que les habitants de la ville ont cherché à honorer</b> en raison de sa notoriété, <b>il leur dira : Je suis un meurtrier.</b> Si les habitants de la ville lui <b>disent :</b> Nous sommes conscients de votre statut et <b>nous souhaitons néanmoins,</b> vous honorer, <b>il peut accepter</b> l'honneur <b>de leur part, comme il est dit : "Et voici l'affaire [<i>devar</i>] du meurtrier"</b> (Deutéronome 19:4), d'où il ressort que le meurtrier est tenu de leur dire [<i>ledabber</i>] qu'il est un meurtrier. Il n'est pas tenu de leur dire plus que cela.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

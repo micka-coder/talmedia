@@ -36,4 +36,4 @@ La Guemara revient à la question qui nous occupe : <b>Apparemment,</b> Rabbi Ak
 La Guemara demande : <b>Comment</b> Rabbi Eliezer <b>a pu accomplir cet</b> acte de sorcellerie ? <b>Mais n'avons-nous pas appris</b> dans la mishna que <b>celui qui accomplit un acte</b> de sorcellerie <b>est responsable ?</b> La Gemara répond : Accomplir un acte de sorcellerie non pas dans le but de l'utiliser, mais dans le but de <b>s'enseigner</b> les <i>halakhot</i> <b>est différent,</b> et c'est permis ; <b>comme le Maître dit</b> que cela découle du verset : <b>"Vous n'apprendrez pas à faire</b> comme les abominations de ces nations. Il ne se trouvera pas parmi vous... quelqu'un qui utilise la divination, un devin, un enchanteur ou un sorcier" (Deutéronome 18, 9-10), de sorte que <b>vous n'apprendrez pas,</b> c'est-à-dire qu'il vous est interdit d'apprendre, pour <b>faire, mais vous pouvez apprendre,</b> c'est-à-dire qu'il vous est permis d'apprendre, pour <b>comprendre</b> la matière vous-même <b>et l'enseigner</b> aux autres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

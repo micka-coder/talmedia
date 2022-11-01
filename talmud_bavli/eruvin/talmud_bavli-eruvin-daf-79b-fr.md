@@ -54,4 +54,4 @@ La Guemara ajoute ce qui <b>a été énoncé : Rav Ḥiyya bar Avin a dit</b> qu
 <b>Rav a dit : C'est tout</b> arbre <b>que</b> les <b>prêtres idolâtres gardent.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

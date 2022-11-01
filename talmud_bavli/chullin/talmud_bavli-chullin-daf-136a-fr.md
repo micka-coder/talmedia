@@ -84,4 +84,4 @@ Abaye ajoute : <b>Et en ce qui concerne le <i>teruma</i>, d'où tirons-nous</b> 
 <b>Et si vous dites : En effet,</b> Rabbi Ilai soutient que la laine qui a poussé sous la propriété d'un Gentil est exemptée de la mitzva de la première laine tondue, cela est difficile, car <b>n'avons-nous pas appris</b> dans la mishna (135a) : <b>Quelqu'un qui achète la toison du</b> <b>mouton d'un Gentil</b> est <b>exempté</b> de l'obligation de la <b>première laine tondue ?</b> On peut déduire de la mishna que si on a acheté le <b>mouton du Gentil</b> lorsqu'il était prêt <b>à être tondu,</b> il est <b>obligé</b> dans la mitzva de la première laine tondue. Rava a répondu : <b>La mishna</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

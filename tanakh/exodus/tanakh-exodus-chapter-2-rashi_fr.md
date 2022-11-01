@@ -93,5 +93,5 @@
 ### passuk 25
 <b>Elokim prit connaissance d'eux.</b> [Signification :] Il leur accorda Son attention et Il ne les ignora [plus].
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

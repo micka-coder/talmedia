@@ -69,4 +69,4 @@ La Gemara demande : <b>Si oui, quel</b> est le but <b>de relater</b> cet inciden
 Puisque Rabbi Hanina a relate une histoire impliquant Rabbi Yehuda HaNasi, la Guemara cite une autre histoire de ce type. <b>Rabbi Hanina a dit : J'ai vu Rabbi</b> Yehuda HaNasi, alors qu'il priait, <b>bailler, bailler, eternuer, cracher,</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

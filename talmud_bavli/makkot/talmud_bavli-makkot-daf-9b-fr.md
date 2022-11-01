@@ -57,4 +57,4 @@ La mishna poursuit : <b>Et des routes furent alignées pour eux depuis cette</b>
 La Guemara s'interroge sur la répartition des villes : Pourquoi y avait-il <b>trois</b> villes désignées <b>sur</b> la <b>banque orientale du Jourdain,</b> où résidaient deux tribus et demie, et <b>trois</b> villes désignées <b>en Eretz Yisrael,</b> où résidaient plus de neuf tribus ? <b>Abaye a dit : En Galaad,</b> qui est situé sur la rive orientale du Jourdain, <b>les meurtriers sont fréquents.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

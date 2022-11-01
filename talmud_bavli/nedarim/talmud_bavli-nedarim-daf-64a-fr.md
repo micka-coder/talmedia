@@ -15,4 +15,4 @@ La mishna cite un autre exemple de situation nouvelle. Si l'on dit : <b>Entrer d
 <strong>GEMARA:</strong> La Guemara clarifie le sens de la déclaration faite par Rabbi Tsadok. <b>Que</b> signifie : Si donc, <b>il n'y a pas de vœux,</b> ? <b>Abaye a dit :</b> Cela signifie : <b>Si oui, les vœux ne sont pas dissous correctement.</b> Celui qui a fait le vœu pourrait dire qu'il regrette de l'avoir fait uniquement parce qu'il n'est pas prêt à déclarer publiquement qu'il aurait fait son vœu tout en sachant qu'il diminue l'honneur de Dieu. Il se peut qu'il ne regrette pas réellement d'avoir fait ce vœu, et cela conduira à une dissolution inappropriée du vœu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara demande : <b>Et d'où déduit-on</b> qu'il y a eu <b>sept</b> années 
 La Guemara explique : Le <b><i>tanna</i> fait référence</b> à la politique <b>générale</b> pour toute l'année, <b>et il se réfère uniquement</b> au nombre d'agneaux nécessaires pour <b>les offrandes quotidiennes</b> sacrifiées au cours de trois jours ordinaires. <b>Et quel</b> est le sens de la phrase : <b>Suffisant pour le Shabbat et pour les</b> deux <b>jours de fête de Rosh HaShana ?</b> C'est <b>un simple moyen mnémotechnique</b>, <b>et voici</b> ce qu'il dit :</b> On maintient <b>au moins six agneaux</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

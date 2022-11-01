@@ -60,4 +60,4 @@ La Guemara <b>souleve une objection</b> à partir de ce que nous avons appris : 
 <b>Rabbi Abbahu a dit</b> que <b>Rabbi Elazar a dit</b> que <b>Rabbi Yannai a dit : On peut gratter</b> de la boue sur <b>une chaussure neuve</b> le Chabbat, <b>mais pas</b> sur <b>une vieille</b> chaussure, car une couche de la chaussure sera enlevée, ce qui constitue le travail interdit de lissage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

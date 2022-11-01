@@ -36,4 +36,4 @@ La Guemara demande : <b>Quelle est la raison de Rabbi Yosei, fils de Rabbi Yehud
 Abba Elazar ben Gomel explique : <b>Tout comme la <i>teruma</i> standard est prélevée par estimation,</b> car il n'est pas exigé que la quantité séparée soit mesurée avec précision, <b>et</b> elle peut être prélevée <b>par la pensée,</b> car on n'est pas tenu de la séparer physiquement avant de consommer le reste des produits,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

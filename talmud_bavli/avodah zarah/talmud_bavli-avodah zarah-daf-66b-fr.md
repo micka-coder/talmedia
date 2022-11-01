@@ -21,4 +21,4 @@ La Guemara remarque : <b>Selon</b> l'opinion de <b>Rava,</b> le différend entre
 La Gemara répond : <b>Abaye</b> pourrait <b>vous dire</b> que Rabbi Yehuda soutient également qu'une odeur est une matière substantielle. <b>N'a-t-il pas été dit à propos de cette</b> mishna que <b>Rabba bar bar Ḥana dit</b> que <b>Reish Lakish dit : Dans</b> le cas d'une miche de <b>pain chaude</b> et d'un tonneau ouvert,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

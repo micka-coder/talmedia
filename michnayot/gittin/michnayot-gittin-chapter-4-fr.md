@@ -26,5 +26,5 @@ Un homme divorce de sa femme parce qu'elle est une aylonit : Rabbi Judah dit qu'
 ### michna 9
 Si un homme se vend et vend ses enfants à un Gentil, il ne doit pas être racheté, mais ses enfants doivent être rachetés après la mort de leur père. Si un homme vend son champ à un Gentil, et qu'un Israélite le rachète, il doit apporter, l'acheteur doit apporter les prémices de ce champ, à cause du tikkun olam.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

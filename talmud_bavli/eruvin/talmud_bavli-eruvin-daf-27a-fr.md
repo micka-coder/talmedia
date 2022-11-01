@@ -45,4 +45,4 @@ La Guemara commente : <b>Celui qui enseigne</b> cette loi <b>en ce qui concerne<
 En réponse à cette difficulté, <b>Rav Yosef a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

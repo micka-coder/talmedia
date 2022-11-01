@@ -36,4 +36,4 @@ La Guemara propose une autre réponse : <b>Et si tu veux, dis</b> que le sens du
 La Guemara explique le fondement de la dispute : <b>Rabbi Meir soutient</b> que <b>une personne associe</b> l'objet de son vœu à <b>quelque chose qui lui est juxtaposé</b> dans un verset, de sorte que lorsqu'il dit qu'il lui incombe d'amener des oiseaux, il veut dire qu'il lui incombe de faire pousser ses cheveux.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

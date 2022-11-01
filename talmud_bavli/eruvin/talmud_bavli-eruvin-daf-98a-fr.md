@@ -51,4 +51,4 @@ La mishna déclare : Une fois que le parchemin est parvenu à moins de dix brins
 La Gemara répond : La mishna <b>est incomplète et enseigne ce qui suit : Dans quel</b> cas <b>cette affirmation est-elle dite ? </b> Elle est dite <b>dans</b> le cas d'un <b>mur incliné. Cependant,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

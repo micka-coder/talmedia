@@ -48,4 +48,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> la preuve que seule une act
 <b>Et Rav Pappa dit :</b> Dans le cas où l'on <b>a jeté une pierre vers le haut et qu'elle est allée sur le côté, et a tué</b> un individu, il est <b>responsable. Mar, fils de Rav Ashi, dit à Rav Pappa : Quelle est la raison</b> pour laquelle vous dites qu'il est responsable ? Est-ce <b>en raison</b> du fait <b>que</b> le résultat <b>est</b> généré par la <b>force de son</b> action ? Cela ne peut être, car <b>si</b> il est généré par la <b>force de son</b> action, la pierre <b>devrait aller</b> directement <b>vers le haut</b> où il l'a lancée, et non sur le côté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

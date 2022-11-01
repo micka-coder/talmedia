@@ -24,4 +24,4 @@ La Gemara demande : <b>Puisque Rav Huna et Rav Adda <b>soutiennent</b> que <b>ar
 La Gemara demande : <b>Devons-nous dire</b> que la question de savoir si celui qui <b>arrondi toute la tête</b> est considéré comme ayant arrondi ses coins <b>est</b> un différend entre <b><i>tanna'im</i> ? Comme l'ont enseigné les Sages</b> dans une <i>baraita</i>, à propos d'un verset qui traite du rasage d'un lépreux : "Il rasera tous ses cheveux ; <b>sa tête</b> et sa barbe et ses sourcils, même tous ses cheveux, il les rasera" (Lévitique 14:9). <b>Pourquoi</b> faut-il que <b>le verset indique :</b> "Sa tête", après avoir déjà indiqué : "Tous ses cheveux" ? Le <i>baraita</i> explique que <b>puisqu'il est précisé : "Vous n'arrondirez pas les angles de vos têtes"</b> (Lévitique 19:27),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

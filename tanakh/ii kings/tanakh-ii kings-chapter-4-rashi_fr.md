@@ -132,7 +132,7 @@
 <b>"Comment vais-je présenter ceci."</b> Chaque pain.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Femme d'un des disciples des prophètes.</b> Elle était la femme d'Ovadyoh. Chaque expression de 'בְּנֵי הַנְּבִיאִים' [lit, "les fils des prophètes"], dans l'Écriture, est traduit [par le Targum Yonathan] par "les disciples des prophètes". <sup>1</sup><i class="footnote">Voir le Targum ci-dessus 2:3, 2:7 et 2:15.</i>
 <b>Maintenant le créancier.</b> Il s'agit de Yehorom, fils d'Achov, qui lui prêtera avec intérêt, ce qui lui permettra de soutenir les prophètes du temps de son père [selon] le Midrash Rabbi Tanchuma. C'est pourquoi il est dit : "Et il frappa Yehorom entre ses bras,"<sup>2</sup><i class="footnote">Ci-après 9:24.</i> qu'il tendait pour prendre des intérêts.
@@ -266,4 +266,4 @@
 <b>"Comment vais-je présenter ceci."</b> Chaque pain.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

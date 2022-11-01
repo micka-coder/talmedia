@@ -42,4 +42,4 @@ Les Sages <b>de l'école de Rabbi Yishmael ont enseigné</b> une source différe
 La Guemara revient sur l'explication de Rabbi Yoḥanan concernant la <i>baraita</i>. <b>Si</b> la <i>baraïta</i> fait référence au cas <b>de</b> celui <b>qui a abattu par le biais d'un autre, quelle est la</b> justification de l'avis <b>des rabbins, qui l'exemptent</b> de paiement. Le voleur n'ayant pas accompli une transgression pour laquelle il est susceptible de recevoir la peine de mort, pourquoi est-il exempté du paiement de l'abattage de l'animal ? La Guemara répond : <b>Qui sont les rabbins</b> qui ne sont pas d'accord avec Rabbi Meir dans ce cas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

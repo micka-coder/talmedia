@@ -75,4 +75,4 @@ La Gemara demande : <b>Est-ce à dire que</b> une telle progéniture <b>peut viv
 La Guemara discute de <b>la</b> question <b>même. Rav Yehuda dit</b> que <b>Rav dit : Rabbi Meir a dit</b> qu'une femme qui décharge un objet qui a la forme d'un animal est impure <b>uniquement car</b> il existe des animaux <b>de son type</b> qui peuvent <b>vivre. Rav Yirmeya de Difti dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

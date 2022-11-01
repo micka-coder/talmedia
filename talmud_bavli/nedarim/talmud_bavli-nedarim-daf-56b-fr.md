@@ -30,4 +30,4 @@ La Gemara demande : <b>Disons</b> que le statut juridique de celui qui se trouve
 <b>Comment ? </b> <i>Ab initio</i>, le prêtre <b>se tient</b> à l'extérieur, <b>le long du montant de la porte, et met en quarantaine</b> la maison. <b>Et d'où vient</b> que s'il est allé dans sa maison et a mis en quarantaine</b> la maison, <b>ou s'est tenu sous le linteau et a mis en quarantaine</b> la maison, <b>que sa quarantaine est</b> une <b>quarantaine</b> efficace après coup ? <b>Le verset dit : "Et il mettra la maison en quarantaine"</b> (Lévitique 14:38), ce qui signifie <b>dans tous les cas.</b> Apparemment, le statut juridique de la zone située sous le linteau est identique à celui de l'intérieur de la maison, même si elle se trouve au-delà du seuil de la porte. La Gemara répond : Il <b>est différent en ce qui concerne</b> une <b>maison lépreuse, car il est écrit :</b> "Et le prêtre sortira <b>de la maison"</b> ce qui indique qu'il ne peut pas mettre la maison en quarantaine <b>jusqu'à ce qu'il sorte de toute la maison.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara répond : <b>En fait,</b> le <b>dispute</b> s'applique <b>lorsque</b>
 La Guemara propose une autre preuve : <b>Venez</b> et <b>entendez</b> une solution de la mishna. <b>Rabbi Yehuda dit :</b> Il y a des <b>temps</b> où les récipients <b>sont vendus,</b> et il y a des <b>temps où ils ne sont pas vendus. Quoi, n'est-ce pas</b> le cas <b>que Rabbi Yehouda se réfère à ce que le premier <i>tanna</i> a dit ?</b> Si c'est le cas, la dispute entre les rabbins et Naḥum le Mède doit se référer à un cas où les récipients sont sur l'âne, car Rabbi Yehouda aborde le même ensemble de circonstances. La Guemara rejette cette preuve : <b>Non, Rabbi Yehuda</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara demande : <b>Mais</b> si toutes les catégories peuvent être dérivé
 <b>Le feu</b> est écrit explicitement afin de <b>s'exonérer</b> de la responsabilité pour les dommages causés à <b>un objet caché</b>, par exemple, un objet caché par des céréales, qui a été consumé par le feu. La Guemara demande : <b>Et selon Rabbi Yéhouda, qui juge qu'on est responsable</b> même <b>des dommages</b> causés à <b>un objet caché</b> endommagé par <b>le feu, pour ajouter à quoi</b> <i>halakha</i> la Torah mentionne-t-elle explicitement la catégorie du Feu ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

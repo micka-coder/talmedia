@@ -26,5 +26,5 @@ Si un sheretz [mort] a été trouvé dans les meules, seul l'endroit qu'il a tou
 ### michna 9
 Si elle a été trouvée sur des morceaux brisés mais qu'elle a touché autant que la masse d'un œuf, [la masse entière] devient impure. S'il a été trouvé sur des morceaux brisés qui reposaient sur d'autres morceaux brisés, même s'il a touché autant que le volume d'un œuf, seul l'endroit qu'il a touché devient impur. Si elle a été trouvée entre le mur et les olives, celles-ci restent pures. S'il a été trouvé [sur des olives qui étaient couchées] sur le toit, [les olives dans] la cuve restent pures. S'il a été trouvé dans la cuve, [les olives sur] le toit sont [également] considérées comme impures. S'il a été trouvé brûlé sur les olives, ainsi que dans le cas d'un chiffon complètement usé, [les olives restent] pures, car tous les cas d'impureté sont déterminés en fonction de leur apparence au moment où ils sont trouvés.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

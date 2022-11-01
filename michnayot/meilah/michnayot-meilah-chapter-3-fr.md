@@ -23,5 +23,5 @@ Si les racines d'un arbre appartenant à un particulier se répandent sur un ter
 ### michna 8
 Un nid qui est construit au sommet d'un arbre consacré, on ne peut pas en tirer de bénéfice, mais la loi du sacrilège ne s'y applique pas. Ce qui se trouve au sommet d'un asherah, on l'enlève avec un roseau. Si l'on a dédié une forêt au temple, la loi du sacrilège s'applique à l'ensemble de celle-ci. Si les trésoriers [du Temple] ont acheté des arbres, le bois est soumis à la loi du sacrilège mais pas les copeaux ni les feuilles mortes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

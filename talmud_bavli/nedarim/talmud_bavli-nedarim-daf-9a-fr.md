@@ -24,4 +24,4 @@ C'est <b>comme il est enseigné</b> dans une <i>baraita</i> à propos du verset 
 La Guemara répond : <b>Vous</b> pouvez <b>même dire</b> que c'est en accord avec l'opinion de <b>Rabbi Meir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

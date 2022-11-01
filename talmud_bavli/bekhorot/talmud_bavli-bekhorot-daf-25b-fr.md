@@ -54,4 +54,4 @@ La Guemara demande : <b>Et Rabbi Asi, quelle est la raison pour laquelle il n'a 
 Rabbi Asi a dit précédemment au nom de Reish Lakish que tant Akavya ben Mahalalel que les rabbins s'accordent à dire que si un expert n'a pas jugé le premier-né autorisé à l'abattage avant que sa laine ne soit perdue, l'utilisation de cette laine est interdite. La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : En ce qui concerne <b>celui qui arrache la laine d'un premier-né non taché, même si celui-ci</b> a par la suite <b>développé une tare et</b> le propriétaire l'a alors <b>abattu,</b> l'utilisation de la laine est <b>interdite.</b> La Gemara en déduit : La <b>raison</b> ceci est la <i>halakha</i> est <b>que</b> l'animal était <b>sans tache.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

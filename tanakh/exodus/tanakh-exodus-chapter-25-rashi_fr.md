@@ -161,5 +161,5 @@
 <b>Observe et fabrique-les.</b> Regarde ici, sur la montagne, le modèle que je te montre. Cela nous indique que Moshé avait des difficultés avec la construction de la ménorah jusqu'à ce que Dieu lui montre une ménorah [modèle] faite de feu.
 <b>Ce qui te sera montré.</b> Comme le traduit Onkelos : "qu'on vous montrera dans la montagne". S'il était vocalisé מַרְאֶה avec un <i>patach,</i> son sens serait : "vous montrerez aux autres". Mais, maintenant qu'il est voyellé avec un <i>kametz</i> ( מָרְאֶה ), son sens est : " qu'on te montre " - que les autres te montrent ". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

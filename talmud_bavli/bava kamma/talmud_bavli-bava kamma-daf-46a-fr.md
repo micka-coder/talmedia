@@ -15,4 +15,4 @@
 <b>Abaye</b> a plutôt rejeté l'explication de Rabba de l'avis de Rabbi Eliezer, et <b>a dit</b> que <b>c'est</b> la <b>raison</b> de l'avis <b>de Rabbi Eliezer : Comme il est enseigné</b> dans un <i>baraita</i> que <b>Rabbi Natan dit : D'où</b> provient-il <b>que l'on ne peut pas élever un chien méchant dans sa maison, et</b> que <b>l'on ne peut pas installer une échelle instable dans sa maison ? Comme il est dit : "Tu n'apporteras pas de sang dans ta maison"</b> (Deutéronome 22:8), ce qui signifie que l'on ne doit pas laisser subsister une situation dangereuse dans sa maison. De même, une personne ne doit pas garder en sa possession un bœuf prévoyant, car il est dangereux. C'est pourquoi Rabbi Eliezer juge qu'aucun niveau de protection n'est suffisant pour lui ; le bœuf doit être abattu afin qu'il ne cause aucun dommage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

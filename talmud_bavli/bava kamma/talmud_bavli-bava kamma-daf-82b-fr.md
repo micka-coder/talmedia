@@ -57,4 +57,4 @@ La Guemara discute de la dernière <i>halakha</i> : <b>Et on ne peut y laisser u
 La Guemara pose une question par rapport à cette <i>baraita</i> : <b>Et est-il</b> vraiment <b>interdit</b> d'étudier la <b>sagesse grecque ? Mais n'est-elle pas enseignée</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>a dit : En Eretz Yisrael,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

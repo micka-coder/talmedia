@@ -57,4 +57,4 @@ Rabbi Yoḥanan <b>dit à</b> Rabbi Ḥiyya bar Abba : <b>Rabbi Yehoshua tient c
 Rabbi Ḥiyya bar Abba objecta à Rabbi Yoḥanan : Tu peux <b>dire que Rabbi Shimon</b> a exprimé son opinion spécifiquement <b>en ce qui concerne</b> celui qui consacre <b>une femelle pour une offrande de culpabilité,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

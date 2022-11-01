@@ -42,4 +42,4 @@ Il y avait <b>un certain homme qui entendit sa femme dire à sa fille : Pourquoi
 Rabbi Bena'a <b>a vu qu'il était écrit sur la porte [<i>be'abbula</i>] : Tout juge qui est convoqué pour un jugement n'est pas considéré comme un juge,</b> car les juges doivent être irréprochables. <b>Il leur dit : Si c'est ainsi,</b> alors si <b>une personne vient d'ailleurs</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

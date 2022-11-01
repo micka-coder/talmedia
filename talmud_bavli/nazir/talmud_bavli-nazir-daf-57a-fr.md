@@ -6,4 +6,4 @@
 <b>Ou peut-être</b> la décision selon laquelle <b>un quart-</b><i>log</i> <b>de sang</b> imprime une impureté rituelle dans une tente est le <b><i>halakha</i></b> transmis à Moïse depuis le Sinaï, <b>Et</b> Rabbi Akiva a cherché à utiliser le cas d'un <b>os qui est un grain d'orge</b>-<b>bulk</b> comme source d'une <b>a fortiori</b> déduction qu'un nazirite doit se raser pour un quart de</b>log</i> également, ce à quoi les Sages ont répondu que <b>on ne tire pas une <i>a fortiori</i></b> déduction <b>d'un <i>halakha</i></b> transmis à Moïse depuis le Sinaï. La Guemara répond : <b>Venez</b> et <b>entendez</b> l'affirmation sans équivoque d'un <i>baraita</i> : <b>Un os qui est un grain d'orge</b>-<b>bulk</b> est <b>un <i>halakha</i>, et un quart-</b><i>log</i> <b>de sang</b> est <b>une <i>a fortiori</i></b> déduction, <b>et on ne tire pas une <i>a fortiori</i></b> déduction <b>d'un <i>halakha</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

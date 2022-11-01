@@ -54,4 +54,4 @@ La Gemara demande : <b>Qu'est-ce que la <i>matza</i> mi-cuite ? Rav Yehuda dit</
 La Guemara rejette cette affirmation : Cette affirmation est nécessaire, <b>de peur que vous ne disiez</b> ce qui suit : <b>Puisqu'il est écrit</b> à propos d'une offrande de remerciement : <b>"Et il en présentera</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

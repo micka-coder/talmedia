@@ -33,4 +33,4 @@ Nous avons également appris dans la mishna qu'il est même permis de nouer un v
 Nous avons également appris dans la mishna que <b>Rabbi Eliezer ben Ya'akov dit : On peut attacher</b> une corde en travers d'une entrée devant un animal afin qu'il ne sorte pas. La Guemara dit : C'est <b>évident.</b> La Gemara explique : Il est <b>seulement nécessaire</b> d'enseigner cette <i>halakha</i> dans un cas <b>où</b> l'entrée <b>a deux cordes. De peur que vous ne disiez</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -36,4 +36,4 @@ En relation avec ce qui précède, la Guemara s'interroge : <b>Quelle est</b> l'
 <b>Rav Yehuda a dit</b> que <b>Rav a dit : Cette</b> <i>halakha</i> de la mishna selon laquelle on n'observe pas un jeûne qui survient lors d'une fête, <b>est la déclaration de Rabbi Meir, qui l'a dit</b> <b>au nom de Rabban Gamliel. Cependant, les sages disent :</b> Si un jeûne communautaire survient l'un de ces jours, on doit <b>jeûner et terminer</b> le jeûne jusqu'à la tombée de la nuit. <b>Mar Zutra a enseigné au nom de Rav Huna:</b> La <b><i>halakha</i></b> pratique est conforme à l'avis des sages, selon lequel on <b>jeûne et complète</b> son jeûne jusqu'à la tombée de la nuit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

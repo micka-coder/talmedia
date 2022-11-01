@@ -45,4 +45,4 @@ La Guemara note qu'il existe trois <i>baraitot</i> sur ce sujet : <b>Il a ete en
 La Gemara explique : Cela n'est <b>pas difficile,</b> car chaque <i>baraita</i> aborde un cas different. <b>Ce</b> <i>baraita</i> <b>dans lequel il a ete enseigne : Il les avale</b> fait reference <b>aux liquides,</b> car il n'y a pas d'alternative. <b>Ce</b> <i>baraita</i> <b>dans lequel il a ete enseigne : Il les recrache,</b> fait reference a <b>un</b> aliment <b>qui ne devient pas degoutant</b> et s'il le retire de sa bouche, il peut par la suite le manger. <b>C'est</b> <i>la baraita</i> <b>dans laquelle elle a ete enseignee : Il les deplace</b> sur le cote de sa bouche, fait reference a <b>un</b> aliment <b>qui devient degoutant,</b> auquel cas il suffit de le deplacer sur le cote.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

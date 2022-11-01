@@ -44,4 +44,4 @@
 <b>Sur le sol</b> Sur le sol, pour partager sa douleur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

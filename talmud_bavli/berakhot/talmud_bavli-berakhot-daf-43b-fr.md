@@ -60,4 +60,4 @@ La Guemara developpe les declarations des <i>baraita</i>. <b>Il ne doit pas sort
 <b>Et il ne doit pas marcher avec une posture droite,</b> mais legerement inclinee, <b>comme l'a dit le Maitre : Celui qui marche avec une posture droite</b> et de maniere arrogante, <b>meme de quatre coudees,</b> c'est <b>comme s'il repoussait les pieds de la Presence Divine,</b> comme <b>il est ecrit : "Le monde entier est rempli de sa gloire"</b> (Isaie 6, 3). Celui qui marche de manière arrogante montre un manque de considération pour la gloire et l'honneur de Dieu qui l'entoure, et chasse ainsi Dieu de ce lieu.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,4 +42,4 @@ Par conséquent, ce <b>verset</b> particulier concernant le fait de découvrir l
 La Guemara développe : <b>Si tu veux, dis</b> que c'est <b>parce que</b> c'est <b>évident ; comme, si</b> c'est <b>ainsi</b> que le verset n'avait pas l'intention d'enseigner par juxtaposition, <b>que le Miséricordieux écrive</b> cette <i>halakha</i> interdisant le mariage avec la femme du père <b>à côté</b> des autres femmes <b>avec lesquelles les relations sont interdites,</b> dans le Lévitique. Puisque ce verset n'est pas à sa place, il vient certainement enseigner par juxtaposition. <b>Et si tu veux, dis</b> plutôt que c'est <b>parce que</b> ce verset est <b>libre, car, si</b> c'est <b>donc</b> que le verset ne vient pas enseigner une <i>halakha</i> supplémentaire, <b>que le Miséricordieux écrive</b> seulement : <b>"Un homme ne doit pas prendre la femme de son père." Pourquoi ai-je besoin de la phrase : <b>"Et ne découvrira pas la jupe de son père"?</b> Cette phrase est superflue, et donc elle enseigne par juxtaposition.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Quel</b> est le but de citer le verset supplémentaire in
 La Gemara relate : <b>Rava examinait la flèche de Rabbi Yona bar Taḥlifa</b> pour s'assurer qu'elle ne comportait pas d'entailles. <b>Et</b> Rava tirait la flèche et <b>abattait avec elle un oiseau en plein vol.</b> La Guemara conteste : <b>Et peut-être</b> lorsque la flèche a coupé le cou de l'oiseau <b>il a effectué</b> un abattage inversé, avec la flèche <b>concelée</b> dans le cou, et a coupé les <i>simanim</i> d'arrière en avant. La Gemara répond : <b>Nous voyons</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

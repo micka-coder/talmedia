@@ -48,4 +48,4 @@ Il <b>est enseigné</b> dans un <i>baraita</i> <b>conforme</b> à l'avis <b>de R
 La Gemara soulève une objection : <b>Grâce,</b> dans <b>ce deuxième verset</b> il est explicitement indiqué</b> que le décompte porte sur les années <b>d'Artaxerxès. Mais</b> quant à <b>cette</b> premier verset, <b>d'où sait-on</b> que le décompte porte sur les années <b>d'Artaxerxès ? Peut-être</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Gemara répond : L'explication de Rav Adda bar Ahava n'est pas en contradicti
 Si <b>il a pincé avec un couteau</b> et non avec l'ongle de son pouce ; ou si <b>il a pincé un oiseau non sacré</b> <b>à l'intérieur</b> de la cour du Temple <b>ou un oiseau sacrifié</b> <b>à l'extérieur</b> de la cour du Temple ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara demande : <b>Quelle conclusion a-t-on tirée</b> par rapport à ce di
 <b>Rabbi Yitzḥak bar Naḥmani a dit</b> que <b>Rav Oshaya a dit :</b> En ce qui concerne un poêle qu'il a <b>recouvert de cendres et</b> qui s'est <b>réallumé</b> le Chabbat, <b>on peut laisser de l'eau chaude qui était</b> déjà <b>complètement chauffée et des aliments cuits qui étaient</b> déjà <b>complètement cuits dessus. </b> Dans ce cas, il n'y a pas besoin de cuisson supplémentaire, et il n'y a donc pas de crainte que l'on vienne attiser les charbons et enflammer le feu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

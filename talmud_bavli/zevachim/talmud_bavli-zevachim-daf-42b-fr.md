@@ -36,4 +36,4 @@ La Guemara réfute cette interprétation : <b>Un</b> contre-demande est <b>que</
 <strong>MISHNA:</strong> <b>Et voici</b> les <b>objets pour lesquels on n'est pas susceptible</b> de recevoir du <i>karet</i> <b>en raison</b> de la violation de l'interdiction de <b>piggul</i>.</b> On n'est susceptible de recevoir du <i>karet</i> que si l'on prend part à un objet qui a été autorisé pour la consommation ou pour l'autel par un autre objet. Quant aux articles énumérés ici, soit rien d'autre ne les rend permis pour la consommation ou pour l'autel, soit ils rendent eux-mêmes d'autres articles permis. Ils sont les suivants : <b>La poignée</b> de farine, qui permet la consommation de l'offrande de repas ; <b>l'encens,</b> qui est brûlé dans son intégralité, sans qu'un autre élément le rende permis pour l'autel ; <b>l'encens,</b> qui est brûlé avec la poignée de l'offrande de repas ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

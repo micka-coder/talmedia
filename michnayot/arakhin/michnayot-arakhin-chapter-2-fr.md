@@ -17,5 +17,5 @@ Il n'y avait jamais moins de six agneaux inspectés dans la chambre des agneaux,
 ### michna 6
 Il n'y avait jamais moins de douze lévites debout sur l'estrade et leur nombre pouvait être augmenté à l'infini. Aucun mineur ne pouvait entrer dans la cour du sanctuaire pour prendre part au service, sauf lorsque les lévites se levaient pour chanter. Ils ne se joignaient pas non plus au chant avec la harpe et la lyre, mais uniquement avec la bouche, pour ajouter de la saveur à la musique. Rabbi Eliezer ben Jacob a dit : ils ne comptaient pas dans le nombre requis, et ne se tenaient pas sur la plate-forme. Ils se tenaient plutôt sur le sol, de sorte que leur tête se trouvait entre les pieds des lévites. Et on les appelait les jeunes des lévites.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

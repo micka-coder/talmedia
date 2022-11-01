@@ -45,4 +45,4 @@ La Guemara cite des preuves qu'il est permis de permettre aux autres de se tromp
 § La Guemara revient sur le sujet de la vente de viande non casher à un Gentil. Il y avait <b>un certain</b> <b>boucher juif qui dit à un autre</b> individu :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

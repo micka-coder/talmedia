@@ -60,4 +60,4 @@ La Guemara en tire une déduction : <b>La raison</b> pour laquelle l'enfant est 
 <b>Et si vous voulez dire</b> que c'est <b>à cause</b> d'une déclaration de <b>Rabbi Yitzḥak,</b> il y a encore une difficulté. <b>Comme l'a dit Rabbi Yitzḥak : Selon la loi de la Torah,</b> si une substance se trouve sur le corps d'une personne lors de l'immersion, et qu'elle recouvre <b>la majorité</b> de <b>son</b> corps, <b>et qu'il est particulier</b> et veut que la substance soit enlevée, alors seulement <b>elle</b> est considérée comme <b>une interposition</b> qui invalide l'immersion dans un bain rituel. Si, par contre, la substance recouvre <b>la majorité</b> de <b>son</b> corps, mais que <b>il n'est pas particulier</b> cette substance, <b>elle n'est pas</b> considérée comme <b>une interposition.</b> En conséquence, on peut soutenir que, bien que le fœtus soit couvert par sa mère, puisqu'elle n'est pas particulière quant à cette couverture nécessaire, le fœtus lui-même est considéré comme ayant subi une immersion valide.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

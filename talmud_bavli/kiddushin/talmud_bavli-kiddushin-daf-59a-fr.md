@@ -48,4 +48,4 @@ Reish Lakish répondit : <b>Là aussi, tant que l'acte de divorce n'est pas parv
 <b>Reish Lakish a soulevé une objection à Rabbi Yoḥanan : Tous les récipients descendent dans leur</b> état de contraction de l'impureté rituelle par le biais de la pensée.</b> Bien qu'un récipient inachevé ne puisse devenir rituellement impur, si l'artisan décidait de ne plus y travailler, il prend immédiatement le statut de récipient achevé et peut devenir rituellement impur. <b>Mais ils ne s'élèvent de leur</b> état d'impureté rituelle qu'au moyen d'un changement</b> résultant d'une <b>action.</b> Un récipient rituellement impur, une fois qu'il a subi un changement physique, n'est plus rituellement impur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara répond : La formulation de la mishna est imprécise, car en fait, m�
 La Guemara <b>souleve une objection</b> à l'opinion de Rabbi Shimon ben Lakish à partir d'une <i>baraita</i> : <b>Dans quel</b> cas <b>cette affirmation,</b> selon laquelle l'offrande est rendue <i>piggul</i> même lorsqu'il a l'intention de la manger au-delà de son temps désigné uniquement dans le premier placement, <b>est-elle dite ? Dans</b> le cas du <b>sang qui est placé sur l'autel externe,</b> où un seul placement rend l'offrande permise.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

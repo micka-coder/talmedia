@@ -27,4 +27,4 @@ La Guemara discute de la <i>baraita</i>. <b>Grâce, selon celui qui dit</b> que 
 <b>Il y a</b> ceux <b>qui disent</b> que l'objection a été formulée différemment. <b>Accordé, selon celui qui dit</b> que la rébellion dont il est question dans la mishna fait référence à <b>l'engagement dans des relations conjugales, cette</b> explication <b>est</b> cohérente avec <b>ce qui est enseigné</b> à propos d'une <b>femme malade,</b> qu'elle soit condamnée à une amende en tant que femme rebelle, car même si elle n'est pas capable de travailler, elle peut toujours être rebelle en ce qui concerne les relations conjugales.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

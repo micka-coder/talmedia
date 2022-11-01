@@ -57,4 +57,4 @@ Il explique plutôt la déclaration de Rabbi Yehuda HaNasi comme suit : <b>Rabbi
 <b>Et ceci</b> est ce que Rabbi Yehuda HaNasi <b>dit : Si elle se profane d'abord,</b> c'est-à-dire se disqualifie de la prêtrise, <b>en commettant <b>l'adultère,</b> elle est exécutée <b>par le feu, mais</b> dans <b>un autre cas</b>, où elle était déjà disqualifiée de la prêtrise en épousant un homme inapte pour elle, elle est exécutée <b>par strangulation. Et quel</b> est le sens de la fin de la déclaration de Rabbi Yehuda HaNasi : <b>Et de même</b> il est dit : "Alors l'homme qui a couché avec elle seule mourra" ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

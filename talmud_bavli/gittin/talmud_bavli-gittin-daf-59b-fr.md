@@ -66,4 +66,4 @@ En ce qui concerne l'inquiétude elle-même, la Guemara demande : <b>Et au sujet
 <b>Les gens de la Galilée ont envoyé</b> une question <b>au rabbin Ḥelbo : Après eux,</b> le prêtre et le lévite,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

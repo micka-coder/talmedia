@@ -33,4 +33,4 @@ La Guemara relate que <b>Rabbi Elazar pensait</b> émettre une décision exigean
 Rav Yosef <b>Dit à</b> Abaye : Je n'ai pas parlé de dattes réelles couchées sur des nattes ; plutôt, <b>J'ai parlé</b> de dattes mûres prêtes à être cueillies, <b>qui sont adaptées aux nattes.</b> Puisqu'elles sont encore attachées au sol, elles ne sont pas considérées comme des biens meubles.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

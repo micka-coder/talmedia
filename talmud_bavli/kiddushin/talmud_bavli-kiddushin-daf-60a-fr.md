@@ -48,4 +48,4 @@ La Gemara demande : <b>Quelle est</b> la différence <b>entre</b> les explicatio
 La Guemara commente : <b>Et nous avons également appris</b> une mishna <b>concernant les actes de divorce comme ce cas</b> (<i>Gittin</i> 74a) : En ce qui concerne <b>celui qui dit à une femme : Voici ton acte de divorce à condition que tu me donnes deux cents dinars, elle est divorcée et elle devra</b> lui donner les deux cents dinars. <b>Il a été précisé</b> que les <i>amora'im</i> se sont disputés la version correcte de cette déclaration. <b>Rav Huna dit : Et elle donnera ; Rav Yehuda dit : Quand elle donnera.</b> Les raisons sont celles énoncées ci-dessus dans la discussion sur les fiançailles : <b>Rav Huna dit : Et elle donnera,</b> car <b>c'est une condition,</b> et donc <b>elle procède à l'accomplissement de la condition. Rav Yehuda dit : Quand elle donne,</b> comme <b>quand elle donnera</b> l'argent <b>à lui, ce sera</b> un <b>acte de divorce valide,</b> mais <b>maintenant, de toute façon,</b> ce <b>n'est pas</b> un <b>acte de divorce valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

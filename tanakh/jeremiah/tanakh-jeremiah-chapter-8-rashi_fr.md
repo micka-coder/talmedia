@@ -84,7 +84,7 @@
 <b>La santé de</b> lit. le remède de, (emplatre en ancien français.), plâtre, pansement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -170,4 +170,4 @@
 <b>La santé de</b> lit. le remède de, (emplatre en ancien français.), plâtre, pansement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

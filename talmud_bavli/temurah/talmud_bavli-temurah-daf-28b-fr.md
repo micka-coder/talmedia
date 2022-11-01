@@ -66,4 +66,4 @@ La Gemara demande : <b>Et le premier <i>tanna</b>, qui tire de ces versets</b> l
 La Gemara demande : <b>Et là, ce taureau était-il</b> interdit <b>seulement</b> comme <b>mise en réserve ? Il était aussi</b> effectivement <b>vénéré. Rav Aḥa bar Ya'akov dit :</b> Ce taureau <b>était mis de côté pour</b> être <b>adoré, mais</b> en pratique, <b>ils ne l'adoraient pas. Rava dit : En fait, ils l'ont adoré,</b> et donc cela aurait dû être interdit comme idolâtrie. <b>Mais</b> ce cas <b>est une nouveauté, conformément</b> à une déclaration de <b>Rabbi Abba bar Kahana. Comme le dit Rabbi Abba bar Kahana : Huit</b> <b>matières interdites ont été permises</b> à Gédéon <b>en cette nuit</b> où il a détruit l'idolâtrie de son père (voir Juges, chapitre 6) : L'interdiction d'abattre des animaux sacrificiels <b>à l'extérieur</b> du Tabernacle ; <b>et</b> l'interdiction de sacrifier des offrandes à <b>la nuit ; et</b> l'interdiction aux <b>non-prêtres</b> d'accomplir le service, car Gédéon n'était pas prêtre ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

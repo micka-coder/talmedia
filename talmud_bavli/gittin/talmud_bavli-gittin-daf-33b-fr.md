@@ -45,4 +45,4 @@ La Gemara explique le deuxième élément : <b>Et s'il te vient à l'esprit</b> 
 <b>Et Rava dit</b> que <b>Rav Naḥman</b> dit : La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi</b> Yehuda HaNasi <b>dans les deux</b> cas. La Gemara demande : <b>Mais Rav Naḥman</b> n'accepte-t-il pas l'argument selon lequel <b>le tribunal</b> devrait <b>avoir un avantage ? Mais le Rav Naḥman ne dit-il pas</b> que <b>Shmuel dit,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

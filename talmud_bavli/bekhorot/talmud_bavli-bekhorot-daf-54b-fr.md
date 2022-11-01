@@ -45,4 +45,4 @@ La Gemara demande : <b>Et combien</b> d'animaux doit-il avoir sur les deux côt�
 <b>Et Shmuel dit : Même</b> s'il y a <b>cinq d'ici et cinq de là et</b> seulement <b>un au milieu</b> ils peuvent être soumis à la dîme ensemble. La raison est que <b>nous voyons le berger comme celui qui se tient ici</b> au milieu <b>et nous appliquons</b> le verset : <b>"Qui les compte"</b> (Jérémie 33:13), à lui. Puisqu'il peut voir et compter les deux côtés depuis son point d'observation au milieu, ils sont tous considérés comme un seul troupeau.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

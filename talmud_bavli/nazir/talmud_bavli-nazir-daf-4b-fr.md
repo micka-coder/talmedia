@@ -63,4 +63,4 @@ La Gemara demande : <b>Mais peut-être</b> qu'il les a blessés mortellement et 
 § La Guemara clarifie une <i>halakha</i> enseignée dans la mishna : <b>Et où est</b> écrite la notion de <b>nazirite permanente ? Comme il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>dit : Absalom était un naziréen permanent, comme il est dit : " Au bout de quarante ans, Absalom dit au roi : Je te prie, laisse-moi aller accomplir le vœu que j'ai fait au Seigneur, à Hébron"</b> (II Samuel 15:7). <b>Et il se coupa</b> les cheveux <b>une fois</b> tous les <b>douze mois, comme il est dit :</b> "Et lorsqu'il se polissait la tête, <b>c'était à la fin de chaque année [<i>yamim</i>]</b> qu'il la polissait ; car les cheveux étaient lourds sur lui" (II Samuel 14:26).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

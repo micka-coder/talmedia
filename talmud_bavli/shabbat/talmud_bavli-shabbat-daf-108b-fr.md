@@ -39,4 +39,4 @@ La Gemara commente : <b>Conclure que le père de Shmuel est celui qui a dit</b> 
 Apropos de la déclaration de Rabbi Mona concernant la guérison, le texte cite ce que <b>il dirait</b> sur d'autres sujets qui nécessitent une attention particulière : <b>Une main</b> qui touche l'<b>oeil doit être coupée</b> car elle nuit à l'œil. <b>Une main</b> qui touche le <b>nez doit être tranchée. Une main</b> qui touche la <b>bouche doit être tranchée. Une main</b> qui touche l'<b>oreille doit être coupée. Une main</b> qui touche une <b>blessure doit être tranchée. Une main</b> qui touche un <b>membre doit être tranchée,</b> de peur que l'on ne s'excite. <b>Une main</b> qui touche l'<b>anus d'un individu doit être tranchée,</b> de peur de se rendre malade. <b>Une main</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

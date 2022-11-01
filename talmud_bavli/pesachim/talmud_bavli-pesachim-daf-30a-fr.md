@@ -27,4 +27,4 @@ La Gemara raconte : Il y avait <b>un certain four qu'on enduisait de graisse</b>
 La Guemara <b>souleve une objection</b> à cette déclaration : Il a été enseigné que <b>On</b> ne peut <b>pas pétrir la pâte avec du lait, et s'il</b> a <b>pénètré</b> la pâte avec du lait, alors <b>tout le pain est interdit en raison</b> de la crainte qu'il commette <b>une transgression habituelle.</b> Comme on mange habituellement du pain avec de la viande, on craint de venir manger ce pain avec de la viande également, transgressant involontairement l'interdiction de manger de la viande avec du lait. <b>De même,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,7 +42,7 @@ La Gemara explique la déclaration ci-dessus. En d'autres termes, <b>partout</b>
 <strong>GEMARA:</strong> <b>Abaye dit : Ils ont enseigné</b> cette dispute <b>seulement</b> en ce qui concerne <b>un témoin</b> qui a signé sur un acte de vente. <b>Cependant, un juge</b> qui contestait la propriété d'un champ et qui, en même temps, siégeait dans un tribunal qui a certifié l'acte de vente de cette même parcelle <b>n'a pas perdu son droit.</b> C'est <b>comme l'a enseigné Rabbi Ḥiyya : Les témoins ne signent pas un document s'ils ne l'ont pas lu,</b> ce qui signifie qu'un témoin ne peut raisonnablement prétendre qu'il ne certifie qu'une partie du document ; on suppose qu'il a lu et est conscient de tout ce qu'il contient.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 la femme fiancée peut être laissée <b>sit</b> non mariée dans la maison de son père <b>jusqu'à ce que sa tête devienne blanche.</b> Si le marié ne souhaite pas se marier sans dot, il ne peut y être contraint, le père n'ayant pas tenu sa promesse. <b>Admon dit</b> que <b>elle peut dire : Si j'avais réparti</b> l'argent <b>moi-même</b> et manqué à ma promesse, j'accepterais de <b>s'asseoir jusqu'à ce que ma tête devienne blanche.</b> Cependant, <b>maintenant que</b> mon <b>père</b> était celui qui <b>répartissait</b> la dot, <b>que puis-je faire ? Soit m'épouser</b> <b>ou me libérer</b> par un acte de divorce. <b>Rabban Gamliel a dit : Je considère</b> comme correcte <b>la déclaration de Admon.</b>
 
@@ -86,4 +86,4 @@ La Gemara explique la déclaration ci-dessus. En d'autres termes, <b>partout</b>
 <strong>GEMARA:</strong> <b>Abaye a dit : Ils ont enseigné</b> cette dispute <b>seulement</b> en ce qui concerne <b>un témoin</b> qui a signé sur un acte de vente. <b>Cependant, un juge</b> qui contestait la propriété d'un champ et qui, en même temps, siégeait dans un tribunal qui a certifié l'acte de vente de cette même parcelle <b>n'a pas perdu son droit.</b> C'est <b>comme l'a enseigné Rabbi Ḥiyya : Les témoins ne signent pas un document s'ils ne l'ont pas lu,</b> ce qui signifie qu'un témoin ne peut raisonnablement prétendre qu'il ne certifie qu'une partie du document ; on suppose qu'il a lu et est conscient de tout ce qu'il contient.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

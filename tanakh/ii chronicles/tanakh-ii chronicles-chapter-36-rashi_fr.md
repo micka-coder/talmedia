@@ -85,4 +85,4 @@
 <b>et il pourra monter</b> et que le Saint, béni soit-Il, l'aide, lui et nous.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -63,4 +63,4 @@ Et le fait que la décision d'un <i>baraita</i> sur les produits qui ont poussé
 Et le fait que la décision d'un <i>baraita</i> sur les fruits qui ont poussé sur <b>un bateau</b> soit contredite <b>par</b> la décision de l'autre <i>baraita</i> sur les fruits qui ont poussé sur <b>un bateau</b> n'est <b>pas difficile. </b> On peut expliquer qu'<b>ici,</b> la <i>baraita</i> qui déclare que le passage est récité <b>se réfère à un navire</b> fait <b>de bois,</b> où les fruits ont pu se nourrir du sol à travers le bois, alors que, <b>là,</b> la <i>baraita</i> qui déclare que le passage n'est pas récité <b>se réfère à un navire</b> fait <b>de faïence.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

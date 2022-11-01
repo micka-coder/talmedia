@@ -22,4 +22,4 @@
 <b>Ils n'auront pas honte quand ils parleront aux ennemis de la porte</b> Les érudits de la Torah qui se battent entre eux dans la halacha et apparaissent comme des ennemis les uns des autres (addendum).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

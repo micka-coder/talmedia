@@ -33,4 +33,4 @@ La mishna déclare : Dans le cas de <b>celui qui creuse</b> et crée un espace �
 <b>On a appris</b> dans une mishna <b>là,</b> dans le traité <i>Eiruvin</i> : Dans le cas d'une <b>citerne qui est</b> située <b>entre deux cours,</b> située en partie dans chaque cour, <b>on peut y puiser de l'eau <b>le Chabbat seulement</b> si <b>une cloison de dix coudées de haut a été érigée</b> spécifiquement <b>pour</b> la citerne afin de séparer l'eau entre les domaines, de peur que les habitants d'une cour ne puisent de l'eau dans le domaine de l'autre cour. Cette cloison est efficace <b>qu'elle soit au-dessus,</b> et abaissée vers l'eau ; <b>qu'elle soit</b> <b>en dessous,</b> dans l'eau ; <b>ou qu'elle soit dans l'espace aérien</b> de la citerne sous le <b>rim,</b> au-dessus de la surface de l'eau. Une cloison située à l'un de ces endroits constitue une limite entre les deux cours, permettant de puiser de l'eau dans la citerne. <b>Rabban Shimon ben Gamliel dit</b> que ceci est le sujet d'une dispute ancienne de <i>tanna'im</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

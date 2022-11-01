@@ -39,4 +39,4 @@ La Guemara cite d'autres déclarations concernant l'arche. <b>Rabbi Ḥama, fils
 § La Guemara revient à sa discussion sur les vêtements sacerdotaux : <b>Rabbi Ḥama bar Ḥanina a dit : Quel est</b> le sens de ce <b>qui est écrit : "Les tresses</b> [<b><i>serad</i></b>] <b>vêtements, pour le service dans le Sanctuaire"</b> (Exode 35.19) ? Pourquoi le verset fait-il référence aux vêtements sacerdotaux comme " <i>serad</i> vêtements " ?
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

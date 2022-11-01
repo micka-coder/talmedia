@@ -20,5 +20,5 @@ Son champ a été semé d'oignons, et il souhaite y planter des rangs de courges
 ### michna 7
 Une courge [semée] parmi un légume [différent] [doit être séparée d'autant] que tout autre légume. Si une courge est semée parmi des céréales, il doit lui donner [un espace de séparation de] un bet rova. Si son champ a été semé de céréales, et qu'il souhaite y planter une rangée de courges, il doit donner [aux courges] six coudées pour qu'elles soient travaillées. Et si [la rangée de courges] dépasse [la limite], il devra arracher ce qui s'y trouve. Rabbi Yose dit : il doit donner [les courges] quatre coudées pour qu'elles soient travaillées. Ils lui dirent : Tu es plus sévère à l'égard de ceci qu'à l'égard d'une vigne ? Il leur dit : Nous trouvons que [la calebasse] est traitée plus rigoureusement que la vigne, car pour une seule vigne il faut donner six coudées pour qu'elle soit travaillée, mais pour une seule calebasse un bet rova. Rabbi Meir a dit au nom de Rabbi Ishmael : s'il y a jusqu'à trois gourdes dans un bet seah, il ne peut pas apporter [une autre] graine dans le bet seah. Rabbi Yose ben Hahotef Ephrati a dit au nom de Rabbi Ishmael : s'il y a trois gourdes dans un bet kor, on ne peut pas apporter [une autre] graine dans le bet kor.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

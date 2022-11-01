@@ -96,7 +96,7 @@
 <b>Que puis-je encore espérer d'Hachem ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Les disciples des prophètes ont dit.</b> Les miracles qui ont été accomplis par son intermédiaire, il continue à les énumérer. Nos rabbins ont dit, que d'ici [on déduit] que Geichazi rejetterait les étudiants [venus] avant lui,<sup>1</sup><i class="footnote">I.e., beaucoup d'étudiants qui venaient auparavant, trouvaient le comportement et le mauvais caractère de Geichazi répugnants et ne restaient pas tant qu'il était là.</i> et lorsqu'il fut banni, de nombreux étudiants vinrent et l'endroit devint exigu à cause d'eux.<sup>2</sup><i class="footnote">Voir Masehet Sotah 47a.</i>
 
@@ -194,4 +194,4 @@
 <b>Que puis-je encore espérer d'Hachem ?</b> Sauver, cela ne servira sûrement à rien. <sup>14</sup><i class="footnote">Alternativement, מָה אוֹחִיל signifie "que puis-je encore prier [=אוֹחִיל] devant Dieu ?"-Targum </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

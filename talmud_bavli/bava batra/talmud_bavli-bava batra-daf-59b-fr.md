@@ -33,4 +33,4 @@ La Guemara répond que la mishna <b>parle</b> en utilisant le style de : <b>Il n
 <b>Rav Naḥman a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

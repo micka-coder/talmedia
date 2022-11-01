@@ -39,4 +39,4 @@ Ceci est <b>comme il est enseigné</b> dans un <i>baraita</i> : <b>Pour ce qui e
 <b>Rava dit à Rav Pappa et à Rav Huna, fils de Rav Yehoshua : Lorsqu'une décision juridique de ma part vous est présentée et que vous en percevez une réfutation, ne la déchirez pas avant de vous présenter devant moi</b> pour en discuter. <b>Si j'ai</b> une <b>explication valable, je te le dirai, et sinon, je rétracterai</b> ma décision. Si une de mes décisions vous est présentée <b>après</b> ma <b>mort,</b> alors que vous ne pouvez plus en discuter avec moi, <b>ne la déchirez pas, mais n'en tirez pas non plus de leçon,</b> c'est-à-dire ne gouvernez pas conformément à elle. <b>Ne le déchirez pas, car si j'avais été là, peut-être vous aurais-je dit</b> une <b>explication</b> valable que vous auriez acceptée ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Abaye poursuit : <b>Et Rav Sheshet ne soulève pas légitimement une objection, 
 <strong>MISHNA :</strong> <b>Ce sont des affaires qui ne sont pas</b> soumises aux <i>halakhot</i> d'<b>exploitation</b> même si la disparité entre la valeur et le paiement est d'un sixième ou plus : <b>Esclaves, et documents, et terres, et biens consacrés</b>. En outre, s'ils sont volés, ces biens ne sont soumis <b>ni</b> au <b>paiement du double</b> du principal pour le vol <b>ni</b> au <b>paiement de quatre ou cinq</b> fois le principal, si le voleur a abattu ou vendu un mouton ou une vache volés, respectivement. <b>Un dépositaire non payé ne prête pas serment et un dépositaire payé ne paie pas</b> si ces objets ont été volés ou perdus. <b>Rabbi Shimon dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

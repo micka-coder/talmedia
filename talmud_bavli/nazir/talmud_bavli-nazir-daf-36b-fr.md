@@ -24,4 +24,4 @@ Abaye <b>a soulevé une objection à</b> Rav Dimi à partir d'une <i>baraita</i>
 Abaye explique : <b>Et s'il te venait à l'esprit</b> de dire que manger <b>une olive-bulk</b> d'aliment interdit dans le temps qu'il faut <b>pour manger une demi-miche</b> de pain est <b>interdit</b> par la loi de la Torah, <b>pourquoi disons-nous</b> le principe : <b>Parce que je dis</b> que le produit non sacré est tombé dans le produit non sacré ? Pourquoi les Sages ne s'inquiètent-ils pas du fait que l'on puisse manger une botte d'olives de <i>teruma</i> dans le temps qu'il faut pour manger une demi-miche de pain, ce qui est interdit par la loi de la Torah ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

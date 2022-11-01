@@ -36,4 +36,4 @@ La Gemara répond : C'est <b>différent ici,</b> car il y a une raison suppléme
 La Gemara relate que <b>Rav Huna bar Avin</b> a envoyé une décision aux personnes présentes dans la salle d'étude : Dans le cas de <b>celui qui vend un champ à sa femme, elle l'a acquis</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

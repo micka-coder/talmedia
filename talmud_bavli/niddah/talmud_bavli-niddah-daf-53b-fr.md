@@ -63,4 +63,4 @@ En ce qui concerne la suite de la mishna, qui dit : Le début du flux de <i>ziva
 § La mishna enseigne que <b>Rabbi Yehoshua a dit</b> aux rabbins : <b>Au lieu de</b> prendre des dispositions pour <b>remédier</b> aux incertitudes <b>des égarés,</b> venez remédier aux incertitudes des femmes compétentes. La Gemara demande : <b>Est-ce que ce sont</b> des femmes qui ont des saignements au crépuscule...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

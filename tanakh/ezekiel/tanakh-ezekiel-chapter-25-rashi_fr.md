@@ -46,4 +46,4 @@
 <b>La côte maritime</b> [Heb. חוֹף הַיָם,] marche en vieux français, frontière, limite. Ce sont des Philistins, qui vivent dans l'angle sud-ouest de la terre d'Israël, au bord de la mer occidentale (Méditerranée).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -33,4 +33,4 @@ En outre, on peut déduire au moyen de l'analogie verbale que <b>comme ici,</b> 
 La Guemara note : <b>Il a été enseigné</b> dans une <i>baraita</i> <b>conformément</b> à l'avis <b>du Rav Naḥman :</b> Le <b>huitième</b> jour...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

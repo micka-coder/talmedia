@@ -21,4 +21,4 @@ La Guemara demande : <b>Mais une porte</b> sur le dos d'un bœuf est un objet <b
 <b>Rava dit</b> Rabbi Yehuda' doit expliquer différemment sa déclaration. <b>Ils n'apporteraient pas de portes du tout. Parce qu'un enfant a un</b> sentiment exagéré de confiance en soi</b> en raison de la largeur de la porte, il pourrait se permettre de bouger d'un côté à l'autre <b>et</b> en conséquence, <b>peut-être qu'il étendra sa tête ou un de ses membres</b> au-delà du bord de la porte <b>et deviendra impur</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara cite la source de l'opinion de Rabbi Yoḥanan à cet égard. <b>Comm
 <b>Et Rav Yehuda dit</b> que <b>Shmuel dit : Rabbi Yehuda a jugé</b> la femme <b>impure,</b> malgré le fait qu'aucun sang n'ait émergé, <b>uniquement dans</b> le cas d'un <b>morceau</b> de chair qui a la couleur <b>de</b> l'un des <b>quatre types de</b> sang rituellement impur,</b> comme indiqué dans la mishna ci-dessous (19a). <b>Mais</b> si elle a la couleur <b>des autres types de sang,</b> la femme est <b>pure. Et Rabbi Yoḥanan dit :</b> Si une femme fait une fausse couche avec un morceau de chair qui a la couleur <b>de</b> l'un des <b>quatre types de</b> sang rituellement impur, tous,</b> c'est-à-dire Rabbi Yehouda et les rabbins, <b>sont d'accord</b> qu'elle <b>est impure. Et</b> de même, si le morceau a la couleur <b>d'autres types de sang, tous sont d'accord</b> qu'elle <b>est pure.</b> Les rabbins et Rabbi Yehuda <b>sont en désaccord uniquement</b> en ce qui concerne un cas <b>où</b> la femme <b>se marie par erreur</b> avec un morceau de chair amorphe,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

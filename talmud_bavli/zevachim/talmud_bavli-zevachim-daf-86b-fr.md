@@ -21,4 +21,4 @@ En ce qui concerne l'affirmation du Rav selon laquelle on ne peut commencer à e
 § La Guemara a expliqué précédemment la mishna comme disant que les membres durcis par le feu mais non entièrement consumés ne sont pas remis sur l'autel s'ils en ont été délogés après minuit, puisque la mitzva de brûler a été accomplie et que les membres sont considérés comme ayant été entièrement consumés. Il <b>a été déclaré</b> que les <i>amora'im</i> engagent une dispute concernant la question suivante : Dans le cas de membres qui se sont <b>séparés</b> de sur l'autel <b>avant minuit et</b> ont été <b>retournés après minuit,</b> moyennant quoi la mitzva de brûler n'a pas été achevée à minuit, <b>Rabba dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

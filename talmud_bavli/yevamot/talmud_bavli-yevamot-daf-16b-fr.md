@@ -30,4 +30,4 @@ En ce qui concerne les Ammonites, la Gemara cite un autre verset : <b>"Le Seigne
 La Gemara répond : Rav Yehouda veut dire qu'il y a un souci uniquement en ce qui concerne ceux qui sont issus des <b>habitations permanentes</b> <b>lieux d'habitation</b> des dix tribus. <b>Comme Rabbi Abba bar Kahana a dit</b> que le verset dit à propos des exilés de Samarie : <b>"Et il les mit à Halah, et à Habor, sur la rivière de Gozan, et dans les villes des Mèdes"</b> (I Rois 18:11). Rabbi Abba bar Kahana a procédé à l'identification de ces lieux. <b>Halah ; c'est</b> le lieu appelé <b>Ḥalzon. Et Habor ; </b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La mishna poursuit : Une <i>sukka</i> dont la toiture est <b>épaisse comme un t
 Si <b>deux</b> des murs de la <i>sukka</i> sont <b>dans l'arbre et un</b> est établi sur le sol <b>par une personne,</b> ou si <b>deux</b> sont établis sur le sol <b>par une personne et un</b> est <b>dans l'arbre, </b> la <i>sukka</i> <b>est apte, mais on ne peut y monter</b> et y entrer le</b> premier jour de la <b>Fête</b> car il est interdit d'utiliser l'arbre. Cependant, si <b>trois</b> des murs sont établis sur le sol <b>par une personne et qu'un</b> est <b>dans l'arbre,</b> alors puisqu'il contient le nombre minimum de murs requis, il <b>est apte, et on peut y entrer le</b> premier jour de <b>Festival</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

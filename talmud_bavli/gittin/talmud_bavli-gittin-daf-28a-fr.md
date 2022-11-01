@@ -54,4 +54,4 @@ Le <i>baraita</i> continue : Cependant, <b>Rabbi Yehuda et Rabbi Yosei et Rabbi 
 <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

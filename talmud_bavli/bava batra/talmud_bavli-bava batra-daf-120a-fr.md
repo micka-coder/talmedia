@@ -33,4 +33,4 @@ Rabba expose son objection : <b>En tout cas,</b> le <i>baraita</i> <b>enseigne :
 <b>Rabba Zuti a dit à Rav Ashi : Si c'est ainsi,</b> alors concernant la phrase <b>"c'est la question"</b> écrite <b>à propos</b> d'une offrande <b>abattue en dehors</b> du Tabernacle (voir Lévitique 17:2-3), <b>aussi,</b> est-ce la <i>halakha</i> <b>que cela ne sera pas pratiqué sauf dans cette génération ? </b> Certes, il n'en est rien, car cette interdiction s'applique dans toutes les générations. Quelle est la différence entre ces deux passages ? Rav Ashi a répondu : Il <b>est différent là,</b> en ce qui concerne les offrandes abattues en dehors du Tabernacle ou du Temple, <b>car il est écrit : "Tout au long de leurs générations"</b> (Lévitique 17:7), indiquant que l'interdiction est en vigueur dans toutes les générations.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

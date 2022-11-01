@@ -90,7 +90,7 @@
 <b>Vantardise</b> Heb. וְיִתְהַלְלוּ, porvantir en ancien français.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>À son oint</b> Tout titre de grandeur est appelé onction. Comp. (Num. 18:8) "A toi je les ai donnés pour la grandeur (לְמָשְׁחָה)." Nos Sages, cependant, ont dit : Au Roi Messie, le Saint, béni soit-Il, dit : "Je me plains à toi de Cyrus", comme il est dit dans le Tractate Megillah 12a.
 <b>Aplanir les nations devant lui</b> Heb. לְרַד, étendre et aplanir les nations devant lui. לְרַד est équivalent à לְרַדֵּד, s'étendre.
@@ -182,4 +182,4 @@
 <b>Vantardise</b> Heb. וְיִתְהַלְלוּ, porvantir en ancien français.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

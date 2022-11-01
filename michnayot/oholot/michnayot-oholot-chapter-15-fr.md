@@ -29,5 +29,5 @@ Une jarre remplie d'un liquide pur et scellée avec un couvercle bien ajusté, q
 ### michna 10
 Celui qui touche un cadavre et touche des récipients, celui qui fait de l'ombre à un cadavre et touche des récipients, ils [les récipients] sont impurs. Celui qui couvre un cadavre et couvre des récipients, celui qui touche un cadavre et couvre des récipients, ils [les récipients] sont purs. Si ses mains sont larges d'un palme, elles sont impures. Deux maisons, et dans chacune il y a un cadavre d'une demi-olive, et il met une main dans chaque maison : Si ses mains sont larges d'une largeur de main, il apporte l'impureté ; sinon, il n'apporte pas l'impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

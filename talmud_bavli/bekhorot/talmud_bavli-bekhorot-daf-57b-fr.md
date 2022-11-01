@@ -33,4 +33,4 @@ Selon l'avis de Rabbi Elazar et Rabbi Shimon, en ce qui concerne <b>tous</b> les
 La Gemara demande : <b>Et en quoi ces</b> trois <b>moments,</b> c'est-à-dire avant Pessah, <i>Shavouot</i> et <i>Soukot</i> sont-ils différents pour être choisis ? <b>Rabbi Tanḥum, fils de Rav Ḥiyya, du village d'Akko, dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

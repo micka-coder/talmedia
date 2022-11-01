@@ -69,4 +69,4 @@ La question de savoir si un chant doit être récité pour un holocauste volonta
 Il y a deux conclusions à tirer de cette comparaison : <b>De même que</b> l'<b>offrande brûlée est une offrande de l'ordre le plus sacré, de même,</b> l'<b>offrande de paix</b> qui doit être accompagnée de chants est une offrande qui est <b>une offrande de l'ordre le plus sacré,</b> et la seule offrande de paix de ce genre est celle des agneaux que l'on apporte avec les deux pains le jour de <i>Shavuot</i>. <b>Et de même que</b> cette <b>offrande de paix a un temps déterminé</b> où elle doit être apportée, <b>de même,</b> l'<b>holocauste</b> qui doit être accompagné de chants est un holocauste qui <b>a un temps déterminé,</b> ce qui exclut les holocaustes volontaires. Par conséquent, les holocaustes volontaires ne sont pas accompagnés de chants.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -50,5 +50,5 @@ Un morceau de [viande provenant] d'un des [sacrifices] les plus sacrés et [un m
 ### michna 17
 La viande des [sacrifices] les plus sacrés et la viande des [sacrifices] moins sacrés ont été cuites avec de la viande ordinaire : [le plat] est interdit aux impurs, mais permis aux purs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

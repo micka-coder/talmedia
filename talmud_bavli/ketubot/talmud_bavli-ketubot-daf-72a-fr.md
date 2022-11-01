@@ -57,4 +57,4 @@ La Guemara discute des deux applications de l'idée selon laquelle un mari doit 
 § La mishna a déclaré : <b>Et qui est</b> considérée comme une femme qui enfreint les <b>préceptes des femmes juives</b> ? Celle qui <b>sort et dont la tête est découverte.</b> La Gemara demande : L'interdiction faite à une femme de sortir avec <b>sa tête découverte</b> n'est pas simplement une coutume des femmes juives. Il s'agit plutôt d'une loi de la Torah</b>, <b>comme il est écrit</b> à propos d'une femme soupçonnée par son mari d'avoir été infidèle : <b>"Et il découvrira la tête de la femme"</b> (Nombres 5, 18). Et <b>l'école de Rabbi Yishmael a enseigné :</b> De là découle un <b>avertissement aux femmes juives de ne pas sortir la tête découverte,</b> car si la Torah stipule qu'une femme soupçonnée d'adultère doit avoir la tête découverte, cela indique qu'une femme mariée doit généralement se couvrir la tête. La Guemara explique : <b>Selon la loi de la Torah</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

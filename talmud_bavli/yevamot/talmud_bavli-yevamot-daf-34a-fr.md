@@ -42,4 +42,4 @@ La Gemara répond : <b>Et selon votre raisonnement, à savoir que</b> l'énumér
 <b>Rava dit à Rav Naḥman :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

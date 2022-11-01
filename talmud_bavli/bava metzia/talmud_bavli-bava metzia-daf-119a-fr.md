@@ -15,7 +15,7 @@ La Guemara commente : <b>Et</b> les deux cas <b>sont nécessaires</b> d'être é
 <b>Efrayim le scribe, élève de Reish Lakish, dit au nom de Reish Lakish :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Shimon. Ils ont exposé</b> ce cas <b>devant</b> le persan <b>Roi Shapur,</b> qui a exprimé son intérêt pour cette question juridique, et <b>il leur a dit : Offrons des louanges [<i>apiryon</i>] à Rabbi Shimon.</b> Lui aussi a estimé que c'était la meilleure résolution.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et nous avons également appris un cas semblable</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Orla</i> 1:4), <b>en ce qui concerne</b> l'interdiction de manger <b>les fruits d'un arbre pendant les trois premières années après sa plantation [<i>orla</i>] : </b> Dans le cas d'un <b>arbre qui pousse à partir du tronc et des racines</b> d'un vieil arbre, son propriétaire est <b>obligé en <i>orla</i>,</b> car il est considéré comme un nouvel arbre, et les <i>orla</i> années doivent être comptées à nouveau. C'est <b>la déclaration de Rabbi Meir. Rabbi Yehouda dit :</b> S'il pousse <b>à partir du tronc,</b> le propriétaire est <b>exempté,</b> puisqu'il est considéré comme une branche de l'ancien arbre, mais s'il pousse <b>à partir des racines,</b> le propriétaire est <b>obligé.</b>
 
@@ -32,4 +32,4 @@ La Guemara commente : <b>Et</b> les deux cas <b>sont nécessaires</b> d'être é
 <b>Efrayim le scribe, élève de Reish Lakish, dit au nom de Reish Lakish :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Shimon. Ils ont exposé</b> ce cas <b>devant</b> le persan <b>Roi Shapur,</b> qui a exprimé son intérêt pour cette question juridique, et <b>il leur a dit : Offrons des louanges [<i>apiryon</i>] à Rabbi Shimon.</b> Lui aussi a estimé que c'était la meilleure résolution.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

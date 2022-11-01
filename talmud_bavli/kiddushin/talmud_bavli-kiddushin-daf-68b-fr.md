@@ -30,4 +30,4 @@ La Guemara pose une autre question : <b>Nous avons trouvé</b> une source pour l
 La Gemara demande : <b>Si c'est le cas,</b> on doit apprendre d'ici en ce qui concerne une <b>servante cananéenne aussi,</b> que son enfant est comme elle, ce qui signifie que la preuve précédente du verset : "La femme et ses enfants" (Exode 21:4), n'est pas nécessaire. La Guemara répond : <b>Oui, il en est bien ainsi;</b> cette source enseigne également à la <i>halakha</i> que la progéniture d'une servante lui est semblable. La Guemara demande : <b>Mais</b> si c'est le cas, <b>pourquoi ai-je</b> besoin du verset <b>"La femme et ses enfants seront à son maître"?</b> Ce verset n'enseigne apparemment rien de nouveau en ce qui concerne les <i>halakhot</i> de lignée. La Guemara répond : Il est requis <b>pour ce qui est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

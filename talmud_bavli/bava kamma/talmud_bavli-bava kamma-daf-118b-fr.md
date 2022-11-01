@@ -72,4 +72,4 @@ La Guemara développe : Est-ce qu'il <b>se réfère à la première clause, et</
 La Gemara présente une réponse : <b>Venez</b> et <b>entendez</b> une résolution du dilemme, <b>comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : On peut acheter des animaux domestiqués</b> d'eux, mais on ne peut pas acheter des animaux du désert</b> <b>d'eux. Mais on peut toujours leur acheter quatre ou cinq moutons.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara rejette cette réponse : <b>D'où</b> tirez-vous cette conclusion ? <
 La Guemara rejette cette preuve : <b>D'où</b> tirez-vous cette conclusion ? <b>Peut-être qu'ici aussi on le mangeait comme <i>anigron</i>?</b> La Guemara rejette cette réponse : Ici, cette réponse est insuffisante car le verset <b>écrit "boisson forte [<i>sheikhar</i>],</b> ce qui signifie <b>quelque chose</b> qui <b>enivre.</b> Les boissons qui enivrent généralement ne le font pas lorsqu'elles sont dans un mélange. La Gemara demande : <b>Peut-être</b> <i>sheikhar</i> ne fait pas référence au vin mais à un aliment qui provoque l'ivresse, comme <b>une figue sèche sucrée de Keilah. Comme il a été enseigné</b> dans une <i>baraita</i> : Un prêtre qui <b>a mangé une figue sèche sucrée de Keilah ou bu du miel ou du lait,</b> s'est ainsi enivré, <b>et est entré dans le Temple</b> pour servir...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

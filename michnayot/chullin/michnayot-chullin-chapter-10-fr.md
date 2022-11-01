@@ -11,5 +11,5 @@ Un premier-né s'est mêlé à cent autres animaux : Si cent [et une] personnes 
 ### michna 4
 Un converti qui s'est converti et possédait une vache : S'il l'a abattue avant de se convertir, il est exempté de donner les cadeaux. S'il l'a abattue après sa conversion, il est responsable. S'il y avait un doute à ce sujet, il est exempté, car la charge de la preuve incombe au demandeur. Qu'est-ce que "l'épaule" ? De l'articulation jusqu'à l'omoplate du membre antérieur, et il en est de même pour le nazirite. La partie correspondante du membre postérieur est appelée la cuisse. Rabbi Judah dit : la cuisse s'étend de l'articulation jusqu'à la partie charnue de la jambe. Qu'est-ce qui compte comme "la joue ? De l'articulation de la mâchoire jusqu'à la dernière saillie de la trachée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

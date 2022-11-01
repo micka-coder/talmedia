@@ -36,4 +36,4 @@ La Guemara répond que <b>Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit :</
 <b>Rava dit</b> en opposition à cette affirmation : <b>Maintenant, puisque cette</b> interdiction <b>est par la loi de la Torah</b> <b>et que cette</b> interdiction <b>est par la loi de la Torah</b>, <b>quelle</b> différence y a-t-il <b>pour moi</b> si c'est <b>une interdiction</b> portant la peine de <b><i>karet</i></b> et <b>quelle</b> différence y a-t-il <b>pour moi</b> si c'est <b>une interdiction ordinaire ? </b> Si les deux interdictions sont de par la loi de la Torah, il n'est pas justifié de faire une distinction entre une interdiction sévère et une interdiction mineure ? <b>Au contraire, Rava dit</b> qu'il faut rejeter cette affirmation, et dire :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

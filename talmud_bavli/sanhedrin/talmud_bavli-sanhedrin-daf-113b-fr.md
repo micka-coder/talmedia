@@ -9,4 +9,4 @@
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Quand <b>un méchant</b> personne <b>vient dans le monde, la colère vient dans le monde, comme il est dit : "Quand le méchant vient dans le monde, le mépris vient aussi, et avec l'ignominie, l'opprobre"</b> (Proverbes 18:3). Quand <b>un méchant</b> est éliminé du monde, le bien vient dans le monde, comme il est dit : "Et quand les méchants périssent, il y a jubilation"</b> (Proverbes 11:10). Quand <b>un juste</b> <b>sort du monde, le mal entre dans le monde, comme il est dit : "Le juste périt et personne ne le prend à cœur ; et les hommes miséricordieux sont pris, personne ne comprend qu'à cause du mal, le juste est pris"</b> (Isaïe 57:1) Quand <b>un juste</b> vient dans le monde, le bien vient dans le monde</b> avec lui, <b>comme il est dit</b> à propos de Noé : <b>"Voici celui qui nous consolera de notre travail et du labeur de nos mains"</b> (Genèse 5, 29).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

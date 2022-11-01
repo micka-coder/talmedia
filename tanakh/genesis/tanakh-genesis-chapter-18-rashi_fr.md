@@ -134,5 +134,5 @@
 <b>Hachem s'en alla.</b> Une fois que le défenseur est réduit au silence, le Juge s'en va.
 <b>Et Avraham retourna à sa place.</b> Une fois le Juge parti, le défenseur s'en va et le procureur accuse et en conséquence : "Les deux anges vinrent à Sedom", pour détruire. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

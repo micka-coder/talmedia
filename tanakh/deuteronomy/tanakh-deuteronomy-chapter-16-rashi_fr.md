@@ -80,5 +80,5 @@ Ne plante pas un <i>Asherah</i> arbre pour toi-même ; tout arbre près de l'aut
 <b>Ne t'érige pas de monument.</b> Un monument d'une seule pierre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour des offrandes sacrificielles, même pour l'amour du Ciel. 
 <b>Ce que [Dieu] déteste.</b> Un autel en pierres ou <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>un autel en terre est ce qu'Il a ordonné, mais Il déteste cela, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce que c'était dans le canon des Cananéens. Bien qu'Il l'ait chéri à l'époque des patriarches, Il le déteste maintenant, puisqu'ils l'ont inclus dans le rituel idolâtre. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -33,4 +33,4 @@ J'ai <b>pourrais</b> penser que si <b>il l'abattait pour ceux qui ne se sont pas
 <b>Nous avons trouvé</b> une source pour la <i>halakha</i> selon laquelle un agneau pascal abattu <b>pour ceux qui ne se sont pas inscrits pour lui</b> est disqualifié. Mais <b>D'où tire-t-on</b> la <i>halakha</i> qu'il est pareillement disqualifié s'il est abattu <b>pour ceux qui ne peuvent pas le manger ?</b> La Gemara répond que <b>le verset dit : " C'est en fonction de la consommation de chacun que vous ferez votre compte " ; ceux qui le mangent sont juxtaposés,</b> et donc assimilés, <b>à ceux qui sont inscrits</b> pour lui. Cela enseigne que, de même que l'offrande est disqualifiée si elle est abattue pour ceux qui ne se sont pas inscrits pour elle, elle est également disqualifiée si elle est abattue pour ceux qui ne peuvent pas la manger.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

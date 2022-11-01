@@ -15,4 +15,4 @@
 <strong>GEMARA:</strong> En ce qui concerne la définition des gens de mer dans la mishna, il y a un différend entre <b>Rav Pappa et Rav Aḥa, fils de Rav Ika. L'un enseigne</b> cette affirmation <b>en ce qui concerne la première clause</b> de la mishna, <b>et l'autre l'enseigne</b> <b>en ce qui concerne la dernière clause.</b> La Gemara explique : <b>Celui qui l'enseigne</b> <b>en ce qui concerne la première clause l'enseigne</b> <b>comme ceci : Celui qui fait le vœu</b> de ne pas tirer de bénéfices <b>des marins</b> est <b>permis</b> de tirer des bénéfices <b>de ceux qui vivent sur la terre ferme. Mais</b> il lui est <b>interdit</b> de tirer un bénéfice <b>des gens de mer, et</b> les gens de mer ne sont <b>pas comme ceux</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

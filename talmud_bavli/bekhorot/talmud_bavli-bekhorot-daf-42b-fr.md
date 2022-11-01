@@ -54,4 +54,4 @@ En ce qui concerne l'avis de Rabbi Yosei, fils de Rabbi Yehuda, la Guemara deman
 <b>Alternativement,</b> s'il est trouvé être <b>un homme,</b> il peut <b>aussi</b> ne pas accomplir <i>ḥalitza</i>, car <b>peut-être sera-t-il trouvé</b> être <b>un eunuque</b> dont la condition est causée <b>naturellement.</b> La Guemara demande : Puisque Rabbi Yehuda et Rabbi Yosei, fils de Rabbi Yehuda, sont tous deux d'accord pour dire qu'un <i>tumtum</i> ne peut pas accomplir la <i>ḥalitza</i> pour la femme de son frère, <b>quelle est</b> la différence pratique <b>entre</b> leurs opinions ? <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : Il était <b>nécessaire</b> pour la <i>tanna</i> de la mish
 § La mishna enseigne que si l'on a acheté le pigeonnier avec le terrain, <b>il a le privilège acquis</b> d'usage. La Gemara demande : <b>Mais Rav Naḥman ne dit-il pas</b> que <b>Rabba bar Avuh dit : Il n'y a pas de privilège acquis</b> d'usage <b>pour</b> les cas de <b>dommages ?</b> Pourquoi devrait-il conserver son privilège acquis d'usage lorsque ses colombes causent des dommages ? <b>Rav Mari a dit :</b> La déclaration du Rav Naḥman se réfère spécifiquement <b>à la fumée,</b> qui cause de graves dommages, et c'est pourquoi elle passe outre un privilège acquis. <b>Rav Zevid a dit :</b> Il fait référence <b>à une salle de bain,</b> dont l'odeur est particulièrement forte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

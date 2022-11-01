@@ -97,4 +97,4 @@
 <b>Celui dont le souffle est cher</b> (dont les paroles sont chères ; éd. Salonique) Celui qui retient ses paroles est un homme de compréhension.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

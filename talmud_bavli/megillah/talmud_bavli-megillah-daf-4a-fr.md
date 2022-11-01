@@ -33,4 +33,4 @@ La Guemara note que cette décision <b>a également été énoncée</b> par une 
 § Nous avons appris dans la mishna que les habitants des villes sans murs lisent la Megilla le quatorze d'Adar ; <b>mais,</b> les habitants des <b>villages peuvent avancer</b> leur lecture <b>au jour de l'assemblée,</b> le lundi ou le jeudi précédant Pourim. <b>Rabbi Ḥanina a dit : Les Sages ont été indulgents avec les villages</b> et leur ont permis <b>d'avancer</b> leur lecture de la Meguila <b>au jour de l'assemblée, afin qu'ils</b> soient libres de <b>fournir de l'eau et de la nourriture à leurs frères des villes</b> le jour de Pourim. Si tout le monde était occupé à lire la Megilla le quatorze, les habitants des villes n'auraient pas assez à manger.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

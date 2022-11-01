@@ -81,7 +81,7 @@ Apres avoir explique l'expression peu commune, sur son cœur, la Guemara cite un
 <b>Et</b> sur une note similaire, <b>Rabbi Elazar a dit</b> que <b>Elijah a parle de maniere impertinente envers</b> Dieu <b>en Haut</b> aussi bien dans sa priere au Mont Carmel, <b>comme il est dit : </b> "Reponds-moi, Seigneur, reponds-moi, afin que ce peuple sache que Tu es le Seigneur, Dieu, <b>et que Tu as fait reculer leur cœur"</b> (I Rois 18:37), pretendant que Dieu a fait pecher Israel. A ce sujet, <b>Rabbi Shmuel bar Rabbi Yitzhak a dit : D'ou savons-nous que le Saint, Beni soit-Il, a finalement concede a Elie</b> qu'il avait raison ?
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Une affaire inconvenante, il doit le reprimander,</b> est derive. <b>"Et Anne repondit et elle dit non, mon maitre,</b> je suis une femme a l'esprit chagrin, et je n'ai bu ni vin ni liqueur, mais je repands mon ame devant le Seigneur" (I Samuel 1:15). En ce qui concerne les mots :" Non, mon maitre", <b>Ulla, et certains disent que Rabbi Yosei, fils de Rabbi Hanina, a dit</b> que <b>elle lui a dit,</b> par allusion : <b>A l'egard de cette affaire, tu n'es pas un maitre, et l'Esprit divin ne repose pas sur toi, comme tu</b> me le <b>soupconne faussement.</b>
 
@@ -164,4 +164,4 @@ Apres avoir explique l'expression peu commune, sur son cœur, la Guemara cite un
 <b>Et</b> sur une note similaire, <b>Rabbi Elazar a dit</b> que <b>Elijah a parle de maniere impertinente envers</b> Dieu <b>en Haut</b> aussi bien dans sa priere au Mont Carmel, <b>comme il est dit : </b> "Reponds-moi, Seigneur, reponds-moi, afin que ce peuple sache que Tu es le Seigneur, Dieu, <b>et que Tu as fait reculer leur cœur"</b> (I Rois 18:37), pretendant que Dieu a fait pecher Israel. A ce sujet, <b>Rabbi Shmuel bar Rabbi Yitzhak a dit : D'ou savons-nous que le Saint, Beni soit-Il, a finalement concede a Elie</b> qu'il avait raison ?
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

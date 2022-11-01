@@ -26,4 +26,4 @@
 <b>Le Seigneur régnera à jamais</b> Il perpétuera son royaume avec la rédemption de ses enfants.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

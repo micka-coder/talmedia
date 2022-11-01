@@ -26,5 +26,5 @@ On ne doit pas fabriquer de bijoux pour une idole [tels que] des colliers, des b
 ### michna 9
 Même dans un tel endroit où la location d'une maison a été autorisée, on n'a pas dit [que cela était autorisé si c'était] à des fins de résidence, car l'idolÃ¢tre y apportera des idoles ; car il est dit : "Tu n'apporteras pas d'abomination dans ta maison"(Deut. 7:26). Il est interdit de louer une maison de bain à un idolÃ¢tre, car elle est appelée par le nom du propriétaire.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

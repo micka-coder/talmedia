@@ -12,4 +12,4 @@ La Guemara commente : <b>Maintenant que Rav Sheshet a dit à Rav Shmuel bar Abba
 Par conséquent, on peut dire que la déclaration de Rav Yehuda' concernant une ruelle qui se termine dans une cour est conforme à l'opinion de Rav, car la contradiction apparente entre une déclaration <b>de Rav</b> et une autre déclaration <b>de Rav également</b> ne pose <b>aucune difficulté. Ici,</b> où Rav Yehuda autorise le port dans une ruelle qui se termine dans une cour, il fait référence à un cas <b>où les résidents de la cour et les résidents de la ruelle ont établi un <i>eirouv</i> commun,</b> alors que <b>ici, </b> où Rav interdit le port dans une ruelle qui a été percée sur toute la longueur de son mur arrière dans une cour, il fait référence à un cas <b>où</b> les résidents de la cour et les résidents de la ruelle <b>n'ont pas établi un <i>eirouv</i> commun. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

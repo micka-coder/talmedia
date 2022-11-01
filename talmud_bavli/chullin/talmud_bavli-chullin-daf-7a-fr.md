@@ -42,4 +42,4 @@ Il y avait <b>un homme qui transportait du blé</b> pour la préparation de la <
 Après avoir traversé la rivière, Rabbi Pineḥas ben Ya'ir <b>arrivait</b> à une certaine auberge [<i>ushpiza</i>].</b> Ses hôtes <b>jetaient de l'orge devant son âne</b> pour qu'il mange. L'âne <b>ne l'a pas mangé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

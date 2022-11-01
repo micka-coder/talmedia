@@ -54,4 +54,4 @@ La Guemara soulève une autre difficulté : <b>Rabbi Zeira n'a-t-il pas dit :</b
 La Gemara demande : <b>Si</b> c'est <b>donc</b> que la mishna se réfère uniquement à une Fête, il y a une difficulté avec <b>ce qui a été enseigné à son sujet</b> dans la <i>Tosefta</i> suivante : <b>Rabbi Eliezer dit : Si</b> la clé <b>a été perdue dans une ville, son <i>eiruv</i> est</b> un <b><i>eiruv</i> valide ; et si elle a été perdue dans un champ, son <i>eiruv</i> n'est pas</b> un <b><i>eiruv</i> valide,</b> car à l'intérieur d'une ville, il est possible de transporter la clé en passant par des cours réunies en un <i>eiruv</i> ou autre, mais dans un champ, il est impossible de la transporter, car le champ a le statut de <i>karmelit</i>. <b>Et si</b> la mishna fait référence <b>à une Fête, quelle</b> est la différence <b>pour moi</b> que la clé ait été perdue dans une <b>ville</b> ou un <b>champ ?</b> Lors d'une Fête, il n'y a pas d'interdiction de transporter d'un domaine privé à un domaine public, et donc si la clé a été perdue même dans un champ, le <i>eirouv</i> devrait être encore valable.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

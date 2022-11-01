@@ -30,4 +30,4 @@ La Gemara repond : En effet, <b>il se joint a eux, mais</b> il ne peut <b>satisf
 De meme, cette <i>halakha</i> <b>a egalement ete enoncee : Rav Hana bar Yehuda a dit au nom de Rava : Meme s'il ne fait que</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

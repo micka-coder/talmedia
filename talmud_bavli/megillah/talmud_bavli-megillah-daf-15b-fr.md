@@ -66,4 +66,4 @@ Et voici la raison pour laquelle Assuérus ne pouvait pas dormir : <b>Une pensé
 Le verset indique : <b>"Et ils furent lus</b> devant le roi" (Esther 6:1). La Guemara explique que <b>cette forme passive</b> : "Et ils furent lus," <b>enseigne qu'ils furent lus</b> miraculeusement <b>par eux-mêmes.</b> Elle dit encore : <b>"Et on les trouva écrits [<i>katuv</i>]</b> (Esther 6:2). La Guemara demande : Pourquoi la Megilla utilise-t-elle le mot <i>katuv</i>, qui indique qu'il était nouvellement écrit ? <b>Il aurait fallu dire : Un écrit [<i>ketav</i>]</b> a été trouvé, ce qui indiquerait qu'il avait été écrit dans le passé. La Guemara explique : Ceci <b>enseigne</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

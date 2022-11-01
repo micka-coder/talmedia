@@ -57,4 +57,4 @@ La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces 
 La Guemara demande : <b>Quel est</b> le sens de la phrase : <b>Du fait d'un mélange ? Rav Yosef répond :</b> Elle signifie <b>en raison</b> du possible <b>mélange de nids obligatoires</b> <b>avec des nids libres</b>. On craignait que les prêtres ne mélangent l'argent donné pour les nids obligatoires, qui sont sacrifiés comme un sacrifice pour le péché et un holocauste, avec l'argent pour les nids libres, qui sont sacrifiés comme une paire d'holocaustes. Mélanger les fonds de cette manière disqualifierait les oiseaux. <b>Abaye lui dit : Et préparons deux</b> cornes de collecte <b>et écrivons dessus lequel est</b> le récipient <b>pour les offrandes obligatoires</b> <b>et lequel est</b> celui pour les offrandes <b>libres</b>. La Gemara répond : <b>Rabbi Yehuda</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

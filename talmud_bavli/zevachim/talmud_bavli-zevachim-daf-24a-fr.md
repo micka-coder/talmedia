@@ -51,4 +51,4 @@ La Guemara demande : <b>Mais</b> quant à <b>Rabbi Shimon, quelle que soit</b> l
 <b>Au contraire, Abaye dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

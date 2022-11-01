@@ -51,4 +51,4 @@ La Guemara demande : Si elle s'est érodée mais que sa valeur actuelle est <b>s
 La Gemara <b>souleve une objection</b> de la <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

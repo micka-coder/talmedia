@@ -63,4 +63,4 @@ La Guemara cite une autre déclaration des mêmes Sages. <b>Rav Avira interprét
 La Gemara demande : <b>Quel</b> est le sens de la phrase : <b>"Même ainsi ils seront coupés [<i>nagozzu</i>], et il passera"?</b> Un Sage de <b>l'école de Rabbi Yishmael a enseigné : Quiconque tond [<i>gozez</i>]</b> une partie <b>de ses biens et fait la charité avec, sera sauvé du jugement de la Géhenne.</b> La Gemara propose <b>une parabole</b> qui compare ce cas <b>à deux moutons qui passaient dans l'eau. L'un</b> d'entre eux était <b>corné et</b> l'autre <b>un</b> était <b>non-corné.</b> Le mouton <b>corné</b> <b>traversa</b> l'autre rive, <b>mais le mouton non-corné</b> <b>ne traversa pas,</b> car sa laine absorba l'eau et il se noya. De même, celui qui tond son bien et le donne en charité ne descendra pas à la Géhenne.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

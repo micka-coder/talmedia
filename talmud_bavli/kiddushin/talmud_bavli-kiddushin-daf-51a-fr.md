@@ -39,4 +39,4 @@ La Gemara répond : <b>Rava</b> aurait pu <b>vous dire</b> en réponse : <b>Et s
 La Guemara poursuit en expliquant ce que Rava aurait pu dire. <b>Quelles sont les circonstances ? Si nous disons qu'il a dit : Vous êtes tous</b> fiancés à moi, cela <b>est</b> comparable à celui qui donne quelque chose à un autre et dit : <b>Que toi et l'âne acquièrent</b> cet objet. <b>Et</b> dans une situation où quelqu'un dirait : <b>Toi et l'âne</b> l'acquérir, le destinataire n'a <b>pas acquis</b> l'objet. Comme l'âne ne peut pas acquérir d'objets, la personne ne l'acquiert pas non plus, car le propriétaire a lié les deux acquisitions. Ici aussi, puisqu'il a essayé de donner l'objet des fiançailles à toutes les femmes, dont certaines, les sœurs, ne peuvent être fiancées ensemble, les fiançailles ne devraient pas prendre effet même avec les autres femmes, malgré le fait qu'elles lui conviennent.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

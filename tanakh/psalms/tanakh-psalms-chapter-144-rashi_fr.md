@@ -49,4 +49,4 @@
 <b>Digne de louanges est le peuple qui a ceci</b> Qui a tout ce bien.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

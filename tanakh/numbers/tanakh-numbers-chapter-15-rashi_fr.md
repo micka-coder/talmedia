@@ -127,5 +127,5 @@
 <b>Sur les coins de leurs vêtements.</b> Cela correspond à : "Je vous ai portés sur les ailes des aigles". Sur les quatre coins - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>mais pas sur un vêtement à trois, ou à cinq [coins]. Cela correspond aux quatre expressions de la rédemption qui ont été énoncées en Égypte - " Je te ferai sortir [du pays] ", " Je te sauverai [du pays] ", " Je te rachèterai [du pays] ", " Je te prendrai [du pays] ". 
 <b>Un fil bleu.</b> [תְּכֵלֶת] ainsi nommé en raison de la perte [par les Égyptiens] de leur premier-né. Le targum - traduction de שִׁכּוּל, "perte d'un enfant", est תִּכְלָא . Et ils ont été frappés la nuit. La couleur des "<i>técheiles</i>" est semblable au ciel qui s'assombrit le soir. Ses huit fils <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>correspondent aux huit jours d'attente des Israélites, depuis leur sortie d'Égypte, jusqu'à ce qu'ils chantent à la mer [des Roseaux]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

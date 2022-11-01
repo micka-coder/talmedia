@@ -69,4 +69,4 @@ La Guemara explique la dispute entre Rav et Rav Kahana. <b>Rav a dit : Moitié-m
 <b>Certains disent</b> que ce qui a été énoncé ci-dessus n'est pas la conclusion correcte basée sur la déclaration du Rav Kahana. Au contraire, <b>Rav Kahana a dit : La moitié n'est pas comme la majorité.</b> Par conséquent, <b>ceux qui sont purs accomplissent</b> le rituel de l'agneau pascal le <b>premier</b> <i>Pesaḥ</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

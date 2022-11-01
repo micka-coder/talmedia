@@ -57,4 +57,4 @@ En ce qui concerne <b>l'offrande pour le péché d'un oiseau et l'holocauste d'u
 <b>Comment</b> le <b>facteur de permission n'est pas sacrifié conformément à sa mitzva ? </b> Si le prêtre a <b>pincé</b> la nuque de l'oiseau avec l'intention d'en prendre part ou de le brûler <b>en dehors de sa</b> <b>zone</b> désignée et <b>suceté</b> son <b>sang</b> avec l'intention d'en prendre part ou de le brûler <b>au-delà de son <b>temps</b> désigné, ou</b> il a <b>épinglé</b> avec l'intention d'y prendre part ou de le brûler <b>au-delà de son</b> <b>temps désigné et a pressé</b> son <b>sang</b> avec l'intention d'y prendre part ou de le brûler <b>en dehors de sa</b> <b>zone désignée, ou</b> si le prêtre a <b>pincé et pressé le sang</b> avec l'intention de le consommer ou de le brûler <b>en dehors de sa</b> zone désignée,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -114,5 +114,5 @@
 ### passuk 33
 <b>Il ne fera pas de distinction, etc.</b> Puisqu'il est dit : "Et tous vos vœux de choix", peut-être doit-il sélectionner et faire ressortir les plus beaux ? Le verset dit : "Il ne fera pas de distinction entre les [animaux] meilleurs ou pires" - la sainteté descend sur lui qu'il soit entier ou taché ; non pas qu'il puisse être apporté [lorsqu'il] est taché, mais il peut être mangé en vertu de la loi de la dîme, et il est [donc] interdit de le tondre ou de le travailler.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

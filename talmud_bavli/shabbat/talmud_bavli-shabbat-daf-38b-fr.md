@@ -36,4 +36,4 @@ La mishna relate <b>une histoire concernant les habitants de</b> la ville de <b>
 <strong>GEMARA:</strong> <b>Un dilemme a été soulevé devant</b> les Sages : Celui qui a violé la <i>halakha</i> de la mishna et a <b>légèrement rôti</b> un œuf à côté d'une urne, <b>quelle est</b> la décision ? <b>Rav Yosef a dit : Celui</b> qui a <b>légèrement cuit</b> un œuf est <b>faisable</b> d'apporter <b>une offrande pour le péché,</b> car il a effectué l'acte de cuisson le Chabbat, ce qui est interdit par la loi de la Torah. <b>Mar, fils de Ravina, a dit : Nous avons également appris</b> quelque chose de similaire dans la mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

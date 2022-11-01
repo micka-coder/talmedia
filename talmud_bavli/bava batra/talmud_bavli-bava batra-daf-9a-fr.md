@@ -45,4 +45,4 @@ La Guemara propose <b>un moyen mnémotechnique</b> pour les déclarations suivan
 <b>Rava a dit : Cette</b> affaire suivante <b>m'a été rapportée</b> par <b>l'enfant</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

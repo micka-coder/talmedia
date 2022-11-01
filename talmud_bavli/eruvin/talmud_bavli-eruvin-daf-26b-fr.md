@@ -45,4 +45,4 @@ Abaye <b>a dit à</b> Rav Pappa en réponse à sa question : <b>Tant selon les s
 La mishna rapporte encore un autre enseignement transmis par Rabbi Elaï : <b>Et j'ai également entendu de</b> Rabbi Eliezer une autre <i>halakha</i>, <b>qu'on peut s'acquitter de son obligation</b> de manger des herbes amères <b>à Pessah avec <i>arkablin</i>,</b> une certaine herbe amère. La Gemara demande : <b>Qu'est-ce que l'<i>arkabline</i> ? Reish Lakish répond :</b> C'est <b><i>Atzvata ḥaruziyata</i>,</b> un type de fibre qui s'enroule autour d'un palmier dattier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : <b>Au contraire,</b> Shmuel fait référence à l'avis de <b
 <strong>GEMARA:</strong> La Gemara demande : <b>Mais Rabbi Eliezer pénalise-t-il</b> une transgression <b>pour toujours ? Et</b> la Gemara <b>souleve une contradiction</b> à partir d'une mishna (<i>Nega'im</i> 7:5) : Dans le cas de <b>quelqu'un qui avait une marque lépreuse blanche comme neige [<i>baheret</i>]</b> sur son corps,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

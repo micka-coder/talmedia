@@ -54,4 +54,4 @@ La Guemara discute brièvement la décision citée dans la <i>Tosefta</i> selon 
 <b>Dire cette dernière clause</b> à l'égard d'une cloison de planches comme suit : Dans le cas de toute cloison dont les planches ont une largeur de <b>trois</b> coudées, <b>et</b> toute cloison dont les planches ont une largeur <b>de trois à quatre</b> coudées,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

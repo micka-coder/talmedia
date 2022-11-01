@@ -48,4 +48,4 @@ En outre : <b>De même que</b> dans <b>le sanctuaire le plus intérieur</b> il a
 A propos de ce verset, la Guemara relate : <b>Un certain sadducéen dit à Rabbi Ḥanina :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

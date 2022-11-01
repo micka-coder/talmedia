@@ -51,4 +51,4 @@ Rabbi Sheila <b>a dit : Puisqu'un miracle a ete accompli en ma faveur avec ce ve
 <b>Il a ete enseigne dans une <i>baraita</i> au nom de Rabbi Akiva : </b> <b>Toi, Seigneur, c'est la grandeur ; c'est la fente de la mer Rouge ;</b><br><b>la puissance ; c'est la plaie des premiers-nes ;</b><br><b>la gloire ; c'est le don de la Torah ;</b><br><b>le triomphe ; c'est Jerusalem ;</b> <br>et <b>la majeste ; c'est le Temple. </b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

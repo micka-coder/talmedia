@@ -66,7 +66,7 @@ La Gemara demande : <b>Et</b> selon <b>Rabbi Shimon,</b> qui soutient que même 
 <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Deux des</b> <b>trois</b> d'entre eux pour témoigner que vous avez dissous le partenariat devant eux. <b>Ou alternativement,</b> amenez <b>deux témoins</b> pour témoigner <b>que vous avez dissous</b> le partenariat <b>devant</b> un tribunal <b>de trois.</b>
 
@@ -134,4 +134,4 @@ La Gemara demande : <b>Et</b> selon <b>Rabbi Shimon,</b> qui soutient que même 
 <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

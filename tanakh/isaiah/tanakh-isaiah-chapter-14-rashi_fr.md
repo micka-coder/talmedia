@@ -122,7 +122,7 @@
 <b>Et c'est là que s'abriteront les pauvres de son peuple</b> Même des dix tribus, ils y viendront, comme le relate II Chron. (30, 6) : "Ezéchias envoya des messagers sur toute la frontière d'Israël, pour revenir au Saint, béni soit-il".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Parce que le Seigneur aura pitié de Jacob</b> pour tenir pour eux la promesse de leur rédemption de Babylone.
 <b>et choisira de nouveau Israël</b> dans le futur, Il les rachètera avec une rédemption complète.
@@ -246,4 +246,4 @@
 <b>Et c'est là que s'abriteront les pauvres de son peuple</b> Même des dix tribus, ils y viendront, comme le relate II Chron. (30, 6) : "Ezéchias envoya des messagers sur toute la frontière d'Israël, pour revenir au Saint, béni soit-il".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

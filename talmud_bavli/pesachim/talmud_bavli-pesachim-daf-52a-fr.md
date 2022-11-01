@@ -30,4 +30,4 @@ La Gemara demande : <b>C'est pour dire</b> que <b>Rabbi Yehuda énonce</b> son o
 <b>Ravina dit :</b> La dispute entre les sages et Rabbi Yehuda est parallèle <b>à la dispute de ces <i>tanna'im</i>, comme nous l'avons appris</b> dans une mishna : <b>On peut manger des dattes</b> dans toute la Judée <b>jusqu'à ce que le dernier</b> palmier, qui produit les dattes les plus tardives, <b>à Tzoar,</b> ait <b>cessé</b> de produire des dattes. <b>Rabban Shimon ben Gamliel dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

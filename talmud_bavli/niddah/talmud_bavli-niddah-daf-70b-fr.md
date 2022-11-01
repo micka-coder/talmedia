@@ -45,4 +45,4 @@ La Guemara demande : Puisque le chemin de la richesse passe par la prière, <b>Q
 Les sages d'Alexandrie ont en outre demandé : <b>Que</b> doit faire <b>une personne pour avoir des enfants mâles ?</b> Rabbi Yehoshua <b>leur a répondu :</b> Il doit <b>se marier avec une femme qui lui convient</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara commente : <b>Tout le monde</b> est d'accord <b>dans tous les cas</b>
 § Il a été enseigné dans la mishna : <b>Ces</b> restes de sang de l'autel extérieur <b>et ces</b> restes de sang de l'autel intérieur sont <b>mélangés dans le canal</b> sous l'autel <b>et s'écoulent</b> avec l'eau utilisée pour rincer la zone jusqu'au fleuve Kidron, où ils sont vendus aux jardiniers. Tout sang qui n'était pas racheté était soumis à l'interdiction de faire un mauvais usage des biens consacrés. <b>Les Sages ont enseigné :</b> Celui qui prend ces restes sans les racheter <b>abuse</b> des biens consacrés dans le Temple <b>en</b> utilisant illégalement le <b>sang,</b> qui est consacré et qui est un bien du Temple. Il est interdit d'utiliser des objets consacrés à des fins mondaines, et celui qui le fait commet le péché d'abus de biens consacrés. C'est la déclaration de Rabbi Meir et de Rabbi Shimon. Et les sages disent :</b> On ne fait pas un <b>abus</b> des biens consacrés <b>en</b> bénéficiant de <b>ces</b> restes du sang des offrandes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

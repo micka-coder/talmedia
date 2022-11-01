@@ -45,4 +45,4 @@ Une fois <b>encore</b> Rabbi Reuven ben Isterobeli <b>leur a parlé</b> et a dit
 Peu de temps après, <b>ils reconnurent que</b> Rabbi Reuven ben Isterobeli <b>était un Juif,</b> et ils comprirent qu'il les avait trompés au profit du peuple juif. Ils se sont donc levés et ont <b>réinstauré</b> tous leurs décrets. Les Sages ont alors <b>dit : Qui ira annuler</b> ces <b>décrets ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

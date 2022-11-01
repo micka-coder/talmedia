@@ -56,4 +56,4 @@
 <b>Ils fuiront nus</b> - nus sans armes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -103,5 +103,5 @@
 <b>Comme on enlevait la graisse de l'agneau,</b> dont les graisses [brûlées sur l'autel] étaient augmentées par [l'ajout] de la queue de la graisse, de même l'offrande de péché, quand elle vient [comme] un agneau, exige [que] la queue de la graisse [soit brûlée] avec les graisses. 
 <b>Sur les feux d'Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sur les feux que l'on fait pour Dieu [par l'effort humain], <i>failles</i> en vieux français. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

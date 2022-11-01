@@ -105,4 +105,4 @@
 <b>et n'ont pas pu aller</b> - Heb. וְלֹא עָצְרוּ, lit. ils ne se sont pas retenus. Le sens est le suivant : Les navires n'ont pas pu rassembler la force nécessaire pour aller, et ils se sont brisés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

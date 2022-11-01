@@ -66,4 +66,4 @@ La Guemara demande : <b>Et s'il a arrete</b> sa recitation, <b>quelle est sa rec
 <b>Rav Huna a dit : Celui</b> dont le <b>vetement etait attache autour de sa taille,</b> meme s'il etait nu au-dessus de la taille, <b>est autorise a reciter le <i>Shema</i>.</b> En effet, <b>cette</b> opinion <b>a egalement ete enseignee</b> dans une <i>baraita</i> : <b>Un</b> dont le <b>vetement</b> fait <b>de tissu, de cuir, de sac</b> ou de toute autre matiere <b>a ete attache autour de sa taille, il lui est permis de reciter <i>Shema</i>.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

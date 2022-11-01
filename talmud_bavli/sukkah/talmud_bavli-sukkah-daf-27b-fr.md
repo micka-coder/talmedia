@@ -42,4 +42,4 @@ La Guemara pose la question sous un angle différent : <b>Mais Rabbi Eliezer n'a
 La Guemara demande : Si oui, <b>résolvez</b> la question et concluez que ce n'est pas permis <b>de son propre</b> avis, <b>comme nous l'avons appris</b> dans une mishna : En ce qui concerne <b>un volet de fenêtre</b> le Chabbat, <b>Rabbi Eliezer dit : Lorsqu'il est attaché</b> à <b>et suspendu</b> à la fenêtre, c'est-à-dire qu'il ne touche pas le sol, <b>on peut obturer</b> la fenêtre <b>avec lui,</b> car cela n'est pas considéré comme une construction ; <b>et sinon,</b> c'est-à-dire s'il touche le sol, <b>on ne peut pas obturer</b> la fenêtre <b>avec lui. Et les sages disent : A la fois</b> dans <b>cette</b> cas <b>et</b> dans <b>cette</b> cas <b>on peut coffrer avec.</b> Du fait que si elle n'est pas suspendue à la fenêtre, Rabbi Eliezer interdit de coffrer la fenêtre, il interdit également d'ajouter à une tente temporaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

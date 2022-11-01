@@ -27,4 +27,4 @@ La Guemara discute de plusieurs types de rehaussement. <b>Rav Pappa dit :</b> En
 § <b>Rabba bar Ḥana dit</b> que <b>Rabbi Ḥiyya dit :</b> Un juge qui <b>a agi,</b> c'est-à-dire statué, <b>conformément à la déclaration de Rabbi</b> Yehuda HaNasi <b>a agi</b> légalement, et celui qui a agi <b>conformément à la déclaration des rabbins a</b> également <b>agi</b> légalement. Dans tous les cas, la décision est maintenue.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -12,4 +12,4 @@ La Guemara répond : Les deux <b>sont nécessaires, car si</b> le verset avait <
 La Guemara demande : Selon la dérivation de Rabbi Akiva, <b>pourquoi ai-je besoin</b> des mots <b>"il n'entrera pas non plus auprès de cadavres"</b> (Lévitique 21:11), énoncés à propos d'un Grand Prêtre ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

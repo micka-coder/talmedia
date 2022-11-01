@@ -21,4 +21,4 @@ La Guemara soulève un problème différent concernant la pratique de Rav et Rav
 Ils l'occupaient toute la nuit pour l'empêcher de dormir. <b>S'il était un érudit, il</b> <b>enseignait</b> la Torah. <b>Si</b> il n'était <b>pas</b> un savant, des <b>savants de la Torah</b> <b>enseignaient</b> la Torah <b>avant lui. Et si</b> il était <b>habitué à lire</b> la Bible, <b>il</b> ferait <b>lire ; et si</b> il ne l'était <b>pas, ils</b> feraient <b>lire</b> la Bible <b>avant lui. Et quels</b> livres <b>ils liraient devant lui</b> pour piquer son intérêt afin qu'il ne s'endorme pas ? Ils lisaient des extraits de Job, d'Esdras et des Chroniques. Zekharya, fils de Kevutal, dit : Plusieurs fois, j'ai lu devant lui des extraits</b> du livre de <b>Daniel.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

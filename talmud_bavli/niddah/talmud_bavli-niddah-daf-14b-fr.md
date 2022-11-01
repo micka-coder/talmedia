@@ -72,4 +72,4 @@ La Guemara soulève une difficulté : <b>Mais</b> en ce qui concerne le différe
 La Guemara <b>souleve une objection</b> à l'interprétation de Rav Ashi à partir d'une <i>baraita</i> : <b>Qu'est-ce qui est</b> considéré comme <b>après le temps</b> écoulé, à quel moment le sang trouvé sur le tissu de la femme les rend tous deux impurs par incertitude pendant sept jours ? A propos de <b>cette question, Rabbi Elazar, fils de Rabbi Tsadok, interrogea les Sages à Usha, et il leur dit :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

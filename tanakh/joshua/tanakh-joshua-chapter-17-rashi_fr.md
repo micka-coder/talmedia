@@ -60,4 +60,4 @@
 <b>Même s'ils sont forts.</b> Vous en avez la capacité et vous les chasserez. Nos rabbins ont expliqué [la signification de] 'Montez dans la forêt - Cachez-vous dans la forêt et le "mauvais œil" n'aura aucun pouvoir sur vous.'<sup>13</sup><i class="footnote"> Yehoshua a laissé entendre que la forêt les protégerait contre le "mauvais œil". Parce qu'ils étaient si nombreux et se multipliaient si rapidement, ils invoquaient la jalousie de leurs voisins. Il était donc avantageux pour eux de vivre dans une zone forestière où ils ne seraient pas aussi visibles. S'ils vivaient dans les villes des plaines, tout le monde verrait combien ils étaient nombreux, mais dans la forêt, ils ne seraient pas aussi visibles.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara rejette cette affirmation : Ce n'est pas une preuve concluante, car <
 La Guemara rejette cette affirmation : <b>Mais peut-être</b> que <i>tanna</i> <b>tient</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

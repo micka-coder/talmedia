@@ -98,7 +98,7 @@
 <b>Comme du fumier.</b> [Targum Yonathan] rend כזבל<sup>34</sup><i class="footnote">Son nom indiquait son avenir, אִיזֶבֶל est un acronyme de אִי [=woe] qu'elle sera comme זֶבֶל [=dung]. -Kli Yakar </i> [=comme du fumier].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Elisha le prophète a appelé, etc.</b> Au même moment où Yehorom était malade à Yizre'el.
 <b>Un des disciples des prophètes.</b> Il s'agissait de Yonah fils d'Amitai.
@@ -198,4 +198,4 @@
 <b>Comme du fumier.</b> [Targum Yonathan] rend כזבל<sup>34</sup><i class="footnote">Son nom indiquait son avenir, אִיזֶבֶל est un acronyme de אִי [=woe] qu'elle sera comme זֶבֶל [=dung]. -Kli Yakar </i> [=comme du fumier].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

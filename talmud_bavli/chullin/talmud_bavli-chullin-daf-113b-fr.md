@@ -42,4 +42,4 @@ Il <b>a été déclaré :</b> En ce qui concerne <b>celui qui fait cuire</b> la 
 La Gemara répond : <b>Non ; tout le monde</b> est d'accord pour dire que <b>une interdiction ne prend pas effet</b> là où une autre <b>interdiction</b> existe déjà, et donc <b>tout le monde est d'accord pour dire que</b> l'on <b>n'est pas fouetté pour avoir mangé</b> le mélange. <b>Lorsqu'ils sont en désaccord,</b> c'est <b>en ce qui concerne la cuisson. Celui qui dit</b> qu'il <b>est flagellé</b> soutient que celui qui cuisine ne viole qu'<b>un seul interdit,</b> celui de cuire la viande dans le lait, puisqu'il est permis de cuire la graisse interdite sans la manger. Par conséquent, il ne s'agit pas d'un cas où une interdiction prend effet là où une autre interdiction existe déjà. <b>Et celui qui dit</b> qu'il <b>n'est pas flagellé</b> retient que c'est <b>pour cette</b> raison que <b>le Miséricordieux a exprimé</b> l'interdiction de <b>manger</b> de la viande cuite dans le lait dans la Torah en utilisant <b>le langage de la cuisine :</b> "Tu ne feras pas cuire un chevreau dans le lait de sa mère."
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

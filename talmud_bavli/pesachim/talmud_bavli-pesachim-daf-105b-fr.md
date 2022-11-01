@@ -18,4 +18,4 @@ La Guemara souligne que l'on peut <b>apprendre de cette <i>baraita</i> huit</b> 
 <b>Et apprenez-en</b> que <b>celui qui récite une bénédiction doit goûter</b> la nourriture sur laquelle il récite la bénédiction. Sinon, celui qui n'a qu'une seule coupe de vin pourrait l'utiliser à la fois pour la <i>havdala</i> et la grâce après les repas. <b>Et apprenez-en</b> qu'une fois qu'il a <b>goûté</b> le vin dans la coupe, il l'a <b>disqualifiée</b> de toute utilisation ultérieure comme coupe de bénédiction. <b>Et apprenez-en</b> que même si l'on a <b>goûté</b> un aliment après Chabbat, on <b>recite néanmoins <i>havdala</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

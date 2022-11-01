@@ -12,4 +12,4 @@
 <b>Abaye dit à</b> Rav Yosef : <b>Et partout où</b> le terme <b>terre est enseigné,</b> cela signifie-t-il <b>spécifiquement une terre ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Pe'a</i> 3:8) : En ce qui concerne <b>celui qui écrit,</b> c'est-à-dire donne par le biais d'un document, <b>tous ses biens à son <b>esclave cananéen,</b> l'esclave <b>a été affranchi,</b> mais s'il <b>réserve</b> pour lui-même <b>quelque quantité de terre,</b> alors il <b>n'a pas été affranchi,</b> car peut-être a-t-il réservé l'esclave pour lui-même également. <b>Rabbi Shimon dit : Il devient toujours</b> <b>libre</b> quel que soit le libellé du document, même si le propriétaire s'est réservé une terre, <b>à moins qu'il ne soit dit</b> dans le document : <b>Tout mon bien est donné à untel mon esclave, sauf un dix-millième,</b> car dans ce cas, il est possible que le maître ait voulu inclure l'esclave dans la partie qu'il ne donne pas. Par conséquent, l'esclave n'est pas émancipé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

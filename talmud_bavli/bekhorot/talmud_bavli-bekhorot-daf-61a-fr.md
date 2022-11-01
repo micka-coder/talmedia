@@ -39,4 +39,4 @@ La mishna poursuit : <b>S'il ne connaît pas l'intention</b> du <b>propriétaire
 Les Sages <b>sont</b> en réponse : <b>Voilà,</b> en ce qui concerne le <i>teruma</i>, <b>puisqu'il y a</b> ceux qui séparent <i>teruma</i> généreusement et qu'il y a</b> ceux <b>qui séparent <i>teruma</i> parcimonieusement,</b> l'agent peut <b>dire : J'ai estimé que vous</b> étiez un <b>tel que cela,</b> c'est-à-dire soit généreux, soit avare. Mais <b>ici,</b> en ce qui concerne la dîme animale, <b>c'est une erreur,</b> et donc le propriétaire peut <b>dire : Je ne voulais pas que tu fasses une erreur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

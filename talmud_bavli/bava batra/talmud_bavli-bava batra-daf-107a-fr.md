@@ -27,4 +27,4 @@ Si <b>un dit</b> que le bien vaut <b>cent dinars, et qu'un autre dit</b> qu'il v
 La Guemara clarifie les différents avis : <b>Celui qui dit</b> que le bien <b>est évalué à cent dinars</b> considère que l'on suit <b>le milieu</b> des deux évaluations extrêmes. <b>Rabbi Eliezer, fils de Rabbi Tzadok, dit</b> que <b>on l'évalue à quatre-vingt-dix</b> dinars car <b>il tient que cette terre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

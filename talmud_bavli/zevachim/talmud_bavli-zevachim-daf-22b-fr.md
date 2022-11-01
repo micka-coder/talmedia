@@ -48,4 +48,4 @@ La Guemara proteste : <b>Mais n'est-il pas écrit : "Si un homme d'entre vous ou
 La Gemara demande : <b>Mais n'est-il pas écrit :</b> "Et si le foyer est trop petit pour un agneau, alors lui et son voisin à côté de sa maison en prendront un selon le nombre des âmes ; <b>un homme,</b>".
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

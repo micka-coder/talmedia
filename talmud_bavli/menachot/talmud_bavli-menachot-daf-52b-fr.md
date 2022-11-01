@@ -30,4 +30,4 @@ Cette discussion dans la Guemara a commencé avec Rabbi Yoḥanan présentant le
 La Guemara répond : <b>Ils sont</b> différents <b><i>amora'im</i>, et</b> ils sont en désaccord <b>en ce qui concerne</b> l'avis <b>de Rabbi Yoḥanan.</b> L'un dit que Rabbi Yoḥanan statue conformément à Abba Yosei ben Dostai, et l'autre dit que selon Rabbi Yoḥanan la <i>halakha</i> est toujours conforme à une mishna non attribuée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

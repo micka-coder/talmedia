@@ -81,4 +81,4 @@ La Guemara demande : Cette source est-elle nécessaire pour dériver cette <i>ha
 La Gemara répond : Néanmoins, il est <b>nécessaire</b> de citer une source selon laquelle les hommes et les femmes sont égaux spécifiquement en ce qui concerne la peine de <i>karet</i> pour avoir mangé du pain levé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

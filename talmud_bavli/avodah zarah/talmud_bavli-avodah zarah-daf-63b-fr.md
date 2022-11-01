@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais ici,</b> dans le <i>baraita</i>, <b>pourquoi</b> l'
 <b>Rav Naḥman a dit : Il peut les briser</b>, <b>et qu'une bénédiction vienne sur lui.</b> La Gemara suggère : <b>Disons</b> qu'une <i>baraita</i> <b>soutient</b> son opinion : <b>On ne peut pas biner avec un Gentil dans</b> un champ qui contient un mélange interdit de <b>différentes sortes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

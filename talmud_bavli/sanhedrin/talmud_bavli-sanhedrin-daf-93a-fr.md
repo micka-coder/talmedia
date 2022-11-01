@@ -57,4 +57,4 @@ La Gemara demande : <b>Quelle est la raison</b> pour laquelle Josué le grand pr
 § A propos de Hanania, Michaël et Azaria, la Gemara cite ce que <b>Rabbi Tanḥum dit</b> que <b>bar Kappara a enseigné dans Tzippori : Quel</b> est le sens de ce <b>qui est écrit</b> à propos de la déclaration de Ruth à Naomi concernant Boaz : <b>"Ces six</b> grains d'<b>orge, il me les a donnés"</b> (Ruth 3:17). <b>Quel est le sens</b> de l'expression <b>"six</b> grains d'<b>orge" ? Si nous disons</b> que la référence est à <b>six grains d'orge réels</b>, est-ce le</b> <b>manière typique de Boaz de donner</b> un <b>cadeau minimal de six</b> grains d'orge ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

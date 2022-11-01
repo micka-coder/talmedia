@@ -108,4 +108,4 @@ A ce sujet, <b>Rabbi Yohanan a dit au nom de Rabbi Yosei : Chaque declaration</b
 <b>Et Rav Yosef enseigna</b> dans une <i>baraita</i> : <b>"Beaucoup"</b> signifie plus <b>que 600 000.</b> Cela s'apprend par une analogie verbale entre les mots <b>beaucoup</b> et <b>beaucoup. Il est ecrit ici</b> a propos des fils de Rehaviya : <b>Sont tres nombreux.</b> Et il est ecrit la</b> a propos des Israelites en Egypte : <b>"Et les enfants d'Israel devinrent nombreux, se multiplierent et furent tres nombreux,</b> et devinrent extremement puissants ; et le pays fut rempli d'eux" (Exode 1:7). De meme que lorsque les enfants d'Israel etaient en Egypte, tres nombreux signifiait qu'ils etaient 600 000, de meme les descendants de Rehaviya etaient 600 000.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

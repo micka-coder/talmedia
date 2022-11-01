@@ -33,4 +33,4 @@ La Gemara répond : <b>Dis</b> en réponse à cette question que le terme <b><i>
 La Gemara demande : <b>Maintenant que vous avez dit</b> que le mot <b><i>kol</i></b> est <b>une amplification, pourquoi ai-je</b> besoin de <b>tous ces détails</b> énumérés dans le verset, c'est-à-dire le bœuf, l'âne, le mouton et le vêtement ? La Gemara répond : Quant aux trois animaux énumérés, <b>un</b> est mentionné <b>pour exclure la terre, un pour exclure</b> les <b>esclaves cananéens, et un pour exclure</b> les <b>documents financiers.</b> L'exemple du <b>vêtement</b> est mentionné <b>pour exclure un article qui n'est pas</b> clairement <b>délimité</b> en taille ou en quantité. <b>"Ou pour toute sorte de chose perdue"</b> est écrit <b>pour</b> enseigner que <b>ce que Rabbi Ḥiyya bar Abba</b> dit, <b>comme Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>celui qui</b> déclare faussement <b>l'affirmation</b> qu'un <b>voleur</b> a volé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

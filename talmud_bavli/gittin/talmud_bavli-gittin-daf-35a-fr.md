@@ -51,4 +51,4 @@ A propos de cette question, la Gemara raconte : <b>Rav Yehuda,</b> l'élève de 
 La Gemara demande : Est-ce à dire que si le tribunal <b>administre un vœu</b> à <b>une divorcée</b> et non un serment, alors cela n'est <b>pas</b> suffisant pour lui permettre de percevoir le paiement de son contrat de mariage ? <b>Mais n'ont-ils pas envoyé de là-bas,</b> d'Eretz Yisrael, un document qui stipule ce qui suit : <b>Comment untel, fille d'untel, a reçu un acte de divorce de la main de Aḥa bar Hidya, qu'on appelle Ayya Mari, et elle a fait un vœu et s'est interdit les produits du monde, </b> sur la base de la vérité de sa déclaration <b>qu'elle n'a pas reçu de son contrat de mariage autre chose qu'un manteau</b> [<b><i>gelofkera</i></b>], <b>et un livre de Psaumes, et un livre de Job, et</b> un livre de <b>Proverbes,</b> tous étant <b>usés. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

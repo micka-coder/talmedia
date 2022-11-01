@@ -15,4 +15,4 @@ La Guemara répond : L'expression <b>"sur elle" est une partie superflue</b> du 
 <b>Rabbi Natan a dit : C'est la déclaration de Beit Shammai,</b> que chacun d'eux annule la moitié du vœu de la jeune femme fiancée. <b>Cependant, Beit Hillel disent</b> que le père <b>ne peut pas annuler</b> le vœu de son côté. La Guemara demande : <b>A propos de quoi</b> Beit Shammai et Beit Hillel <b>sont-ils en désaccord ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

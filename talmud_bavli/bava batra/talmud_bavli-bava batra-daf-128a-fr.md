@@ -33,4 +33,4 @@ Le <i>baraita</i> poursuit : <b>Mais</b> si <b>il connaissait</b> des informatio
 Le <i>baraita</i> conclut : <b>Voici le principe : Toute personne dont l'état initial</b> <b>ou son état ultime</b>, c'est-à-dire son état au moment de l'incident ou au moment de son témoignage au tribunal, <b>est</b> un état de <b>disqualification</b> pour témoigner est <b>disqualifiée</b> pour témoigner. Mais toute personne <b>dont l'état initial</b> <b>et son état ultime</b> <b>est</b> un état d'<b>aptitude</b> à témoigner est <b>apte</b> à témoigner, même si elle a été disqualifiée dans l'intervalle. Ce <i>baraita</i> indique clairement que celui qui est aveugle est disqualifié pour témoigner.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

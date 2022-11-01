@@ -42,4 +42,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent</b> dans <b>la première cla
 <b>Rav Adda bar Ahava s'oppose à cette</b> explication : <b>La raison</b> pour laquelle l'acte de divorce est valable est <b>que l'action précède la condition,</b> et que la condition ne prend pas effet. <b>Mais</b> si <b>la condition</b> devait <b>précéder l'action</b> alors ce ne serait <b>pas</b> un <b>acte de divorce valide. Or, d'où nous viennent toutes</b> les <i>halakhot</i> de <b>conditions ?</b> Elles sont dérivées <b>de la condition des enfants de Gad et des enfants de Ruben. De même que là</b> il y a <b>une condition par rapport à une question,</b> c'est-à-dire qu'ils devaient combattre avec le reste du peuple juif, <b>et</b> une <b>action résultante par rapport à une autre question,</b> c'est-à-dire qu'ils recevraient la terre de Galaad, <b>de même, chaque</b> autre condition doit suivre ce schéma. Cela sert <b>à exclure</b> le cas mentionné <b>ici,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

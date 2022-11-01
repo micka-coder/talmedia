@@ -30,4 +30,4 @@ A la lumière de l'interprétation de Reish Lakish, la Gemara objecte : <b>Mais<
 La Gemara explique : On peut <b>dire</b> que bien que le <i>tanna</i> aurait pu enseigner le cas de la maison construite au lieu d'une grotte, il a préféré mentionner une grotte, car <b>cette</b> cas de la grotte est <b>concluant pour lui.</b> En toutes circonstances, celui qui vit dans une grotte consacrée est exempt d'abus, car la grotte était toujours attachée au sol. En revanche, <b>cette</b> affaire de la maison construite n'est <b>pas concluante pour lui,</b> car une maison consacrée n'est pas toujours exempte de mauvais usage. Si la maison est construite à partir de matériaux préalablement consacrés, celui qui y habite est responsable d'un mauvais usage.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

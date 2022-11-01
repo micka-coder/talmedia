@@ -149,5 +149,5 @@
 <b>Bague.</b> Anneaux d'oreille.
 <b>Abandon.</b> Formé autour de l'entrejambe, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour expier leurs pensées pécheresses concernant les filles de Midian. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

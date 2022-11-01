@@ -82,7 +82,7 @@
 <b>Tournez-vous et tenez-vous là.</b> Passez de l'autre côté et tenez-vous là et écoutons ce que dit celui-ci [le kouchite].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -166,4 +166,4 @@
 <b>Tournez-vous et tenez-vous là.</b> Passez de l'autre côté et tenez-vous là et écoutons ce que dit celui-ci [le kouchite].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

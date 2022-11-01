@@ -45,4 +45,4 @@ La <i>baraita</i> continue : J'ai <b>pourrais</b> penser que <b>même</b> la mit
 <strong>MISHNA :</strong> <b>Si certains des</b> participants au seder <b>s'endorment,</b> interrompant ainsi leur repas, <b>ils</b> peuvent <b>manger</b> de l'agneau pascal à leur réveil. Si la <b>toute la compagnie</b> s'est endormie, <b>ils</b> peuvent <b>ne plus manger</b>. S'ils s'endorment tous, cela est considéré comme une interruption complète, et s'ils devaient reprendre leur repas, cela reviendrait à manger l'offrande à deux endroits différents.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Est-ce à dire</b> que <b>parce que l'on s'est détermin�
 <b>Un commerçant,</b> qui vend constamment des marchandises en petites quantités, <b>nettoie ses récipients de mesure</b> <b>deux fois par semaine et nettoie ses poids une fois par semaine ; et il nettoie</b> les plateaux de <b>ses balances après chaque pesée,</b> pour s'assurer qu'aucune marchandise n'a adhéré aux plateaux, augmentant ainsi leur poids. <b>Rabban Shimon ben Gamliel a dit : Dans quel</b> cas <b>cette affirmation,</b> selon laquelle il est nécessaire de nettoyer un récipient de mesure, <b>est-elle dite ? En ce qui concerne les objets humides</b>, qui sont susceptibles d'adhérer aux récipients de mesure. <b>Mais en ce qui concerne les articles secs</b>, qui n'adhèrent pas aux récipients de mesure, on <b>n'a pas besoin</b> de nettoyer ses récipients de mesure.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

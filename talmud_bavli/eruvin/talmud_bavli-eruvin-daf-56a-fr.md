@@ -33,4 +33,4 @@ De même, <b>le solstice d'été ne se produit que</b> à certains moments de la
 <b>Et Shmuel dit : Il n'y a pas</b> de cas où l'<b>équinoxevernal se produit dans</b> l'heure planétaire de <b>Jupiter</b> et <b>il ne brise pas les arbres</b> avec ses vents violents ; <b>et il n'y a pas</b> de cas où <b>le solstice d'hiver se produit dans</b> l'heure planétaire de <b>Jupiter</b> et <b>il ne dessèche pas les graines. Et ceci</b> ne s'applique que <b>lorsque la nouvelle lune est apparue soit à</b> l'heure de la <b>Lune, soit à</b> l'heure de <b>Jupiter.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

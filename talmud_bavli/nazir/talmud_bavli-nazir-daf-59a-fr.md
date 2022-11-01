@@ -21,4 +21,4 @@ La Gemara relate : Il y avait <b>une certaine</b> personne qui a commis une tran
 <b>Rav a soulevé</b> un autre <b>dilemme devant Rabbi Ḥiyya : Quelle est</b> la <i>halakha</i> en ce qui concerne <b>le fait de frotter</b> les poils des aisselles et de les enlever ainsi manuellement ? Rabbi Ḥiyya <b>lui a répondu :</b> C'est <b>interdit.</b> Rav a continué à demander : <b>Quel est</b> la <i>halakha</i> concernant le fait de frotter indirectement les poils des aisselles <b>avec son vêtement ?</b> Rabbi Ḥiyya <b>lui a répondu :</b> C'est <b>permis. Certains disent</b> que ce n'était pas la question du Rav ; plutôt, <b>il a soulevé</b> le <b>dilemme suivant devant lui : Quelle</b> est la <i>halakha</i> en ce qui concerne le frottement de l'aisselle avec <b>son vêtement pendant la prière ?</b> Rabbi Ḥiyya <b>lui a dit :</b> C'est <b>interdit.</b> La Guemara commente : <b>Et la <i>halakha</i> n'est pas en accord avec son</b> avis dans ce cas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rava soulève un autre dilemme : le sacrifice de l'offrande <b><i>omer</i> perme
 <b>Non,</b> le dilemme de Rava n'est pas superflu, car il est <b>nécessaire</b> de le soulever dans un cas <b>où l'on a récolté</b> du grain <b>et semé</b> ses grains <b>avant</b> le moment de <b>l'offrande <i>omère</i>, et</b> le temps de <b>l'offrande <i>omer</i> est arrivé et a passé</b> pendant que <b>ils</b> étaient en terre, <b>et</b> les grains <b>n'ont pas pris racine avant</b> le sacrifice de <b>l'offrande <i>omer</i>. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Quelles sont</b> les étapes décrites dans la <i>Tosefta
 Et la source de la question des <b>mâts est telle que nous l'avons appris</b> dans une mishna : <b>Il y avait des perches fines et lisses</b> dans le Temple, <b>et</b> chaque veille de Pessah, <b>quelqu'un place</b> la perche <b>sur son épaule et sur l'épaule d'un autre, et y suspend</b> l'agneau pascal <b>et écorche</b> sa peau. Et <b>Rabbi Elazar dit :</b> En ce qui concerne le <b>quatorze</b> de Nisan, jour où l'on sacrifie l'agneau pascal, <b>qui se produisait le Chabbat,</b> on n'utilisait pas les poteaux, pour rappeler ostensiblement que c'était Chabbat. A la place, <b>on place</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

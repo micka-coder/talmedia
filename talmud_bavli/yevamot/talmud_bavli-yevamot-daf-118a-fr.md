@@ -36,4 +36,4 @@ La mishna discute d'un cas similaire. Si une femme <b>dit : Mon mari est mort et
 Cette mishna ajoute : <b>Mais</b> dans tous les cas, le tribunal est <b>concerné par sa déclaration, et elle doit accomplir <i>ḥalitza</i> et elle n'entre pas en lévirat.</b> En d'autres termes, le tribunal prend en considération la possibilité qu'elle dise la vérité, et si son fils est effectivement mort après son mari, il lui est interdit d'entrer en lévirat. Abaye déduit du langage de la mishna sur 118b : <b>C'est</b> par rapport à <b>sa propre déclaration que</b> le tribunal est <b>concerné.</b> Cela indique que le tribunal n'est <b>pas concerné</b> du tout <b>par la déclaration de</b> sa <b>femme rivale</b> qui a témoigné par rapport à elle. La Gemara conclut : <b>Apprenez d'ici</b> que c'est le cas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

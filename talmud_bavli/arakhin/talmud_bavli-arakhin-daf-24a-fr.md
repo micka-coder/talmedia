@@ -30,4 +30,4 @@ mishna <b>Tant</b> dans le cas de <b>celui qui consacre ses biens que</b> dans l
 <strong>GEMARA:</strong> En ce qui concerne l'affirmation de la mishna selon laquelle le trésor du Temple a le droit de percevoir l'objet en se basant uniquement sur son emplacement actuel et son prix à l'heure actuelle, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : Le verset dit, à propos du rachat d'un objet consacré : <b>"Et il donnera votre évaluation à partir de ce jour"</b> (Lévitique 27:23). L'expression "dès ce jour-là" indique <b>qu'il ne doit pas retarder</b> la vente d'une <b>perle pour les légers</b>, c'est-à-dire pour les pauvres, afin qu'ils l'apportent à la ville pour la vendre. Au contraire, elle est évaluée en fonction de son emplacement actuel. Le verset poursuit : <b>"Comme une chose sainte pour le Seigneur"</b> ce qui enseigne que des vœux <b>non spécifiés</b> de <b>consécration,</b> par exemple, lorsqu'on déclare : Mes biens sont consacrés, sont donnés <b>pour l'entretien du Temple,</b> plutôt qu'aux prêtres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

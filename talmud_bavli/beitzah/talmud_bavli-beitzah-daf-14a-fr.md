@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais peut-être l'ont-ils incliné</b> et frappé d'une m
 La Guemara conteste cette affirmation : <b>Mais n'est-il pas enseigné</b> explicitement dans une <i>baraïta</i> que <b>on ne peut pas broyer avec un grand mortier et un pilon, mais on peut broyer avec un petit mortier et un pilon ? Abaye a dit : Aussi, lorsque</b> la première <b><i>baraita</i> a été enseignée, elle a été enseignée</b> en ce qui concerne <b>un grand mortier et un pilon,</b> pas un petit. En d'autres termes, le <i>baraita</i> énonce deux <i>halakhot</i>, et non un seul, comme prétendu précédemment. Le <i>tanna</i> règle d'abord qu'on ne peut pas préparer des gruaux même avec un petit mortier et un pilon, et il affirme ensuite qu'on ne peut pas utiliser un grand mortier et un pilon pour quelque usage que ce soit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

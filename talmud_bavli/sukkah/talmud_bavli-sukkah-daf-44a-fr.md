@@ -33,4 +33,4 @@ A propos de la branche de saule dans le Temple, <b>Reish Lakish a dit : Les prê
 La Guemara demande : <b>Et est-ce que Rabbi Yoḥanan</b> a effectivement <b>dit</b> que c'est une <i>halakha</i> transmise à Moïse depuis le Sinaï ? <b>Et Rabbi Yoḥanan n'a-t-il pas dit : Les vôtres,</b> c'est-à-dire les Sages de Babylone, <b>disent que</b> cette ordonnance <b>est la leur,</b> instituée par les Sages, et ce n'est ni une <i>halakha</i> transmise à Moïse depuis le Sinaï, ni une ordonnance instituée par les prophètes. La Gemara répond : Ceci n'est <b>pas difficile;</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

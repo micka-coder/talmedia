@@ -74,4 +74,4 @@
 <b>Réveille-toi, vent du nord, et viens, vent du sud.</b> Puisqu'ils me plaisent, ton parfum et la beauté de tes demeures, j'ordonne aux vents du nord et du sud de souffler sur ton jardin afin que ta bonne odeur se répande au loin. L'allégorie est la suivante : Elle fait référence au rassemblement des exilés, et de toutes les nations on les amènera en offrande à Yerushalayim, et aux jours de la reconstruction [du Beit Hamikdash], les [Bnei] Yisrael y seront rassemblés pour les fêtes et pour les pèlerinages, et Yisrael répondra : " Laisse mon bien-aimé venir dans son jardin ", car si Tu y es, tous y sont. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

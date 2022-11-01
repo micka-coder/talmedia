@@ -75,4 +75,4 @@ La Guemara analyse la <i>baraita</i> : <b>Le Maître a dit</b> que la mishna dit
 La Gemara explique : <b>En fait,</b> le cas est <b>où le boeuf du prêteur a blessé le boeuf de l'emprunteur, et de quoi s'agit-il ici ?</b> C'est un cas <b>où</b> l'emprunteur <b>a pris</b> la responsabilité de <b>sauvegarder le corps du</b> boeuf du prêteur pour qu'il ne soit pas blessé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

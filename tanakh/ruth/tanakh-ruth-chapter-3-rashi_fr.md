@@ -60,4 +60,4 @@
 <b>Jusqu'à ce qu'il règle.</b> [C'est-à-dire jusqu'à ce que] l'homme [règle] l'affaire aujourd'hui. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

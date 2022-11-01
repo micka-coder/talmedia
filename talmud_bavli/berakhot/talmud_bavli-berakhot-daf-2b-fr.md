@@ -57,7 +57,7 @@ La Guemara note : <b>Ce que Rabbi Yehouda a dit a Rabbi Meir semble correct,</b>
 La Guemara repond que <b>Rabbi Meir</b> a dit a Rabbi Yehuda <b>comme suit</b> : <b>Vous maintenez que je parle de votre</b> definition du <b>crepuscule</b> ? Je parle de la definition de Rabbi Yoseis</b> de <b>crepuscule, comme Rabbi Yosei l'a dit : Le crepuscule est comme le clignement d'un œil;</b> la nuit <b>commence et</b> le jour <b>se termine et</b> le temps qui les separe est si bref, <b>qu'il est impossible de le quantifier.</b> Selon cette opinion, les pretres s'immergent juste avant l'emergence des etoiles, alors qu'il est deja considere comme nuit.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Peut-etre</b> l'expression : "Et le soleil se couche et il est purifie" fait reference au tout debut du coucher du soleil, <b>au coucher</b> de la <b>lumiere du soleil.</b> Selon cette explication, <b>que signifie</b> l'expression <b>et il est purifie ? </b> Elle signifie que <b>la personne va se purifier.</b> Apres s'etre immergee, elle attendra le debut du coucher du soleil, et c'est seulement a ce moment-la qu'elle pourra manger de son <i>teruma</i> (<i>Tosafot</i>).
 
@@ -116,4 +116,4 @@ La Guemara note : <b>Ce que Rabbi Yehouda a dit a Rabbi Meir semble correct,</b>
 La Guemara repond que <b>Rabbi Meir</b> a dit a Rabbi Yehuda <b>comme suit</b> : <b>Vous maintenez que je parle de votre</b> definition du <b>crepuscule</b> ? Je parle de la definition de Rabbi Yoseis</b> de <b>crepuscule, comme Rabbi Yosei l'a dit : Le crepuscule est comme le clignement d'un œil;</b> la nuit <b>commence et</b> le jour <b>se termine et</b> le temps qui les separe est si bref, <b>qu'il est impossible de le quantifier.</b> Selon cette opinion, les pretres s'immergent juste avant l'emergence des etoiles, alors qu'il est deja considere comme nuit.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

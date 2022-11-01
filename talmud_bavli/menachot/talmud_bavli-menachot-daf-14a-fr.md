@@ -45,7 +45,7 @@ La Guemara analyse cette <i>baraita</i> : En ce qui concerne le cas où l'on a �
 Ravina poursuit : Lorsqu'on enlève la poignée avec l'intention <b>de brûler sa poignée, que pourrait-on rendre <i>piggul</i> ? Si on dit</b> que <b>la poignée pourrait être rendue <i>piggul</i>, la poignée devient-elle <i>piggul</i> ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Zevaḥim</i> 42b) : <b>Voici</b> les <b>objets pour lesquels on n'est pas susceptible</b> de recevoir du <i>karet</i> <b>en raison</b> de l'interdiction du <b><i>piggul</i> : La poignée, etc. Au contraire,</b> il est <b>évident</b> que le <b>reste pourrait être rendu <i>piggul</i>. Maintenant</b> considérez : <b>Et s'il y a,</b> dans la mishna, <b>où il n'avait pas l'intention en ce qui concerne</b> le <b>remanent lui-même,</b> c'est-à-dire de prendre part au reste le lendemain,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais si vous dites</b> que Rabbi Yosei considère que les cuisses droite et gauche d'une offrande <b>sont</b> considérées comme <b>deux</b> corps distincts, </b> et donc que l'intention <i>piggul</i> concernant l'un ne rend pas l'autre <i>piggul</i>, alors dans le cas des deux pains, <b>les intentions concernant les deux pains <b>se combineraient-elles</b> pour les rendre tous deux <i>piggul</i> ?
 
@@ -92,4 +92,4 @@ La Guemara analyse cette <i>baraita</i> : En ce qui concerne le cas où l'on a �
 Ravina poursuit : Lorsqu'on enlève la poignée avec l'intention <b>de brûler sa poignée, que pourrait-on rendre <i>piggul</i> ? Si on dit</b> que <b>la poignée pourrait être rendue <i>piggul</i>, la poignée devient-elle <i>piggul</i> ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Zevaḥim</i> 42b) : <b>Voici</b> les <b>objets pour lesquels on n'est pas susceptible</b> de recevoir du <i>karet</i> <b>en raison</b> de l'interdiction du <b><i>piggul</i> : La poignée, etc. Au contraire,</b> il est <b>évident</b> que le <b>reste pourrait être rendu <i>piggul</i>. Maintenant</b> considérez : <b>Et s'il y a,</b> dans la mishna, <b>où il n'avait pas l'intention en ce qui concerne</b> le <b>remanent lui-même,</b> c'est-à-dire de prendre part au reste le lendemain,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

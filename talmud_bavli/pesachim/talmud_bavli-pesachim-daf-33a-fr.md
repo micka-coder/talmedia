@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> dans <b>lesquelles</b>
 <b>Lorsque Rav Huna, fils de Rav Yehoshua, est venu,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ En ce qui concerne le verset des Psaumes cité ci-dessus, <b>Rabbi Yehoshua ben 
 <b>Rabbi Yannai avait un certain étudiant qui soulevait des difficultés</b> avec ses enseignements <b>chaque jour</b> alors qu'ils apprenaient. <b>Le Chabbat d'un festival,</b> lorsque le grand public venait écouter la leçon, l'étudiant <b>ne soulevait pas</b> de <b>difficultés,</b> de peur que Rabbi Yannai ne manque de réponse immédiate et ne souffre d'embarras.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

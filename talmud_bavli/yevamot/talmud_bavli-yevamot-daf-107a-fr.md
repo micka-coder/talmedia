@@ -39,4 +39,4 @@ La Gemara demande : <b>Qu'y a-t-il à dire si elle est entrée dans le couvert d
 La Gemara demande : <b>Mais</b> la <b>consommation</b> du lien lévirien <b>peut être contre sa volonté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

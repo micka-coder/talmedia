@@ -72,4 +72,4 @@ Rabbi Shimon ben Lakish explique : <b>Du fait que nous avons appris</b> dans une
 La Guemara analyse la déclaration de Rabbi Shimon ben Lakish. <b>Le Maître dit :</b> On <b>pourrait</b> penser que si l'autre prêtre <b>n'a pas achevé</b> la découpe des deux <i>simanim</i>, l'abattage <b>ne serait pas valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

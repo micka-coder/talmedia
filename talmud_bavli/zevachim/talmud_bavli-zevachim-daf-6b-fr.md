@@ -39,4 +39,4 @@ La Guemara conteste cette affirmation : <b>Mais devons-nous nous tenir et dire �
 <b>Rav Yosef, fils de Rav Shmuel, dit à Rav Pappa : Mais Rabbi Shimon accepte-t-il</b> l'opinion selon laquelle <b>le tribunal peut faire une stipulation non verbale concernant</b> les offrandes collectives ? <b>Rav Idi bar Avin ne dit-il pas</b> que <b>Rav Amram dit</b> que <b>Rabbi Yitzḥak dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne les animaux désignés comme <b>offrandes quotidiennes</b> mais <b>qui, en fin de compte, <b>n'étaient pas nécessaires</b> à l'usage du <b>public,</b> <b>l'avis de Rabbi Shimon est le suivant .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

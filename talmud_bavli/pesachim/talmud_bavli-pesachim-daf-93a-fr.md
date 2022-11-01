@@ -39,4 +39,4 @@ A l'inverse, <b>Rabbi Natan soutient</b> que <b>la seconde</b> <i>Pesaḥ</i> <b
 La Guemara demande : <b>Et d'où savons-nous <b>que cette phrase</b> : <b>Portera son péché,</b> fait référence à <b><i>karet</i></b> et non à une autre punition ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

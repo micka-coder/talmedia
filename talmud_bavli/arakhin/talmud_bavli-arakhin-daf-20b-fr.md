@@ -30,4 +30,4 @@ La Gemara demande : Est-il possible que ce soit le cas de la dernière clause de
 <b>Et certains enseignent</b> cette discussion <b>en ce qui concerne cette</b> <i>baraita</i> (<i>Tosefta</i>, <i>Bava Metzia</i> 8:30) : Dans le cas de <b>quelqu'un qui loue une maison à un autre et</b> la maison <b>devient rituellement impure avec la lèpre, même si un prêtre a confirmé</b> la maison comme impure, la condamnant à être démantelée, tant que la maison est encore debout son propriétaire peut <b>dire au locataire : <b>Ce qui est à toi est devant toi,</b> et le propriétaire n'est pas tenu d'indemniser le locataire. Néanmoins, conformément à la <i>halakha</i> d'une maison atteinte de lèpre, une fois que le prêtre a <b>démantelé</b> la maison, le propriétaire est <b>obligé de fournir</b> une nouvelle <b>maison pour</b> le locataire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

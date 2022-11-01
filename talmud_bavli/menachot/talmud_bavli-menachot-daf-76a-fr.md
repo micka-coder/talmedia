@@ -66,4 +66,4 @@ La Guemara conteste cette affirmation : <b>Mais</b> un individu qui apporte les 
 La Gemara <b>souleve une objection</b> à l'opinion de Shmuel à partir d'une <i>baraita</i> : <b>Toutes les offrandes de repas où</b> on a <b>augmenté la mesure de leurs pains ou où</b> on a <b>diminué la mesure de leurs pains</b> sont néanmoins <b>adéquates, à l'exception des</b> douze pains de <b>bois de cajou, et les</b> douze pains de l'offrande du <b>gâteau de grillage du grand prêtre</b>, <b>et</b> les dix <b>pains</b> de chaque variété pour l'<b>offrande de remerciement et</b> les dix pains qui accompagnent l'offrande de culpabilité de <b>nazirite. </b> De toute évidence, pas moins de quarante pains sont aptes à l'offrande de remerciements, en contradiction avec la déclaration de Shmuel. La Gemara répond : <b>Il</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

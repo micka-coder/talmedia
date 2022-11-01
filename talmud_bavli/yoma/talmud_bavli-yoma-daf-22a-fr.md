@@ -39,4 +39,4 @@ Il ne s'agit pas non plus</b> de quatre coudées quelque part au <b>milieu,</b> 
 Rav Pappa <b>souleve un dilemme</b> basé sur la clarification ci-dessus : Les <b>quatre coudées qu'ils ont énoncées,</b> qui sont les quatre coudées adjacentes à l'autel, sont-elles calculées <b>y compris la coudée de la base</b> de l'autel <b>et la coudée de</b> sa <b>garde,</b> car la rampe continue et chevauche ces deux coudées au sommet de l'autel,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

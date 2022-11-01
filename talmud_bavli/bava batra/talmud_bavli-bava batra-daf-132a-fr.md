@@ -36,4 +36,4 @@ La Gemara répond : <b>Il y a,</b> dans le cas de celui qui écrit un document o
 <b>Rav dit :</b> Cette mishna fait référence <b>au</b> cas où le mari <b>transfère la propriété</b> de ses biens <b>à</b> ses fils <b>par le biais</b> de la participation de sa femme à un acte formel d'acquisition. Non seulement elle n'a pas protesté contre le transfert de propriété aux fils, mais elle a facilité la transaction. En clair, elle a accepté de renoncer au paiement de son contrat de mariage. <b>Et Shmuel dit :</b> Il fait référence non seulement à un cas où elle participe effectivement à l'acte d'acquisition, mais aussi <b>à</b> un cas où il <b>distribue</b> le bien à ses fils <b>en sa présence, et où elle se tait</b> et ne pose pas de question sur son contrat de mariage. <b>Rabbi Yosei, fils de Rabbi Ḥanina, dit :</b> Il fait référence <b>à</b> un cas où <b>il lui dit : Prends</b> seulement <b>cette</b> parcelle de <b>terre pour ton contrat de mariage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

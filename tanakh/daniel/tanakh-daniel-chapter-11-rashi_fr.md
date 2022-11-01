@@ -183,4 +183,4 @@ mais cette venue <b>ne sera pas</b> aussi réussie que la première mentionnée 
 <b>Et le roi du nord prendra d'assaut</b> <b>le roi du sud.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -36,4 +36,4 @@ A l'inverse, <b>s'il lui a dit</b> qu'ils valent <b>cinquante</b> dinars, <b>et 
 <b>Il y a</b> ceux <b>qui disent</b> que <b>même</b> dans un cas où il lui dit : Sois fiancée à moi avec ces vêtements de soie, <b>quelle que soit leur valeur</b>, les <i>amora'im</i> <b>discordent</b> par rapport à la <i>halakha</i>. La raison de ce différend dans ce cas est la suivante . <b>Rav Yosef a dit :</b> Un objet <b>digne d'argent est comme l'argent</b> à tous points de vue. <b>Tout comme l'argent est fixé,</b> c'est-à-dire qu'il a une valeur clairement définie,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

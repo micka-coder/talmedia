@@ -81,4 +81,4 @@ La Guemara rejette cette affirmation : Peut-être <b>Rava énonce-t-il sa propre
 <b>Rav Aḥa bar Taḥlifa soulève une objection à</b> l'opinion de <b>Rava</b> à partir de la dernière clause de la mishna : A l'égard de celui qui <b>était obligé</b> par la loi de la Torah de faire <b>un serment à un autre, et</b> ce dernier lui <b>a dit : Jure-moi par la vie de ta tête</b> que ce que tu prétends est vrai, <b>Rabbi Meir dit :</b> Celui qui a fait l'offre <b>peut la rétracter ; et les rabbins disent : Il ne peut pas rétracter</b> son offre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

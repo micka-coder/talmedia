@@ -57,7 +57,7 @@ La Gemara relate que <b>Rav Gamda est allé dire cette <i>halakha</i> devant Rav
 <b>Rav Aḥa l'Ancien a dit à Rav Ashi : Rav Hamnuna</b> n'a pas soulevé une difficulté contre Rav en ce qui concerne le cas de celui qui admet avoir prêté un faux serment, plutôt, en ce qui concerne le cas où les témoins sont venus après qu'il ait prêté le serment, et <b>c'est</b> ce qui <b>est difficile pour lui :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 mais celui qui nie une affirmation <b>concernant</b> le fait d'avoir pris <b>un dépôt est disqualifié pour témoigner,</b> car s'il est clair que le dépôt est en sa possession, et que pourtant il le nie, il doit mentir.
 
@@ -116,7 +116,7 @@ La Guemara relate que <b>Rav Gamda est allé dire cette <i>halakha</i> devant Ra
 <b>Rav Aḥa l'Ancien a dit à Rav Ashi : Rav Hamnuna</b> n'a pas soulevé une difficulté contre Rav en ce qui concerne le cas de celui qui admet avoir prêté un faux serment, plutôt, en ce qui concerne le cas où les témoins sont venus après qu'il ait prêté le serment, et <b>c'est</b> ce qui <b>est difficile pour lui :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 mais celui qui nie une affirmation <b>concernant</b> le fait d'avoir pris <b>un dépôt est disqualifié pour témoigner,</b> car s'il est clair que le dépôt est en sa possession, et que pourtant il le nie, il doit mentir.
 
@@ -175,4 +175,4 @@ La Guemara relate que <b>Rav Gamda est allé dire cette <i>halakha</i> devant Ra
 <b>Rav Aḥa l'Ancien a dit à Rav Ashi : Rav Hamnuna</b> n'a pas soulevé une difficulté contre Rav en ce qui concerne le cas de celui qui admet avoir prêté un faux serment, plutôt, en ce qui concerne le cas où les témoins sont venus après qu'il ait prêté le serment, et <b>c'est</b> ce qui <b>est difficile pour lui :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

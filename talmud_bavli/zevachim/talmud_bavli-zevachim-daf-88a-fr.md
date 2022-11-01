@@ -48,4 +48,4 @@ En ce qui concerne la <i>halakha</i> que les récipients de service ne sanctifie
 La Gemara demande : <b>Mais</b> peut-on en déduire que <b>avec de l'eau on peut blanchir</b> les vêtements sacerdotaux ? <b>Abaye dit : Voici</b> ce que dit la <i>baraita</i> <b>:</b> Si les vêtements souillés ont seulement <b>atteint</b> le point où leur lavage <b>à l'eau</b> seul suffirait, <b>on peut les laver avec du natron et du savon,</b> car ils ne sont pas considérés comme souillés.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

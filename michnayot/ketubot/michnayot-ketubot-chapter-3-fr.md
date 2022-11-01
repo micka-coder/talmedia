@@ -26,5 +26,5 @@ Partout où il existe un droit de vente, il y a une amende et partout où il y a
 ### michna 9
 Celui qui déclare : "J'ai séduit la fille d'untel ou d'unetelle" doit payer une compensation pour la gêne et la tache de son propre aveu, mais n'a pas besoin de payer l'amende. Celui qui déclare : "J'ai volé" doit restituer le principal de son propre aveu, mais n'a pas besoin de rembourser le double, le quadruple ou le quintuple. Celui qui déclare : "Mon bœuf a tué untel" ou "le bœuf d'untel" doit restituer sur sa propre preuve. S'il dit : "Mon bœuf a tué l'esclave d'untel", il n'a pas besoin de restituer sur sa propre preuve. C'est la règle générale : celui qui paie plus que le coà "t réel du dommage qu'il a causé ne doit pas le payer sur sa propre preuve.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

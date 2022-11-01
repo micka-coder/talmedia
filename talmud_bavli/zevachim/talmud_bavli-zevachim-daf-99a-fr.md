@@ -60,4 +60,4 @@ La Gemara compte : Celui qui a été négligent en devenant <b>impur à cause</b
 La Guemara demande : <b>Mais existe-t-il</b> un tel concept de <b>soin partiel,</b> que l'on puisse prétendre s'être préservé d'une forme d'impureté mais pas d'une autre ? La Guemara répond : <b>Oui, et c'est enseigné</b> dans une <i>baraita</i> : Si quelqu'un portait un panier, et que <b>le panier était encore sur sa tête,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

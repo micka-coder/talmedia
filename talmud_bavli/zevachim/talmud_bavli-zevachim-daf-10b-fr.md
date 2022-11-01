@@ -102,4 +102,4 @@ La Gemara demande : <b>Accordé,</b> l'avis de <b>Rabbi Eliezer</b> est compréh
 <b>Rava dit : On ne peut pas dire</b> que <b>le sang d'une offrande de culpabilité qui est entré</b> dans le Sanctuaire est <b>disqualifié,</b> en raison <b>d'une <i>a fortiori</i></b> déduction <b>du cas d'une <b>offrande brûlée : Tout comme</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

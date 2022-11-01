@@ -14,5 +14,5 @@ Celui qui cherche, doit chercher sur une coudée carrée et ensuite laisser une 
 ### michna 5
 Si l'on cherche et que l'on arrive au lit d'une rivière, à une mare ou à un chemin public, on peut mettre fin [à sa recherche]. S'il s'agit d'un champ où des hommes ont été tués, il pourra ramasser les os un par un, et tout [le secteur] sera considéré comme propre. Celui qui enlève une tombe de son champ, il peut ramasser les ossements un par un, et tout [le secteur] peut être considéré comme pur. Une fosse dans laquelle on jette des fœtus ou des personnes qui ont été tuées, il peut ramasser les os un par un, et tout [le secteur] peut être considéré comme pur. Rabbi Shimon dit : si elle a été préparée comme une tombe en premier lieu, il y a de la terre saturée de sang.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

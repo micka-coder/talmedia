@@ -54,4 +54,4 @@ La Guemara remet en cause cette affirmation : <b>Mais d'après</b> le fait <b>qu
 La Guemara clarifie : La mishna <b>est incomplète et voici</b> ce qu'elle enseigne : Celui qui prête</b> de l'argent <b>à un autre avec</b> l'assurance d'un <b>garant ne peut pas recouvrer</b> la dette <b>auprès du garant</b> avant de réclamer d'abord la dette au débiteur. <b>Mais si</b> le créancier <b>disait</b> au débiteur : Je prête l'argent <b>à condition de recouvrer</b> la dette <b>auprès de qui je veux,</b> il <b>peut recouvrer</b> la dette <b>auprès du garant. Dans quel</b> cas <b>cette déclaration est-elle dite ? Lorsque le débiteur n'a pas de biens</b> propres à partir desquels il peut rembourser la dette ; <b>mais</b> si <b>le débiteur a des biens,</b> le créancier <b>ne peut pas percevoir</b> la dette <b>auprès du garant. </b> C'est le <i>halakha</i> en ce qui concerne un garant standard, <b>mais</b> dans le cas d'un <b>garant inconditionnel, même si le débiteur a des biens</b> propres, le créancier <b>peut recouvrer</b> la dette <b>auprès du garant inconditionnel.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

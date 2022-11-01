@@ -5,5 +5,5 @@ Deux nazirites auxquels quelqu'un dit : "J'ai vu l'un de vous se souiller, mais 
 ### michna 2
 Un nazirite qui n'était pas sûr d'avoir été souillé et qui n'était pas sûr d'avoir été un lépreux confirmé, peut manger de la nourriture consacrée après soixante jours, et boire du vin et entrer en contact avec les morts après cent vingt jours, car le rasage pour cause de lèpre ne l'emporte sur [l'interdiction de] se raser du nazirite que lorsque [la lèpre] est certaine, mais lorsqu'elle est douteuse, elle ne l'emporte pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

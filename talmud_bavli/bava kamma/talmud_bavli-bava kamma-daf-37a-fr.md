@@ -81,4 +81,4 @@ La Gemara commente : <b>Et même si l'on dit</b> que l'avis de <b>Rav Pappa</b>,
 <b>Un dilemme a été soulevé devant</b> les Sages : Si un boeuf <b>a marché</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -88,7 +88,7 @@
 <b>et un serpent</b> En effet, la poussière est sa nourriture, qui est toujours disponible pour lui. Et le Midrash Aggadah explique : Et le lion, comme le bétail, mangera de la paille. Puisque nous constatons qu'Ésaü tombera entre les mains des fils de Joseph, comme il est dit (Abdias 18) : "La maison d'Ésaü deviendra du chaume, et la maison de Joseph une flamme etc." Mais [qu'ils tombent] entre les mains des autres tribus, comparées à des bêtes, nous ne le trouvons pas. Il est donc dit : "Et le lion, comme le bétail, mangera de la paille." Les tribus qui étaient comparées à un lion, comme Juda et Dan, comme Joseph, qui était comparé à un bœuf, dévoreront Ésaü qui était comparé à de la paille.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Je me suis laissé chercher par ceux qui n'ont pas demandé</b> Le Saint, béni soit-Il, lui répond : Il est impossible de ne pas me venger d'eux, car je me suis laissé chercher par eux en les réprimandant par Mes prophètes, mais ils n'ont pas demandé.
 <b>J'ai dit : "Me voici ; me voici !"</b> Revenez à Moi, et Je suis prêt à vous accueillir.
@@ -178,4 +178,4 @@
 <b>et un serpent</b> En effet, la poussière est sa nourriture, qui est toujours disponible pour lui. Et le Midrash Aggadah explique : Et le lion, comme le bétail, mangera de la paille. Puisque nous constatons qu'Ésaü tombera entre les mains des fils de Joseph, comme il est dit (Abdias 18) : "La maison d'Ésaü deviendra du chaume, et la maison de Joseph une flamme etc." Mais [qu'ils tombent] entre les mains des autres tribus, comparées à des bêtes, nous ne le trouvons pas. Il est donc dit : "Et le lion, comme le bétail, mangera de la paille." Les tribus qui étaient comparées à un lion, comme Juda et Dan, comme Joseph, qui était comparé à un bœuf, dévoreront Ésaü qui était comparé à de la paille.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

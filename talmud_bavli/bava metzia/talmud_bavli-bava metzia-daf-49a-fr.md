@@ -48,4 +48,4 @@ La Gemara relate : Il y avait <b>un certain homme qui donnait de l'argent</b> en
 <b>Rav Pappi a dit</b> que <b>Ravina m'a dit : Un des Sages, et Rav Tavot est son nom, et certains disent Rav Shmuel bar Zutra est son nom,</b> et c'est un <b>qui</b> même <b>si on lui donnait toute l'étendue du monde, il ne dévierait pas de</b> la vérité dans <b>son discours, m'a dit : Il y eut un incident dans lequel je</b> fus impliqué. Ce <b>jour-là,</b> c'était <b>le crépuscule de la veille du Shabbat, et j'étais assis, et un certain homme est venu et s'est tenu à l'entrée.</b> Il <b>me dit : As-tu du sésame à vendre ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

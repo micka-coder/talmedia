@@ -36,4 +36,4 @@ La Gemara fournit une version alternative de la discussion. <b>Et certains</b> S
 Dans ce cas également, la Guemara clarifie les côtés de ce dilemme : <b>Quelle est la raison pour laquelle un témoin</b> est jugé crédible ? Est-ce <b>parce que</b> on <b>ne ment pas sur quelque chose qui sera découvert,</b> et donc <b>ici aussi il</b> ne <b>mentirait pas ? Ou bien, peut-être la raison pour</b> accepter le témoignage d'<b>un seul témoin</b> est <b>parce que</b> l'épouse <b>est exigeante</b> dans son enquête avant de <b>se remarier</b>, <b>mais cette</b> <i>yevama</i> <b>n'est pas exigeante</b> dans son enquête avant de <b>se remarier</b>. Pourquoi pas ? <b>Parce que</b> elle...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

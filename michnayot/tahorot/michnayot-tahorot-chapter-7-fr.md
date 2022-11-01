@@ -26,5 +26,5 @@ Celui qui était pur et qui avait abandonné l'idée de manger [des aliments pur
 ### michna 9
 Une femme est entrée dans sa maison pour sortir du pain pour un pauvre et quand elle est sortie, elle l'a trouvé debout à côté de pains de teroumah ; de même, une femme est sortie et a trouvé son amie en train de ratisser des charbons sous une marmite de teroumah : Rabbi Akiva dit qu'ils sont impurs, mais les sages disent qu'ils sont propres. Rabbi Eliezer ben Pila : mais pourquoi Rabbi Akiva dit qu'ils sont impurs et les sages disent qu'ils sont propres ? Parce que les femmes sont gloutonnes et chacune peut être soupçonnée de découvrir la marmite de sa voisine pour savoir ce qu'elle cuisine.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

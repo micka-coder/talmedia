@@ -48,4 +48,4 @@ Les autres Sages <b>lui dirent : Si c'est le cas, il est permis de le faire éga
 <b>Rav Yehuda dit :</b> Saupoudrer les épices aromatiques <b>sur les charbons</b> eux-mêmes <b>est</b> en fait <b>interdit</b> pour les raisons susmentionnées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

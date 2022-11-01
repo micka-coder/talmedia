@@ -48,4 +48,4 @@ Si <b>un témoin atteste que</b> son contrat de mariage <b>est payé, comment ? 
 <b>Ou lorsqu'il n'est pas en sa présence, comment ? </b> Si <b>il est allé</b> dans <b>un pays d'outre-mer et</b> lui a envoyé un acte de divorce, de sorte que <b>elle recueille</b> son contrat de mariage <b>lorsqu'elle n'est pas en sa présence,</b> elle <b>peut le recueillir</b> <b>uniquement au moyen</b> d'un <b>serment.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

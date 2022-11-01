@@ -39,4 +39,4 @@ La Gemara explique : <b>Mais</b> malgré cela, Dieu a donné aux nations l'occas
 <b>Immédiatement, chaque</b> Gentil va <b>prendre</b> des matériaux <b>et aller construire une <i>sukka</i> au sommet de son toit. Et le Saint, Béni soit-Il,</b> <b>déclenchera sur eux la chaleur [<i>makdir</i>] du soleil à la saison de Tammuz,</b> c'est-à-dire l'été, <b>et chacun</b> qui sera assis dans sa <i>sukka</i> ne pourra supporter la chaleur, et il <b>donnera un coup de pied à sa <i>sukka</i> et partira, comme il est dit : "Brisons leurs liens, et rejetons loin de nous leurs cordes"</b> (Psaumes 2:3). La Gemara demande : Pourquoi Dieu <b>chauffe-t-il</b> le soleil sur eux ? <b>Mais n'avez-vous pas dit</b> que <b>le Saint, Béni soit-Il, ne traite pas tyranniquement avec Ses créations ?</b> La Gemara répond : Ceci n'est pas considéré comme traiter de manière tyrannique avec les Gentils, <b>car pour le peuple juif aussi,</b> il y a des <b>temps</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara poursuit en evoquant des benedictions speciales instituees par les Sa
 La Guemara relate que <b>lorsque Rava voyait des anes transportant de la terre</b> de Babylonie, <b>il leur tapait le dos avec sa main et leur disait</b> : <b>Courrez, vertueux, et accomplissez la volonte de votre Maitre. Lorsque Mar, fils de Ravina, arrivait en Babylonie, il prenait de la terre dans son mouchoir et la jetait dehors, pour accomplir ce qui est dit : "Et je la balaierai avec le balai de la destruction"</b> (Isaie 14:23). <b>Rav Ashi a dit : Je n'ai jamais entendu la</b> declaration de <b>Rav Hamnuna,</b> selon laquelle celui qui voit Babylone la mechante doit reciter cinq benedictions. <b>Cependant, sur la base de mon raisonnement independant, j'ai recite toutes les benedictions.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

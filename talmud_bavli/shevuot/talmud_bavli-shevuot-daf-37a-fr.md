@@ -45,4 +45,4 @@ La Guemara tente de prouver que celui qui fait un faux serment sur un dépôt es
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue d'une mishna (31b) qui traite d'un serment de témoignage : Si <b>il y avait deux ensembles de témoins</b> qui ont prêté un serment de témoignage, et que <b>le premier</b> ensemble a faussement <b>nié</b> la connaissance de l'affaire <b>et qu'ensuite le second</b> ensemble a faussement <b>nié</b> la connaissance de l'affaire, <b>les deux sont responsables, car le témoignage peut exister avec l'un ou l'autre.</b> La Gemara clarifie : <b>D'accord, le deuxième</b> ensemble <b>doit être responsable, puisque le premier ensemble</b> a déjà <b>dénié</b> la connaissance de l'incident et que la validité de la demande monétaire du demandeur dépend maintenant de leur témoignage. <b>Mais pourquoi</b> le <b>premier ensemble</b> est-il <b>responsable ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

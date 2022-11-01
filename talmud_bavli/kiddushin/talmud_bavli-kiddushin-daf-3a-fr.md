@@ -21,4 +21,4 @@ La Guemara répond : Le nombre sert <b>à exclure</b> l'acquisition par <b>écha
 La Gemara demande : <b>Et</b> peut-être devrait-on <b>dire</b> que <b>ainsi,</b> il est possible de fiancer une femme par le biais d'un échange symbolique. La Gemara répond : Cela ne peut être le cas, car l'<b>échange symbolique est</b> effectif <b>en utilisant</b> un objet d'une valeur <b>inférieure à la valeur d'une <i>peruta</i>, et avec</b> un objet d'une valeur <b>inférieure à la valeur d'une <i>peruta</i>, une femme</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais</b> même si le vent a recouvert le sang et qu'il e
 <strong>MISHNA :</strong> Dans le cas du <b>sang</b> d'un animal ou d'un oiseau non domestiqué <b>qui a été mélangé à l'eau, s'il y a dans</b> le mélange <b>l'apparence du sang</b> on est <b>obligé de le couvrir</b>. Si le sang <b>était mélangé à du vin on considère</b> le vin <b>comme si c'était de l'eau,</b> et si un mélange avec cette quantité d'eau aurait l'apparence du sang on est obligé de le couvrir. De même, si le sang d'un animal non domestiqué ou d'un oiseau <b>a été mélangé au sang d'un animal domestiqué,</b> que l'on n'a pas à couvrir,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

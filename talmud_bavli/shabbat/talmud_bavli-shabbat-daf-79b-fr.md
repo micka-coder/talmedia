@@ -21,4 +21,4 @@ La Guemara en déduit : <b>La raison</b> pour laquelle on ne peut pas le faire e
 Nous avons appris dans la mishna : La mesure qui détermine la responsabilité pour la réalisation d'une <b>encre</b> est <b>équivalente</b> à celle qui est utilisée <b>pour écrire</b> deux lettres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

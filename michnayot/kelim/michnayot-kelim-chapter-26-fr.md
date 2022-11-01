@@ -26,5 +26,5 @@ Les peaux d'un maître de maison deviennent susceptibles d'être impures par int
 ### michna 9
 Si une peau a contracté l'impureté de midras et que son propriétaire a ensuite voulu l'utiliser pour des bretelles ou des sandales, elle devient propre dès qu'il y a mis le couteau, ce sont les paroles de Rabbi Juda. Mais les Sages disent : il ne devient pas pur tant qu'il n'a pas réduit sa taille à moins de cinq pouces. Rabbi Elazar bar Zadok dit : même si l'on a fabriqué une serviette à partir d'une peau, elle reste impure, mais si l'on a fabriqué une serviette à partir d'une couverture, elle devient propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

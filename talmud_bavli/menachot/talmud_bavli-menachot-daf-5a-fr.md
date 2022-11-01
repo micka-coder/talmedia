@@ -51,4 +51,4 @@ La Guemara demande : <b>Pourquoi Rav Pappa soulève-t-il</b> cette <b>objection 
 <b>Au contraire, Rav Pappa a dit : C'est la raison de Reish Lakish,</b> qui a dit <b>que</b> la poignée d'une offrande de repas <i>omer</i> qui a été retirée non pour elle-même est valable et peut être brûlée sur l'autel : C'est que <b>il soutient</b> que <b>l'illumination de</b> l'horizon <b>oriental</b> le matin du seize de Nisan <b>permet</b> la nouvelle récolte au peuple juif avant même que l'offrande de repas <i>omer</i> ne soit sacrifiée, <b>comme le disent Rabbi Yoḥanan et Reish Lakish : Même lorsque le Temple est debout,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ Ulla <b>lui a dit : Le <i>tanna</i> a enseigné</b> et énuméré spécifiquemen
 <b>Abaye a soulevé une objection à</b> l'opinion de Rava : <b>Et il n'y a pas de répartition des tâches lors d'une fête ? Mais n'avons-nous pas appris</b> dans une <i>baraita</i> : <b>Quelqu'un qui fait cuire</b> une <b>nervure sciatique dans du lait lors d'une Fête et la mange est fouetté</b> de <b>cinq</b> séries de coups de fouet. Comment cela ? <b>Il est fouetté pour</b> avoir enfreint l'interdiction de <b>manger</b> une <b>nerve sciatique</b> (voir Genèse 32 : 33) ; <b>et il est fouetté pour</b> avoir enfreint l'interdiction de <b>cuisiner lors d'une fête non pour</b> le <b>but</b> de la fête, car il lui est interdit de la manger ; <b>et il est fouetté pour</b> avoir violé l'interdiction de <b>cuire</b> une <b>nerve sciatique,</b> qui est de la viande, <b>dans du lait ; et il est fouetté pour</b> avoir violé l'interdiction de <b>manger de la viande</b> cuite <b>dans du lait ; et il est fouetté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

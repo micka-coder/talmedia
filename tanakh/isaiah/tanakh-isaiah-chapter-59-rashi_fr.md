@@ -73,7 +73,7 @@
 <b>Pour Moi, voici Mon alliance avec eux</b> A ce sujet, J'ai fait alliance avec eux, et Je l'accomplirai, car même dans leur exil, Ma Torah ne sera pas oubliée d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Attendez, la main du Seigneur n'est pas trop courte</b> Votre échec à être délivré n'est pas dû à la brièveté de Ma main.
 
@@ -148,4 +148,4 @@
 <b>Pour Moi, voici Mon alliance avec eux</b> A ce sujet, J'ai fait alliance avec eux, et Je l'accomplirai, car même dans leur exil, Ma Torah ne sera pas oubliée d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

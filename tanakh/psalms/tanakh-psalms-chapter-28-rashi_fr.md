@@ -21,4 +21,4 @@
 <b>et les garder</b> Héb.  ורעם, une expression de pâturage (מרעה").
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

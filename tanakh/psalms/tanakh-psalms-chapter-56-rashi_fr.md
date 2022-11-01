@@ -44,4 +44,4 @@
 <b>Dans la lumière de la vie</b> Pour retourner sur la terre d'Israël.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -15,4 +15,4 @@
 <b>D'où</b> sait-il cela ? <b>Du fait <b>qu'il est enseigné</b> dans la mishna ici que même lorsqu'il y a un tiers qui fonctionne comme un intendant, toute <b>action d'une fille mineure n'est rien.</b> La Gemara demande : <b>Et peut-être que lorsqu'il y a un tiers</b> la <i>halakha</i> <b>est différente ?</b> Il est possible que l'acte d'une mineure ne soit écarté que lorsqu'il entre en conflit avec les actions d'une personne nommée qui a dépassé la majorité. La Gemara répond : <b>Si c'est le cas, qu'elle enseigne : Mais en ce qui</b> concerne <b>une fille mineure,</b> le <b>tiers doit exécuter</b> l'agence <b>qui a été confiée en son pouvoir. Quelle</b> est l'implication de la clause : Toute <b>action d'une fille mineure n'est rien ? Concluez de ce qui précède</b> que <b>même de manière générale,</b> sans intendant spécifique, une mineure ne peut pas effectuer des transactions portant sur des biens immobiliers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

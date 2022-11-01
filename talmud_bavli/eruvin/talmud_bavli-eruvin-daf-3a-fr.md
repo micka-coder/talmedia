@@ -81,4 +81,4 @@ La Guemara propose une explication différente de la distinction de Rabba' : <b>
 Puisqu'il existe deux versions contradictoires de la déclaration de Rabba', la Gemara s'interroge : <b>Quelle</b> conclusion pratique <b>a-t-on</b> tiré <b>à propos de ce</b> problème, si une partie de la toiture de la <i>sukka</i> ou de la traverse dépassait vingt coudées ? <b>Rabba bar Rav Ulla a dit :</b> Dans ce cas, tant <b>cette, </b> une ruelle, <b>que cette, </b> une <i>sukka</i>, <b>sont impropres. Rava a dit : </b> <b>Ceci et ça sont tous deux conformes,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

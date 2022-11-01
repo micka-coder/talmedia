@@ -57,7 +57,7 @@ La Gemara demande : <b>Quelle est la raison</b> pour laquelle le brigand achète
 La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux avis ? La Gemara répond : La différence pratique <b>entre eux est</b> dans un cas <b>où</b> l'<b>acheteur est décédé.</b> Selon <b>celui qui dit</b> que le voleur l'a acheté parce que <b>il est préférable pour lui de ne pas être appelé voleur,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 du champ <b>qui atteint</b> ses <b>épaules,</b> c'est-à-dire que le produit qui a poussé grâce aux améliorations apportées par l'acheteur est presque entièrement développé et mûr, et qu'il peut bientôt être récolté et porté sur ses épaules. A ce moment-là, le produit est considéré comme indépendant de la terre et n'est donc pas perçu par le créancier, à moins qu'il ne paie les dépenses. Et <b>là,</b> dans la déclaration de Shmuel selon laquelle le créancier perçoit la mise en valeur sans payer de compensation, la référence est <b>à la mise en valeur qui n'atteint pas</b> ses <b>épaules,</b> c'est-à-dire dont la croissance n'est pas presque complète. A ce moment-là, le produit est considéré comme faisant partie de la terre.
 
@@ -116,4 +116,4 @@ La Gemara demande : <b>Quelle est la raison</b> pour laquelle le brigand achète
 La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux avis ? La Gemara répond : La différence pratique <b>entre eux est</b> dans un cas <b>où</b> l'<b>acheteur est décédé.</b> Selon <b>celui qui dit</b> que le voleur l'a acheté parce que <b>il est préférable pour lui de ne pas être appelé voleur,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

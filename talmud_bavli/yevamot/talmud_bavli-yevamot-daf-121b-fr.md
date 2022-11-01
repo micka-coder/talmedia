@@ -54,4 +54,4 @@ La Guemara demande : <b>Mais,</b> s'il en est ainsi, qu'en est-il de <b>ce qui</
 La Gemara relate qu'un <b>certain Gentil a dit à un Juif : Récolte le fourrage et donne-le à mes animaux le Chabbat, et sinon, je te tuerai comme j'ai tué untel le Juif, car je lui ai dit : Cuisine-moi une marmite</b> de nourriture <b>le Chabbat, et il ne l'a pas cuisiné</b> pour moi, alors je l'ai tué. La femme</b> du juif disparu <b>a entendu</b> le gentil dire qu'il avait tué son mari, <b>et</b> elle <b>se présenta devant Abaye</b> pour demander s'il lui était permis de se remarier. <b>Il a reporté</b> la décision dans <b>son</b> cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

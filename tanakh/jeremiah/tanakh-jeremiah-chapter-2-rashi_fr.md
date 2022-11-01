@@ -157,7 +157,7 @@
 <b>Comme tu as eu honte à travers l'Assyrie</b> Sur qui Achaz s'est appuyé et "il l'a opprimé et ne l'a pas fortifié" (II Chron. 28:20).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -316,4 +316,4 @@
 <b>Comme tu as eu honte à travers l'Assyrie</b> Sur qui Achaz s'est appuyé et "il l'a opprimé et ne l'a pas fortifié" (II Chron. 28:20).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

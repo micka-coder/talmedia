@@ -61,7 +61,7 @@ Les éditions imprimées de Rachi contiennent l'addendum suivant : (<b>s'éloign
 <b>Aiguisé</b> Heb. יוּצַר, une expression similaire à (Jos. 5:2) "couteaux aiguisés (חַרְבוֹתצֻרִים)", également (Ps. 89:44) "Tu as aussi tourné le tranchant de son épée (צוּר חַרְבּוֹ)."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Chante, femme stérile</b> Jérusalem, qui était comme si elle n'avait pas enfanté.
 <b>Toi qui n'as pas connu les douleurs de l'enfantement</b> Heb. חָלָה, expression de l'accouchement, car la femme enfermée accouche avec des douleurs et des torsions.
@@ -124,4 +124,4 @@ Les éditions imprimées de Rachi contiennent l'addendum suivant : (<b>s'éloign
 <b>Aiguisé</b> Heb. יוּצַר, une expression similaire à (Jos. 5:2) "couteaux aiguisés (חַרְבוֹתצֻרִים)", également (Ps. 89:44) "Tu as aussi tourné le tranchant de son épée (צוּר חַרְבּוֹ)."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

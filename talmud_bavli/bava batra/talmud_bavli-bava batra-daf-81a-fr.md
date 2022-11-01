@@ -30,4 +30,4 @@ La Gemara demande : <b>Mais n'est-il pas écrit :</b> "Les prémices les plus ch
 A propos de la discussion sur l'obligation d'apporter les premiers fruits de celui qui achète un arbre dans le champ d'un autre, <b>Rabbi Shimon ben Elyakim dit à Rabbi Elazar:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

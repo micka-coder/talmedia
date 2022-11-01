@@ -184,5 +184,5 @@
 ### passuk 46
 <b>Tu as vécu à Kodeish de nombreuses années.</b> Dix-neuf ans, comme il est dit : " comme les années que vous avez vécues [ailleurs] ", c'est-à-dire au cours de leurs autres voyages <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qui totalisaient trente-huit ans. Dix-neuf de ces années, ils les passèrent à Kodeish, et dix-neuf années, ils dérivèrent sans but, puis ils retournèrent à Kodeish, comme il est dit : "Il les a fait errer dans le désert". J'ai trouvé cette [explication] dans <i>Seder Olam.</i> 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

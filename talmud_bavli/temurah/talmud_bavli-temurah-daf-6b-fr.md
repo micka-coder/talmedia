@@ -69,4 +69,4 @@ La Guemara conteste : <b>Attendu que vous apprenez de</b> la déclaration de <b>
 <b>Rava a dit : Non,</b> le terme dans le verset <b>est nécessaire</b> pour un cas <b>où le bouc émissaire <b>est devenu souillé ce jour-là</b> de Yom Kippour, après avoir été désigné, <b>et</b> alors le prêtre l'a <b>désacralisé</b> en transférant sa sainteté <b>sur un autre</b> bouc souillé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Rabbi Evyatar <b>lui a dit : A Dieu ne plaise, y a-t-il une incertitude devant l
 <b>Rabba bar bar Ḥana a dit</b> une <i>halakha</i> à propos de <b>cette</b> affirmation <b>que les Sages ont dit :</b> Il y a <b>trois questions qu'une personne doit dire dans sa maison la veille de Chabbat à la tombée de la nuit.</b> Il doit demander aux membres de sa maison : <b>Avez-vous versé la dîme</b> les produits qui devaient l'être ? <b>Avez-vous placé le <i>eirouv</i></b> pour rejoindre les cours ? Si vous l'avez déjà fait, <b>allumez la lampe</b> en l'honneur de Chabbat. Rabba bar Ḥana a dit que l'on <b>doit</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

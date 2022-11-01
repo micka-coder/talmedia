@@ -60,4 +60,4 @@ En outre, en ce qui concerne le fait d'avoir des rapports sexuels avec <b>l'un d
 <b>C'est une rigueur</b> que la Torah <b>impose à l'égard de la servante</b> par rapport aux autres individus avec lesquels les relations sont interdites :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

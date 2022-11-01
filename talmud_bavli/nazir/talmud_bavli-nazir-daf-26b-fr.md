@@ -21,4 +21,4 @@ Si l'on disait : <b>Cet</b> argent <b>est pour mon holocauste et le reste est po
 Par conséquent, la question se pose : <b>Pourquoi</b> en est-il ainsi ? N'avons-nous pas <b>nous appris cette</b> <i>halakha</i> uniquement en ce qui concerne <b>l'argent,</b> alors que la déclaration du Rav Ḥisda indique que les oiseaux sont également considérés comme non affectés ? Si l'on accepte l'opinion de Rav Ḥisda, les mêmes <i>halakhot</i> devraient également s'appliquer aux animaux, aux barres et aux piles de poutres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

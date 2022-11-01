@@ -36,4 +36,4 @@ La Gemara commente : <b>Cette</b> opinion <b>est également enseignée</b> dans 
 La Gemara raconte : Il y avait <b>une certaine femme</b> qui était sur le point de se remarier après avoir été divorcée ou veuve, <b>qui cherchait à éloigner</b> les droits sur <b>ses biens de son</b> futur <b>mari. Elle</b> a donc <b>écrit</b> un document stipulant que ses biens seraient donnés en cadeau <b>à sa fille</b> avant le mariage. Finalement, la fille <b>s'est mariée et</b> a ensuite <b>divorcé.</b> Elle a voulu que sa fille lui rende le bien, et sa fille a prétendu qu'il lui avait été donné en cadeau.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

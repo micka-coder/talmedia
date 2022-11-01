@@ -45,4 +45,4 @@ La Gemara demande : <b>A propos de quoi sont-ils en désaccord ? Un Sage,</b> le
 <b>Et si vous trouvez un <i>tanna</i></b> dans une <i>baraita</i> <b>qui enseigne</b> qu'il y avait <b>cinq</b> loteries pour le service du Temple,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

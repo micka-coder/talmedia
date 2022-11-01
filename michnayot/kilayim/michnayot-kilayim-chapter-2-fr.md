@@ -32,5 +32,5 @@ Tout ce qui se trouve à l'intérieur d'un bet rova [qui sépare les différente
 ### michna 11
 Des tiges de céréales qui se penchent sur d'autres tiges de céréales, ou des [plantes] végétales sur d'autres [] plantes végétales, ou des tiges de céréales sur des plantes végétales ou des plantes végétales sur des tiges de céréales, tout cela est permis, sauf dans le cas de la gourde grecque. Rabbi Meir dit : également dans le cas du concombre ou des haricots égyptiens. Mais je reconnais leurs paroles [comme plus acceptables] que les miennes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

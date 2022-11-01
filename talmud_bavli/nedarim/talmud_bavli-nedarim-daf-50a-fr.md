@@ -24,4 +24,4 @@ La Guemara ajoute : <b>Rabbi Akiva s'est enrichi de six choses.</b> Premièremen
 Rabbi Akiva s'enrichit <b>à partir</b> d'un convoi d'<b>Ishmaélites [<i>Serukita</i>]. Et</b> il s'enrichit <b>de</b> une certaine <b>lady.</b> Rabbi Akiva emprunta de l'argent à une dame et dit que Dieu serait son garant. Au moment de rendre le prêt, la fille du roi devint folle et jeta une bourse de bijoux à la mer, qui fut retrouvée par cette dame. Elle dit à Rabbi Akiva que son garant avait payé sa dette et elle lui permit de garder le prêt.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

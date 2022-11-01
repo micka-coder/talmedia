@@ -117,4 +117,4 @@
 <b>Ils ont été divisés pour l'héritage.</b> Ils les ont fait hériter.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

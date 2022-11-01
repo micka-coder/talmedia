@@ -9,4 +9,4 @@
 D'autre part, la Gemara rapporte : <b>Et lorsqu'on donna à Rabbi Tsadok de la nourriture</b> qui était <b>moins d'un paquet d'œufs</b> à manger, <b>il la tint dans un tissu</b> et ne se lava pas les mains. <b>Et il l'a mangé en dehors de la <i>sukka</i> et n'a pas récité</b> la grâce après les repas <b>par la suite.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

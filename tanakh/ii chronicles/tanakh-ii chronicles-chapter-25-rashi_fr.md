@@ -72,4 +72,4 @@
 <b>Il s'enfuit à Lachish</b> une ville fortifiée contre laquelle Sennacherib fit la guerre. Il s'enfuit à Lakis, où il resta quinze ans, jusqu'à ce qu'on le suive à Lakis et qu'on l'y assassine. Et pendant ces quinze ans qu'il était à Lakis, Jécolia, la mère d'Ozias, régna à sa place. C'est ainsi qu'il me semble. Dans le commentaire de Rabbi Joseph (Kara), j'ai vu que pendant ces quinze années où il était à Lachish, son fils Ozias a régné à sa place, mais il est incorrect de l'interpréter de cette manière, car il est écrit immédiatement après (26:1) : "qui était âgé de seize ans". Or, nous constatons que lorsque son père s'est enfui, il n'avait qu'un an. De plus, si c'est le cas, il devrait être écrit : " a pris Ozias et l'a fait roi à la place de son père pendant sa vie. " L'Écriture laisse plutôt entendre qu'il n'a pas régné du vivant de son père.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

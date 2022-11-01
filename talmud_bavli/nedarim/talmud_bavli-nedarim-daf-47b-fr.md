@@ -15,4 +15,4 @@
 <strong>MISHNA:</strong> Si quelqu'un dit à un autre : <b>Je suis par la présente</b> interdit <b>à toi</b> comme un objet <b>dédié</b> au Temple, alors <b>celui qui est interdit par</b> le <b>vœu est interdit</b> de bénéficier des biens de celui qui a fait le vœu. Si quelqu'un dit : <b>Tu es par la présente</b> interdit <b>à moi</b> comme un objet <b>dédié</b> au Temple, alors <b>celui qui a fait le vœu est interdit</b> de bénéficier des possessions de l'autre. S'il dit : <b>Je suis par la présente</b> interdit <b>à toi et tu es</b> par la présente interdit <b>à moi</b> comme un objet dédié au Temple, <b>les deux sont interdits</b> de bénéficier des biens de l'autre. <b>Mais</b> il est <b>permis à l'un et à l'autre</b> de profiter <b>des</b> <b>objets appartenant à ceux qui sont montés de Babylone,</b> c'est-à-dire des biens communs de la nation dans son ensemble, qui ne sont pas considérés comme la propriété d'un individu.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

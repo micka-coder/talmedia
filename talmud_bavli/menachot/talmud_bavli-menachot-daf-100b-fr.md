@@ -21,7 +21,7 @@ Si les <b>deux jours de fête de Rosh HaShana</b> surviennent le jeudi et le ven
 Ravina explique que cela peut être déduit de la mishna, <b>comme</b> l'offrande des <b>deux pains est une obligation du jour</b> de <i>Shavouot</i>. Il n'est donc <b>pas</b> possible de <b>dire</b> que les Sages ont décrété qu'ils ne peuvent être préparés le jour de la Fête <b>de peur</b> que l'on <b>retarde</b> de les apporter. <b>Et</b> pourtant la mishna <b>enseigne</b> que la cuisson et la préparation des deux pains <b>ne dépassent ni le Chabbat ni une Fête.</b> D'autant plus que les offrandes de vœux et les offrandes volontaires, qui n'ont pas besoin d'être sacrifiées spécifiquement lors d'une Fête, ne peuvent être sacrifiées lors d'une Fête selon la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 si un rite accompli pendant la nuit précédant son heure fixée n'est pas considéré comme un rite dont l'heure n'est pas encore arrivée, alors <b>lorsque la nuit arrive,</b> c'est-à-dire au <b>début du crépuscule</b> de la veille de Chabbat, la disposition des pains restant sur la Table doit <b>être consacrée et</b> ensuite <b>disqualifiée</b> en étant laissée toute la nuit. <b>Rava dit :</b> La mishna fait référence <b>à</b> un cas <b>où</b> le prêtre <b>enlève</b> les pains de mie de la Table <b>avant</b> la tombée de la nuit la veille de Chabbat afin d'empêcher leur consécration, et les arrange à nouveau le lendemain.
 
@@ -44,7 +44,7 @@ Si les <b>deux jours de fête de Rosh HaShana</b> surviennent le jeudi et le ven
 Ravina explique que cela peut être déduit de la mishna, <b>comme</b> l'offrande des <b>deux pains est une obligation du jour</b> de <i>Shavouot</i>. Il n'est donc <b>pas</b> possible de <b>dire</b> que les Sages ont décrété qu'ils ne peuvent être préparés le jour de la Fête <b>de peur</b> que l'on ne <b>retarde</b> de les apporter. <b>Et</b> pourtant la mishna <b>enseigne</b> que la cuisson et la préparation des deux pains <b>ne dépassent ni le Chabbat ni une Fête.</b> D'autant plus que les offrandes de vœux et les offrandes volontaires, qui n'ont pas besoin d'être sacrifiées spécifiquement lors d'une Fête, ne peuvent être sacrifiées lors d'une Fête selon la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 si un rite accompli pendant la nuit précédant son heure fixée n'est pas considéré comme un rite dont l'heure n'est pas encore arrivée, alors <b>lorsque la nuit arrive,</b> c'est-à-dire au <b>début du crépuscule</b> de la veille de Chabbat, la disposition des pains restant sur la Table doit <b>être consacrée et</b> ensuite <b>disqualifiée</b> en étant laissée toute la nuit. <b>Rava dit :</b> La mishna fait référence <b>à</b> un cas <b>où</b> le prêtre <b>enlève</b> les pains de mie de la Table <b>avant</b> la tombée de la nuit la veille de Chabbat afin d'empêcher leur consécration, et les arrange à nouveau le lendemain.
 
@@ -67,4 +67,4 @@ Si les <b>deux jours de fête de Rosh HaShana</b> surviennent le jeudi et le ven
 Ravina explique que cela peut être déduit de la mishna, <b>comme</b> l'offrande des <b>deux pains est une obligation du jour</b> de <i>Shavouot</i>. Il n'est donc <b>pas</b> possible de <b>dire</b> que les Sages ont décrété qu'ils ne peuvent être préparés le jour de la Fête <b>de peur</b> que l'on <b>retarde</b> de les apporter. <b>Et</b> pourtant la mishna <b>enseigne</b> que la cuisson et la préparation des deux pains <b>ne dépassent ni le Chabbat ni une Fête.</b> D'autant plus que les offrandes de vœux et les offrandes volontaires, qui n'ont pas besoin d'être sacrifiées spécifiquement lors d'une Fête, ne peuvent être sacrifiées lors d'une Fête selon la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

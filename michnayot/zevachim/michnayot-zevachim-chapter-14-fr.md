@@ -29,5 +29,5 @@ Tous les sacrifices consacrés alors que les bamot étaient interdites et offert
 ### michna 10
 Les sacrifices suivants étaient offerts dans le Tabernacle : sacrifices consacrés pour le Tabernacle : Les sacrifices publics étaient offerts dans le Tabernacle, et les sacrifices privés étaient offerts à une bamah. Si des sacrifices privés étaient consacrés pour le Tabernacle, ils devaient être offerts dans le Tabernacle ; mais si quelqu'un les offrait dans une bamah, il n'était pas responsable. Quelle est la différence entre la bamah d'un individu et la bamah de la congrégation ? L'imposition [des mains], l'abattage au nord, l'aspersion autour [de l'autel], l'agitation et la présentation, (Rabbi Juda dit : il n'y avait pas d'offrandes de repas à la bamah) ; le sacerdoce, les vêtements sacrificiels, les vases de service, un parfum doux, une ligne de démarcation pour [l'aspersion du] sang, et le lavage des mains et des pieds. Mais [les interdictions du] temps, du reste et de l'impureté étaient les mêmes dans les deux cas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

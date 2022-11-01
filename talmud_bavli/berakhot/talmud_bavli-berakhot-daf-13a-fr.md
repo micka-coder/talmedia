@@ -42,4 +42,4 @@ La Guemara repond : <b>C'est different la, car le verset revient en arriere</b> 
 La Gemara repond : <b>La, le prophete relate les louanges de Dieu,</b> y compris <b>ce qui etait</b> la situation <b>originelle,</b> avant que son nom ne soit change en Abraham. En effet, le verset poursuit : "Tu l'as sorti d'Ur Kasdim et tu lui as donne le nom d'Abraham, tu as trouve son cœur fidele devant toi et tu as fait alliance avec lui pour lui donner le pays de Canaan"¦ pour le donner a sa descendance, et tu as accompli tes paroles car tu es juste" (Nehemie 9, 7""8).
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Nous avons appris dans la mishna : <b>Et on ne peut pas perforer le bouchon</b> 
 <b>Rabba a dit :</b> En fait, même créer un nouveau trou n'est pas interdit, car <b>selon la loi de la Torah, toute ouverture qui n'est pas faite pour</b> à la fois <b>insérer et retirer n'est pas</b> considérée comme <b>une ouverture,</b> et un trou que l'on perfore dans un tonneau est destiné exclusivement à retirer le contenu du tonneau. <b>Et ce sont les Sages qui ont émis un décret</b> selon lequel on ne peut pas perforer un récipient <b>parce que</b> cela est similaire à la perforation d'un <b>coffre à poules,</b> qui est désigné pour être utilisé dans les deux sens, par exemple, <b>pour laisser entrer l'air et laisser sortir la chaleur,</b> et il est donc interdit par la loi de la Torah. <b>Et</b> donc nous avons appris que <b>si l'on cherche à ajouter</b> à un trou existant <b>on peut y ajouter</b>. Il n'y a aucune raison d'interdire cela par crainte que l'on puisse le faire dans un poulailler, car <b>on ne viendra certainement pas ajouter à</b> un trou déjà existant <b>dans un poulailler,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

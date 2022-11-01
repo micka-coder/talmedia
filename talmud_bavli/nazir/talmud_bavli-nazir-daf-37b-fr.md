@@ -54,4 +54,4 @@ Rav Kahana <b>dit à</b> Rav Ashi que cette dérivation est nécessaire car les 
 La Guemara demande : <b>Et Rabbi Shimon,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

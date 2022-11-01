@@ -39,4 +39,4 @@ A propos de la formation d'un mur <i>sukka</i> basé sur le principe du <i>lavud
 La Gemara demande : <b>Que nous enseigne-t-il ?</b> Le principe du <i>lavud</i> est bien connu. La Guemara répond : <b>Il vient nous enseigner</b> que la <b>mesure minimale</b> de la <b>extension</b> horizontale du mur <b>d'une petite <i>sukka</i> est de sept</b> coudées. Il est donc possible d'établir un mur pour la <i>sukka</i> en utilisant une planche qui mesure quatre coudées et un bit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

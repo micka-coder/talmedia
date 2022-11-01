@@ -18,4 +18,4 @@ La Gemara répond : <b>A quoi avons-nous affaire ici ? Avec</b> le cas d'une fem
 Rav Yehuda ajoute : <b>Et la <i>tanna</i></b> de la mishna a également <b>enseigné</b> dans le même sens en ce qui concerne <b>une mariée.</b> Shmuel a appris cette <i>halakha</i> concernant une acquisition par le biais du troc à partir du cas d'une mariée. La Gemara s'interroge : <b>Quel</b> <i>halakha</i> impliquant <b>une fiancée</b> sert de base à la <i>halakha</i> que Shmuel a enseignée ? <b>Si nous disons</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

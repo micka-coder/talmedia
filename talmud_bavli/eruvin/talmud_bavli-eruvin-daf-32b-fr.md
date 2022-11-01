@@ -30,4 +30,4 @@ La Guemara demande : <b>Si c'est le cas,</b> si l'arbre se trouvait <b>au delà 
 <b>Rav Yitzḥak, fils du Rav Mesharshiya, a dit : Ici, nous avons affaire à un arbre qui se penche</b> horizontalement <b>au-delà de quatre coudées</b> de son tronc, et on a placé le <i>eirouv</i> sur une section qui se trouve au-delà de quatre coudées,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

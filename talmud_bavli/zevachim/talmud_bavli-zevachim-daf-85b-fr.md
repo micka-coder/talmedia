@@ -54,4 +54,4 @@ En ce qui concerne <b>la laine qui est sur la tête des moutons</b> apportés en
 <b>Si</b> on déduit la <i>halakha</i> en ce qui concerne les os et les tendons de l'expression <b>"la chair et le sang"</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

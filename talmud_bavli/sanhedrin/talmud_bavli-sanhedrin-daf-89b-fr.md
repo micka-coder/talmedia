@@ -66,4 +66,4 @@ La Gemara conteste : <b>Qu'il dérive</b> la punition <b>de</b> la punition de c
 <b>Rav Ḥisda dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

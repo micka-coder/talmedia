@@ -23,5 +23,5 @@ Mais ils sont d'accord pour dire qu'elle peut manger la seconde dîme. Et elle p
 ### michna 8
 Si une femme a observé un écoulement le onzième jour et s'est immergée le soir, puis a eu des rapports sexuels : Bet Shammai disent : ils [le couple] souillent un lit et un siège et ils sont passibles d'un sacrifice [expiatoire] Mais Bet Hillel disent : ils sont exemptés du sacrifice. Si elle s'est immergée le lendemain et qu'ensuite elle a eu des rapports sexuels et qu'après cela elle a observé une décharge : Bet Shammai disent : ils transmettent l'impureté au lit et au siège et sont exemptés du sacrifice, Mais Bet Hillel disent : une telle personne est un glouton. Ils sont d'accord sur le fait que si une femme a observé un écoulement pendant les onze jours et s'est immergée le soir, puis a eu des rapports sexuels, les deux souillent le lit et le siège et sont passibles d'un sacrifice. Si elle s'est immergée le jour suivant et a ensuite eu des rapports sexuels, cet acte est une conduite inappropriée, mais l'impureté de leur contact et [leur responsabilité d'apporter un sacrifice en raison de] leurs rapports sexuels sont en suspens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

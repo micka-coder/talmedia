@@ -75,4 +75,4 @@ De plus, <b>d'abord on découvrait le visage des riches</b> qui décédaient <b>
 De plus, <b>dans un premier temps, les riches emmenaient</b> le défunt <b>hors</b> pour l'enterrer <b>sur un <i>dargash</i>, et les pauvres</b> emmenaient le défunt hors...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

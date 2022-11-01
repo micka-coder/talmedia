@@ -48,4 +48,4 @@ La Guemara demande : <b>Si c'est le cas,</b> il est évident que son témoignage
 La mishna enseigne : <b>Voici le principe</b> qui régit la crédibilité des Samaritains : pour toute question de <i>halakha</i> qu'ils sont soupçonnés de ne pas remplir, ils ne sont pas jugés crédibles pour témoigner à ce sujet. La Guemara demande : <b>Qu'est-ce qui est ajouté</b> par le terme : <b>C'est le principe ?</b> La Gemara répond : Elle sert <b>à ajouter</b> que les Samaritains ne sont pas jugés crédibles en ce qui concerne les <b>limites du Chabbat,</b> c'est-à-dire pour dire qu'une limite du Chabbat s'étend jusqu'à un certain point, car la <i>halakha</i> des limites du Chabbat s'applique par la loi rabbinique. <b>Et</b> de même, les Samaritains ne sont pas jugés crédibles en ce qui concerne le statut du <b>vin</b> utilisé pour <b>une libation</b> dans le culte des idoles, car les Samaritains ne s'interdisent pas de boire du vin touché par un gentil.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

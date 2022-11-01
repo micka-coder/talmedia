@@ -51,4 +51,4 @@ La Guemara poursuit son explication de ces versets. <b>Qu'est-ce que</b> signifi
 La Guemara continue de relater le défi lancé par Satan à Dieu : <b>"Mais maintenant avance ta main, et touche tout ce qu'il a, et il te maudira en face. Et le Seigneur dit à Satan : Voici, tout ce qu'il a est en ton pouvoir ; seulement sur lui, n'avance pas ta main.</b> Et le Satan sortit de la présence du Seigneur " (Job 1, 11-12). Les versets relatent ce qui s'est ensuite passé : <b>"Or, un jour que ses fils et ses filles mangeaient et buvaient du vin dans la maison de leur frère aîné, un messager vint à Job, et dit : Les bœufs labouraient,</b> et les ânes paissaient à côté d'eux" (Job 1:13-14). La Gemara demande : <b>Qu'est-ce que</b> signifie : <b>"Les bœufs labouraient et les ânes paissaient à côté d'eux" ? Rabbi Yoḥanan répond : Ceci enseigne que le Saint, Béni soit-Il, a donné à Job un goût</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

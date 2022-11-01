@@ -20,5 +20,5 @@ Si les pattes arrière d'un animal ont été coupées au-dessous de l'articulati
 ### michna 7
 Si une personne a abattu un animal et y a trouvé un sac amniotique, celui qui n'est pas fastidieux peut le manger. Il ne contracte pas d'impureté, ni l'impureté alimentaire, ni l'impureté de la nevelah. S'il avait l'intention de le manger, il peut contracter une impureté alimentaire mais pas l'impureté de Névéla. Si une partie de la poche amniotique est sortie [avant l'abattage de la mère], elle ne peut être mangée ; car c'est un signe de naissance chez la femme et aussi un signe de naissance chez l'animal. Si un animal qui était enceinte pour la première fois a fait une fausse couche avec un sac amniotique, il peut être jeté aux chiens. Mais dans le cas d'un animal consacré, il doit être enterré. Il ne peut pas être enterré aux carrefours ou accroché à un arbre, car ce sont des pratiques amorites.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

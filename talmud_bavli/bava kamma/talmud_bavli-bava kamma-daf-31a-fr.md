@@ -54,4 +54,4 @@ La Guemara répond : La <i>baraïta</i> est présentée de <b>cette</b> manière
 La Guemara remet en question l'affirmation de Rava : <b>Quelle que soit la façon dont vous</b> regardez, c'est difficile à comprendre. <b>Si</b> Rava soutient que <b>celui qui trébuche est</b> considéré comme <b>négligent, la seconde</b> personne <b>doit également être tenue</b> de payer pour toutes les formes de dommages causés par sa négligence. Et <b>si</b> Rava soutient que <b>celui qui trébuche n'est pas</b> considéré comme <b>négligent, même le premier devrait être exempté</b> de la responsabilité des dommages encourus par le second.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

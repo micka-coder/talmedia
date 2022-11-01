@@ -72,4 +72,4 @@
 <b>et de grands grêlons</b> Des grêlons qui brillent comme des pierres précieuses nommées גָּבִישּׁ, du cristal, comme il est dit (Job 28:18) : "Corail et cristal (וְגָּבִישּׁ)." Nos Sages ont dit (Ber. 54b) : עַל גַב אִישּׁ : Des pierres de grêle qui commencèrent à tomber sur l'Égypte, et se tinrent en l'air au-dessus de l'homme (עַל גַב אִישּׁ), Moïse, qui pria pour qu'elles ne tombent pas, selon la chose qui est dite (Exod. 9:33), לֹא נִתַּךְ אַרְצָה "[il] n'a pas atteint le sol."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara répond : <b>Inverser</b> l'avis <b>de Rabbi Yehuda avec</b> celui de
 La Guemara <b>dit : Il n'y a pas d'alternative, car</b> on ne <b>peut</b> faire autrement que de <b>inverser la <i>baraita</i>, car</b> cela signifierait <b>que dans cette <i>baraita</i> on enseigne que Rabbi Yehouda tient</b> qu'il existe un principe de <b>désignation rétroactive. Et nous avons entendu</b> ailleurs <b>que Rabbi Yehuda n'accepte généralement pas</b> le principe de la <b>désignation rétroactive, comme nous l'avons appris</b> dans une mishna (<i>Demai</i> 7:4) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

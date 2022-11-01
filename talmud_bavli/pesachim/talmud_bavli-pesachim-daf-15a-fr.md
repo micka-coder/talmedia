@@ -39,4 +39,4 @@ La Guemara répond que <b>C'est</b> ce que Rabbi Meir <b>dit : Nous avons appris
 <b>Mais, comment brûlerons-nous</b> <i>le <b>teruma</i> <b>en suspens,</b> dont le statut d'impureté est incertain, avec <b>le <i>teruma</i> rituellement impur ? <b>Peut-être qu'Elie</b> le Prophète <b>viendra</b> et établira prophétiquement que le <i>teruma</b> n'est pas rituellement impur, <b>et il le rendra rituellement pur.</b> Le statut juridique du <i>teruma</b> en suspens est incertain. Comment peut-on activement le rendre impur alors qu'il pourrait finalement être déterminé qu'il est pur ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

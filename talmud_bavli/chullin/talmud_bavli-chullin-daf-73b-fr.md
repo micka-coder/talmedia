@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais</b> en <b>quelle manière <b>est-ce</b> qu'il est <b
 § <b>Rav Yosef a dit : Prends</b> la déclaration <b>que Rav Yitzḥak bar Yosef</b> dit que Rabbi Yoḥanan dit, c'est-à-dire que l'abattage d'un animal ne rend pas un membre suspendu comme s'il était déjà tombé avant l'abattage, <b>dans ta main,</b> c'est-à-dire accepte-la comme correcte, <b>comme Rabba bar bar Ḥana</b> le dit aussi <b>conformément</b> à cet avis. <b>Comme il est enseigné</b> dans un <i>baraita</i> : <b>"Et la chair qui est déchirée dans le champ, vous ne la mangerez pas"</b> (Exode 22:30). Cela sert à <b>inclure</b> le cas du <b>membre ou de la chair qui a été</b> partiellement coupé(e) mais qui était encore <b>accroché(e) à un animal domestiqué ou à un animal non domestiqué ou à un oiseau, et on les a abattu(e)s</b> ; il en découle <b>qu'ils sont interdits</b> en tant que membres sectionnés d'un animal vivant. <b>Et Rabba bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit</b> à propos de la décision de cette <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

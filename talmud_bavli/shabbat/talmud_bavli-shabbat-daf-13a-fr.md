@@ -33,4 +33,4 @@ La Guemara relate que <b>Ulla, lorsqu'il revenait de la maison de son maître, e
 <b>Le</b> Sage de l'<b>école d'Eliyahou a enseigné</b> une <i>baraita</i> qui traite de cette <i>halakha</i> : Il y eut <b>un incident impliquant un étudiant qui étudia beaucoup</b> la Mishna <b>et lut beaucoup</b> la Bible, <b>et servit les érudits de la Torah</b> de manière extensive, étudiant la Torah auprès d'eux, <b>et,</b> néanmoins, <b>mort à la moitié de ses jours,</b> à la moitié de son espérance de vie. <b>Sa femme</b> dans son amertume <b>prenait ses phylactères et se promenait avec eux dans les synagogues et les salles d'étude, et elle disait</b> aux Sages : <b>Il est écrit dans la Torah : "Car c'est ta vie et la longueur de tes jours"</b> (Deutéronome 30:20). Si tel est le cas, <b>mon mari qui a beaucoup étudié</b> la Mishna, <b>et lu beaucoup</b> la Bible,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

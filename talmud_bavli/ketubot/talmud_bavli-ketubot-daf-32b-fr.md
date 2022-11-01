@@ -24,4 +24,4 @@ On peut dire la même chose en ce qui concerne <b>celui qui blesse un autre. Mai
 La Guemara demande : <b>Et Rabbi Yoḥanan, quelle est la raison</b> pour laquelle <b>il n'a pas dit</b> la même <i>halakha</i> <b>comme Ulla,</b> que lorsqu'il y a responsabilité à la fois de payer de l'argent et de recevoir des coups de fouet, on paie de l'argent mais on n'est pas fouetté ? La Gemara répond : <b>Si tel était le cas,</b> si c'était le cas, <b>vous avez rendu sans objet</b> l'interdiction <b>"La nudité de ta sœur...tu ne la découvriras pas"</b> (Lévitique 18:9) en ce que contrairement aux interdictions standards, aucun coup de fouet ne serait administré pour sa violation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara rejette cette explication du litige : <b>Non,</b> il est possible que
 <b>Et si tu veux, dis</b> plutôt que <b>tout le monde</b> est d'accord pour dire que l'obligation de payer <b>un salaire est</b> encourue de manière continue <b>du début</b> de la période où il a été embauché <b>jusqu'à</b> sa <b>fin, et ici ils sont en désaccord en ce qui concerne celui qui fiance</b> une femme <b>avec un prêt. Comme Rabbi Meir soutient</b> qu'en ce qui concerne <b>celui qui fiance</b> une femme <b>avec un prêt, elle est fiancée. Et les rabbins soutiennent</b> qu'en ce qui concerne <b>ceux qui fiancent</b> une femme <b>avec un prêt, elle n'est pas fiancée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

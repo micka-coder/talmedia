@@ -45,4 +45,4 @@ La Gemara soulève une difficulté : <b>Et</b> comment pouvez-vous <b>le compren
 <b>Cette</b> interprétation <b>est également précise</b> dans la formulation du <i>baraita</i>, <b>car</b> le <i>baraita</i> qui interdit la construction d'un mur supplémentaire utilise la phrase suivante : <b>Si son mur tombait.</b> Cela indique un mur qui est significatif, c'est-à-dire un mur qui le rend apte à être utilisé, plutôt que n'importe quel mur, comme indiqué dans la <i>baraita</i> qui l'autorise. La Guemara conclut : <b>Apprenez de cela</b> que la résolution correcte est de différencier le troisième et le quatrième mur d'une <i>sukka</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

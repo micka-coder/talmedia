@@ -69,4 +69,4 @@ La Gemara demande : <b>Mais</b> la première <i>baraita</i> <b>enseigne</b> le c
 <b>Et Rabbi Yoḥanan dit : Tout le monde est d'accord</b> qu'il n'y a <b>aucune entité</b> née <b>avec un</b> rein, <b>et</b> que le <b>manque d'un membre interne</b> <b>est considéré comme un manque, et</b> pourtant ce n'est <b>pas difficile. Ici,</b> dans la première <i>baraita</i>, il est question d'un cas <b>où il manquait</b> un rein <b>avant</b> son <b>abattage.</b> Alors que <b>là,</b> la deuxième <i>baraita</i> traite d'un cas <b>où il manquait</b> un rein seulement <b>après</b> son <b>abattage,</b> et donc il est apte. La Gemara demande : <b>Et</b> si l'animal manquait d'un rein <b>après</b> son <b>abattage</b> mais <b>avant</b> la <b>collecte</b> du sang dans un récipient pour l'aspersion, <b>est-il permis</b> de le sacrifier ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -38,4 +38,4 @@
 <b>Majordome</b> Heb.  מַשְּׁקֶה", comme (<a class="refLink" href="/Genèse.40.1" data-ref="Genèse 40:1">Gen. 40:1</a>) : "...le majordome de (מַשְּׁקֶה") le roi d'Égypte." C'est ce que j'ai expliqué plus haut (<a class="refLink" href="/Ezra.2.63" data-ref="Ezra 2:63">Ezra 2:63</a>) ce sont les paroles de nos Sages, que Hattirshatha est Néhémie. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

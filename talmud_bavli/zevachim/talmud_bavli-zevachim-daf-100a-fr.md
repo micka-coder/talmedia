@@ -36,4 +36,4 @@ Le verset précise : <b>"Pour son père"</b> même si son père est inclus parmi
 <b>Quel est le sens</b> lorsque <b>le verset dit : "Ou pour sa sœur" ?</b> Si un nazirite <b>allait abattre son offrande pascale ou circoncire son fils, et qu'il apprenait que</b> un de ses parents <b>est mort,</b> on <b>pourrait</b> penser qu'il devrait <b>devenir impur. Tu</b> plutôt <b>dire</b> que <b>il ne peut pas devenir impur.</b> On <b>pourrait</b> avoir pensé que <b>de même qu'il ne peut pas devenir impur pour</b> enterrer <b>sa sœur, de même il ne peut pas devenir impur pour</b> enterrer <b>une <i>met mitzva</i>. Le verset dit : "Ou pour sa sœur"</b> pour enseigner que <b>il ne peut pas devenir impur pour</b> enterrer <b>sa sœur mais il devient impur pour</b> enterrer <b>une <i>met mitzva</i>.</b> Par conséquent, la déclaration de la <i>baraita</i> concernant un nazirite représente l'opinion de Rabbi Akiva.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

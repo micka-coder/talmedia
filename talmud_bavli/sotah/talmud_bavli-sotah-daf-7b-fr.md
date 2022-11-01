@@ -45,4 +45,4 @@ La Guemara discute de la convenance d'admettre ses péchés en public. <b>Accord
 § La mishna enseigne : <b>Mais si</b> après l'avertissement <b>elle</b> maintient son innocence et <b>dit : je suis pure, ils</b> la feraient <b>monter jusqu'à la porte orientale.</b> La Gemara demande : Est-ce qu'ils la feraient monter ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 156a) 
 <b>On dit à</b> Rabbi Elazar : Un <b>incident</b> de ce genre ne s'est-il pas produit <b>en ce qui concerne la mère</b> de la famille <b>des fils de Rokhel, qui était malade, et elle a dit : Donne</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara répond : <b>Non,</b> les deux <i>tanna'im</i> s'accordent à dire que
 La Gemara demande : <b>Si</b> ce dernier <i>baraita</i> est conforme à l'opinion de <b>Rabbi Shimon, pourquoi</b> fait-il référence <b>spécifiquement</b> au fait de <b>tremper</b> son <b>doigt ? Ne dit-il pas</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

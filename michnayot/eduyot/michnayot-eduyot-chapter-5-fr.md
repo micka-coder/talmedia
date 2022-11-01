@@ -20,5 +20,5 @@ Akavia ben Mahalalel a témoigné au sujet de quatre choses. On lui dit : Akavia
 ### michna 7
 Au moment de sa mort, il dit à son fils : "Retire les quatre opinions que j'avais l'habitude de déclarer." Il lui dit : "Pourquoi ne les as-tu pas retirées ?" Il lui dit : "Je les ai entendues de la bouche de la multitude, et ils ont entendu [le contraire] de la bouche de la multitude.   Je me suis tenu à la tradition que j'ai entendue, et ils se sont tenus à la tradition qu'ils ont entendue. Mais vous avez entendu [ma tradition] de la bouche d'un seul individu et [leur tradition] de la bouche de la multitude.  Il lui dit : "Père, recommande-moi à tes collègues." Il lui dit : "Je ne te recommanderai pas." Il lui dit : "As-tu trouvé quelque chose de mauvais en moi ?" Il lui dit : "Non, tes propres actions te feront être proche et tes propres actions te feront être loin.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara relate : Il y avait <b>un certain</b> homme <b>qui a dit à</b> des t�
 La Guemara énonce plusieurs conclusions : <b>Et la <i>halakha</i> est conforme</b> à l'avis du Rav <b>Naḥman,</b> qui a jugé que l'on peut rendre nul un acte de divorce en présence de deux personnes. <b>Et la <i>halakha</i> est conforme</b> à l'avis du Rav <b>Naḥman,</b> qui a jugé que la <i>halakha</i> est conforme à Rabbi Yehuda HaNasi dans ses deux litiges avec Rabban Shimon ben Gamliel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

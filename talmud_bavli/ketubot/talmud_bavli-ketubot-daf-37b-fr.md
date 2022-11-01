@@ -42,4 +42,4 @@ La Guemara répond : <b>Il l'exige</b> pour enseigner <b>ce qui est enseigné</b
 La Gemara demande : <b>Et n'avez-vous pas incidemment appris</b> la conclusion suivante <b>de</b> le verset <b>"Et tu ne prendras pas de rançon</b> pour la vie d'un meurtrier, qui est coupable de mort" (Nombres 35:31) : <b>Ne pas prendre d'argent de lui et l'exempter</b> de la mort ? <b>Pourquoi, </b> alors, <b>je demande la phrase : <b>Any <i>ḥerem</i> ? Rami bar Ḥama a dit :</b> Elle est <b>nécessaire,</b> car <b>il pourrait vous venir à l'esprit de dire</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

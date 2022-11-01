@@ -18,4 +18,4 @@ La Guemara interrompt le récit de la <i>baraita</i> et remet en question la dé
 La <i>baraita</i> continue : Le sadducéen <b>dit à</b> Rabban Yoḥanan ben Zakkai : <b>Mon maître, tu me congédie avec cette</b> réplique ? Je conviens que le fils d'un fils précède une fille, comme le suggère le verset que vous avez cité ; j'affirme qu'une fille hérite en même temps que la fille d'un fils, et le verset que vous avez cité n'a aucune incidence sur cette affirmation. Rabban Yoḥanan ben Zakkai <b>lui dit : Imbécile,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

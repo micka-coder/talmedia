@@ -54,4 +54,4 @@ La Guemara poursuit : <b>Et vous trouvez</b> qu'on est susceptible de recevoir d
 <Rabbi Zeira s'oppose à cela : Mais n'y a-t-il pas</b> un cas où il n'est pas tenu de payer, par exemple, s'il s'est approprié <b>le gage d'un converti et que ce dernier est mort</b> sans héritiers. Dans ce cas, il n'y a pas de paiement, et néanmoins, il n'est pas flagellé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

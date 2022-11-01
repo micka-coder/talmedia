@@ -27,4 +27,4 @@ Celui qui a deux cents Zuz ne doit pas prendre de Leket, Shikhechah, Peah ou Ma'
 Quelqu'un qui a cinquante Zuz, et qui les utilise pour ses affaires, il ne peut pas prendre. Et celui qui n'a pas besoin de prendre, mais qui prend quand même, ne quittera pas le monde avant de devenir dépendant des autres. Et celui qui a besoin de prendre, mais qui ne prend pas, ne mourra pas de vieillesse avant d'avoir pu subvenir aux besoins des autres avec sa part. À ce sujet, l'Écriture déclare : "Heureux l'homme qui s'appuie sur D-ieu, et D-ieu sera sa sécurité" (Jérémie 17:7). Il en va de même pour le juge qui juge dans la vérité absolue. Et celui qui n'est ni boiteux, ni aveugle, ni infirme, mais qui prétend être l'un d'eux, ne mourra pas de vieillesse avant d'être devenu comme l'un d'eux, comme il est dit : "Justice, justice, tu poursuivras". "(Deutéronome 16:20) Et tout juge qui accepte un pot-de-vin et corrompt la loi, il ne mourra pas de vieillesse avant d'avoir perdu ses yeux, comme il est dit : "Tu n'accepteras pas de pot-de-vin, car le pot-de-vin aveugle ceux qui voient et comprennent, etc.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

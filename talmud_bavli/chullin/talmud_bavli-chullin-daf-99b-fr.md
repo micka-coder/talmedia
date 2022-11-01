@@ -36,4 +36,4 @@ Rabbi Yehouda bar Zevina <b>lui dit : Apporte</b> l'animal <b>de nouveau devant 
 § La mishna déclare (96b) : En ce qui concerne <b>un nerf sciatique qui a été cuit</b> avec d'autres tendons, lorsqu'on identifie le nerf sciatique et qu'on le retire, les autres tendons sont interdits si le nerf sciatique était assez gros pour communiquer de la saveur. Et s'il ne l'identifie pas, tous les tendons sont interdits car chacun d'eux pourrait être le nerf sciatique. La Gemara conteste : <b>Laissons</b> le nerf sciatique <b>être annulé par</b> une simple <b>majorité.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

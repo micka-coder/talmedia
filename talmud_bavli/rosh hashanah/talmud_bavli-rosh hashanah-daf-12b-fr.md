@@ -39,4 +39,4 @@ Il a été enseigné dans la mishna : <b>Les céréales et les olives</b> sont o
 <b>Rabbi Zeira dit à Rav Asi :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

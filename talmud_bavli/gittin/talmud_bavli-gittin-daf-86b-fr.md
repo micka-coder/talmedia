@@ -108,4 +108,4 @@ Si le scribe <b>écrivait</b> une <b>formule</b> distincte dans l'acte de divorc
 <b>Et Reish Lakish dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

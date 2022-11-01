@@ -48,4 +48,4 @@ La Gemara s'interroge : <b>Et combien</b> d'espace <b>doit-il y avoir entre</b> 
 Rav Yosef <b>lui dit : Je ne sais pas</b> à ce sujet, <b>mais il y eut</b> un <b>incident</b> similaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

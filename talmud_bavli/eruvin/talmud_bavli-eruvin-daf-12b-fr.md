@@ -57,4 +57,4 @@ La Gemara demande : <b>Et</b> de <b>quelque chose</b> sa longueur doit dépasser
 Nous avons appris dans la mishna : <b>Un certain disciple a dit</b> devant Rabbi Akiva <b>au nom de Rabbi Yishmael, etc.</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

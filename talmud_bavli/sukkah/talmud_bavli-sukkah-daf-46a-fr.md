@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle</b> bénédiction fait-il <b>omettre</b> les autre
 A propos de la <i>halakha</i> transmise par cette paire d'<i>amora'im</i>, la Guemara poursuit : <b>Rabbi Zeira a dit, et certains disent</b> que c'est <b>Rabbi Ḥanina bar Pappa</b> qui a dit : <b>Venez et voyez que l'attribut de la chair et du sang est différent de l'attribut du Saint, Béni soit-Il. L'attribut de la chair et du sang est</b> que <b>un récipient vide</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

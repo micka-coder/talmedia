@@ -48,4 +48,4 @@ La Guemara exprime sa surprise à ce sujet : <b>Et</b> le responsable de la pri�
 La Guemara demande : <b>Et</b> comment pouvez-vous <b>le comprendre</b> de cette façon ? Est-ce que la phrase : <b>La</b> différence <b>entre eux est seulement, spécifiquement</b> signifie-t-elle qu'il n'y a qu'une seule différence entre les cas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

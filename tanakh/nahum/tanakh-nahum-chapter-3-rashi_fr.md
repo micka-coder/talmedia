@@ -80,4 +80,4 @@
 <b>claquer des mains</b> - pour se réjouir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

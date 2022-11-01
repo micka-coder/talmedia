@@ -48,4 +48,4 @@ La Gemara explique la preuve. <b>D'après</b> le fait <b>que Abaye a dit : Qui e
 La Guemara pose une question incidente par rapport à l'avis de Rabbi Yishmael. <b>Maintenant, quelle est la position de Rabbi Yishmael,</b> c'est-à-dire à quelle mitzva spécifique fait-il référence ? Il se réfère <b>à</b> l'obligation d'apporter des <b>libérations,</b> d'où il apprend que toutes les mitzvot qui comportent le terme habitation ne s'appliquent qu'après qu'Eretz Yisrael ait été conquis et colonisé. <b>A propos des libations</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

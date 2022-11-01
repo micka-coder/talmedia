@@ -83,4 +83,4 @@
 <b>[Même] après tout ce qui s'est passé.</b> Qu'il ait vu ce prodige et entendu les paroles du prophète, et que, néanmoins, il ne se soit pas repenti. Et nos rabbins expliquent : "Après que le Saint Béni soit-Il l'ait saisi par son vêtement et lui ait dit : 'Repens-toi, et moi, toi et le fils de Yishay, nous nous promènerons dans le jardin d'Eden'"<sup>12</sup><i class="footnote">Voir Masehet Sanhedrin 102a. La conversation se poursuit : " Yerovom dit : " Qui marchera devant ? " [et la réponse fut :] " Le fils de Yishy ". [Yerovom a répondu,] 'Si c'est le cas, je ne veux pas en faire partie'." </i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

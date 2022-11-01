@@ -78,4 +78,4 @@ La Guemara développe le dernier dilemme : <b>Selon celui qui dit qu'un fœtus e
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Si quelqu'un <b>volait</b> un animal <b>et le donnait à un autre et</b> cette personne <b>l'abattait</b> pour lui, ou si <b>il volait</b> un animal <b>et le donnait à un autre et</b> cette personne <b>le vendait</b> pour lui, le voleur est tenu de payer le quadruple ou le quintuple, car accomplir ces actions par l'intermédiaire d'un agent est équivalent à les accomplir par soi-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

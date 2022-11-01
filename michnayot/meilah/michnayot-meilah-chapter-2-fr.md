@@ -26,5 +26,5 @@ Notre mishna traite de la manière dont la loi du sacrilège se rapporte aux men
 ### michna 9
 La loi du sacrilège s'applique à la poignée [d'un minhah], à l'encens, à l'encens, au minhah d'un prêtre, au minhah du grand prêtre oint et au minhah qui est accompagné d'une libation, à partir du moment où ils sont consacrés. Une fois qu'ils sont devenus sacrés en étant mis dans le récipient, ils deviennent susceptibles d'être impropres au contact d'un tevul yom ou de quelqu'un qui a encore besoin d'expiation, ou en restant toute la nuit, et ils sont soumis aux [lois du] notar et de l'impureté, mais [la loi du] piggul ne s'applique pas à eux. Telle est la règle générale : tout ce qui a quelque chose d'autre qui le rend admissible [pour l'autel ou pour l'usage des prêtres] n'est pas soumis aux [lois du] piggul, du nothar et de l'impureté tant que cet acte n'a pas été accompli. Et tout ce qui n'a pas quelque chose d'autre qui le rend admissible devient sujet [aux lois du] notar et de l'impureté dès qu'il est devenu sacré en étant mis dans le récipient, mais le piggul ne s'applique pas à lui.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

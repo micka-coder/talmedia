@@ -54,4 +54,4 @@ La Gemara demande : <b>Et est-ce que</b> le concept de <i>meduma</i> <b>s'appliq
 <strong>GEMARA:</strong> Un <i>tanna</i> <b>enseigné</b> dans un <i>baraita</i> : En ce qui concerne le <b>Modi'im</b> lui-même, <b>il y a des moments</b> où il est considéré <b>comme à l'intérieur</b> du périmètre entourant Jérusalem, et <b>il y a des moments</b> où il est considéré <b>comme à l'extérieur</b> de ce périmètre. <b>Comment cela ? </b> Si <b>un potier sort</b> du périmètre <b>et qu'un <i>ḥaver</i> y entre</b> et qu'ils se rencontrent à Modi'im, c'est considéré <b>comme à l'intérieur,</b> et le <i>ḥaver</i> peut acheter les cruches. Cependant, si <b>les deux entrent</b> dans le périmètre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

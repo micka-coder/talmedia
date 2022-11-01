@@ -66,4 +66,4 @@ La Guemara conteste cet argument : <b>Mais que</b> dites-vous, que <b>la contemp
 La Gemara demande : Si c'est le seul but, <b>qu'il etudie un autre chapitre</b> et pas specifiquement <i>Shema</i> ou une des benedictions. <b>Rav Adda bar Ahava a dit :</b> Il convient que l'on s'engage <b>dans une affaire dans laquelle la communaute est engagee.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

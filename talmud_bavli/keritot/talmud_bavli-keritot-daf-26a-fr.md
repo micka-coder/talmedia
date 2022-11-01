@@ -93,4 +93,4 @@ La Gemara conclut : <b>Si</b> ce terme de savoir <b>n'est pas</b> nécessaire po
 <b>Abaye a dit : Si</b> la Torah <b>n'avait pas énoncé</b> un terme de <b>savoir à l'égard d'un <i>Nasi</i>, il</b> ne pouvait <b>pas</b> être <b>dérivé des cas de <b>un individu et</b> de la <b>communauté, car</b> cette suggestion <b>peut être réfutée : Qu'est-ce qui</b> est unique <b>au sujet</b> des offrandes pour le péché d'un <b>individu et</b> de la <b>communauté ? </b> Elles sont uniques <b>en ce que</b> les deux sont des offrandes fixes qui <b>ne sont pas aptes à changer.</b> Pouvez-vous <b>dire</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

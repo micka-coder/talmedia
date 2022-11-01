@@ -96,4 +96,4 @@ Et Ulla <b>nous a dit : Vous avez appris</b> la réponse à cette question dans 
 <b>Rav est arrivé</b> à un certain endroit <b>pour acheter</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

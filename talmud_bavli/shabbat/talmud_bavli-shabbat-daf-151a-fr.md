@@ -33,4 +33,4 @@ La mishna enseigne que si des Gentils <b>font à quelqu'un un cercueil et lui cr
 <strong>MISHNA:</strong> <b>On peut accomplir tous les besoins des morts</b> le Chabbat. <b>On peut étaler de l'huile</b> sur le corps <b>et le rincer</b> à l'eau, <b>et</b> tout cela est permis <b>à condition de ne bouger aucun de ses membres,</b> ce qui constituerait une violation des lois des objets mis de côté. Lorsque cela est nécessaire, <b>on peut</b> également <b>enlever un oreiller de dessous lui</b> et ainsi le <b>placer sur</b> du sable froid afin</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

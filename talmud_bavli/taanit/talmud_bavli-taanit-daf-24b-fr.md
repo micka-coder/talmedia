@@ -42,4 +42,4 @@ La Guemara raconte une autre histoire concernant la prière pour la pluie. <b>Ra
 § La Guemara continue de parler du juste Rabbi Ḥanina ben Dosa et des merveilles qu'il a réalisées. <b>Rav Yehuda dit</b> que <b>Rav a dit : Chaque jour, une voix divine émerge</b> du Mont Horeb <b>et dit : Le monde entier est soutenu par</b> le mérite de <b>Mon fils Ḥanina</b> ben Dosa, <b>et</b> pourtant pour <b>Ḥanina, Mon fils, un <i>kav</i> de caroubes, </b> une très petite quantité de nourriture inférieure, <b>est suffisante</b> pour le faire vivre pendant toute une semaine, <b>d'une <b>veille de Chabbat à</b> la <b>veille de Chabbat suivante. </La Guemara raconte : Rabbi Ḥanina ben Dosa's <b>La femme faisait chauffer le four chaque veille de Chabbat et créait</b> une grande quantité de <b>fumée,</b> <b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

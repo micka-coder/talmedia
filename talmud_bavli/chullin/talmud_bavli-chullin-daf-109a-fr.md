@@ -27,4 +27,4 @@ Ravina répondit : <b>Quel est ce</b> raisonnement ? <b>Accordé, si tu dis que 
 <strong>MISHNA :</strong> Celui qui veut manger <b>le pis</b> d'un animal abattu <b>le déchire et en retire le lait,</b> et c'est seulement alors qu'il est permis de le cuire. Si <b>il n'a pas déchiré</b> le pis avant de le cuire, <b>il ne viole pas</b> l'interdiction de cuire et de manger de la viande et du lait et ne reçoit pas de coups de fouet <b>pour cela,</b> car le statut halakhique du lait du pis n'est pas celui du lait. Celui qui veut manger <b>le cœur</b> d'un animal abattu <b>le déchire et en retire le sang,</b> et seulement alors il peut le cuisiner et le manger. Si <b>il n'a pas déchiré</b> le cœur avant de le cuire et de le manger, <b>il ne viole pas</b> l'interdiction de consommer du sang et n'est pas susceptible de recevoir <i>karet</i> <b>pour cela.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

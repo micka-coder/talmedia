@@ -48,4 +48,4 @@ La Guemara ajoute qu'il <b>a également été déclaré : Rabbi Ḥiyya bar Abba
 <b>Rava dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

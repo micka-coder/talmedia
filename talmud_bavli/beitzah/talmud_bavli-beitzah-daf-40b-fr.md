@@ -9,4 +9,4 @@ La Guemara suggère plusieurs résolutions : <b>Si vous le souhaitez, dites</b> 
 <b>Et si vous le souhaitez, dites</b> une réponse différente : Lui-même, comme Rabbi Shimon, n'a pas accepté le concept de <i>muktze</i>, et lorsqu'il a parlé dans la <i>baraita</i> <b>il parlait,</b> pour le bien de l'argumentation, <b>conformément aux paroles</b> des <b>Rabbis</b> qui avaient parlé avant lui, leur disant, en effet : <b>Selon mon</b> avis, <b>il n'y a pas</b> <i>halakha</i> de <b><i>muktze</i></b> du tout, conformément à l'avis de Rabbi Shimon, et tous les animaux peuvent être abattus lors de la Fête. <b>Mais</b> même <b>selon votre approche,</b> qu'il y a une <i>halakha</i> de <i>muktze</i>, <b>convenez avec moi, en tout cas,</b> qu'en ce qui concerne un cas <b>où ils sortent et paissent à Pessah et rentrent à nouveau à la première pluie, ils sont</b> considérés comme des <b>animaux domestiques</b> et doivent être autorisés. <b>Mais les sages lui ont dit : Non,</b> même ceux-là <b>sont des animaux du désert.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

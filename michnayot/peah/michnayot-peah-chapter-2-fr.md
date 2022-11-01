@@ -24,4 +24,4 @@ Si un champ a été récolté par des non-Juifs, récolté par des voleurs, mâc
 Si les voleurs ont récolté la moitié et que [ensuite] il [le propriétaire] a récolté la moitié, il donne la Peah sur ce qu'il a récolté. S'il a récolté la moitié et vend [l'autre] moitié, l'acheteur donne du peah pour tout [le champ]. S'il a récolté la moitié et dédié [l'autre] moitié [pour l'usage du Temple], celui qui la rachète au trésorier donne du peah pour tout [le champ].
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

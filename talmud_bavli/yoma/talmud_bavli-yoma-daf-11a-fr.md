@@ -42,4 +42,4 @@ La Gemara conteste cette interprétation : <b>Si oui,</b> que faire usage dans c
 La Gemara demande : <b>Et selon Rav Yehuda,</b> dans les cas où l'utilisation du bâtiment est <b>standard,</b> est-ce que <b>tout le monde est d'accord</b> qu'un entrepôt <b>est exempté</b> de la mitsva de <i>mezuza</i> ? <b>Mais n'a-t-on pas enseigné</b> dans une <i>baraita</i> qu'il est écrit à propos de la mitsva d'apposer une <i>mezuza</i> : <b>Et sur vos portes,</b> ce qui signifie qu'en ce qui concerne <b>les portes des maisons, les portes des cours, les portes des villes, les portes des cités, une grange, des poulaillers, un entrepôt de foin, des entrepôts de vin, des entrepôts d'huile, tous</b> sont <b>obligés</b> dans la mitzva de <i>mezuza</i> ? J'ai <b>pourrais</b> penser <b>que j'inclus</b> dans l'obligation de <i>mezuza</i> <b>même</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

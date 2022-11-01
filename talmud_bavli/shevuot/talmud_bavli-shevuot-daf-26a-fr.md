@@ -90,4 +90,4 @@ La Gemara présente <b>une autre formulation</b> de cette affirmation. <b>Abaye 
 <b>Rava a demandé à Rav Naḥman :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

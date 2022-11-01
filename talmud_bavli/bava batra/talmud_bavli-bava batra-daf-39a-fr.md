@@ -24,4 +24,4 @@ La Gemara demande : <b>Du fait</b> que <b>Rava a soulevé une objection à Rav N
 La Gemara suggère : <b>Devons-nous dire qu'ils sont en désaccord par rapport</b> à la <i>halakha</i> <b>de Rabba bar Rav Huna ? Comme le dit Rabba bar Rav Huna : Toute question qui est dite en présence de trois</b> personnes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -79,4 +79,4 @@
 <b>Pendant de nombreux jours</b> La prophétie ne s'accomplira qu'après un long moment.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

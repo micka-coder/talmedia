@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais</b> si c'est le cas, <b>Que vient nous apprendre <b>
 § La Guemara propose une résolution alternative : <b>Venez</b> et <b>entendez, comme l'a dit Rabbi Yoḥanan ben Nuri : Comment doit-on</b> agir à l'égard de <b>cette <i>halakha</i></b> d'épouses rivales ? Sous quelle forme doit-elle <b>se généraliser au sein du peuple juif ?</b> Si <b>nous agissons conformément à la déclaration du Beit Shammai</b> et autorisons une épouse rivale dans le mariage lévirat, <b>la progéniture</b> sera <b>un <i>mamzer</i> selon la déclaration du Beit Hillel. </b> Si <b>on agit conformément à la déclaration de Beit Hillel</b> et qu'on accorde une exemption totale aux épouses rivales, <b>la progéniture</b> sera de <b>lignée défectueuse</b> <b>selon</b> l'opinion de <b>Beit Shammai,</b> car il est l'enfant d'une femme interdite en mariage par une interdiction régulière. Bien qu'il ne soit pas un <i>mamzer</i>, son lignage est néanmoins défectueux. Au lieu de cela, <b>promulguons</b> un décret général <b>pour les épouses rivales</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

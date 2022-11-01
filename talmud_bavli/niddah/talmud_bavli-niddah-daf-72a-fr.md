@@ -54,4 +54,4 @@ Le <i>baraita</i> continue : <b>Beit Shammai a dit à Beit Hillel : Quelle est l
 Abaye poursuit : <b>Et en outre, nous avons appris</b> dans une mishna (<i>Zavim</i> 1:1) : Si un homme <b>observe une seule fois la <i>ziva</i></b> (voir 35b), <b>Beit Shammai disent :</b> Son statut le jour suivant est <b>comme</b> celui d'une <b>femme qui observe</b> un <b>jour de propreté pour un jour</b> où elle éprouve un écoulement. En d'autres termes, il doit s'immerger et observer ce jour-là dans la pureté, et s'il touche les dîmes, leur statut est suspendu, car s'il voit une autre décharge ce jour-là, elles sont rétroactivement impures. <b>Et Beit Hillel disent :</b> Son statut est <b>comme</b> celui d'un homme <b>qui fait l'expérience d'une émission séminale,</b> qui est purifié par son immersion, et donc toutes les dîmes que cet homme touche le deuxième jour restent pures même s'il fait l'expérience plus tard d'une seconde décharge.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

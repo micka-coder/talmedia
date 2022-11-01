@@ -39,4 +39,4 @@ La Gemara demande : <b>Nous avons trouvé</b> une source pour le fait que lorsqu
 § Après avoir constaté les distinctions halakhiques entre les opinions de Rabbi Yoḥanan et de Rabbi Ḥanina en ce qui concerne l'inauguration, la Guemara procède à l'analyse des justifications de ces opinions. <b>Quel est le motif</b> de l'avis <b>de celui qui a dit :</b> Le fait de ne pas accomplir <b>tous</b> les détails <b>qui sont écrits à son</b> égard <b>invalide</b> l'inauguration ? <b>Rabbi Yitzḥak bar Bisna dit</b> que <b>le verset dit : "Et tu feras ainsi à Aaron et à ses fils</b> selon tout ce que je t'ai ordonné, tu les consacreras pendant sept jours" (Exode 29:35). L'expression : <b>Ainsi,</b> enseigne que le fait de ne pas accomplir le rituel précisément de cette manière <b>invalide</b> l'inauguration. La Guemara demande : Cela fonctionne <b>bien</b> comme une source que <b>tous</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

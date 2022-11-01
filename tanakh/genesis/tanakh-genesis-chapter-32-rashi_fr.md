@@ -114,5 +114,5 @@
 ### passuk 33
 <b>Le tendon déplacé.</b> Pourquoi l'appelle-t-on le גִיד הַנָּשֶׁה ? Parce qu'il a été disloqué et déplacé vers le haut. Il [le mot נָשֶׁה] signifie jaillissement. Ainsi, aussi, "Leur force a jailli", aussi, "Car Dieu a fait jaillir toutes mes souffrances". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

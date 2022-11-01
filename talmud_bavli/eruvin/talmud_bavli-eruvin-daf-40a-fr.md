@@ -51,4 +51,4 @@ La Gemara demande : <b>Au contraire, sur quoi</b> porte le désaccord, sur la n�
 La Guemara <b>souleve une objection</b> basée sur la <i>Tosefta</i> qui stipule que dans le cas de <b>Rosh HaShana qui a lieu le Chabbat, Beit Shammai dit : On prie</b> une <i>Amida</i> qui contient <b>dix</b> bénédictions, dont les neuf bénédictions habituellement récitées à Rosh HaShana et une bénédiction supplémentaire dans laquelle Shabbat est mentionné. <b>Et Beit Hillel dit : On prie</b> une <i>Amida</i> qui contient <b>neuf</b> bénédictions, car Chabbat et la Fête sont mentionnés dans la même bénédiction. <b>Et s'il existait</b> une opinion selon laquelle la Nouvelle Lune doit être mentionnée séparément dans la prière de Rosh HaShana, alors <b>elle devrait</b> dire que selon <b>Beit Shammai,</b> on doit réciter <b>onze</b> bénédictions, c'est-à-dire neuf pour Rosh HaShana, une pour Chabbat et une pour la Nouvelle Lune.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -119,4 +119,4 @@
 <b>étaient [désignés] sur la porte</b> comme "pour les sentinelles de la porte" ; et la quarantième année du règne de la maison de David, on en fit les chefs des chanteurs, comme il est écrit (ci-dessous 25, 3) : "De Jeduthun : les fils de Jeduthun, etc., six à côté, etc., qui prophétisaient par les actions de grâces et les louanges au Seigneur."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

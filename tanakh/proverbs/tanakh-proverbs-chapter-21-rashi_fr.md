@@ -93,4 +93,4 @@
 <b>Il n'y a ni sagesse, etc.</b> Aucun homme sage ou intelligent n'a d'importance contre le Seigneur. Partout où il y a une profanation du Nom, nous n'avons pas d'égard pour un maître.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

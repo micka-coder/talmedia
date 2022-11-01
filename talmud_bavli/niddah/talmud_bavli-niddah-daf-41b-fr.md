@@ -63,4 +63,4 @@ La Gemara demande : <b>Est-ce à dire que</b> dans le cas d'une femme qui <b>se 
 La Gemara répond : <b>Il s'agit ici</b> d'un cas <b>où d'autres <b>immersions</b> la femme alors qu'elle était encore <b>au lit,</b> et qu'elle y est restée. Si elle reste allongée, il est possible qu'elle n'évacue pas de sperme suite à un rapport sexuel, et l'immersion après le rapport la purifie. La Gemara demande : <b>Par déduction,</b> on peut conclure <b>que lorsque Rava a dit</b> qu'une femme est dans un état d'impureté constant pendant trois jours après le rapport sexuel, il faisait référence à un cas <b>où elle a marché</b> jusqu'au bain rituel <b>à pied et s'est immergée</b>. Mais si c'est le cas, <b>peut-être que pendant qu'elle marchait, elle a libéré</b> tout le sperme dans son corps avant même que les trois jours ne soient terminés, et donc ne deviendra pas impure par la suite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

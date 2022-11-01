@@ -29,5 +29,5 @@ Une boîte dont l'ouverture est sur le côté est susceptible d'être souillée 
 ### michna 10
 Un panier à fumier qui a été tellement endommagé qu'il ne peut pas contenir de grenades : Rabbi Meir dit qu'il est toujours susceptible d'être impur, mais les sages disent qu'il est propre car si la fonction primaire cesse, la fonction secondaire cesse également.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

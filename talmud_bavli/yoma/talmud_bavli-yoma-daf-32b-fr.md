@@ -42,4 +42,4 @@ La Guemara demande : <b>Et Rabbi Yehouda,</b> qui dérive l'immersion avant de r
 La Guemara demande : Comment est-il possible que l'on <b>puisse</b> penser que si l'autre prêtre <b>n'a pas achevé</b> de couper les deux organes, l'abattage <b>serait invalide ? Si</b> c'est <b>ainsi,</b> l'achèvement de l'abattage <b>est</b> un <b>service</b> du Temple effectué par <b>un autre</b> à Yom Kippour. <b>Et cela a été enseigné</b> dans une <i>baraita</i> : <b>Tous les services de Yom Kippour ne sont valables que</b> s'ils sont accomplis <b>par</b> le Grand Prêtre. La Guemara répond que <b>C'est ce que</b> Reish Lakish <b>dit :</b> Il est clair que la loi de la Torah n'impose pas d'achever l'abattage des deux organes. On <b>pourrait</b> penser que <b>ce serait invalide par la loi rabbinique;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,7 +48,7 @@ La mishna poursuit : Si le dépositaire <b>a prêté serment et n'a pas voulu pa
 La Gemara explique la dispute : <b>Abaye déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la première clause,</b> et <b>Rava déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la dernière clause. Abaye l'a déduit</b> <b>de la formulation de <b>la première clause, car elle enseigne :</b> Si le dépositaire <b>a payé</b> le propriétaire <b>et n'a pas souhaité prêter serment,</b> le voleur paie le double, le quadruple ou le quintuple au dépositaire. Abaye déduit d'ici que la raison pour laquelle le voleur paie le dépositaire est spécifiquement <b>que</b> il <b>ne souhaite pas prêter serment,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et des témoins viennent</b> et témoignent <b>en ce qui concerne</b> sa <b>première</b> affirmation qu'au moment où il a prêté serment que le dépôt avait été volé, il était en réalité en sa possession ; <b>et il admet en ce qui concerne</b> sa <b>seconde</b> affirmation qu'il s'agissait d'un mensonge et qu'il n'avait pas été réellement perdu, <b>quelle est la <i>halakha</b> : est-il obligé de payer le versement supplémentaire d'un cinquième ?
 
@@ -98,7 +98,7 @@ La mishna poursuit : Si le dépositaire <b>a prêté serment et n'a pas voulu pa
 La Gemara explique la dispute : <b>Abaye déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la première clause,</b> et <b>Rava déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la dernière clause. Abaye l'a déduit</b> <b>de la formulation de <b>la première clause, car elle enseigne :</b> Si le dépositaire <b>a payé</b> le propriétaire <b>et n'a pas souhaité prêter serment,</b> le voleur paie le double, le quadruple ou le quintuple au dépositaire. Abaye déduit d'ici que la raison pour laquelle le voleur paie le dépositaire est spécifiquement <b>que</b> il <b>ne souhaite pas prêter serment,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et des témoins viennent</b> et témoignent <b>en ce qui concerne</b> sa <b>première</b> affirmation qu'au moment où il a prêté serment que le dépôt avait été volé, il était en réalité en sa possession ; <b>et il admet en ce qui concerne</b> sa <b>seconde</b> affirmation qu'il s'agissait d'un mensonge et qu'il n'avait pas été réellement perdu, <b>quelle est la <i>halakha</b> : est-il obligé de payer le versement supplémentaire d'un cinquième ?
 
@@ -148,4 +148,4 @@ La mishna poursuit : Si le dépositaire <b>a prêté serment et n'a pas voulu pa
 La Gemara explique la dispute : <b>Abaye déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la première clause,</b> et <b>Rava déduit</b> la <i>halakha</i> <b>à partir</b> de la formulation de <b>la dernière clause. Abaye l'a déduit</b> <b>de la formulation de <b>la première clause, car elle enseigne :</b> Si le dépositaire <b>a payé</b> le propriétaire <b>et n'a pas souhaité prêter serment,</b> le voleur paie le double, le quadruple ou le quintuple au dépositaire. Abaye déduit d'ici que la raison pour laquelle le voleur paie le dépositaire est spécifiquement <b>que</b> il <b>ne souhaite pas prêter serment,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

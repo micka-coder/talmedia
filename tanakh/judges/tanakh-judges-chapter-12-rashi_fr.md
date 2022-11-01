@@ -22,4 +22,4 @@
 <b>Ivtzan.</b> Boaz.<sup>2</sup><i class="footnote">Le mari de Rus, ancêtre du roi David. (Bava Batra, 91:a)</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

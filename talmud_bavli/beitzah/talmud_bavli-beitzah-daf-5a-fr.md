@@ -30,4 +30,4 @@ La Gemara demande : <b>Et selon</b> l'avis de <b>Rav et Shmuel,</b> n'est-il pas
 <b>Et il fut</b> encore <b>enseigné</b> dans une <i>baraita</i> : <b>Rabbi Eliezer</b> ben Hyrcanus, élève de Rabban Yoḥan ben Zakkai, <b>avait une vigne de quatrième année</b> située entre Lod et Jérusalem, <b>à l'est</b> de <b>Lod le long du village de Tavi.</b> La vigne se trouvait dans les environs de Jérusalem pour les besoins de cette <i>halakha</i>. Rabbi Eliezer ne pouvait pas apporter le fruit au Temple, car il avait été détruit,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

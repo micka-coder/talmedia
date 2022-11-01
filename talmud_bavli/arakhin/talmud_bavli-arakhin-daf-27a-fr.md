@@ -15,4 +15,4 @@ La Gemara répond : <b>Et selon votre raisonnement,</b> on peut pareillement se 
 <b>Et</b> de même, <b>depuis</b> le <i>tanna</i> <b>enseignant</b> dans la <b>première</b> mishna que les Israélites <b>ne peuvent ni consacrer</b> leurs champs moins de deux ans avant le Jubilé <b>ni les racheter</b> moins d'un an après le Jubilé, le <i>tanna</i> <b>a également enseigné</b> dans la <b>dernière</b> mishna que les prêtres et les lévites <b>peuvent</b> toujours <b>consacrer et racheter</b> leurs champs, malgré le fait qu'il n'y a pas non plus de nouveauté en ce qui concerne la consécration dans cette déclaration, puisque les Israélites peuvent également consacrer leurs champs aussi bien après le Jubilé qu'avant le Jubilé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

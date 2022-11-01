@@ -78,4 +78,4 @@ La Guemara demande : <b>Qu'est-ce qui est différent</b> des phylactères <b>de 
 La Guemara répond : Les Sages ont enseigné : Les cheveux du Grand Prêtre étaient visibles entre le plastron et la mitre. Le plastron était placé sur le front, sous la ligne des cheveux, tandis que la mitre était placée au-dessus ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

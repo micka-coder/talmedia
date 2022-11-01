@@ -63,4 +63,4 @@ La Guemara commente : <b>Cette</b> <i>halakha</b> <b>est également enseignée</
 <b>Et</b> Rabbi Meïr et les rabbins <b>sont d'accord pour dire qu'on ne peut pas apporter</b> une pièce de tissu, <b>même</b> si elle a la taille d'une <b>coudée carrée</b>, <b>venant d'ailleurs, contenant</b> des ficelles blanches et <b>bleues ciel</b>, <b>et l'attacher</b> à</b> un manteau. En effet, on doit attacher les franges rituelles directement au coin du vêtement, plutôt que de les attacher à un morceau de tissu et d'attacher ensuite ce tissu au vêtement. <b>Et</b> Rabbi Meir et les rabbins sont également <b>d'accord pour dire que l'on peut apporter</b> des cordes blanches ou <b>bleues ciel</b> <b>d'ailleurs et les attacher</b> <b>au</b> vêtement, c'est-à-dire que l'on peut retirer des cordes d'un vêtement pour les attacher à un autre vêtement.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

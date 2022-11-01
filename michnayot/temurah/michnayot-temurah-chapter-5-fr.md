@@ -17,5 +17,5 @@ Si l'on dit :] "Voici [l'animal] qui est tahat [à la place de] ceci", [ou] "Voi
 ### michna 6
 Si l'on dit :] "Voici, cet animal sera à la place d'une hatat", [ou] "à la place d'une olah", on n'a rien dit. Mais s'il dit :] "A la place de cette hatat" [ou] "A la place de cette olah" [ou] "A la place de la hatat ou de la olah que j'ai dans la maison", et qu'il l'avait dans la maison, ses paroles restent valables. S'il dit à propos d'un animal impur ou d'un animal souillé : "Voici ce qui sera une olah", il n'a rien dit. Mais s'il dit :] "Voici, ils seront pour une olah", ils sont vendus et il apporte avec leur argent une olah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -81,7 +81,7 @@ La Gemara répond : <b>Interprétez</b> cela comme se référant uniquement <b>�
 La Guemara <b>souleve une objection</b> à la déclaration de Rabba bar Avuh à partir d'une <i>baraita</i> : Si quelqu'un dit à un autre : <b>Je te vends une maison</b> parmi <b>mes maisons, et</b> une des maisons est ensuite <b>tombée, il peut lui montrer</b> la maison <b>tombée</b>, et lui dire : C'est celle que je t'ai vendue. De même, si l'un dit à un autre : <b>Je te vends un esclave</b> parmi <b>mes esclaves, et</b> un des esclaves <b>mort, il peut lui montrer</b> l'esclave <b>mort</b> et lui dire : C'est l'esclave que je t'ai vendu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>GEMARA:</strong> La mishna enseigne que si l'on fait le vœu d'apporter un certain taureau comme holocauste et qu'il est devenu taché, il peut apporter deux taureaux avec son argent de rachat. La Guemara demande : <b>Mais n'avez-vous pas dit dans la première clause,</b> c'est-à-dire dans la mishna précédente (107b), que si l'on dit : Il m'incombe d'apporter <b>un taureau d'une valeur</b> de <b>cent dinars</b> comme holocauste ou offrande de paix, <b>et qu'il a apporté deux</b> taureaux <b>avec</b> une valeur combinée de <b>cent dinars,</b> il <b>n'a pas rempli</b> son obligation ? Si oui, pourquoi la mishna enseigne-t-elle ici que l'on peut apporter deux taureaux avec l'argent du rachat d'un seul taureau ?
 
@@ -164,7 +164,7 @@ La Gemara répond : <b>Interprétez</b> cela comme se référant uniquement <b>�
 La Guemara <b>souleve une objection</b> à la déclaration de Rabba bar Avuh à partir d'une <i>baraita</i> : Si quelqu'un dit à un autre : <b>Je te vends une maison</b> parmi <b>mes maisons, et</b> une des maisons est ensuite <b>tombée, il peut lui montrer</b> la maison <b>tombée</b>, et lui dire : C'est celle que je t'ai vendue. De même, si l'un dit à un autre : <b>Je te vends un esclave</b> parmi <b>mes esclaves, et</b> un des esclaves <b>mort, il peut lui montrer</b> l'esclave <b>mort</b> et lui dire : C'est l'esclave que je t'ai vendu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>GEMARA:</strong> La mishna enseigne que si l'on fait le vœu d'apporter un certain taureau comme holocauste et qu'il est devenu taché, il peut apporter deux taureaux avec son argent de rachat. La Guemara demande : <b>Mais n'avez-vous pas dit dans la première clause,</b> c'est-à-dire dans la mishna précédente (107b), que si l'on dit : Il m'incombe d'apporter <b>un taureau d'une valeur</b> de <b>cent dinars</b> comme holocauste ou offrande de paix, <b>et qu'il a apporté deux</b> taureaux <b>avec</b> une valeur combinée de <b>cent dinars,</b> il <b>n'a pas rempli</b> son obligation ? Si oui, pourquoi la mishna enseigne-t-elle ici que l'on peut apporter deux taureaux avec l'argent du rachat d'un seul taureau ?
 
@@ -247,4 +247,4 @@ La Gemara répond : <b>Interprétez</b> cela comme se référant uniquement <b>�
 La Guemara <b>souleve une objection</b> à la déclaration de Rabba bar Avuh à partir d'une <i>baraita</i> : Si quelqu'un dit à un autre : <b>Je te vends une maison</b> parmi <b>mes maisons, et</b> une des maisons est ensuite <b>tombée, il peut lui montrer</b> la maison <b>tombée</b>, et lui dire : C'est celle que je t'ai vendue. De même, si l'un dit à un autre : <b>Je te vends un esclave</b> parmi <b>mes esclaves, et</b> un des esclaves <b>mort, il peut lui montrer</b> l'esclave <b>mort</b> et lui dire : C'est l'esclave que je t'ai vendu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

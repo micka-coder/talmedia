@@ -42,4 +42,4 @@ La Guemara conteste cette réponse : <b>Ceux-là</b> qui se tenaient à sa gauch
 La Gemara <b>souleve une objection</b> basée sur la <i>baraita</i> suivante : <b>Celui qui conclut par</b> une lecture des <b>Prophètes ne peut</b> lire <b>moins de vingt et un versets, correspondant aux sept qui lisent de la Torah.</b> Chacun de ceux qui lisent de la Torah doit lire au moins trois versets, pour un total d'au moins vingt et un versets. <b>Et s'il est vrai,</b> que celui qui lit la <i>haftara</i> ne compte pas dans le quorum des sept lecteurs, et qu'il est un huitième lecteur, le nombre minimum de versets qui doivent être lus de la Torah <b>est de vingt-quatre</b> et non de vingt et un. La Guemara répond : <b>Puisque</b> celui qui lit la <i>haftara</i> lit d'abord de la Torah uniquement <b>en raison du respect de la Torah,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

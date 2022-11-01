@@ -48,4 +48,4 @@ Ces deux <i>baraitot</i> citent des réponses différentes que Rabbi Eliezer a d
 La Guemara explique le raisonnement derrière les deux opinions : <b>Rav Kahana dit au nom de Rava</b> que <b>d'abord il lui a dit</b> l'explication impliquant l'<b>intention du bœuf,</b> car cet avis est préférable à l'autre, contre lequel une difficulté a été soulevée précédemment. Ceci est <b>analogue à un pêcheur qui tire des poissons de la mer.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

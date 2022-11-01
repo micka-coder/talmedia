@@ -51,4 +51,4 @@ Cette question est difficile : <b>Rabbi Shimon n'accepte-t-il pas</b> <b>ce que 
 <strong>MISHNA :</strong> <b>Une personne en deuil aigu,</b> c'est-à-dire une personne en deuil le jour du décès d'un proche parent, a l'interdiction de manger des aliments sacrificiels. Selon la loi de la Torah, l'interdiction ne s'applique qu'au jour du décès lui-même, mais il est permis de prendre de la nourriture sacrificielle la nuit suivante. Par décret rabbinique, la période de deuil aigu est étendue pour inclure également la nuit. Malgré cela, un endeuillé aigu <b>s'immerge et mange son agneau pascal le soir. Mais</b> il peut toujours <b>ne pas</b> manger d'autres <b>aliments sacrificiels.</b> Cependant, <b>celui qui apprend</b> le décès de <b>son mort,</b> c'est-à-dire qu'il découvre qu'un de ses proches parents est décédé plus de trente jours après le décès, son statut de deuil aigu s'applique au niveau rabbinique.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Nous avons appris dans la mishna : <b>Et si</b> la jambe de bois <b>a un récept
 <b>Et</b> comment <b>Rava</b> répond-il à cette preuve ? Il dit qu'il y a une distinction entre les cas : <b>Il y a,</b> dans le cas d'une canne utilisée par les personnes âgées,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

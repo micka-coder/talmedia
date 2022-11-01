@@ -57,4 +57,4 @@ La Gemara répond : <b>Là,</b> dans le cas des nouveau-nés non viables, <b>pui
 La Guemara relate qu'un jour <b>Rabbi Elazar n'est pas entré dans la salle d'étude.</b> Rabbi Elazar a alors <b>trouvé Rabbi Asi,</b> et lui a <b>dit : Qu'ont dit les Sages</b> dans <b>la salle d'étude ?</b> Rabbi Asi <b>lui a répondu :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

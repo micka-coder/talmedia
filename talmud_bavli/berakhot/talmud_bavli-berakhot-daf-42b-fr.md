@@ -42,4 +42,4 @@ Sur une note similaire, la Gemara relate : <b>Lorsque Rav est mort, ses eleves s
 <b>Rav Adda bar Ahava s'est tenu debout,</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,5 +72,5 @@
 ### passuk 23
 <b>Car un cadavre pendu est un affront à Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est un affront au roi, car l'homme est façonné à Son image, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et les Israélites sont Ses enfants. Ceci est comparé à des frères jumeaux qui étaient identiques l'un à l'autre. L'un devint roi, l'autre fut appréhendé comme voleur et pendu. Tous ceux qui le voyaient s'exclamaient : "Le roi a été pendu !". [Le roi a donné un ordre, et il a été pendu] קְלָלָה dans toute l'Écriture connote l'affront et l'insulte, comme dans : "Il m'a insulté explicitement." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

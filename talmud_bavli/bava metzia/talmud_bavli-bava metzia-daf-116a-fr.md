@@ -24,7 +24,7 @@ La Guemara répond qu'il y a une différence entre les deux cas : <b>Là,</b> un
 La Gemara demande : <b>Et Rava n'accepte pas ce raisonnement ? Mais Rava</b> lui-même n'a-t-il pas <b>enlevé des ciseaux</b> utilisés <b>pour la laine et un rouleau de <i>aggada</i> de</b> la possession des <b>orphelins en tant qu'objets habituellement prêtés</b> <b>ou loués ?</b> La Gemara répond : <b>Rava</b> aurait pu <b>vous dire :</b> En ce qui concerne <b>ce couteau d'abattage</b> <b>aussi, comme</b> il est susceptible d'être <b>endommagé, les gens sont particuliers et ne le prêtent pas</b>. Il n'est donc pas considéré comme un objet que l'on prête habituellement, et celui qui le possède peut réclamer l'argent qui lui est dû à hauteur de la valeur du couteau.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>est superflu</b> et comprend donc également d'autres ustensiles. <b>Puisqu'elle est superflue, appliquez-la</b> comme une autre interdiction <b>sur les meules inférieure et supérieure.</b>
 
@@ -50,4 +50,4 @@ La Guemara répond qu'il y a une différence entre les deux cas : <b>Là,</b> un
 La Gemara demande : <b>Et Rava n'accepte pas ce raisonnement ? Mais Rava</b> lui-même n'a-t-il pas <b>enlevé des ciseaux</b> utilisés <b>pour la laine et un rouleau de <i>aggada</i> de</b> la possession des <b>orphelins en tant qu'objets habituellement prêtés</b> <b>ou loués ?</b> La Gemara répond : <b>Rava</b> aurait pu <b>vous dire :</b> En ce qui concerne <b>ce couteau d'abattage</b> <b>aussi, comme</b> il est susceptible d'être <b>endommagé, les gens sont particuliers et ne le prêtent pas</b>. Il n'est donc pas considéré comme un objet que l'on prête habituellement, et celui qui le possède peut réclamer l'argent qui lui est dû à hauteur de la valeur du couteau.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

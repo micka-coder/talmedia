@@ -33,4 +33,4 @@ La Guemara répond : Le niveau de pureté requis pour les aliments non sacrés q
 <strong>MISHNA :</strong> <b>Rabbi Eliezer dit :</b> Contrairement aux femmes à l'égard desquelles il a été enseigné qu'elles transmettent l'impureté rétroactivement, il y a <b>quatre femmes</b> qui discernent le sang menstruel et <b>leur temps est suffisant,</b> c'est-à-dire qu'elles ne transmettent l'impureté qu'à partir du moment où elles ont vu le sang : <b>Une vierge, une femme enceinte, une femme qui allaite et une femme âgée. Rabbi Yehoshua dit : J'ai entendu</b> cette <i>halakha</i> de mes maîtres <b>seulement</b> en ce qui concerne <b>une vierge,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

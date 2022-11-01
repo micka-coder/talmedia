@@ -54,4 +54,4 @@ La Guemara répond : <b>Ce</b> verset <b>est nécessaire pour</b> dériver <b>ce
 Le <i>baraita</i> poursuit : <b>Mais</b> pour dériver cette <i>halakha</i>, le verset est inutile, car <b>il n'est pas</b> seulement <b>logique ? </b> Si un <i>zav</i> qui a fait l'expérience de deux émissions <b>rend</b> une surface désignée pour <b>se coucher et</b> une surface désignée pour <b>s'asseoir rituellement impur</b> et que toutes les restrictions d'un <i>zav</i> s'appliquent à lui, <b>n'aurait-il pas besoin d'un compte de sept</b> jours purs pour se purifier ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

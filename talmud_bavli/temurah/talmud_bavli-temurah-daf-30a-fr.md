@@ -42,4 +42,4 @@ La Gemara répond : <b>Si c'est le cas, que le verset dise : Tu n'apporteras pas
 § La mishna enseigne en outre, en ce qui concerne les animaux donnés comme <b>paiement</b> à un autre pour avoir des rapports sexuels avec <b>un chien, ou</b> comme <b>prix d'une prostituée</b> pour l'acheter comme servante, que leur sacrifice <b>est permis. Rava de Parzakya a dit à Rav Ashi :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

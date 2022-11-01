@@ -30,4 +30,4 @@ La Gemara réfute cette preuve : <b>Peut-être</b> Rabbi Yosei <b>parlait-il aux
 La question reste donc posée : <b>Que</b> soutient Rabbi Yosei à cet égard ? <b>Rav Adda bar Ahava dit : Il peut annuler</b> ces vœux en tant qu'affaires entre lui et elle, alors que <b>Rav Huna dit : Il ne peut pas les annuler</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

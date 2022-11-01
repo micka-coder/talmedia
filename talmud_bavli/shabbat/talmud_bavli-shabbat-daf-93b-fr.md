@@ -24,4 +24,4 @@ Le <i>tanna</i> qui récitait des <i>mishnayot</i> dans la salle d'étude <b>ens
 <strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Quelqu'un qui exécute la mesure</b> qui détermine la responsabilité de transporter des <b>aliments dans un récipient</b> le Chabbat <b>est responsable</b> de transporter <b>l'aliment et exempté de</b> transporter <b>le récipient. Et si ce récipient lui était nécessaire</b> pour un autre usage, <b>il est responsable même pour</b> l'exécution du <b>récipient.</b> La Gemara s'interroge à propos de la deuxième <i>halakha</i> : Peut-on en <b>conclure</b> que celui qui <b>consomme deux olives de graisse interdite dans</b> le cours d'un <b>seul laps de conscience est tenu</b> d'apporter <b>deux</b> offrandes de péché ? Dans ce cas, celui qui transporte un récipient contenant de la nourriture a accompli deux actions qui relèvent d'un seul travail interdit. Pourquoi devrait-il être tenu d'apporter deux offrandes de péché ? <b>Rav Sheshet a dit : A quoi avons-nous affaire ici ? </b> Nous avons affaire à un cas <b>où</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

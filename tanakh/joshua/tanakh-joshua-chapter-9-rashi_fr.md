@@ -36,4 +36,4 @@
 <b>Et les hommes ont pris de leurs provisions.</b> Ils ont accepté leurs paroles. Ils les ont piégés avec leurs bouches,<sup>10</sup><i class="footnote">Les hommes de Israël se sont laissés prendre par leur ruse.</i> comme il est dit, "Mais s'il ne tendait pas une embuscade."<sup>11</sup><i class="footnote">Shemos 21:13.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

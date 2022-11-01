@@ -36,4 +36,4 @@ La Guemara en déduit : Ce n'est que si <b>elle est partie avant Pessah</b> qu'i
 La Gemara riposte : <b>Disons la dernière clause</b> de cette mishna, qui stipule que si elle se rend chez son père <b>après Pessah</b>, elle est <b>en</b> violation de : <b>Il ne doit pas profaner sa parole. Et si</b> la mishna fait référence à un cas <b>où elle n'a pas tiré de bénéfice</b> de lui <b>avant Pessah, y a-t-il</b> une transgression de : <b>Il ne profanera pas ?</b> Clairement, le vœu n'a pas été violé. <b>Au contraire,</b> il <b>est évident qu'elle a tiré un bénéfice</b> de lui avant Pessah, et donc si elle se rend chez son père entre Pessah et <i>Sukkot</i> elle viole le vœu rétroactivement. <b>Apparemment, elle peut tirer un bénéfice</b> de lui, même si elle peut ultérieurement violer le vœu en transgressant la condition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

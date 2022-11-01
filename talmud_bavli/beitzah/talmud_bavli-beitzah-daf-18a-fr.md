@@ -45,4 +45,4 @@ A propos de l'avis de Rabba' selon lequel il est interdit d'immerger un récipie
 La Guemara conteste cette explication : Cela fonctionne <b>bien</b> dans un cas où il s'immerge dans une <b>bonne,</b> <b>eau propre,</b> dans laquelle il serait agréable de se baigner ; mais s'il s'immerge dans une <b>mauvaise,</b> <b>eau trouble,</b> car l'eau d'un bain rituel n'est pas toujours suffisamment propre, <b>qu'y a-t-il à dire ? Rav Naḥman bar Yitzḥak a dit :</b> Même dans ce cas, ses actes ne prouvent pas que son intention est de se purifier, car <b>il arrive qu'une personne vienne</b> chez lui.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara suggère : <b>Disons</b> que la décision de Shmuel fait <b>l'objet</b
 La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles Rabbi Eliezer et Rabbi Akiva sont en désaccord ? <b>Si</b> c'est un cas <b>où</b> la garantie était <b>digne de la somme d'argent</b> qu'il lui a prêtée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -35,5 +35,5 @@ Deux hommes qui puisent de l'eau pour la hatat et l'un aide l'autre à la releve
 ### michna 12
 Celui qui a démoli une clôture [même] avec l'intention de la remonter, l'eau reste valide ; mais s'il a remonté une clôture, l'eau devient invalide. S'il a mangé des figues avec l'intention d'en sécher une partie, l'eau est valable ; mais s'il a mis à sécher des figues, l'eau n'est pas valable. S'il mangeait des figues et qu'il lui en restait, et qu'il a jeté ces dernières sous un figuier ou dans un surface de séchage, afin que [les figues] ne soient pas gaspillée, l'eau est invalide.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara riposte : <b>Non, tout le monde est d'avis</b> que la décision est c
 § <b>Les Sages ont enseigné</b> à propos du verset : "Et ce sera pour toi un signe sur <b>ton bras [<i>yadkha</i>]"</b> (Exode 13:9), que <b>cela</b> fait référence au bras <b>gauche</b>. <b>Vous dites</b> que cela signifie le bras <b>gauche</b>, <b>ou est-ce seulement</b> le bras <b>droit</b> ? <b>Le verset dit : "Même ma main [<i>yadi</i>] a posé les fondements de la terre, et ma main droite [<i>vimini</i>] a déployé les cieux"</b> (Isaïe 48:13). <b>Et</b> un autre verset <b>établit : "Sa main [<i>yadah</i>], elle l'a mise à l'épingle de la tente, et sa main droite [<i>viminah</i>] au marteau des ouvriers"</b> (Juges 5:26), <b>Et</b> un autre verset <b>dit : "Pourquoi retires-tu Ta main [<i>yadkha</i>], même Ta main droite [<i>viminekha</i>] ? Retire-la de Ton sein et consume-les"</b> (Psaumes 74, 11). Tous ces versets emploient le terme <i>yad</i> à propos de la main gauche, et utilisent le terme <i>yamin</i>, littéralement, droite, sans le terme <i>yad</i>, pour désigner la main droite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

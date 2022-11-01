@@ -97,5 +97,5 @@
 ### passuk 28
 <b>Au sommet de Pe'or.</b> Balak était un grand sorcier, et il vit qu'ils étaient destinés à être frappés par Pe'or, mais il ne savait pas de quelle manière. Il a dit : "Peut-être que la malédiction s'abattra sur eux à partir de là". <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>C'est similaire avec tous les observateurs d'étoiles - ils voient, mais ne savent pas ce qu'ils voient. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

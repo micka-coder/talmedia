@@ -60,4 +60,4 @@ La Guemara demande : <b>Et Rabbi Elazar a-t-il dit</b> que la <b>descendance</b>
 <b>Rava dit</b> une autre explication : <b>Rabbi Elazar dit</b> que la progéniture <b>elle-même est offerte</b> comme <b>un holocauste seulement</b> dans un cas <b>où il a désigné un animal femelle</b> <b>comme holocauste</b> et qu'il a donné naissance, <b>car il y a un statut d'holocauste</b> pour un oiseau qui est du même sexe que <b>sa mère.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

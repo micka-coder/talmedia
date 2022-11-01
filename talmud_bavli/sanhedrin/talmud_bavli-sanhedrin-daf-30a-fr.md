@@ -99,4 +99,4 @@ La Gemara développe : <b>Si tu veux, dis</b> qu'ils sont en désaccord en ce qu
 <b>Et si vous voulez, dites</b> qu'ils sont en désaccord en ce qui concerne l'interprétation d'un <b>verset : "S'il ne le prononce pas, alors il portera son iniquité"</b> (Lévitique 5:1),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara rejette cette preuve : <b>Disons qu'il a affaibli</b> l'animal <b>ave
 La Gemara commente : <b>Et du</b> fait <b>que Rav soutient</b> que <b>le détournement nécessite une perte,</b> on peut en déduire que <b>Levi soutient</b> que <b>le détournement ne nécessite pas de perte.</b> La Gemara demande : <b>Quelle est la raison</b> de l'opinion <b>de Lévi ? Rabbi Yoḥanan dit au nom de Rabbi Yosei ben Nehorai : Le détournement énoncé à l'égard d'un dépositaire payé est différent du détournement énoncé à l'égard d'un dépositaire non payé.</b> Il n'est pas nécessaire que la Torah énonce deux fois la <i>halakha</i> du détournement. Si un dépositaire non payé est tenu de payer pour détournement, à plus forte raison un dépositaire payé est tenu de payer. La raison pour laquelle la Torah a répété cette <i>halakha</i> est d'enseigner qu'un dépositaire payé est tenu de payer pour un détournement même s'il n'y a pas de perte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

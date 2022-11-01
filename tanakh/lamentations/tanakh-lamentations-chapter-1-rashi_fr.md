@@ -100,4 +100,4 @@
 <b>Et leur faire.</b> Et leur faire, comme dans, "[même un enfant] peut être reconnu à ses actes בְּמַעֲלָלָיו";<sup>68</sup><i class="footnote">Mishlei 20:11. </i> et [comme dans] "selon les fruits de ses actes מַעֲלָלָיו."<sup>69</sup><i class="footnote">Yirmiyahu 32:19. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara demande : <b>Si c'est le cas,</b> alors <b>même</b> si l'élément d
 La Gemara commente : <b>Et il est enseigné</b> dans une <i>baraita</i> : <b>Celui qui fait un vœu</b> en associant un objet <b>à un rouleau de Torah</b> <b>n'a rien dit,</b> c'est-à-dire que le vœu ne prend pas effet. <b>Et Rabbi Yoḥanan dit : Mais</b> néanmoins, <b>il a besoin</b> de faire <b>une demande à une autorité halakhique</b> pour la dissolution du vœu. <b>Et Rav Naḥman dit : Et</b> s'il est <b>un érudit de la Torah</b> il n'a <b>pas besoin</b> de faire <b>une demande.</b> La postulation de Rava, qui stipule qu'en ce qui concerne certains vœux qui ne prennent pas effet, il est nécessaire de faire une demande à une autorité halakhique seulement s'ils sont pris par un ignorant, peut être vue d'ici .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

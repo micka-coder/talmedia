@@ -48,7 +48,7 @@ La mishna poursuit : Dans le cas de <b>quelqu'un qui vole son père</b> et le p�
 Dans le cas de <b>celui qui dit à son fils</b> dans un vœu : Il est interdit <b>comme une offrande [<i>konam</i>],</b> et pour cette raison <b>tu ne peux pas tirer profit de mes biens, si</b> le père alors <b>décède</b> le fils <b>hérite</b> de <b>lui,</b> car ce n'est plus la propriété du père une fois qu'il est mort.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais</b> s'il a <b>prêté serment, même s'il</b> a ensuite <b>payé, à qui</b> le voleur <b>rémunère-t-il</b> le double paiement ? <b>Au propriétaire du dépôt.</b>
 
@@ -98,4 +98,4 @@ La mishna poursuit : Dans le cas de <b>quelqu'un qui vole son père</b> et le p�
 Dans le cas de <b>celui qui dit à son fils</b> dans un vœu : Il est interdit <b>comme une offrande [<i>konam</i>],</b> et pour cette raison <b>tu ne peux pas tirer profit de mes biens, si</b> le père alors <b>décède</b> le fils <b>hérite</b> de <b>lui,</b> car ce n'est plus la propriété du père une fois qu'il est mort.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

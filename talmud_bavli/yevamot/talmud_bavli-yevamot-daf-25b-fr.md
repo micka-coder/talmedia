@@ -42,4 +42,4 @@ Si tel est le cas, en <b>quelle</b> manière ce cas <b>est-il</b> différent de 
 <b>Les rabbins ont dit à Rav Ashi :</b> En ce qui concerne la <i>halakha</i> que tu as dite, à savoir que s'il l'a épousée, il n'a pas besoin de divorcer, était-ce basé sur la <b>tradition ou est-ce ta propre <b>conclusion</b> ? Il leur répondit : C'est la mishna.</b> Je suis arrivé à cette conclusion à partir de la formulation de la mishna, qui enseignait qu'une <b>personne soupçonnée</b> par d'autres d'avoir des relations sexuelles <b>avec</b> une <b>servante cananéenne et qu'elle</b> a été par la suite <b>libérée, ou avec une femme gentille et qu'elle</b> s'est par la suite <b>convertie ne peut pas épouser</b> cette femme. <b>Mais s'il l'a épousée, ils,</b> les juges du tribunal, <b>ne la retirent pas</b> à lui. <b>Apparemment,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

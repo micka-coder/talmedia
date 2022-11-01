@@ -18,4 +18,4 @@
 La Gemara demande : <b>Quelle</b> est la raison de la <i>halakha</i> dans le cas où on avait l'intention de l'utiliser <b>pour le tenir ?</b> Pourquoi ce tissu est-il classé comme un vêtement ? <b>Reish Lakish dit</b> que <b>Rabbi Yannai dit :</b> Il est considéré comme un vêtement <b>parce qu'il se tient</b> pour servir de protection aux mains <b>lors du tissage [<i>lenavla</i>],</b> afin que le tisserand ne se coupe pas les doigts en redressant les fils. Il <b>a été enseigné dans une <i>baraita</i> :</b> Il est considéré comme un vêtement <b>puisqu'il convient aux coupeurs de figues</b> de placer le tissu sur leurs mains, pour éviter qu'elles ne se salissent.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

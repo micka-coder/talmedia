@@ -12,4 +12,4 @@ doit être compris à la lumière du fait que <b>la question est embarrassante p
 La Guemara demande : <b>Et qu'il soulève</b> ce <b>dilemme</b> par rapport à <b>un court</b> terme de <b>nazirite,</b> alors qu'il resterait moins de trente jours s'il suspendait le premier terme de nazirite afin d'observer l'autre. La Guemara répond : <b>Il soulève un dilemme à la suite de l'autre.</b> En d'autres termes, la question de Rava était une excroissance d'une autre enquête, qui à son tour a conduit à sa question. La discussion complète est la suivante :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

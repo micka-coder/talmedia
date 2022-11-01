@@ -63,4 +63,4 @@
 <b>Pourquoi le Seigneur a-t-il fait</b> בַּמֶּה, comme (Deut. 29:23) : "Pourquoi (עַל מֶה) l'Éternel a-t-il agi ainsi ?" et c'est ainsi qu'il est écrit dans I Rois (9:9) .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

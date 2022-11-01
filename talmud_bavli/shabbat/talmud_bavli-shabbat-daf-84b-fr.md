@@ -15,4 +15,4 @@ Rabbi Ila <b>dit à</b> Rabbi Ḥanina : <b>Que le Tout Miséricordieux nous sau
 <strong>GEMARA:</strong> La Gemara s'interroge sur cette allusion : <b>D'où est-il déduit</b> que le verset fait référence à cinq types de graines ? <b>Rav Yehuda dit</b> qu'il est dérivé comme suit : <b>"Car comme la terre fait pousser sa végétation"</b> indique cinq types de graines car <b>"Fait pousser"</b> représente <b>une</b> et <b>"Sa végétation"</b> représente <b>une,</b> et <b>ceci</b> totalise <b>deux. "Ses graines"</b> écrites au pluriel, représentent au moins <b>deux,</b> et <b>ceci</b> totalise <b>quatre. "Cause to grow" est un</b> plus. Ce verset comprend des termes connotant la plantation et les graines dans un seul lit de jardin qui totalisent <b>cinq</b> espèces de graines.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

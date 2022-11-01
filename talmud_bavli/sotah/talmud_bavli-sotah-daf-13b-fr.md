@@ -81,4 +81,4 @@ Le verset décrivant l'enterrement de Moïse dit : <b>"Il l'enterra dans la vall
 La Gemara relate : <b>Et la méchante monarchie</b> de l'Empire romain <b>avait déjà envoyé</b> des messagers <b>à</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

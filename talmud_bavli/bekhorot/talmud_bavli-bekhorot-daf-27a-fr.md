@@ -33,4 +33,4 @@ La Gemara relate : <b>Rav Huna, fils de Rav Yehoshua, lorsqu'il lui arrivait</b>
 La Guemara relate que <b>Rav Naḥman, Rav Amram, et Rami bar Ḥama voyageaient dans un bac. Rav Amram est allé faire ses besoins. Une certaine femme se présenta devant</b> Rav Naḥman et Rami bar Ḥama et leur <b>dit : </b> Dans le cas de celui qui est <b>impur</b> par contact avec <b>un cadavre, quelle est</b> la <i>halakha</i> <b>en ce qui concerne</b> le fait de savoir si <b>il peut s'immerger</b> dans un bain rituel <b>et participer à un <i>teruma</i> provenant de l'extérieur d'Eretz</b> Yisraël ? <b>Rav Naḥman a dit à Rami bar Ḥama :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

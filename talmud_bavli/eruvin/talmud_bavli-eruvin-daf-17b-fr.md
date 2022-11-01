@@ -39,4 +39,4 @@ C'est plutôt <b>ceci</b> la <b>difficulté pour Rabbi Yonatan :</b> L'interdict
 <b>Rav Ashi a dit : Est-il écrit</b> dans la Torah : <b>Aucun</b> homme <b>ne doit transporter [<i>yotzi</i>],</b> indiquant une interdiction de transporter des objets d'un domaine à un autre le Chabbat ? <b>"Non</b> l'homme <b>sortira [<i>yetze</i>]</b> est écrit.</b> En effet, selon son sens clair, le verset traite exclusivement de l'interdiction de sortir des limites du Chabbat et non de l'interdiction de sortir. Tout le monde s'accorde à dire qu'il n'y a pas de peine de mort administrée par le tribunal dans le dépassement de la limite du Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

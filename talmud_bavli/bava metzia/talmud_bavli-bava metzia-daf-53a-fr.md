@@ -27,4 +27,4 @@ La Gemara demande : <b>Et qu'il apporte un <i>issar</i>,</b> d'une valeur de hui
 Il est enseigné dans le <i>baraita</i> : <b>Et qui est entré à Jérusalem et en est sorti.</b> La Gemara demande : <b>Et pourquoi</b> la question de la négation dans une majorité est-elle pertinente ? <b>Qu'il le ramène</b> à Jérusalem et qu'il y prenne part. La Guemara répond : La référence est à la seconde dîme <b>qui est devenue rituellement impure</b> en dehors de Jérusalem. La Gemara demande : <b>Mais</b> pourquoi ne pas <b>le laisser la racheter,</b> conformément à la déclaration de Rabbi Elazar ? <b>Comme le dit Rabbi Elazar : D'où</b> provient-il <b>en ce qui concerne le produit de second-tithe</b> <b>qui est devenu rituellement impur qu'on peut le racheter</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

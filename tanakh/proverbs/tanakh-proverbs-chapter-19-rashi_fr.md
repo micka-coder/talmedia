@@ -91,4 +91,4 @@
 <b>sont préparés pour les railleurs</b> Le Saint, béni soit-il, a préparé des châtiments de zaraath pour ce raleur qui calomnie.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

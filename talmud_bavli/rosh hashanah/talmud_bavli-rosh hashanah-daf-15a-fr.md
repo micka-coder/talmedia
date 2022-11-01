@@ -42,4 +42,4 @@ La Guemara répond : L'affaire <b>est</b> un différend entre <b><i>tanna'im</i>
 La Guemara soulève une question à propos de cette <i>baraita</i> : <b>Qui a parlé de l'année sabbatique ?</b> Le sujet de la discussion était les dîmes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

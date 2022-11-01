@@ -33,4 +33,4 @@ Rabbi Yoḥanan <b>lui dit : Mais n'enseigne-je pas</b> que même <b>un morceau<
 La Guemara demande : <b>Qu'est-ce que</b> cette <i>halakha</i> à laquelle Rabbi Yoḥanan fait allusion ? <b>Comme nous l'avons appris</b> dans une mishna (<i>Orla</i> 3:6-7) : Dans le cas de <b>ceux qui avaient des fagots de trèfle,</b> un type de légumineuse, <b>de</b> un mélange interdit de <b>cultures vivrières dans une vigne,</b> c'est-à-dire des plants de trèfle qui poussaient dans une vigne, ces fagots <b>doivent être brûlés,</b> car il est interdit de tirer un bénéfice d'un mélange interdit de cultures vivrières dans une vigne. Si les fagots interdits <b>se sont mêlés à d'autres</b> qui sont autorisés,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

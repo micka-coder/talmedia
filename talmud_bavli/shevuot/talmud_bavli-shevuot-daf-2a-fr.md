@@ -24,4 +24,4 @@ Pour les cas où l'on <b>n'avait pas conscience au début mais avait conscience 
 <b>Et pour</b> les cas dans <b>lesquels</b> on <b>n'a pas eu de conscience, ni au début ni à la fin,</b> les <b>chèvres</b> apportées comme offrandes pour le péché pour les offrandes supplémentaires <b>des Fêtes et</b> les <b>chèvres</b> apportées comme offrandes pour le péché pour les offrandes supplémentaires <b>des</b> <b>Nouvelles Lunes expient.</b> C'est <b>la déclaration de Rabbi Yehouda. Rabbi Shimon dit :</b> Les <b>chèvres des Fêtes expient</b> pour les cas où l'on n'a jamais eu conscience de la transgression, <b>mais</b> les <b>chèvres des</b> <b>Nouvelles Lunes</b> ne le font <b>pas. Mais</b> si c'est le cas, <b>pour quoi les <b>chèvres des</b> <b>Nouvelles Lunes</b> expient-elles ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

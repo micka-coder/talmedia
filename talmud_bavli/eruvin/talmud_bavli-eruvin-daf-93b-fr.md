@@ -42,4 +42,4 @@ La Gemara répond : <b>Oui, il en est effectivement ainsi;</b> c'est la <i>halak
 <b>Et Shmuel dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

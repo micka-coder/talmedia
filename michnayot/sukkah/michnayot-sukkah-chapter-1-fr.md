@@ -32,5 +32,5 @@ Si [le toit d'une] maison est ouvert, et qu'il a placé le skhakh par-dessus, s'
 ### michna 11
 Celui qui fait de sa souka une cabane en forme de cône ou qui l'appuie contre un mur : Rabbi Eliezer l'invalide car elle n'a pas de toit, mais les sages la déclarent valide. Une grande natte en roseau : si elle est faite pour s'allonger dessus, elle est susceptible d'être souillée [rituellement] et n'est pas valable comme skhakh. Si elle est faite pour un skhakh, elle peut être utilisée pour le skhakh et n'est pas susceptible d'être souillée. Rabbi Eliezer dit, qu'il soit petit ou grand : s'il a été fabriqué pour s'allonger dessus, il est susceptible d'être impur et est invalide en tant que skhakh ; s'il a été fabriqué pour être couvert, il est valide en tant que skhakh et n'est pas susceptible d'être impur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

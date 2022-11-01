@@ -36,4 +36,4 @@ En ce qui concerne les <b>frères associés</b> dans l'héritage de leur père, 
 <b>À qui appartient</b> l'opinion exprimée dans la mishna ? <b>Si</b> c'est l'avis des <b>Rabbins,</b> alors s'il n'y a pas plus que la mesure initiale d'eau qu'il a placée, il doit être exempt <b>même si elle a fermenté. Si</b> c'est l'avis de <b>Rabbi Yehuda,</b> il considère qu'on est obligé <b>même si cela n'a pas fermenté,</b> car le goût est son seul critère. <b>Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

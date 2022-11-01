@@ -33,4 +33,4 @@ La Guemara demande : <b>Cela marche bien selon celui qui dit</b> que <b>le</b> p
 <b>Par contre, puisque</b> le <i>tanna</i> <b>avait besoin d'enseigner</b> la <i>halakha</i> en ce qui concerne les cas de <b>paiement du double</b> du principal <b>et de paiement de quatre ou cinq</b> fois le principal, <b>qui</b> sont des cas d'<b>argent</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

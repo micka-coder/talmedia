@@ -42,4 +42,4 @@ La Guemara développe : <b>Les rabbins n'interprètent pas</b> les instances du 
 La Guemara tente de réfuter la déclaration de Rav Huna : <b>Venez</b> et <b>entendez</b> ce que <b>Rabbi Yitzḥak dit : Mais un <i>zav</i> n'était-il pas inclus dans</b> la catégorie de <b>ceux qui ont connu une émission séminale ? Pourquoi,</b> alors, <b>on l'a sorti</b> et discuté dans un passage séparé ? Afin <b>d'être indulgent avec lui et d'être rigoureux avec lui</b> par rapport aux <i>halakhot</i> de celui qui a expérimenté une émission séminale. Rabbi Yitzḥak développe : Le passage séparé sert <b>à être indulgent avec lui, car il n'est pas rendu impur par</b> une émission qui se produit <b>en raison de circonstances indépendantes</b> de son <b>contrôle,</b> contrairement à celui qui a subi une émission séminale. <b>Et</b> le passage séparé sert <b>à être rigoureux avec lui,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara demande : <b>Qu'est-ce qui est ajouté</b> par la décision de la mish
 La Guemara demande en outre : <b>Qu'est-ce qui est ajouté</b> par la déclaration de la mishna (<i>Ketubot</i> 110b) : <b>Chacun</b> peut forcer les autres <b>à monter en Eretz Yisrael,</b> c'est-à-dire que l'on peut contraindre sa famille et son ménage à immigrer en Eretz Yisrael ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

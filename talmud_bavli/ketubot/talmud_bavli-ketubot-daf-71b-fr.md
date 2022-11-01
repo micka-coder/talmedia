@@ -48,4 +48,4 @@ De même, concernant le verset <b>"Et ce jour-là, dit le Seigneur, vous m'appel
 § La mishna dit : <b>Celui qui fait un vœu</b> et oblige <b>sa femme</b> à ne pas se rendre dans une maison de deuil ou dans une maison de fête pour un mariage, doit divorcer d'elle et lui remettre le paiement de son contrat de mariage, car c'est comme s'il fermait une porte devant elle. La Guemara demande : <b>Accordé,</b> lorsqu'il lui interdit d'aller <b>dans une maison de fête,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

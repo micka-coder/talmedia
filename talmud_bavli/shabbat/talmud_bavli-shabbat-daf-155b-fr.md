@@ -48,4 +48,4 @@ La Gemara rejette cette idée : <b>Peut-être que Rabbi Yosei bar Yehuda a seule
 <b>Les Sages ont enseigné :</b> Le Chabbat, <b>on ne peut pas pétrir</b> la <b>farine sucrée</b> faite de grains non mûrs qui ont été séchés dans un four, <b>et certains disent : On peut la pétrir</b>. La Gemara demande : <b>À qui appartient</b> l'avis introduit comme : <b>Et certains disent ? Rav Ḥisda dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

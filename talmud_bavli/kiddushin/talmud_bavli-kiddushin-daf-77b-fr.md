@@ -57,4 +57,4 @@ Le <i>baraita</i> demande en outre : <b>Pourquoi l'interdiction à l'égard de <
 <b>Rav Ashi dit : Par conséquent, un prêtre qui a des rapports sexuels avec sa sœur</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

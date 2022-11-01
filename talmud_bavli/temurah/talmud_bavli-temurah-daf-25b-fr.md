@@ -54,4 +54,4 @@ En revanche, <b>là,</b> le premier <i>baraita</i> se réfère à un cas <b>où 
 <b>Rabbi Yosei a dit : Si telle était son intention dès le départ,</b> lorsqu'il a dit que l'animal est le substitut de l'holocauste, de préciser que l'animal est aussi le substitut de l'offrande de paix, alors <b>puisqu'il est impossible d'appeler deux désignations simultanément,</b> c'est-à-dire qu'il faut d'abord dire une désignation et ensuite l'autre, <b>sa déclaration tient,</b> et l'animal est moitié holocauste et moitié offrande de paix. <b>Et si</b> ce n'est qu'<b>après avoir dit : </b> Cet animal est par la présente <b>le substitut de l'holocauste,</b> que <b>il s'est ravisé et a dit : Le substitut de l'offrande de paix, que</b> l'animal entier <b>est le substitut de l'holocauste.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

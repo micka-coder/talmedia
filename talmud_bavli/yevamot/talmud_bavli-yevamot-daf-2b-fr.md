@@ -36,4 +36,4 @@ Cependant, la Guemara soutient que même ainsi, l'ordre de la mishna reste probl
 <b>Au contraire,</b> la Gemara rétracte l'explication précédente au profit de la suivante : En ce qui concerne <b>sa fille, étant donné que</b> cet interdit est en fait <b>dérivé d'une interprétation homilétique</b> et n'est pas explicitement énoncé dans la Torah, <b>il est</b> donc <b>délicat</b> pour la <i>tanna</i>. Par conséquent, il a énuméré ce cas inédit de fille en premier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

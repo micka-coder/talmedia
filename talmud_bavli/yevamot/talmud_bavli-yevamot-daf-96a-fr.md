@@ -54,4 +54,4 @@ Le Rav Huna, fils du Rav Yehoshua, développe : <b>Selon</b> l'avis de <b>Rabban
 <b>Selon</b> l'avis des <b>rabbins, qui disent</b> qu'il y a <b>un acte de divorce après un acte de divorce, cela ne s'applique que</b> au cas <b>d'un adulte après un adulte, ou à un mineur après un mineur. Cependant,</b> eux aussi sont d'accord pour dire que l'acte de divorce d'un <b>mineur après un adulte n'est pas effectif,</b> car l'acte de divorce d'un mineur est certainement plus faible que celui d'un adulte. Pour cette raison, Rabbi Meir dit qu'ils ont établi la <i>ḥalitza</i> d'un enfant de neuf ans comme l'acte de divorce d'un adulte, pour souligner que l'acte de divorce ultérieur d'un mineur n'a aucune importance.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

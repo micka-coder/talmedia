@@ -82,4 +82,4 @@
 <b>Ne tourne ni à droite ni à gauche</b> du bon poids.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

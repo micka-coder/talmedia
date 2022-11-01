@@ -36,4 +36,4 @@ La Gemara demande : <b>Et</b> est-il vrai que <b>aucune</b> personne <b>des autr
 § <b>Un dilemme a été soulevé devant</b> les Sages : <b>Eretz Yisrael était-il divisé selon</b> les <b>tribus,</b> c'est-à-dire que chacune des douze tribus recevait une part égale, et les membres de chaque tribu se partageaient ces parts tribales en fonction de leur nombre ; <b>ou peut-être</b> Eretz Yisrael était-il <b>divisé selon les crânes des hommes,</b> c'est-à-dire qu'une certaine surface de terre était donnée à chaque individu, et la taille des attributions tribales était fonction de la population de la tribu ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

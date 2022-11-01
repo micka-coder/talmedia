@@ -111,4 +111,4 @@
 <b>Il s'est ensuite prosterné.</b> Chmouel. D'autres disent : Elkanah.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

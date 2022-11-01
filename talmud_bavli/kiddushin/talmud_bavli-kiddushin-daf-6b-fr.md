@@ -45,4 +45,4 @@ La Gemara demande : <b>Que soutient Rava ? S'il soutient</b> que <b>un cadeau</b
 § <b>Rava dit</b> que si une femme dit à un homme : <b>Donnez cent dinars à untel</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

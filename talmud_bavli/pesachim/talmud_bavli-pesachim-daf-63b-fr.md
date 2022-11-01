@@ -45,4 +45,4 @@ La Guemara <b>souleve une contradiction</b> d'une autre <i>baraita</i> : <b>Celu
 Le <i>baraita</i> continue : <b>Et</b> si <b>il égorge</b> l'animal, <b>ou s'il en asperge</b> le sang, <b>ou s'il pince</b> une offrande d'oiseau, <b>ou s'il asperge</b> le sang de l'offrande d'oiseau sur l'autel, il est <b>libre. Mais celui qui ramasse une poignée</b> de farine <b>d'une offrande</b> alors qu'il est en possession de levain <b>ne transgresse pas un commandement négatif,</b> car une offrande de repas n'est pas incluse dans l'interdiction, qui est formulée ainsi : "Tu n'offriras pas le sang de mon sacrifice". <b>Quelqu'un qui brûle les parties sacrificielles</b> de l'agneau pascal ou de tout autre sacrifice le quatorze de Nisan avec du levain en sa possession <b>ne transgresse pas un commandement négatif.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

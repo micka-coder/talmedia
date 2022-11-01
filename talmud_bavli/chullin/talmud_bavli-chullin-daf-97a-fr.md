@@ -18,4 +18,4 @@ Rava explique : <b>Accordé,</b> dans le cas d'une marmite utilisée pour le <b>
 La Gemara résume les directives qui déterminent quand un élément cuit avec un autre élément affecte le statut du mélange. <b>Rava dit : Les Sages ont dit</b> qu'il y a des cas où l'on s'appuie <b>sur</b> un juif <b>testant</b> l'aliment, <b>et les Sages ont dit</b> qu'il y a des cas où l'on s'appuie <b>sur</b> un gentil <b>cuisinier</b> pour goûter l'aliment,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

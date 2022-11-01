@@ -69,4 +69,4 @@ Après avoir mentionné les actes de Neḥunya, la Guemara relate que <b>les Sag
 <b>Rabbi Ḥanina dit : Quiconque affirme</b> que <b>le Saint, Béni soit-Il, pardonne [<i>vateran</i>]</b> les transgressions, <b>sa vie sera abandonnée [<i>yivatru</i>], comme il est dit : "Le Rocher, Son œuvre est parfaite, car toutes Ses voies sont justice"</b> (Deutéronome 32, 4). En d'autres termes, Dieu ne renonce pas à la justice céleste. <b>Rabbi Ḥana dit, et certains disent</b> que <b>Rabbi Shmuel bar Naḥmani</b> dit : <b>Quel</b> est le sens de ce <b>qui est écrit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

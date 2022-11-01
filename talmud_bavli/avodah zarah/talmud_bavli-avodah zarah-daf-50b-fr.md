@@ -39,4 +39,4 @@ Ravina rejette cette suggestion : Ce n'est pas non plus une question valable. <b
 Abaye <b>souleve une objection à</b> l'explication de Rava à partir d'une <i>baraïta</i> : Celui qui a <b>alimenté [<i>safat</i>]</b> une idole <b>excrémentée, ou qui a versé un pot de chambre d'urine devant</b> elle <b>comme libation,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

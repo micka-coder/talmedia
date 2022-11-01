@@ -60,4 +60,4 @@ La Gemara répond : <b>Vous trouvez</b> une solution <b>dans</b> le cas d'une <b
 <b>Et</b> le mot superflu "elle" indique que <b>vous avez une autre femme qui, bien qu'elle</b> se soit engagée volontairement dans le rapport sexuel et qu'elle <b>n'ait pas été contrainte, est</b> néanmoins <b>permise</b> à son mari, car le rapport sexuel n'est pas considéré comme un adultère. <b>Et qui est-ce ? Il s'agit ici d'une femme <b>dont les fiançailles étaient erronées, car même si son enfant est monté sur ses épaules, elle peut refuser</b> son mari <b>et partir</b> sur <b>son</b> chemin. Elle est considérée comme une femme non mariée, et il lui est donc permis de retourner auprès de son mari, même si elle a eu des rapports avec un autre homme. La mishna peut donc être expliquée d'une manière qui ne contredit pas Shmuel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

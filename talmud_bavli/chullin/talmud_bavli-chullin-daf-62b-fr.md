@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais</b> pourquoi ne seraient-ils pas cachers ? N'y avai
 <b>Rav Pappa dit :</b> L'oiseau connu sous le nom de <b>reclining and eating <i>mardu</i> est permis,</b> tandis que le <b>bowing and eating</b> <i>mardu</i> <b>est interdit. Et votre moyen mnémotechnique</b> pour vous en souvenir est le verset : <b>"Tu ne te prosterneras devant aucun autre dieu"</b> (Exode 34:14). <b>Shmuel dit :</b> L'oiseau appelé le <b>buveur de vin est interdit. Et votre moyen mnémotechnique</b> pour vous en souvenir est le <i>halakha</i> : <b>Ceux qui ont bu du vin sont inaptes au service</b> dans le Temple. <b>Et Shmuel dit :</b> L'oiseau appelé le <b>verseuse de vin est interdit.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

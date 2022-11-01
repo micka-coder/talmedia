@@ -39,4 +39,4 @@ La Guemara rejette cette preuve : <b>Qu'est-ce que</b> est la signification de :
 Le <i>baraita</i> poursuit : <b>Et</b> en outre, <b>le pouvoir de chacun,</b> l'argent et un document, en tant que moyen de transférer la propriété <b>est plus grand que</b> le pouvoir d'acquisition par le biais de la <b>prise de possession, et le pouvoir de prise de possession est plus grand que</b> le pouvoir d'acquisition de <b>chacun d'eux.</b> Comment cela ? Le <b>pouvoir de chacun d'eux est plus grand</b> que le pouvoir d'acquisition de la prise de possession, <b>car chacun d'eux effectue l'acquisition</b> dans le cas <b>d'un esclave hébreu, ce qui n'est pas</b> le cas <b>pour la prise de possession</b> (voir 14b). <b>Le pouvoir de prise de possession est plus grand</b> que le pouvoir d'acquisition de chacun d'eux, <b>comme</b> en ce qui concerne la <b>prise de possession,</b> si un <b>vendait</b> à un autre <b>dix champs dans dix pays, une fois</b> que l'acheteur <b>prend possession d'un des</b> champs <b>il les acquiert tous.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

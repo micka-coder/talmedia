@@ -45,4 +45,4 @@ La Guemara demande : <b>Mais</b> en ce qui concerne <b>ce que nous avons appris<
 La Guemara conteste encore : <b>Et</b> en ce qui concerne <b>ce que nous avons appris</b> dans une mishna (<i>Bikkurim</i> 2:6) : Les <i>halakhot</i> d'un <b>arbre à grenouilles</i></b> <b>correspondent</b> à celles d'un <b>arbre de trois manières. Qu'il enseigne</b> plutôt : Trois <b>matières.</b> La Gemara répond : <b>Parce qu'il veut enseigner</b> dans la <b>dernière clause : Et</b> les <i>halakhot</i> d'un <i>arbre-tigre</i> correspondent <b>à</b> ceux d'un <b>légume d'une manière,</b> c'est pourquoi la mishna utilise le terme : Façons, dans la première clause également. La Gemara demande : Dans la dernière clause aussi, que le mishna <b>enseigne : Matière,</b> plutôt que : Voie.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

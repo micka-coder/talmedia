@@ -111,4 +111,4 @@ La Gemara demande : <b>Qu'aurait-il pu dire?</b> La Gemara répond : Le serpent 
 <b>Abaye dit :</b> En ce qui concerne le cas de celui qui nie une dette qu'il a admise en présence de témoins cachés, les Sages <b>ont enseigné</b> qu'il est exempt <b>seulement</b> dans un cas <b>où il dit : je te taquinais. Mais</b> si <b>il dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

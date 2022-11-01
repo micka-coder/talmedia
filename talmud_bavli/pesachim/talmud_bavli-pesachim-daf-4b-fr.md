@@ -30,4 +30,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution de ce dilem
 La Gemara demande : <b>Et dire</b> peut-être, que le verset vient <b>inclure la nuit du quinze,</b> la première nuit de Pessah, en ce qui concerne <b>l'élimination</b> du levain. <b>Comme,</b> s'il n'y avait pas ce verset, <b>il pourrait vous venir à l'esprit de dire :</b> Sept <b>jours sont écrits,</b> ce qui indique par déduction : Pendant les <b>jours, oui,</b> on est obligé d'enlever le levain, mais pendant les <b>nuits, non,</b> il n'y a aucune obligation de le faire. Par conséquent, le verset <b>nous enseigne :</b> Le premier jour, on ne peut être en possession de levain <b>même</b> pendant les <b>nuits.</b> La Gemara rejette cette suggestion : <b>Ce</b> <i>halakha</i> n'était <b>pas nécessaire</b> d'être dérivé par les Sages, car on peut l'apprendre d'une autre source.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

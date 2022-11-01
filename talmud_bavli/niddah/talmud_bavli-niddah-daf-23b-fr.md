@@ -51,4 +51,4 @@ Un des Sages <b>dit à Rav Yirmeya bar Abba : Mais le contraire n'est-il pas ens
 <b>Et combien</b> de la partie inférieure du corps d'une personne <b>qui, lorsqu'elle est retirée d'une personne vivante</b>, causerait sa <b>mort,</b> car on ne peut survivre à une telle blessure ? <b>Rabbi Zakkai dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

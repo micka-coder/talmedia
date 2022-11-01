@@ -48,4 +48,4 @@ La Guemara développe : <b>Et</b> le fait que la <i>baraita</i> permette d'achet
 <b>Le Maître a dit</b> ci-dessus : <b>Et en quoi consiste la destruction</b> de l'animal ? <b>On coupe les sabots de</b> l'animal <b>à partir du genou et en dessous.</b> La Gemara <b>souleve une contradiction</b> à partir d'une <i>baraïta</i> : <b>On ne peut ni consacrer</b> des objets, <b>ni dédier</b> des objets à un usage sacré, <b>ni évaluer</b> la valeur d'un objet en fonction de son estimation (voir Lévitique, chapitre 27) et dédier sa valeur monétaire au trésor du Temple, <b>au temps présent</b>, alors que le Temple n'existe plus. <b>Et si on consacrait, ou dédiait, ou évaluait</b> des objets pour un usage sacré, la présence de ces objets pourrait conduire à la violation de l'interdiction d'utiliser des biens consacrés. Par conséquent, si quelqu'un a consacré <b>un animal, il doit être détruit.</b> S'il a consacré <b>des produits, des vêtements ou des récipients</b> faits de matériaux qui se décomposent,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

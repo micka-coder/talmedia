@@ -60,4 +60,4 @@ Rabbi Ezra a énoncé une autre interprétation homilétique similaire : <b>Lais
 Rabbi Ezra a expliqué cette déclaration : En ce qui concerne <i>yadid</i> dans la phrase : <b>La <i>yadid</i>, il s'agit du roi Salomon, comme il est écrit</b> après la naissance de Salomon : <b>"Il envoya par la main de Nathan le prophète, et il lui donna le nom de Yedidya, à cause de l'Eternel"</b> (II Samuel 12:25).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

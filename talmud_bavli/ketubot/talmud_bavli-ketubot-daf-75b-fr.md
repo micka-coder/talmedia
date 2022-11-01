@@ -30,4 +30,4 @@ La Guemara soulève une difficulté : <b>Si c'est le cas,</b> alors même s'il a
 <b>Au contraire,</b> la mishna doit être expliquée différemment : S'il a apporté la preuve qu'elle avait ces taches <b>depuis</b> un moment après <b>ses fiançailles,</b> sa revendication d'une erreur de fiançailles n'est pas acceptée <b>parce qu'il y a deux</b> présomptions qui s'y opposent. Il y a une <b>présomption</b> de : <b>Établir l'état</b> du <b>corps</b> de la femme selon <b>son <b>état présumé,</b> non taché</b> et supposer par conséquent que les taches n'étaient pas présentes au moment des fiançailles, <b>et</b> en outre, il y a la <b>présomption</b> que <b>une personne ne boit pas à une coupe sans l'avoir</b> d'abord <b>examinée, et cet</b> homme <b>a</b> sans doute <b>vu</b> ses taches <b>et a été apaisé. Que dites-vous</b> en opposition à cet argument, qu'il y a une <b>présomption</b> que <b>un homme ne s'apaise pas à l'égard des défauts ?</b> Même ainsi, <b>c'est</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

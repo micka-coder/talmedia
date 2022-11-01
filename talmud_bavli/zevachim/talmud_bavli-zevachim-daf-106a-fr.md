@@ -21,4 +21,4 @@ On <b>pourrait</b> penser que ce prêtre <b>rend</b> ses <b>vêtements impurs m�
 La Gemara demande : <b>Quelle est</b> la différence <b>entre</b> l'avis du premier <i>tanna</i> et l'avis de Rabbi Shimon ? <b>Rava dit :</b> La différence <b>entre eux est lorsqu'il l'a transformé en une masse carbonisée</b>, et que la forme de l'animal s'est déformée, mais n'est pas réellement devenue cendre. La première <i>tanna</i> considère qu'à ce stade, l'offrande transmet encore l'impureté, alors que Rabbi Shimon considère que non.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

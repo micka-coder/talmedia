@@ -51,4 +51,4 @@ La Guemara objecte : <b>Si c'est le cas,</b> que Rabbi Yéhouda soutient que la 
 <b>Et si vous disiez</b> que <b>en effet,</b> c'est le <i>halakha</i> en ce qui concerne la qualification d'un témoin, <b>mais n'est-ce pas enseigné</b> dans un <i>baraita</i> : Si quelqu'un <b>connaissait un témoignage sur</b> un autre <b>avant que lui,</b> celui qui connaissait le témoignage, <b>devienne</b> le <b>gendre de l'autre, et</b> alors il <b>devient son gendre;</b> ou quand il était <b>capable d'entendre, et</b> alors il <b>devient sourd-muet ; </b> ou lorsqu'il <b>pouvait voir, et</b> il est ensuite <b>devenu aveugle;</b> ou alors qu'il était halakhiquement <b>compétent, et</b> il est ensuite <b>devenu imbécile;</b> dans tous ces cas, <b>il est disqualifié</b> pour témoigner. <b>Mais</b> si quelqu'un <b>connaissait le témoignage sur</b> un autre <b>avant de devenir son gendre, et</b> il est ensuite <b>devenu son gendre,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

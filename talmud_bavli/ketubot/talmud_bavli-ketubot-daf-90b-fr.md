@@ -60,4 +60,4 @@ Rabba poursuit : <b>Et je leur ai dit : En ce qui concerne</b> le paiement fait 
 La Gemara rejette cette idée : <b>Non,</b> il est possible de dire que <b>tout le monde</b> est d'accord pour dire que dans le cas où <b>une</b> épouse est décédée <b>de son vivant et une</b> décédée après <b>son décès,</b> les fils de la première épouse <b>ont le droit</b> de percevoir le <b>contrat de mariage concernant les enfants mâles,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

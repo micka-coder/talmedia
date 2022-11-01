@@ -57,4 +57,4 @@ Rabbi Yoḥanan <b>souleve une objection à</b> l'opinion de Reish Lakish à par
 La Gemara demande : <b>Si oui, que</b> le verset <b>déclare explicitement</b> de quelle tribu la ville supplémentaire a été prise.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

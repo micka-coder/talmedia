@@ -78,4 +78,4 @@ Les Sages <b>de Néharde'a disent : Qu'il s'agisse</b> <b>d'un aveu succédant �
 La Guemara conteste la décision de Rabbi Yehuda : <b>Et</b> si les témoins se contredisent sur des détails secondaires tels que <b>un sac à main noir dans</b> les cas de <b>droit capital,</b> est-ce que leur témoignage est <b>non</b> accepté ? <b>Mais le Rav Ḥisda ne dit-il pas : </b> Dans un cas où <b>un</b> des témoins <b>dit : </b> Le meurtrier <b>a tué</b> la victime <b>avec une épée, et un</b> des témoins <b>dit : </b> Le meurtrier <b>a tué</b> la victime <b>avec un <i>ariran</i>,</b> un autre type d'arme, <b>ce n'est pas un témoignage congruent</b>, car il s'agit d'une contradiction évidente. Mais si <b>un</b> des témoins <b>dit :</b> les <b>vêtements</b> du meurtrier étaient <b>noirs, et qu'un</b> des témoins <b>dit :</b> les <b>vêtements</b> du meurtrier étaient <b>blancs, il s'agit d'un témoignage congruent</b>, car il ne s'agit pas d'une contradiction significative.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

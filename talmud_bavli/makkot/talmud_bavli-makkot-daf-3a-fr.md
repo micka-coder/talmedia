@@ -45,4 +45,4 @@ Au contraire, le tribunal <b>estime combien</b> d'argent <b>une personne</b> ser
 <strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Shmuel dit:</b> Dans le cas de <b>quelqu'un qui prête</b> de l'argent à <b>un autre pour</b> une période de <b>dix ans, l'année sabbatique</b> <b>abroge</b> la dette (voir Deutéronome 15:1-11) et libère l'emprunteur de l'obligation de la rembourser.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

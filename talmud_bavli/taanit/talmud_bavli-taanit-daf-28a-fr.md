@@ -54,4 +54,4 @@ La Gemara répond : <b>En fait,</b> la mishna représente l'opinion de <b>Rabbi 
 § La mishna a enseigné que <b>le premier de Tevet, il n'y avait pas du tout de veille non sacerdotale</b>, car il y avait une offrande supplémentaire, <i>hallel</i>, et une offrande de bois. <b>Mar Kashisha, fils de Rav Ḥisda, dit à Rav Ashi :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

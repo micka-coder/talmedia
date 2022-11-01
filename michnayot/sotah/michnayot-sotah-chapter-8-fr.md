@@ -20,5 +20,5 @@ Les éléments suivants ne bougent pas de leur place : Celui qui a construit une
 ### michna 7
 A quoi cela s'applique-t-il ?  A une guerre volontaire, mais dans une guerre commandée [par la Torah], tous sortent, même un jeune marié de sa chambre et une jeune mariée de son dais. Rabbi Judah dit : à quoi cela s'applique-t-il ? A une guerre commandée [par la Torah], mais dans une guerre obligatoire, tous sortent, même un jeune marié de sa chambre et une jeune mariée de son dais.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

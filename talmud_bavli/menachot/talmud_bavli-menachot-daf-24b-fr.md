@@ -48,4 +48,4 @@ Si l'on <b>enlève la poignée de</b> la <b>première</b> moitié de dixième, a
 <b>Rav Ashi a dit :</b> Ces questions ne présentent aucune difficulté, car en ce qui concerne le retrait de la <b>manche, la question dépend de l'intention</b> du <b>prêtre. Et lorsque</b> le <b>prêtre enlève la poignée, il l'enlève pour</b> permettre le reste du <b>dixième</b> d'un épha, et non le reste du demi-dixième étranger. Pourtant, les deux autres moitiés ne peuvent être consommées car il n'est pas possible de savoir si la consommation de l'une ou de l'autre a été autorisée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

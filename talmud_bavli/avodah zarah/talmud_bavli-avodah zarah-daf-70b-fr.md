@@ -36,4 +36,4 @@ La Guemara répond que <b>Rabbi Yoḥanan</b> aurait pu <b>vous dire : </b> Il <
 <strong>MISHNA :</strong> Dans le cas de <b>une unité militaire [<i>boleshet</i>] qui est entrée dans une ville,</b> si elle est entrée <b>en temps de paix,</b> alors après le départ des soldats, les <b>tonneaux ouverts</b> de vin <b>sont interdits,</b> mais les <b>tonneaux scellés</b> <b>sont autorisés. </b> Si l'unité est entrée <b>en temps de guerre,</b> tant <b>ces</b> tonneaux <b>que ces</b> tonneaux <b>sont autorisés, car</b> en temps de guerre <b>on n'a pas le temps de verser</b> du vin pour des <b>libérations,</b> et on peut être certain que les soldats ne l'ont pas fait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

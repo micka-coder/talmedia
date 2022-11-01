@@ -45,7 +45,7 @@ La Gemara répond : Il s'agit d'un cas <b>où l'écoulement de l'eau</b> <b>s'ar
 <b>Rabbi Yehuda dit : Celui-ci</b> celui-là <b>aussi,</b> c'est-à-dire que le propriétaire de l'étage supérieur, qui pendant ce temps <b>réside à l'intérieur</b> de la propriété <b>de l'autre, doit lui payer un loyer.</b> Puisqu'il a tiré un bénéfice en vivant dans la maison de l'autre, puisqu'il n'avait pas d'autre endroit où il pouvait vivre, il doit payer un loyer. Cette solution est donc erronée. <b>Au contraire, le propriétaire de l'étage supérieur construit la maison et l'étage supérieur,</b> et il <b>couvre l'étage supérieur</b>, c'est-à-dire qu'il achève toute la construction de l'étage supérieur, <b>et il</b> peut alors <b>s'asseoir dans la maison,</b> c'est-à-dire l'étage inférieur, <b>jusqu'à ce que</b> l'autre <b>lui rende ses frais</b> pour la construction de la maison, auquel cas il retourne à son étage supérieur. Puisque, de toute façon, il aurait pu vivre à l'étage supérieur, on considère qu'il n'a tiré aucun avantage à vivre à l'étage inférieur et qu'il n'est pas obligé de payer un loyer.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 En ce qui concerne un résident de l'étage supérieur qui a le droit de s'installer à l'étage inférieur, <b>quand il y réside</b>, est-ce qu'il <b>réside seul comme</b> il le faisait <b>au départ</b> quand il occupait l'étage supérieur, et le propriétaire de la maison n'a d'autre choix que de déménager ? <b>Ou peut-être y résident-ils</b> tous les deux ensemble, <b>comme</b> le propriétaire peut lui <b>dire : Je ne vous ai pas loué</b> l'étage supérieur <b>avec l'intention d'être éloigné</b> de mon domicile.
 
@@ -92,4 +92,4 @@ La Gemara répond : Il s'agit d'un cas <b>où l'écoulement de l'eau</b> <b>s'ar
 <b>Rabbi Yehuda dit : Celui-ci</b> celui-là <b>aussi,</b> c'est-à-dire que le propriétaire de l'étage supérieur, qui pendant ce temps <b>réside à l'intérieur</b> de la propriété <b>de l'autre, doit lui payer un loyer.</b> Puisqu'il a tiré un bénéfice en vivant dans la maison de l'autre, puisqu'il n'avait pas d'autre endroit où il pouvait vivre, il doit payer un loyer. Cette solution est donc erronée. <b>Au contraire, le propriétaire de l'étage supérieur construit la maison et l'étage supérieur,</b> et il <b>couvre l'étage supérieur</b>, c'est-à-dire qu'il achève toute la construction de l'étage supérieur, <b>et il</b> peut alors <b>s'asseoir dans la maison,</b> c'est-à-dire l'étage inférieur, <b>jusqu'à ce que</b> l'autre <b>lui rende ses frais</b> pour la construction de la maison, auquel cas il retourne à son étage supérieur. Puisque, de toute façon, il aurait pu vivre à l'étage supérieur, on considère qu'il n'a tiré aucun avantage à vivre à l'étage inférieur et qu'il n'est pas obligé de payer un loyer.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

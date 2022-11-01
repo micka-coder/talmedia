@@ -21,4 +21,4 @@ Ceci est <b>comme il est enseigné</b> dans une mishna (<i>Karetot</i> 8a) : Dan
 Cette mishna continue : Il y eut <b>un incident où</b> le prix des <b>nids,</b> c'est-à-dire des paires d'oiseaux, <b>s'élevait à Jérusalem à des <i>dinarei</i> dorés,</b> car la grande demande d'oiseaux pour les offrandes d'une femme après un accouchement et un <i>zava</i> entraînait une augmentation du prix. <b>Rabban Shimon ben Gamliel a dit :</b> Je fais le serment par <b>cette demeure</b> de la Présence Divine que <b>je ne me coucherai pas</b> <b>cette nuit jusqu'à ce que</b> le prix des nids <b>soit en <i>dinarin</i>.</b> Finalement, <b>il est entré dans la cour et a enseigné : Une femme pour laquelle il y a eu cinq naissances définies</b> ou <b>cinq décharges définies d'un <i>zava</i> apporte une offrande, et</b> alors <b>elle peut prendre part</b> à la viande des <b>offrandes. Et les autres</b> offrandes <b>ne sont pas une obligation pour elle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

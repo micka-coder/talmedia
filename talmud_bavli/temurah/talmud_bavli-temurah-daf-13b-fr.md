@@ -48,4 +48,4 @@ Comme expliqué précédemment (9b), le dilemme de Rabbi Avin s'est d'abord pos�
 <b>Et</b> alors Rabbi Avin a encore demandé : <b>Si vous dites</b> que dans le cas ci-dessus on ne peut pas effectuer de substitution à l'animal, peut-être est-ce uniquement parce que les deux animaux possèdent <b>une même sainteté. Mais</b> dans un cas de <b>deux saintetés et un corps, quel</b> est le <i>halakha</i> ? Par exemple, si quelqu'un a consacré une offrande de culpabilité et a effectué une substitution pour elle, et qu'il l'a perdue par la suite et a expié en utilisant un autre animal, et qu'il l'a ensuite retrouvée, de sorte que l'animal original doit maintenant être consigné pour être sacrifié comme un holocauste, dit-on que puisque l'animal possède maintenant une sainteté différente, il peut effectuer une nouvelle substitution pour lui ? La Gemara conclut : Selon cette <i>tanna</i>, <b>le dilemme reste</b> non résolu <b>[<i>tiba'ei</i>].</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

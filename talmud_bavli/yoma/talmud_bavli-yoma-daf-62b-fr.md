@@ -60,4 +60,4 @@ La Guemara répond : <b>Rav Ḥisda soutient</b> qu'une offrande n'est <b>pas</b
 <b>Ravina a dit : Maintenant que Rav Ḥisda a dit</b> que bien que le tirage au sort soit extérieur aux animaux eux-mêmes, un animal <b>manquant du tirage au sort est comparable à</b> un animal <b>manquant d'une action</b> et n'est pas encore considéré comme une offrande valide, on peut faire une déclaration concernant <b>ce que Rav Yehuda a dit</b> que <b>Shmuel a dit : Les offrandes de paix que l'on a égorgées</b> dans le Temple <b>avant l'ouverture des portes du Sanctuaire sont disqualifiées,</b> car <b>il est dit</b> à propos des offrandes de paix : <b>"Et il l'égorgera à l'entrée de la Tente de la Rencontre"</b> (Lévitique 3:2), ce qui enseigne qu'il doit être égorgé <b>lorsque</b> l'entrée <b>est ouverte</b> et sert d'entrée effective, <b>mais pas lorsqu'elle est verrouillée. </b> Tant que l'entrée de la Tente de la Rencontre, ou dans le Temple les portes du Sanctuaire, restent fermées, on ne peut pas sacrifier les offrandes de paix, et si on les sacrifie, elles sont disqualifiées.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

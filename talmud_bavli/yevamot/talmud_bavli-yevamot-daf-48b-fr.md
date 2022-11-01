@@ -48,4 +48,4 @@ La Guemara répond : <b>Mais</b> même <b>selon votre raisonnement</b> que Rabbi
 <b>D'autres disent :</b> C'est <b>parce qu'ils ont attendu avant d'entrer sous les ailes de la Présence Divine,</b> c'est-à-dire qu'ils sont punis pour ne pas s'être convertis plus tôt qu'ils ne l'ont fait. <b>Rabbi Abbahou a dit, et certains disent</b> que c'est <b>Rabbi Ḥanina</b> qui a dit : <b>Quel est le verset</b> dont on tire qu'il faut se convertir à la première occasion ? Boaz dit à Ruth : <b>"Le Seigneur récompensera ton travail, et ta récompense sera complète de la part du Seigneur, le Dieu d'Israël,</b> sous les ailes duquel <b>tu es venu te réfugier"</b> (Ruth 2:12).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

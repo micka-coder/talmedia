@@ -63,4 +63,4 @@ Il y eut <b>un incident où</b> le prix des <b>nids,</b> c'est-à-dire des paire
 <b>Rav Pappa dit à</b> Rav Naḥman bar Yitzḥak : <b>Si</b> il <b>vous vient à l'esprit</b> que <b>Rabbi Yoḥanan ben Nuri compare</b> les offrandes d'une femme après l'accouchement <b>à une offrande pour le péché, pourquoi</b> alors, en ce qui concerne les offrandes apportées <b>pour</b> l'obligation <b>incertaine</b>, <b>doit-elle dire :</b> je l'apporte <b>pour</b> n'importe lequel <b>d'entre eux, et elle est exempte ? Si celui qui est obligé</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

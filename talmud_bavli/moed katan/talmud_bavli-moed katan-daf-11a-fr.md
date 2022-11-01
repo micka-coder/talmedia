@@ -60,4 +60,4 @@ A propos de la consommation de poisson de différentes manières, la Gemara rapp
 <b>Et</b> en outre <b>Rav a dit : Adda le pêcheur m'a dit :</b> Après avoir mangé <b>du poisson, du cresson et du lait, que le corps les porte et que ce ne soit pas le lit qui les porte,</b> c'est-à-dire qu'il est conseillé de se promener après les avoir mangés, plutôt que de se coucher immédiatement. <b>Et Rav dit : Adda le pêcheur m'a dit :</b> Après avoir mangé <b>du poisson, du cresson et du lait,</b> il est préférable de boire de l'<b>eau et non de la bière,</b> et s'il n'a pas d'eau, il doit boire de la <b>bière et non du vin,</b> afin de ne pas nuire à son corps.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

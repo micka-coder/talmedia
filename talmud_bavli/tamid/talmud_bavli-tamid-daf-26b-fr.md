@@ -30,4 +30,4 @@ La mishna enseigne que <b>les anciens de la famille patrilinéaire</b> qui servi
 La mishna enseigne en outre qu'en ce qui concerne les <b>jeunes hommes de la prêtrise, chacun</b> d'entre eux dormait avec <b>son vêtement sur le sol.</b> La Gemara demande : <b>Pourquoi</b> est-ce que <b>là,</b> dans la mishna précédente, le <i>tanna</i> <b>les appelle jeunes</b> [<b><i>rovim</i></b>] prêtres, alors que <b>là,</b> le <i>tanna</i> <b>les appelle</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

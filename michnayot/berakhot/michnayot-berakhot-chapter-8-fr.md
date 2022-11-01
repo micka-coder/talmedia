@@ -24,4 +24,4 @@ Celui qui a mangé et oublié et n'a pas béni : l'école de Shammai dit qu'il d
 Si on leur apporte du vin après le repas, et qu'il n'y a rien d'autre que cette coupe : l'école de Shammai dit : "Bénissez le vin et ensuite bénissez le repas." L'école de Hillel dit : "Bénissez le repas, puis bénissez le vin".  Répondez "Amen" après la bénédiction d'un Juif, et ne répondez pas "Amen" après la bénédiction d'un Cuthite avant d'avoir entendu toute la bénédiction.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

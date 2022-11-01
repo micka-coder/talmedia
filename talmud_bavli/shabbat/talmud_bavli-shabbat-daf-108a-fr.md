@@ -39,4 +39,4 @@ La Gemara cite des preuves similaires. <b>Les Sages ont enseigné : On peut écr
 <strong>MISHNA :</strong> <b>On ne peut pas faire de saumure [<i>hilmei</i>] le Chabbat,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

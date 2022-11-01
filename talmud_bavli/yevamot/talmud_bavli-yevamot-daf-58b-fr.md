@@ -36,4 +36,4 @@ La Guemara analyse les deux avis : <b>Rabbi Yoḥanan dit qu'elle peut manger</b
 § Il a été enseigné dans la mishna que dans le cas des femmes qui ont épousé des prêtres malgré le fait qu'elles étaient inaptes à le faire, si <b>elles ont été veuves ou divorcées</b> de ce mariage, elles sont disqualifiées de manger de la <i>teruma</i>, mais si elles ont été veuves ou divorcées alors qu'elles étaient seulement fiancées, elles sont aptes à participer à la <i>teruma</i>. <b>Rabbi Ḥiyya bar Yosef a soulevé un dilemme devant Shmuel :</b> Dans le cas d'un <b>grand prêtre qui a fiancé une mineure et qu'elle a mûri sous lui,</b> c'est-à-dire pendant qu'il était fiancé à lui,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara clarifie la question de Rav Yosef : <b>Ne soulevez pas ce dilemme sel
 § <b>Rav Neḥemya, fils de Rav Yosef, envoya</b> un message <b>à Rabba fils de Rav Huna le Court à Neharde'a : Lorsque cette femme</b> porteuse de cette lettre <b>se présente devant vous,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

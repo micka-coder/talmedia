@@ -30,7 +30,7 @@ Si on lui suggère de percevoir le paiement <b>par</b> le biais de <b>témoins d
 Le langage de la mishna <b>est également précis</b> selon cette compréhension, <b>car il enseigne : Elle perçoit tout</b> ce à quoi elle a droit. <b>Accordé, si vous dites que</b> la mishna se réfère à un cas où le mari <b>l'a écrite</b> un contrat de mariage, <b>c'est</b> pourquoi la mishna <b>enseigne</b> qu'elle <b>perçoit tout</b> ce à quoi elle a droit, c'est-à-dire même le montant que le mari a ajouté à la somme principale du contrat de mariage. <b>Mais si vous dites cela</b>, c'est pour faire référence à un cas où <b>il ne lui a pas écrit</b> un contrat de mariage,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Il n'a rien dit.</b> Sa demande n'est pas acceptée. <b>Quelle est la raison</b> pour laquelle il n'est pas cru ? C'est parce que celui à qui l'on doit <b>une somme d'argent</b> sur la base d'un <b>décret du tribunal est</b> considéré <b>comme celui qui tient</b> un <b>billet à ordre dans sa main,</b> contre lequel une demande de remboursement n'est pas acceptée sans preuve à l'appui.
 
@@ -62,4 +62,4 @@ Si on lui suggère de percevoir le paiement <b>par</b> le biais de <b>témoins d
 Le langage de la mishna <b>est également précis</b> selon cette compréhension, <b>car il enseigne : Elle perçoit tout</b> ce à quoi elle a droit. <b>Accordé, si vous dites que</b> la mishna se réfère à un cas où le mari <b>l'a écrite</b> un contrat de mariage, <b>c'est</b> pourquoi la mishna <b>enseigne</b> qu'elle <b>perçoit tout</b> ce à quoi elle a droit, c'est-à-dire même le montant que le mari a ajouté à la somme principale du contrat de mariage. <b>Mais si vous dites cela</b>, c'est pour faire référence à un cas où <b>il ne lui a pas écrit</b> un contrat de mariage,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

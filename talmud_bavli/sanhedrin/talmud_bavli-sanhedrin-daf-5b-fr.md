@@ -42,4 +42,4 @@ Rav Naḥman lui répondit : <b>C'est différent là, car ils se sont réunis d�
 Rava <b>soule une objection à</b> Rav Naḥman à partir d'une <i>baraita</i> : <b>Rabban Shimon ben Gamliel dit :</b> Les cas de <b>droit monétaire</b> sont jugés <b>par trois</b> juges, <b>et</b> une médiation menant à un <b>compromis</b> peut être effectuée <b>par deux</b> médiateurs. <b>Et le pouvoir de compromis est plus grand que le pouvoir de jugement, car</b> si <b>deux</b> juges <b>adjudicient</b> une affaire, <b>les plaideurs peuvent se retirer</b> de l'affaire et exiger un tribunal avec un quorum complet. <b>Mais</b> si <b>deux</b> ont médié <b>un compromis, les plaideurs ne peuvent pas se retirer.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

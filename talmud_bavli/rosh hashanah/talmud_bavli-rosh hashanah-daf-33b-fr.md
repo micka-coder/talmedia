@@ -42,4 +42,4 @@ Ce verset stipule : "Le souffle [<i>terua</i>] du <i>shofar</i>," indiquant que 
 Le <i>baraita</i> continue. De ceci <b>J'ai</b> dérivé la <i>halakha</i> <b>seulement</b> que ces coups de <i>tekia</i> avant et après la <i>terua</i> doivent être sonnés le Yom Kippour <b>de l'année jubilaire. D'où</b> je déduis qu'elles doivent être sonnées <b>à Rosh HaShana</b> également ? <b>Le verset dit : "Du septième mois."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara demande : <b>Et est-ce que Rabbi Yosei est de cet avis</b> ? <b>Mais 
 <b>Et</b> en outre : <b>De même qu'un mâle apporte</b> un animal <b>pour</b> sa transgression <b>incertaine</b>, un bélier en sacrifice de culpabilité, <b>du même <b>type</b> que celui dont <b>il apporte un sacrifice de péché défini</b>, un animal en offrande de péché, <b>ainsi, une femelle apporte</b> le même type <b>pour son</b> cas d'<b>incertitude à partir</b> du même <b>type à partir duquel <b>elle apporte pour une offrande définie</b>, c'est-à-dire. e., un oiseau si elle est une <i>zava</i> ou a donné naissance. Ceci conduit à la question suivante : <b>Si</b> alors, on peut poursuivre cette ligne de pensée : <b>De même qu'un mâle apporte une offrande et</b> elle <b>est mangée, de même, une femme apporte une offrande et</b> elle doit être <b>mangée</b> lorsqu'elle sacrifie une offrande pour un accouchement incertain. En ce qui concerne ce cas <b>vous dites :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

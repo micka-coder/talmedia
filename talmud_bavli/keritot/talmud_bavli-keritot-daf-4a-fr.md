@@ -99,4 +99,4 @@ Le Rav Ḥisda lui a <b>dit : Nous traitons ici</b> un cas <b>où il a mangé</b
 La Gemara commente : <b>On a ri de cette</b> suggestion <b>en Occident,</b> c'est-à-dire en Eretz Yisrael : <b>Et interprétons</b> cette <i>baraita</i> comme faisant référence à un cas <b>où</b> il a mangé la <b>graisse interdite d'un bœuf, et</b> d'un <b>mouton, et</b> d'une <b>chèvre, et</b> expliquent que <b>c'est</b> conforme à l'opinion de <b>Rabbi Yishmael, qui dit</b> qu'il <b>est fouetté</b> avec <b>trois</b> séries de coups de fouet pour les différents types de graisse, s'il l'a fait intentionnellement et a été prévenu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

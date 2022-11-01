@@ -24,4 +24,4 @@ Rabbi Yehouda <b>leur dit :</b> Il y a une difficulté <b>selon votre déclarati
 § Il a été enseigné dans la mishna que si quelqu'un fait vœu que le vin lui soit interdit <b>jusqu'à Pessah,</b> il lui est <b>interdit</b> de boire du vin jusqu'à ce que la Fête arrive. Cependant, si l'on fait le vœu que le vin lui soit interdit jusqu'à avant Pessah, il y a un différend quant à savoir si le vœu reste en vigueur jusqu'au début ou à la fin de la Fête. La Guemara demande : <b>Est-ce à dire que Rabbi Meir,</b> qui soutient qu'il est interdit seulement jusqu'au début de Pessah, <b>soutient</b> que <b>une personne ne se place pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

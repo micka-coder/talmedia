@@ -48,4 +48,4 @@ De même, la Guemara relate un incident concernant <b>deux hommes pieux, et cert
 La Guemara relate un autre incident à propos de cette question : <b>Ameimar, Mar Zutra et Rav Ashi étaient assis à l'entrée de la maison du roi Izgur. Le majordome en chef du roi passait</b> avec divers aliments. <b>Rav Ashi vit Mar Zutra</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

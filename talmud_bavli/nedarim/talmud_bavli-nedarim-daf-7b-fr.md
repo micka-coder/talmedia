@@ -27,4 +27,4 @@ La Guemara demande : <b>Quelles sont les circonstances</b> où un érudit de la 
 <b>Et Rav Giddel dit</b> que <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

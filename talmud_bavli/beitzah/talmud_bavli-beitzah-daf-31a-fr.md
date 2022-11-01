@@ -24,4 +24,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez de</b> le fait <b>qu'il est ens
 <strong>MISHNA :</strong> <b>On ne peut pas couper du bois</b> le jour de la Fête <b>ni des poutres</b> destinées à la construction <b>ni d'une poutre qui s'est cassée le jour de la Fête,</b> bien qu'elle ne serve plus à rien. <b>Et l'on ne peut couper</b> du bois lors d'une Fête, <b>ni avec une hache, ni avec une scie, ni avec une faucille,</b> car il s'agit clairement d'outils d'artisan utilisés en semaine. <b>Au contraire, on peut</b> couper uniquement <b>avec un couperet.</b> L'utilisation de cet outil diffère grandement de la manière dont on coupe le bois en semaine.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

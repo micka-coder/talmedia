@@ -36,4 +36,4 @@ La Guemara demande : <b>C'est le cas ? Mais Rabbi Shmuel bar Naḥmani n'a-t-il 
 La Gemara répond : <b>Cette</b> <i>baraita</i> ne fait pas référence à une femme qui exige explicitement des rapports sexuels, mais plutôt à celle <b>qui séduit</b> son mari, de sorte qu'il comprenne qu'elle veut avoir des rapports sexuels avec lui. Ils ont par conséquent d'excellents enfants.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

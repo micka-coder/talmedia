@@ -21,4 +21,4 @@ Accessoirement à la discussion sur la prospérité, la Gemara mentionne que sur
 <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Elazar dit : On ne peut pas allumer</b> le Chabbat <b>avec de la sève de balsamiers [<i>tzori</i>].</b> La Gemara demande : <b>Quelle est la raison</b> de cette interdiction ? <b>Rabba a dit : Comme son odeur agréable se diffuse,</b> les Sages se sont inquiétés de <b>la crainte</b> que l'on oublie et que l'on vienne <b>prendre</b> de la sève <b>de cet arbre</b> le Chabbat. Cela équivaut à éteindre la lampe, car retirer l'huile d'une lampe allumée réduit la durée de sa combustion. <b>Abaye lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

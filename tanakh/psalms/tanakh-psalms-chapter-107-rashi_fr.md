@@ -103,4 +103,4 @@
 <b>Fermeture</b> Héb.  קפצה", ferme, comme (Deut. 15:7) : "et ne pas fermer (תקפץ) ta main."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

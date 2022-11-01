@@ -33,4 +33,4 @@ La Gemara demande : <b>Maintenant</b> que <b>vous avez dit</b> que le propriéta
 <b>Abaye a dit : Vous</b> pouvez <b>apprendre du</b> fait qu'une femme enceinte est considérée comme plus lourde que la femme moyenne <b>que le poids d'un poisson [<i>binita</i>] se trouve dans son ventre,</b> c'est-à-dire que le poids augmente en fonction de la taille de son ventre. La Guemara demande : <b>Quelle est la</b> <b>différence pratique</b> résultant de la déclaration d'Abaye en ce qui concerne un poisson ? La Gemara explique : C'est <b>en ce qui concerne</b> les <i>halakhot</i> d'<b>achat et de vente,</b> afin que l'on puisse savoir comment évaluer le poids d'un poisson, et calculer sa valeur en conséquence.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

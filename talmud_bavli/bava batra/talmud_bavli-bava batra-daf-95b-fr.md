@@ -45,4 +45,4 @@ La Guemara <b>souleve une objection</b> à l'opinion de Rav Yehuda. Elle est ens
 <b>Abaye a dit à Rav Yosef : Ceci</b> est l'avis de <b>Rav Yehuda,</b> et <b>ceci</b> est l'avis de <b>Rav Ḥisda. Selon l'avis de qui</b> <b>le Maître tient-il ? </b> Rav Yosef lui <b>dit : Je connais une <i>baraita</i></b> de laquelle il est possible de dériver la <i>halakha</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

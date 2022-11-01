@@ -30,4 +30,4 @@ La mishna continue sa liste : <b>Et la terre des nations,</b> c'est-à-dire qu'u
 <b>Et</b> dans les cas énumérés qui impliquent une impureté rituelle provenant d'un cadavre, <b>on asperge</b> l'eau de purification sur lui <b>au troisième et au septième</b> jours de sa purification,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

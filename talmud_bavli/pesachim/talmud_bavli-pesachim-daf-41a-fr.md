@@ -66,4 +66,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent par rapport au Chabbat, pour
 <b>Rava a dit :</b> Celui qui <b>mange</b> l'agneau pascal <b>partiellement rôti,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

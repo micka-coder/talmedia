@@ -66,4 +66,4 @@ Mais si <b>il l'a destiné</b> à être utilisé pour la consommation d'un Genti
 Un jour <b>Rabbi Asi ne s'est pas rendu à la salle d'étude. Il a trouvé Rabbi Zeira,</b> et lui a <b>dit : Qu'est-ce qui a été dit</b> aujourd'hui <b>en salle d'étude ?</b> Rabbi Zeira <b>lui a dit : Quel</b> sujet est <b>difficile pour toi</b> et tu penses qu'il a pu être discuté en salle d'étude ? Rabbi Asi <b>lui dit : </b> Je trouve difficile ce <b>qui est enseigné</b> dans une <i>baraita</i> : Si <b>quelqu'un avait l'intention</b> la chair d'un membre coupé d'un animal vivant pour être utilisée pour la consommation d'un Gentil, <b>et qu'après il a coupé</b> la chair du membre, la chair est <b>impure.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

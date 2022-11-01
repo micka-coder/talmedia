@@ -54,4 +54,4 @@ La Guemara poursuit sa discussion sur les punitions en général et sur la relat
 La Guemara apporte des preuves à ces affirmations : <b>Il n'y a pas de mort sans péché, comme il est écrit : " L'âme qui pèche, elle mourra. Le fils ne portera pas l'iniquité du père, et le père ne portera pas l'iniquité du fils ; la justice du juste sera sur lui, et la méchanceté du méchant sera sur lui"</b> (Ezéchiel 18:20). Une personne meurt uniquement à cause de ses propres péchés et non à cause d'un péché préexistant. Et <b>il n'y a pas de souffrance sans iniquité, comme il est écrit : "Je punirai leur transgression par la verge et leur iniquité par des coups"</b> (Psaumes 89:33).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

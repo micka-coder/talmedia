@@ -17,5 +17,5 @@ Celui qui a déposé de l'argent chez un changeur : si l'argent était attaché,
 ### michna 6
 Si une perutah appartenant au Temple est tombée dans son sac ou s'il a dit : "Une perutah de ce sac sera consacrée", dès qu'il dépense la première perutah, il est coupable de sacrilège, paroles de Rabbi Akiva. Mais les sages disent : pas avant qu'il ait dépensé tout l'argent qui se trouvait dans le sac. Rabbi Akiva est d'accord : s'il dit : "Une peruta de ce sac sera consacrée", il peut continuer à dépenser [et n'est responsable que] lorsqu'il a dépensé tout ce qui était dans le sac.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

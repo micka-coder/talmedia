@@ -22,4 +22,4 @@
 <b>Du feu ils sont sortis</b> Ils ont transgressé les paroles de la Torah, qui ont été données par le feu, et des nations aussi fortes que le feu les détruiront.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

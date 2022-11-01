@@ -58,4 +58,4 @@
 <b>De mes connaissances, je suis retiré</b> Heb.  מחשךš. Je suis retiré et retenu d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

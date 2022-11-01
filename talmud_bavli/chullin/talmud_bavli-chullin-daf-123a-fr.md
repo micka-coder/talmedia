@@ -57,4 +57,4 @@ Ceci <b>parce que</b> la raison de ce décret rabbinique est de peur que l'on ne
 <b>Rabba a dit :</b> Il y a <b>deux réfutations de</b> cette <b>déclaration. La première</b> est que le décret doit s'appliquer même à un vêtement qui a été immergé le jour même, <b>de peur que</b> les gens qui voient quelqu'un manger une nourriture rituellement pure en portant un tel vêtement <b>disent</b> que l'<b>immersion</b> d'un vêtement <b>le</b> même <b>jour suffit</b> pour que le vêtement soit porté en mangeant une nourriture rituellement pure, et qu'il n'y ait pas besoin d'attendre la tombée de la nuit. <b>Et en outre,</b> si un vêtement qui n'a pas été immergé ce jour-là n'est rendu pur qu'en déchirant tout le vêtement et non en déchirant simplement la majorité du vêtement, en raison d'un décret interdisant de déchirer moins que la majorité du vêtement,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

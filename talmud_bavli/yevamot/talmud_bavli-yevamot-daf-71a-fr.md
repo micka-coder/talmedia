@@ -60,4 +60,4 @@ La Gemara commente : <b>Grâce,</b> en ce qui concerne <b>les esclaves de quelqu
 La Guemara soulève une difficulté : Si le cas est celui d'un enfant qui se remet d'une maladie, <b>donnons-lui les sept</b> jours complets dont il a besoin pour récupérer correctement. <b>Comme l'a dit Shmuel :</b> Dans le cas d'un bébé qui a été malade avec une forte fièvre, et par la suite <b>la fièvre l'a quitté, on lui donne sept jours complets</b> pour guérir et seulement ensuite on le circoncit, mais pas avant. La Gemara répond : Il s'agit en fait d'un cas où <b>on</b> lui a déjà <b>donné sept jours complets</b> pour guérir, mais ils ont culminé la veille de Pessah. La Gemara demande : <b>Mais</b> si la période de guérison de sept jours se terminait la veille de Pessah, pourquoi le père a-t-il attendu le moment de manger l'agneau pascal, c'est-à-dire la première nuit de Pessah ? <b>Il aurait dû le circoncire</b> déjà <b>le matin,</b> avant le moment de la préparation de l'agneau pascal. La Guemara répond : <b>Nous exigeons</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

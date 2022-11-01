@@ -21,4 +21,4 @@ L'hypothèse selon laquelle le dépôt d'une protestation serait efficace doit �
 § <b>Rav Yehuda dit</b> que <b>Rav dit :</b> En ce qui concerne <b>un juif qui vient</b> réclamer une terre <b>du fait</b> de l'avoir reçue d'un <b>gentil, il est comme un gentil</b> en ce qui concerne les revendications légales qui lui sont accessibles. Par conséquent, <b>de même qu'un Gentil a</b> la capacité d'établir la <b>présomption</b> de propriété <b>uniquement au moyen</b> d'un document, de même, un Juif qui vient</b> revendiquer une terre <b>du fait</b> de l'avoir reçue d'un <b>Gentil a</b> la capacité d'établir la <b>présomption</b> de propriété <b>uniquement au moyen</b> d'un document. Rava a dit : Et si</b> le <b>Juif dit</b> à un propriétaire antérieur, qui prétend être toujours propriétaire du terrain :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

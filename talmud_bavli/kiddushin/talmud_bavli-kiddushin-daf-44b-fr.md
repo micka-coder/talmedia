@@ -42,4 +42,4 @@ La Gemara commente : Rav Kahana <b>souleve l'objection et il la résout :</b> La
 <b>Rav Hamnuna soulève une objection :</b> Il est enseigné dans une <i>baraita</i> à propos d'une servante hébraïque : Un père <b>ne peut pas vendre</b> sa fille mineure comme servante hébraïque <b>à</b> ses <b>parents</b> car la Torah exige que celui qui achète une servante puisse l'épouser. Les Sages ont <b>dit au nom de Rabbi Elazar :</b> Il peut <b>la vendre</b> même <b>à</b> ses <b>parents,</b> car parfois une servante hébraïque ne sert qu'à ce titre, sans épouser le maître.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara répond : <b>Il était nécessaire</b> que le <i>baraita</i> précise
 La Gemara demande : <b>Est-ce à dire que</b> la violation d'une mitzva positive <b>est du même type que</b> les péchés expiés par une offrande pour le péché ? <b>Mais Rava ne dit-il pas</b> que <b>une offrande pour le péché que l'on a égorgée pour</b> une personne autre que son propriétaire mais <b>qui</b> était <b>obligée</b> d'apporter <b>une offrande pour le péché</b> est <b>inapte, </b> mais s'il a été abattu <b>pour</b> une personne <b>qui est obligée</b> d'apporter <b>un holocauste,</b> il est <b>conforme,</b> car il n'est pas obligé de fournir une expiation similaire ? Étant donné que les holocaustes expient les violations des mitzvot positives, apparemment cette expiation est d'un type différent de l'expiation de la transgression des interdictions.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

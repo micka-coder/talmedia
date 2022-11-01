@@ -48,4 +48,4 @@ La mishna poursuit : S'il a dit : <b>Jusqu'à Pessah, Rabbi Meir dit :</b> Il lu
 <b>Rav Adda bar Mattana a dit à Abaye : Si c'est ainsi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara note : <b>Et</b> Rabbi Ami <b>est en désaccord</b> avec l'avis de <b
 § A propos de l'inaptitude de quatre espèces acquises par vol, la Guemara relate : <b>Rav Huna dit aux marchands [<i>avankarei</i>]</b> vendant les quatre espèces : <b>Lorsque vous achetez des branches de myrte</b> <b>aux gentils, ne devez-vous pas les couper</b> de l'arbre ? <b>Au contraire, laisse les gentils les couper et te les donner. Quelle est la raison</b> de ce conseil ? C'est parce que <b>les gentils typiques sont des voleurs de terres,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

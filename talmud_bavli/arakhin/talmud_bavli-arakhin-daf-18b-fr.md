@@ -45,4 +45,4 @@ La Gemara demande : <b>Mais</b> si c'est le cas, alors <b>selon celui qui dit</b
 La Gemara demande : <b>Et</b> en ce qui concerne <b>l'autre,</b> Rav Yosef, comment répondrait-il à cette affirmation ? Il soutiendrait que <b>s'il vous vient à l'esprit</b> que la <i>baraita</i> fait référence aux années d'évaluations, <b>qui sont écrites</b> dans la Torah, alors <b>cette</b> phrase dans la <i>baraita</i> : <b>A l'égard d'un fils et à l'égard d'une fille,</b> est impropre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

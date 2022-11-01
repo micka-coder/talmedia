@@ -54,4 +54,4 @@ La Guemara clarifie : <b>Si</b> on les compare, on pourrait dire que <b>comme l�
 Rava poursuit : <b>Et il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit : </b> Il <b>est énoncé ici,</b> en ce qui concerne le taureau et le bouc offerts par le Grand Prêtre à Yom Kippour, les termes <b>peau, chair et fumier,</b> dans le verset : "Le taureau du sacrifice pour le péché et le bouc du sacrifice pour le péché, dont le sang a été apporté pour faire l'expiation dans le Sanctuaire, seront transportés hors du camp ; on brûlera au feu leur peau, leur chair et leurs excréments" (Lévitique 16:27).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

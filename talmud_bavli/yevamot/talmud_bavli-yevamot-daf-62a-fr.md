@@ -54,4 +54,4 @@ La Guemara clarifie les raisons de leurs opinions : <b>Rav Huna a dit</b> qu'il 
 La Guemara <b>souleve une objection</b> à l'égard de l'opinion de Rav Huna en se basant sur la <i>baraita</i> suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

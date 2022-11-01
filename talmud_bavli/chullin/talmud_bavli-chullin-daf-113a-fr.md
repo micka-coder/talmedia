@@ -60,4 +60,4 @@ La Gemara relate : <b>Le Rav Sheshet salait</b> la viande <b>un os,</b> c'est-à
 <strong>GEMARA:</strong> La Gemara demande : <b>D'où viennent ces questions</b> ? <b>Rabbi Elazar dit : Le verset dit : "Et Juda envoya le chevreau"</b> (Genèse 38:20).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ Le chapitre se termine en citant une prophétie supplémentaire d'Isaïe concern
 <b>Rav Naḥman bar Yitzḥak dit :</b> On récite le verset : <b>"Le Seigneur bâtit Jérusalem,</b> Il rassemble les dispersés d'Israël" (Psaumes 147:2). La Gemara demande : <b>Et initialement,</b> lorsque le Temple était encore debout et que le peuple juif était rassemblé en Eretz Yisrael, <b>que disaient</b> les veilleurs ? Rava bar Rav Sheila dit : </b> Ils diraient : <b>"Car le Seigneur a choisi Sion, il l'a désirée pour sa demeure.</b> C'est là mon lieu de repos pour toujours, c'est là que j'habiterai car je l'ai désiré" (Psaumes 132:13-14).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

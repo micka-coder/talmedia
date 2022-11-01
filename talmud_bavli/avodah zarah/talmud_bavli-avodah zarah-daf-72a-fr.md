@@ -48,4 +48,4 @@ Si le vendeur <b>dit à</b> l'acheteur : Je te vendrai cette marchandise <b>comm
 La Guemara tente d'apporter une preuve de l'opinion de Rav Huna à partir de ce que <b>nous avons appris</b> dans la mishna ici : Dans le cas où un Juif <b>prend un entonnoir et mesure</b> du vin <b>dans la cruche d'un Gentil, puis mesure</b> du vin avec le même entonnoir <b>dans la cruche d'un Juif,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

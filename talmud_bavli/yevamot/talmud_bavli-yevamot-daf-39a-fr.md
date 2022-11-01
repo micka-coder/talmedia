@@ -75,4 +75,4 @@ La Guemara propose une autre preuve : <b>Nous avons appris</b> dans la mishna : 
 La Gemara répond : <b>Mais</b> même <b>selon votre raisonnement</b> que la <i>ḥalitza</i> effectuée par un frère aîné est préférable, qu'en est-il du cas suivant dans la mishna, où un frère demande d'attendre <b>jusqu'à ce que le frère aîné revienne d'outre-mer ?</b> Dans ce cas également, la mishna statue : <b>Ils ne l'écoutent pas;</b> mais <b>pourquoi ne devraient-ils pas</b> l'écouter ? <b>Laissons</b> le tribunal <b>attendre,</b> car <b>peut-être qu'il viendra et</b> à tout le moins <b>exécuter <i>ḥalitza</i>. Au contraire,</b> il est clair que la raison de la décision de la mishna est que <b>on ne retarde pas l'accomplissement d'une mitzva;</b> par conséquent, si l'un des frères est actuellement incapable d'accomplir la mitzva, il n'est pas du tout considéré. Par conséquent, aucune preuve ne peut être tirée de la mishna.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

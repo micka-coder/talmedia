@@ -50,4 +50,4 @@
 <b>et l'opprobre de Mon peuple tu porteras</b> - Tu porteras l'iniquité pour l'opprobre que les peuples du monde font subir à Mon peuple, car la Torah les a avertis concernant (<a class="refLink" href="/Deuteronomy.25.14" data-ref="Deuteronomy 25:14">Deut. 25:14</a>) : "Tu n'auras pas dans ta maison deux sortes d'épha", mais ils ne l'observent pas. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

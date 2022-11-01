@@ -45,4 +45,4 @@ La Guemara répond : La décision est <b>conforme</b> à l'avis de <b>Rabbi Yo�
 § A propos de la déclaration de Shmuel concernant une femme ayant reçu un acte de divorce et une femme ayant reçu des fiançailles léviriennes, <b>un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

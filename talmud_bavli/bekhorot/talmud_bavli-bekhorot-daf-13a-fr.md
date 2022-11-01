@@ -21,4 +21,4 @@ La mishna procède à l'énumération d'autres mitzvot dans lesquelles une optio
 En ce qui concerne un animal non cachère qui a été consacré au Temple, <b>la mitzva du rachat par le propriétaire</b> qui l'a consacré <b>prépasse</b> le rachat par <b>toute</b> autre <b>personne, comme il est dit :</b> "Et s'il s'agit d'un animal non cachère...</b> et s'il n'est pas racheté, il sera vendu selon votre évaluation"</b> (Lévitique 27:27).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

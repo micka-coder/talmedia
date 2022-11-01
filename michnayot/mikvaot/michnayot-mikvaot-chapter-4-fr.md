@@ -14,5 +14,5 @@ L'eau puisée et l'eau de pluie qui ont été mélangées ensemble dans une cour
 ### michna 5
 Dans le cas d'un bassin [creusé] dans un rocher : On ne peut pas y remplir [les eaux lustrale], on ne peut pas y consacrer [les eaux lustrales] et on ne peut pas y faire d'aspersion. Et il n'est pas nécessaire de le recouvrir d'un couvercle étanche, et il n'invalide pas le mikvé. S'il s'agissait d'un récipient et qu'il avait été relié au sol avec de la chaux : On peut y remplir les eaux lustrales, et on peut y consacrer les eaux lustrales, et on peut y faire des aspersions, Et il faut une couverture hermétiquement fermée ; Et cela invalide le mikveh. Si on y a fait un trou en dessous ou sur le côté de façon à ce qu'il ne puisse pas contenir d'eau, même en petite quantité, il est valide. Et quelle doit être la taille de ce trou ? Comme le goulot d'une outre. Rabbi Yehouda ben Beitera dit : A propos du bassin de Yehu à Jérusalem qui était [séparé par un mikvé valide à l'aide d'un ouverture] de la taille du goulot d'une outre, et que toutes les purification [d'ustensiles] à Jérusalem aient été faites en utilisant celui-ci: Bet Shammai ont envoyé [des personnes] pour élargir [le trou], car Bet Shammai disent : [un bassin adjacent à un  mikvé n'est valide que si] la majorité [de la paroi mitoyenne est ouverte].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Akiva</b> déduit-il que c'est ob
 La Guemara demande : <b>Et</b> comment <b>Rabbi Yishmael</b> explique-t-il cette répétition ? La Guemara répond : Il explique que le verset enseigne que <b>il peut devenir impur pour elle, mais il ne peut pas devenir impur pour</b> enterrer un seul de ses <b>membres.</b> Ce verset supplémentaire enseigne qu'un prêtre peut devenir rituellement impur pour enterrer un parent uniquement dans le cas de l'enterrement d'un corps complet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

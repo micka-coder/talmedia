@@ -17,5 +17,5 @@ R. Meir a dit : "Lorsque l'homme souffre, quelle expression la shechinah (la pr�
 ### michna 6
 Lorsque la chair était complètement décomposée, les os étaient rassemblés et enterrés à leur place. Les proches venaient alors saluer les juges et les témoins, comme pour dire : nous n'avons pas de rancune envers vous, car vous avez rendu un jugement juste. Et ils n'ont pas observé de rites de deuil, mais ont été affligés [par lui], car l'affliction est dans le cœur seulement.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

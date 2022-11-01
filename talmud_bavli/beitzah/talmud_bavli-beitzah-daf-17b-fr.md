@@ -48,4 +48,4 @@ La mishna précise que si <b>quelqu'un a mangé</b> la nourriture préparée ava
 <strong>GEMARA:</strong> <b>En tout état de cause, tout le monde est d'accord,</b> c'est-à-dire que le Beit Shammai et le Beit Hillel sont d'accord, que l'on <b>ne doit pas</b> immerger <b>un récipient le Chabbat.</b> La Gemara demande : <b>Quelle est la raison</b> pour laquelle on ne peut pas le faire ? Quel type de travail interdit cela implique-t-il ? <b>Rabba dit :</b> C'est <b>un décret</b> émis par les Sages à titre préventif,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@
 <b>Hâte-toi vers moi</b> pour m'aider.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

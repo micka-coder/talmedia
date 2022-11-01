@@ -57,4 +57,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> Rabbi Ḥanina et Rav Ḥisda é
 <b>Si</b> leurs avis sont <b>conformes</b> à l'avis <b>de Rabbi Yehuda,</b> qui considère que le sang d'une offrande n'est pas annulé dans le sang d'un animal non sacré car les deux sont le même type de substance, cela est difficile : <b>Mais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Quant au cas où la résidence <b>extérieure</b> a été transférée <b>par le
 <strong>MISHNA :</strong> Celui <b>qui vend une maison a,</b> dans le cadre de la vente, <b>vendu</b> également <b>la porte, mais pas la clé. Il a vendu le mortier qui est fixé</b> dans le sol, <b>mais pas celui qui est portable</b>. <b>Il a vendu la</b> meule inférieure immobile [<i>ha'itzterobil</i>], mais pas la</b> <b>pierre supérieure portable [<i>hakelet</i>],</b> l'entonnoir dans lequel on verse le grain à moudre. <b>Et</b> il n'a vendu <b>ni le four ni le double poêle,</b> car ils sont réputés mobiles. <b>Quand</b> le vendeur <b>dit à</b> l'acheteur : Je te vends <b>cela, et tout ce qui s'y trouve,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

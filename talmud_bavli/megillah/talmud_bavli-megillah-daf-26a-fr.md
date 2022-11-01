@@ -51,4 +51,4 @@ A propos du sujet des auberges, la Gemara rapporte : <b>Abaye a dit : Apprenez d
 § La Guemara reprend sa discussion de la mishna : <b>Rava dit : Ils ont enseigné</b> qu'il y a une limitation de ce qui peut être acheté avec le produit de la vente d'une synagogue <b>uniquement lorsque les sept représentants de la ville</b> qui ont été désignés pour administrer les affaires de la ville <b>n'ont pas vendu</b> la synagogue <b>dans une assemblée des résidents de la ville. Cependant,</b> si <b>les sept représentants de la ville l'avaient vendue</b> <b>dans une assemblée des habitants de la ville,</b> alors <b>même</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara interroge cette affirmation sous un angle différent : <b>Et</b> on p
 <strong>MISHNA :</strong> Le nazirite <b>cuit le sacrifice de paix ou le fait trop cuire,</b> c'est-à-dire qu'il le cuit à cœur. <b>Le prêtre prend la patte avant cuite du bélier, et un pain sans levain du panier, et une galette sans levain, et les place</b> <b>sur les paumes du nazirite et les agite,</b> comme décrit dans la Torah (Nombres 6:19-20). <b>Et après cela, le nazirite est autorisé à boire du vin et à contracter l'impureté rituelle</b> communiquée <b>par un cadavre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

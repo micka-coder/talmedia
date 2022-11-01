@@ -42,4 +42,4 @@ Rabbi Zeira <b>sort, examine</b> la question, <b>et découvre</b> une mishna qui
 La Guemara demande : <b>Et quelle est la</b> signification du fait que la mishna <b>définit</b> l'emplacement précis de l'arrangement et le fait que c'est là que l'encens est brûlé ? La Guemara se lance dans une longue discussion pour répondre à cette question : Cette mishna <b>est</b> conforme à l'opinion de <b>Rabbi Yosei,</b> qui soutient que cet arrangement de bois et la combustion de l'encens doivent se trouver à cet endroit précis, <b>comme cela est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

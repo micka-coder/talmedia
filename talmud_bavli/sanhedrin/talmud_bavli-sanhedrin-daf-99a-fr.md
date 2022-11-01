@@ -69,4 +69,4 @@ A propos de l'étude de la Torah, <b>Rabbi Yehoshua ben Korḥa dit : Quiconque 
 <b>Rabbi Akiva dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

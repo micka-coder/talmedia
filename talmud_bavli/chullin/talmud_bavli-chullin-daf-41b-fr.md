@@ -57,4 +57,4 @@ La Gemara demande : Qu'est-ce qui est ajouté par la seconde moitié du principe
 La Gemara objecte : C'est <b>évident.</b> De toute évidence, s'il a déclaré explicitement que l'abattage est pour l'holocauste de sa femme après l'accouchement, l'abattage n'est pas valide.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

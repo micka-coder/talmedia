@@ -122,5 +122,5 @@
 ### passuk 38
 <b>Mon fils ne descendra pas avec toi.</b> Il n'a pas accepté l'offre de Reuvein. Il dit : "Ce premier-né est un imbécile. Il propose de tuer ses fils. Sont-ils seulement ses fils et non mes fils ?" 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

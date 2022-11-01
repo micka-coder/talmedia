@@ -39,4 +39,4 @@ La Guemara demande : <b>Et dire</b> que le terme enseigne que le liquide <b>tran
 La Gemara suggère : <b>Et dire que lorsque</b> les liquides <b>ne transmettent pas d'impureté rituelle</b> à un récipient, c'est-à-dire dans le cas de <b>liquides qui arrivent</b> à un état d'impureté <b>en raison</b> du contact avec un <b>ustensile impur,</b> car le récipient lui-même ne transmet pas d'impureté à un autre récipient. <b>Cependant,</b> en ce qui concerne les <b>liquides qui arrivent</b> à un état d'impureté <b>du fait</b> du contact avec <b>un animal rampant,</b> une forme d'impureté plus sévère, <b>en fait, ils</b> devraient <b>transmettre l'impureté</b> même aux récipients. La Gemara rejette cette affirmation : <b>Les liquides qui arrivent</b> à un état d'impureté <b>du fait</b> d'un contact avec <b>un animal rampant sont-ils énoncés</b> explicitement dans la Torah ? Les liquides impurs mentionnés dans le verset sont devenus impurs par contact avec un récipient qui est entré en contact avec un animal rampant mort.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Gemara explique : <b>Certains le disent de cette manière et d'autres de cett
 La Guemara poursuit sa discussion sur la déclaration de Shmuel : <b>Et témoigner l'un pour l'autre.</b> Un partenaire peut se joindre à un autre témoin pour témoigner du fait que son partenaire possède une part de leur champ afin de contrer la prétention d'un qui revendique la propriété du champ, et son témoignage n'est pas disqualifié pour cause de partialité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

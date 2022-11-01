@@ -84,4 +84,4 @@ La Gemara conclut : <b>Et</b> il n'y a <b>plus rien</b> à discuter. La suggesti
 § <b>Lorsque Rav Shmuel bar Yehuda est venu</b> d'Eretz Yisrael en Babylonie, il <b>a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

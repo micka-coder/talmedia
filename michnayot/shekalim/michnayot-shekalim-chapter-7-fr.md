@@ -20,5 +20,5 @@ Rabbi Shimon dit : il y avait sept choses que le tribunal décrétait et c'étai
 ### michna 7
 [Ils ont en outre décrété] concernant le sel et le bois que les prêtres peuvent en bénéficier. Et concernant la génisse [rousse] que l'utilisation de ses cendres ne soit pas considérée comme un sacrilège. Et concernant les offrandes d'oiseaux devenues impropres [au sacrifice], que [d'autres] soient offertes [à leur place] à partir des fonds publics. Rabbi Yose dit : celui qui a fourni les offrandes d'oiseaux était tenu de fournir [celles qui devaient être offertes à la place de] celles qui étaient devenues impropres.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -51,7 +51,7 @@ La Guemara répond : <b>En fait, Rabbi Yehuda n'interprète pas</b> généraleme
 <b>Et Rav Yehuda dit :</b> S'il <b>a pris une meule inférieure en garantie, il est fouetté</b> avec <b>une</b> série de coups de fouet, s'il a pris <b>une meule supérieure, il est fouetté</b> avec <b>une</b> série de coups de fouet, et s'il a pris à la fois <b>les meules inférieure et supérieure</b> en garantie <b>il est fouetté</b> avec <b>deux</b> séries de coups de fouet. En ce qui concerne le verset : <b>"Car il prend la vie d'un homme en garantie,"</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Pourquoi</b> doit-on <b>reprendre la garantie</b> à nouveau, puisque le créancier doit de toute façon la restituer au débiteur le lendemain ? La Gemara répond : Tout prêt garanti par un nantissement n'est pas annulé par l'année sabbatique, contrairement aux autres dettes, qui sont annulées. Par conséquent, cela garantit <b>que l'année sabbatique</b> <b>ne doit pas l'annuler. Et</b> une raison supplémentaire est que la garantie <b>ne doit pas devenir un bien meuble</b> en possession <b>de ses enfants,</b> car on ne peut généralement pas réclamer de tels objets aux orphelins pour payer la dette de leur père.
 
@@ -104,4 +104,4 @@ La Guemara répond : <b>En fait, Rabbi Yehuda n'interprète pas</b> généraleme
 <b>Et Rav Yehuda dit :</b> S'il <b>a pris une meule inférieure en garantie, il est fouetté</b> avec <b>une</b> série de coups de fouet, s'il a pris <b>une meule supérieure, il est fouetté</b> avec <b>une</b> série de coups de fouet, et s'il a pris à la fois <b>les meules inférieure et supérieure</b> en garantie <b>il est fouetté</b> avec <b>deux</b> séries de coups de fouet. En ce qui concerne le verset : <b>"Car il prend la vie d'un homme en garantie,"</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

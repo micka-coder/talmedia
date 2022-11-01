@@ -71,5 +71,5 @@
 ### passuk 18
 <b>Afin qu'Hachem retire Sa fureur qui s'élève.</b> Car, tant que l'idolâtrie existe dans le monde, la fureur fait rage dans le monde. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

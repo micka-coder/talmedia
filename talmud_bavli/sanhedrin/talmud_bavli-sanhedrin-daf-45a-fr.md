@@ -45,4 +45,4 @@ La Gemara suggère : <b>Disons</b> que le fait de statuer conformément à la d�
 <b>Et d'où vient</b> que ce châtiment est parfois accompli à la fois <b>par la lapidation et par la poussée,</b> c'est-à-dire que si le transgresseur n'est pas mort de sa chute, il est alors lapidé ? <b>Le verset stipule : "Il sera lapidé ou sera jeté à terre". Et d'où</b> provient-il <b>que si</b> le condamné <b>est mort de sa poussée,</b> l'obligation de le lapider <b>a été remplie,</b> et qu'il n'y a plus besoin de le lapider effectivement ? <b>Le verset dit : "Ou sera jeté à terre"</b>, le terme "ou" indiquant qu'une seule des deux options doit être accomplie. <b>Et d'où vient</b> que ceci</b> est la <i>halakha</i> non seulement au mont Sinaï, mais <b>même</b> en ce qui concerne <b>les <b>générations</b> futures ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

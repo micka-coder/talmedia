@@ -63,4 +63,4 @@ La Gemara rejette cette déduction : <b>Disons</b> que la formulation de la mish
 <b>Il a été déclaré : Ulla dit</b> que <b>Rabbi Yoḥanan dit : Transporter</b> le sang <b>non pas à pied n'est pas considéré comme un transport.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara relate : Il y avait <b>un certain</b> homme <b>qui dit à un autre : J
 <b>Et s'il lui a dit :</b> Je te vends <b>des champs, sans préciser</b> combien, <b>le nombre minimum</b> de champs qui justifierait qu'on les appelle <b>champs</b> au pluriel est <b>deux,</b> et donc le vendeur doit donner à l'acheteur seulement deux de ses champs, même s'il en possède beaucoup. <b>Et s'il lui dit :</b> Je te vends <b>tous</b> mes <b>champs,</b> ce qu'il veut dire c'est qu'il lui vend <b>tous les champs qu'il possède, à l'exclusion</b> de ses <b>orchards [<i>bustanei</i>] et de ses vignes. Et s'il lui dit :</b> Je te vends ma <b>propriété foncière,</b> ce qu'il veut dire, c'est qu'il lui vend <b>même</b> ses <b>orchards et ses vignes,</b> mais <b>à l'exclusion</b> de ses <b>maisons et</b> <b>esclaves cananéens.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

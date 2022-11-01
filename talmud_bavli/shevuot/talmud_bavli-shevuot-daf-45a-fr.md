@@ -51,4 +51,4 @@ La Gemara soulève une difficulté : <b>Mais</b> si l'on présume que l'employeu
 La Gemara explique : Le serment a été institué <b>pour apaiser les inquiétudes de l'employeur,</b> pour lui assurer qu'il n'est pas trompé. <b>Et</b> pourquoi les Sages n'ont-ils pas institué que l'employeur <b>doit remettre</b> au travailleur son salaire <b>en</b> présence de <b>témoins</b> afin que l'on puisse aisément établir s'il a été payé ? La Gemara répond : Trouver des témoins chaque fois qu'il verse un salaire serait <b>une affaire pénible pour lui. Et</b> pourquoi les Sages n'ont-ils pas institué que l'employeur <b>doit lui donner</b> son salaire <b>dès le départ,</b> lorsqu'il l'embauche, de sorte qu'il n'y aurait pas besoin de serment ? La Gemara répond : <b>Ils veulent tous deux</b> que le travail soit effectué <b>à crédit,</b> c'est-à-dire avant le versement du salaire, car il arrive que l'employeur n'ait pas d'argent prêt lorsqu'il embauche un ouvrier, et l'ouvrier préfère également recevoir son argent à la fin de la journée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -94,4 +94,4 @@
 <b>Avec des cornes et des sabots</b> Ses cornes ont précédé ses sabots, car il a été créé à sa hauteur avec ses cornes, et sa tête a émergé du sol la première ; la terre les a poussées de la manière dont naissent toutes les créatures, de sorte que ses cornes ont précédé ses pieds.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

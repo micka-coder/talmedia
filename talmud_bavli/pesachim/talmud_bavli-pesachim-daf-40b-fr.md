@@ -51,4 +51,4 @@ Le <i>tanna</i> précise en outre : <b>L'eau qui a été utilisée par un boulan
 <b>Et cette</b> opinion <b>a également été enseignée</b> dans une <i>baraita</i> : <b>On</b> ne peut <b>pas ajouter de farine au <i>ḥaroset</i>, et si l'on a ajouté</b> de la farine, elle doit <b>être brûlée immédiatement.</b> En ce qui concerne la farine qui a été ajoutée <b>à la moutarde, Rabbi Meir dit :</b> Elle doit <b>être brûlée immédiatement, et les sages disent :</b> Elle doit <b>être mangée immédiatement,</b> avant qu'elle ne soit levée. <b>Rav Huna, fils de Rav Yehuda, a dit</b> que <b>Rav Naḥman a dit</b> que <b>Shmuel a dit : La <i>halakha</i> est conforme</b> à l'avis des <b>Rabbins</b> concernant cette question. <b>Rav Naḥman bar Yitzḥak dit à Rav Huna, fils de Rav Yehuda :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -85,4 +85,4 @@
 <b>et les encensoirs</b> avec lesquels on ramassera la partie des cendres qui est séparée [du reste et jetée à côté de l'autel, comme dans Lév. 6:31, (et le reste des cendres) pour les ramasser sur l'autel, (ibid. 16:12) : "Et il prendra un encensoir plein, etc."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

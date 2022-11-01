@@ -102,4 +102,4 @@
 <b>J'ai fait fleurir l'arbre sec</b> Jehoïachin, exilé sans enfants, engendrera Zorobabel à Babylone, et il sera le gouverneur de la Judée, [désigné] pour gouverner.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

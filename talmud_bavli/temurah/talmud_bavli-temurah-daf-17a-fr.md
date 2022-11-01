@@ -66,4 +66,4 @@ La Guemara soulève un autre défi à l'opinion de Shmuel à partir de la mishna
 <b>Et il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Meir a dit : Mais puisqu'ils ne deviennent pas sanctifiés, comment peuvent-ils sanctifier</b> un autre animal non sacré ? <b>Vous trouvez plutôt</b> que la décision de Rabbi Elazar s'applique <b>uniquement</b> lorsqu'on <b>sanctifie un animal et qu'après, il devient une <i>tereifa</i>.</b> La Guemara explique la difficulté : <b>Cela</b> indique que si c'était <b>un <i>tereifa</i> dès le départ,</b> alors <b>la sainteté inhérente ne repose pas sur lui;</b> cette décision contredit l'opinion de Shmuel, qui dit qu'un tel animal doit être enterré quand il meurt.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

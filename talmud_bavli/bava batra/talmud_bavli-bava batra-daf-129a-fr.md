@@ -39,4 +39,4 @@ Cette dispute entre les <i>amora'im</i> d'Eretz Yisrael fait également l'objet 
 <b>Rav Sheshet dit : D'où est-ce que je dis cela ? Comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Ketubot</i> 6:10) : Si une personne sur son lit de mort, ou <b>une personne qui</b> part à l'étranger, <b>dit</b> à l'intendant de ses enfants : <b>Donne un shekel à mes enfants</b> chaque <b>semaine</b> pour leurs besoins, <b>et</b> il s'agit d'une situation où, en fonction de leurs besoins, <b>ils sont aptes</b> à ce que l'intendant <b>leur donne une <i>sela</i>,</b> c'est-à-dire, le double de la somme, <b>il leur donne une <i>sela</i>.</b> Lorsque le père a mentionné un shekel, il voulait vraisemblablement dire qu'il fallait donner aux enfants une somme conforme à leurs besoins réels, et non pas ce montant précis. <b>Mais s'il a dit : Donne-leur seulement un shekel,</b> l'intendant <b>leur donne seulement un shekel,</b> et pas plus. <b>Et s'il a dit : Si</b> mes enfants <b>mortent,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

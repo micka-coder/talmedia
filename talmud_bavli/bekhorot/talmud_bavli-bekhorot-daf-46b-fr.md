@@ -42,4 +42,4 @@ La Guemara demande : <b>Et les Sages étaient-ils rigoureux</b> à l'égard de c
 <b>Et si vous le souhaitez, dites</b> plutôt que Rabbi Yoḥanan peut résoudre la difficulté comme suit :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ Comment suspendait-on et écorchait-on l'agneau pascal dans le Temple ? Des croc
 Il déchirerait la chair de l'offrande et en retirerait les parties sacrificielles, c'est-à-dire les graisses et autres parties offertes sur l'autel. Il plaçait les parties sacrificielles dans un grand bassin [ mageis ] et les brûlait sur l'autel. Si cela se passait le Chabbat, jour où le port est interdit, le premier groupe sortait et restait sur le Mont du Temple ; le deuxième groupe restait à l'intérieur du rempart, qui était une zone située à l'extérieur de la cour des femmes ; et le troisième groupe se tenait à sa place dans le Temple. Ils attendraient là jusqu'à la tombée de la nuit, et dès qu'il ferait nuit, ils sortiraient tous et feraient rôtir leurs agneaux pascals, chacun à sa place.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

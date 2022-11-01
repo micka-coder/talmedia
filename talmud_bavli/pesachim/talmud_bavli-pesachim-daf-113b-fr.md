@@ -54,4 +54,4 @@ La Guemara poursuit : <b>Canaan a ordonné à ses fils</b> en ce qui concerne <b
 En ce qui concerne Rabbi Yosei de Hutzal, il a été <b>enseigné :</b> Le <b>Yosef de Hutzal</b> mentionné à d'autres endroits dans la Guemara <b>est</b> la même personne que <b>Yosef le Babylonien.</b> Yosef est le nom complet de Yosei. De plus, <b>il est</b> également connu sous le nom de <b>Isi ben Gur Arye, il est Isi ben Yehuda, il est Isi ben Gamliel,</b> et <b>il est Isi ben Mahalalel. Et quel est son</b> vrai <b>nom ? Son</b> vrai <b>nom</b> est <b>Isi ben Akavya.</b> De même, le Sage <b>Rabbi Yitzḥak ben Tavla est</b> également connu sous le nom de <b>Rabbi Yitzḥak ben Ḥakla,</b> qui <b>est Rabbi Yitzḥak ben Ela.</b> Ce sont deux cas d'un Sage avec plusieurs noms.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara conclut : <b>Et la <i>halakha</i> est</b> comme suit : <b>Les phylact
 § La mishna enseigne : Si l'on lit une Megilla qui <b>a été écrite avec du <i>sam</i></b> ou avec de la <i>sikra</i> ou avec du <i>komos</i> ou avec du <i>kankantom</i>, on n'a pas rempli son obligation. La Guemara identifie ces supports d'écriture : <b><i>Sam</i></b> est ce qu'on appelle en araméen <b><i>samma</i>.</b> En ce qui concerne <b><i>sikra</i>, Rabba bar bar Ḥana a dit : Son nom</b> en araméen est <b><i>sikreta</i>,</b> un type de peinture rouge. <b><i>Komos</i></b> est ce qu'on appelle <b><i>koma</i>,</b> une résine d'arbre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

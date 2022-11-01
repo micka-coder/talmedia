@@ -30,4 +30,4 @@ La Guemara demande : <b>Et selon Rabbi Eliezer, qui considère que l'on est rede
 <b>En ce qui concerne les impuretés rituelles, nous avons appris</b> dans la mishna (<i>Kelim</i> 1:1) : <b>Les principales catégories d'impuretés rituelles</b> sont les suivantes : L'une des huit espèces de <b>l'animal rampant</b> énumérées dans la Torah (Lévitique 11:29-30), <b>et le sperme,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

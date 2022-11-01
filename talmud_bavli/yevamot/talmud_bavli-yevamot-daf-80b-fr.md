@@ -30,4 +30,4 @@ La Gemara demande : <b>Mais</b> si oui, par rapport à <b>ce que Rabba bar Avuh 
 § Il est encore enseigné dans la mishna que si <b>un eunuque a accompli <i>ḥalitza</i> avec sa <i>yevama</i>, il ne l'a pas</b> ainsi <b>disqualifiée</b> de se marier à la prêtrise, mais s'il a eu des rapports sexuels avec elle, il l'a disqualifiée. La Guemara déduit de cette formulation que <b>la raison</b> de sa disqualification <b>est que lui,</b> le <i>yavam</i>, <b>a eu des rapports sexuels avec elle,</b> car elle a eu des rapports sexuels avec son <i>yavam</i> en dehors du cadre du mariage lévirat autorisé. <b>Mais</b> si <b>un individu différent</b> avait des relations avec elle, elle ne serait <b>pas</b> disqualifiée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

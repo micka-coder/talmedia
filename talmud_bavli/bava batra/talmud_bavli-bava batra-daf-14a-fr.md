@@ -45,4 +45,4 @@ Avec cette explication, <b>vous avez comptabilisé</b> toute <b>la longueur de l
 <b>Et</b> en conséquence, <b>comment je réalise</b> le sens de ce qui est énoncé : <b>"Il n'y avait rien dans l'Arche à l'exception</b> des deux tablettes de pierre que Moïse y a mises", qui, selon l'avis de Rabbi Meir, enseigne qu'il y avait autre chose dans l'Arche que les tablettes elles-mêmes ? Il sert <b>à inclure</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

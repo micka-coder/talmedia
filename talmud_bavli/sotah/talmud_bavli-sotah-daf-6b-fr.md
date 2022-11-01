@@ -54,4 +54,4 @@ Le <i>baraita</i> continue : Le mot suivant du verset, <b>"elle [<i>hee</i>],"</
 Après avoir cité cette <i>baraita</i> comme preuve de la décision de Rav Sheshet, bien que provenant d'une source différente, la Guemara se demande comment Rabbi Shimon pourrait nier la capacité du mérite de la femme à retarder la punition de la <i>sota</i> par crainte de discréditer tout le rite de la <i>sota</i>, étant donné qu'il existe un autre cas qui empêche l'eau amère d'évaluer une femme, c'est-à-dire lorsque des témoins dans un pays d'outre-mer peuvent témoigner. <b>Et Rabbi Shimon, accorde qu'il n'interprète pas</b> la lettre <b><i>vav</i>,</b> car il tient que son ajout n'est pas significatif, et donc il tient que son mérite ne retarde pas sa punition, <b>mais il existe</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

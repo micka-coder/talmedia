@@ -42,4 +42,4 @@ La Guemara conclut : <b>La <i>halakha</i> n'est pas conforme</b> à l'avis de <b
 <b>A l'égard de tous</b> les autres <b>morts,</b> si l'endeuillé <b>souhaite</b> il peut <b>réduire ses affaires</b> en raison du deuil. Si, toutefois, <b>il souhaite</b> ne pas le faire, il <b>n'a pas besoin</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,7 +33,7 @@ La Gemara demande : <b>Et</b> si le témoignage de ces témoins n'est pas accept
 <b>Rav Sheshet a dit : C'est-à-dire</b> que la <b>contradiction</b> de leur témoignage <b>est la première</b> étape pour les <b>rendre</b> <b>faux témoins conspirateurs,</b> en ce sens que certaines restrictions qui s'appliquent à ces derniers s'appliquent également aux premiers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et Rav Sheshet, fils de Rav Idi, dit : Concluez de la déclaration de Rav Kahana</b> que <b>les témoins qui ont dit : Notre déclaration était</b> une déclaration de <b>confiance,</b> et le document que nous avons signé était un document de confiance, <b>ne sont pas jugés crédibles. Quelle en est la raison ? Puisque</b> ce document <b>est une injustice, ils</b> ne signeraient <b>pas</b> un document d'<b>injustice.</b> Leur affirmation selon laquelle ils ont signé le document les incriminerait et n'est donc pas acceptée.
 
@@ -68,4 +68,4 @@ La Gemara demande : <b>Et</b> si le témoignage de ces témoins n'est pas accept
 <b>Rav Sheshet a dit : C'est-à-dire</b> que la <b>contradiction</b> de leur témoignage <b>est la première</b> étape pour les <b>rendre</b> <b>faux témoins conspirateurs,</b> en ce sens que certaines restrictions qui s'appliquent à ces derniers s'appliquent également aux premiers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Cette différenciation existe <b>parce qu'il est typique pour</b> une source d'<
 <b>Et la dernière clause</b> de cette mishna <b>enseigne :</b> Si on <b>plaçait</b> le coffre <b>à l'entrée</b> de la maison <b>et que l'ouverture</b> du compartiment est tournée vers <b>la sortie</b> de la maison, s'il y a une source d'<b>impureté à l'intérieur</b> du coffre, <b>la maison</b> reste <b>pure</b> car l'objet impur sortira généralement de la maison. S'il y a une source d'<b>impureté dans la maison, tout ce qui se trouve à l'intérieur</b> du coffre reste <b>pur,</b> car la source d'impureté n'entrera pas dans le coffre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

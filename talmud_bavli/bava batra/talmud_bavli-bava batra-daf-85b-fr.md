@@ -30,4 +30,4 @@ La Guemara demande : <b>Mais</b> si les clauses du <i>baraita</i> traitent de ca
 <b>Rava dit : Venez</b> et <b>entendre</b> une résolution à partir d'une <i>baraita</i> : Si <b>quelqu'un tirait ses conducteurs d'ânes,</b> entraînant ainsi avec eux les ânes chargés de marchandises, <b>et</b> de même, s'il tirait <b>ses ouvriers,</b> qui portaient des marchandises qu'il souhaitait acheter, <b>et qu'il les amenait dans sa maison, qu'il ait fixé</b> un prix <b>avant de mesurer</b> la marchandise <b>ou qu'il ait mesuré avant de fixer</b> un prix, <b>les deux</b> parties <b>peuvent renier</b> la vente, à condition que la marchandise n'ait pas été déchargée des ouvriers ou des ânes.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais la mishna</b> ne traite-t-elle pas du cas <b>de celu
 La Guemara répond : <b>Lorsque Rabbi Meir autorise</b> la consommation de l'animal abattu même à Shabbat,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

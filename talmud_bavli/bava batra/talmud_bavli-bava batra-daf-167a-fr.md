@@ -24,4 +24,4 @@ La Gemara raconte : Il y avait <b>un certain document sur lequel</b> les signatu
 <strong>MISHNA :</strong> Un scribe peut <b>écrire un acte de divorce pour un homme</b> qui en fait la demande, <b>même si sa femme n'est pas avec lui</b> pour donner son consentement lorsqu'il présente sa demande, car il n'y a aucune possibilité qu'il fasse un mauvais usage du document. <b>Et</b> un scribe peut rédiger <b>un reçu pour une femme</b> à sa demande, attestant du paiement de son contrat de mariage, <b>même si son mari n'est pas avec elle</b> pour donner son consentement. Ceci est vrai <b>à condition que</b> le scribe <b>reconnaisse</b> les parties qui demandent le document, pour éviter les fausses déclarations. <b>Et</b> pour les deux documents, <b>le mari donne</b> au scribe son <b>salaire.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

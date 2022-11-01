@@ -30,4 +30,4 @@
 <b>Et si vous dites</b> qu'il est <b>destructif en</b> causant la <b>blessure, dans</b> les cas impliquant des actes <b>destructifs</b> <b>la <i>halakha</i> est-elle conforme</b> à l'opinion de <b>Rabbi Yehuda,</b> qui juge que celui qui accomplit tout acte destructif le Chabbat est exempt, même s'il l'a fait intentionnellement ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

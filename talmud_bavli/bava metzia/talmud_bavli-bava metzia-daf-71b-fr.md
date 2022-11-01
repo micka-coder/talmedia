@@ -42,4 +42,4 @@ La Gemara continue : Par conséquent, <b>nous aussi</b> ne pouvons pas servir d'
 <b>Ravina dit</b> une autre réponse : <b>Accordé, un Gentil n'est pas</b> inclus dans la catégorie des <b>agents.</b> Mais <b>il a</b> le pouvoir, <b>selon la loi rabbinique,</b> d'<b>acquérir</b> un bien par un acte d'acquisition effectué par un autre. Ceci est <b>similaire</b> à la <i>halakha</i> concernant un <b>mineur juif.</b> Comme pour le <b>mineur, n'est-ce pas</b> le cas <b>que même s'il n'est pas</b> inclus dans la catégorie <b>d'agence,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

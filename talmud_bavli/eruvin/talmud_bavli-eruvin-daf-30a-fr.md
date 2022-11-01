@@ -63,4 +63,4 @@ La Guemara répond : Il faut expliquer qu'il s'agit de <b>deux <i>tanna'im</i></
 Nous avons appris dans la mishna : <b>On peut établir un <i>eirouv</i> pour un nazirite avec du vin</b> et pour un israélite avec du <i>teruma</i>, même s'ils ne peuvent eux-mêmes prendre part à ces aliments. La Guemara commente : <b>La mishna</b> n'a <b>pas</b> été enseignée <b>conformément</b> à l'opinion de <b>Beit Shammai, car il a été enseigné</b> dans une <i>baraita</i> que <b>Beit Shammai disent : On ne peut pas établir un <i>eirouv</i> pour un nazirite avec du vin et pour un israélite avec du <i>teruma</i>. Les Beit Hillel</b> ne sont pas d'accord et <b>disent : On peut établir un <i>eirouv</i> pour un nazirite avec du vin et pour un israélite avec <i>teruma</i>. Beit Hillel dit à Beit Shammai : Ne concédez vous pas</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara explique : <b>Il y a</b> une différence pratique <b>entre elles</b> d
 Ravina a dit :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

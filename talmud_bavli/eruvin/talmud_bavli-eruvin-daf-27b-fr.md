@@ -54,4 +54,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces d
 La Gemara demande : <b>Abaye a-t-il dit</b> que les <b>poissons sont</b> considérés comme ayant été <b>générés par la terre ? Abaye n'a-t-il pas dit ce qui suit ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

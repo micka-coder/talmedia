@@ -83,5 +83,5 @@
 <b>Il imposa ses mains.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Généreusement, au-delà de ce qui lui avait été ordonné. En effet, le Saint, Béni soit-Il, lui a dit : " pose ta main ", mais il a utilisé ses deux mains. Il l'a façonné comme un vase rempli à ras bord, le remplissant généreusement de sa sagesse. 
 <b>Comme Hachem l'avait ordonné.</b> aussi concernant le rayonnement - Il lui a accordé une partie de son rayonnement.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

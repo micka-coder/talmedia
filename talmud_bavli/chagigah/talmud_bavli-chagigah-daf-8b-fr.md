@@ -54,4 +54,4 @@ La Gemara commente : <b>Aussi, il est raisonnable</b> que Rabbi Yoḥanan convie
 Il <b>a également été déclaré</b> que <b>Rav Shemen bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

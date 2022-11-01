@@ -30,4 +30,4 @@ La Gemara suggère : <b>Et peut-être que tout le monde</b> est d'accord pour di
 La Gemara répond : Il ne faut <b>pas avoir l'esprit</b> de le dire, <b>comme l'enseigne la dernière clause</b> de cette même <i>baraita</i> <b> : Et de même, Rabbi Eliezer disqualifierait</b> un animal acheté à un Gentil <b>dans</b> le cas de <b>toutes les offrandes.</b> La Gemara développe : <b>Et si</b> il devait <b>entrer dans votre esprit</b> que le raisonnement de Rabbi Eliezer est <b>conforme à celui</b> que <b>Sheila a enseigné, accordé, dans</b> le cas de la <b>génisse rouge</b> un terme de <b>prise est écrit, mais</b> un terme de <b>prise est-il écrit en ce qui concerne toutes</b> les autres <b>offrandes ? </b> Puisqu'un terme de prise n'apparaît pas dans le contexte des autres offrandes, cela ne peut être le raisonnement de Rabbi Eliezer. La Guemara suggère : <b>Et peut-être que les rabbins ne sont pas d'accord avec Rabbi Eliezer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

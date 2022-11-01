@@ -48,4 +48,4 @@ Cependant, la <i>halakha</i> concernant <b>un forelock,</b> qu'un Juif qui coupe
 <strong>GEMARA:</strong> La Gemara demande : <b>Que</b> doit-on <b>faire</b> si l'on souhaite prendre une partie d'un animal lors d'une Fête, mais qu'il est interdit de mentionner son prix ? La Gemara répond : <b>As</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

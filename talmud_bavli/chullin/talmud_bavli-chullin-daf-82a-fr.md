@@ -42,4 +42,4 @@ Mais si <b>on a égorgé</b> la mère <b>et la fille de sa fille et qu'ensuite o
 Elle est dérivée de la manière suivante : <b>Lorsque</b> le verset <b>déclare : "Tu n'abattras pas [<i>tishḥatu</i>]</b> les deux en un seul jour" (Lévitique 22:28), <b>cela</b> fait référence à <b>deux</b> personnes qu'il est interdit d'abattre le même jour, car le mot "abattre" est formulé au pluriel. <b>Comment cela ? </b> Si, au cours d'une même journée, il y a <b>une</b> personne <b>qui abat la vache et</b> ensuite <b>une autre qui abat</b> la <b>mère de cette vache, et</b> ensuite il y a <b>une autre</b> personne <b>qui abat</b> la <b>descendance de cette vache, les deux dernières</b> personnes <b>sont responsables,</b> la première d'entre elles pour avoir abattu la mère après que sa progéniture ait été abattue, et la seconde personne pour avoir abattu la progéniture après que sa mère ait été abattue.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Quel est</b> le sens de <b>toujours ? Rav Ashi répond :<
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui a l'intention de détourner un dépôt</b> et exprime cette intention en présence de témoins, <b>Beit Shammai disent : </b> Il est <b>responsable</b> de tout dommage causé au dépôt à partir de ce moment, <b>et Beit Hillel disent : </b> Il est <b>responsable</b> de payer <b>seulement</b> si <b>il</b> s'est effectivement <b>détourné</b> le dépôt, <b>comme il est dit</b> concernant un dépositaire : <b>"S'il a détourné les biens de son prochain"</b> (Exode 22:7). Si <b>il a incliné le</b> <b>fût déposé et y a pris un quart</b>-<i>log</i> de vin pour son propre usage, <b>et</b> le fût <b>s'est brisé,</b> alors <b>il ne paie</b> que pour ce <b>quart</b>-<i>log</i><b>. </b> Si <b>il a soulevé</b> le tonneau <b>et en a retiré un quart</b>-<i>log</i> de vin, <b>et</b> le tonneau <b>s'est brisé,</b> puisqu'il a acquis le tonneau en le soulevant, <b>il paie la valeur</b> du <b>entier</b> tonneau.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

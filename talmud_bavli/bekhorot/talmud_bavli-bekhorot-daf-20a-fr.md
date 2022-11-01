@@ -39,4 +39,4 @@ Dans ce cas, étant donné que la grossesse d'une chèvre dure cinq mois et qu'u
 La Guemara suggère une autre réponse : <b>Et si tu veux, dis que tout le monde accepte</b> la déclaration <b>de Ze'eiri ; et ici,</b> dans le cas d'une chèvre qui a mis bas dans sa première année après avoir expulsé un écoulement trouble à la fin de son sixième mois, <b>ils ne sont pas d'accord</b> sur le fait qu'un animal <b>mette bas après des mois incomplets</b>, c'est-à-dire prématurément.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

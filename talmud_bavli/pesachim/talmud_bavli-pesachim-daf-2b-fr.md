@@ -45,4 +45,4 @@ La Gemara <b>souleve une objection :</b> Si un prêtre <b>était debout toute la
 <b>Mar Zutra soulève une objection</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara développe : C'est un <b>dilemme selon celui qui a dit qu'on peut emp
 <strong>MISHNA:</strong> <b>Une personne amputée d'une jambe peut sortir</b> le Chabbat <b>avec sa jambe de bois,</b> car elle a le statut légal d'une chaussure ; c'est <b>la déclaration de Rabbi Meir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

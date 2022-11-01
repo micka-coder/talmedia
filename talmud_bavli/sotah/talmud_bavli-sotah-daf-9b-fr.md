@@ -72,4 +72,4 @@ Le verset se termine par : <b>"Entre Zorah et Eshtaol." Rabbi Asi dit : Zorah et
 On a dit aux parents de Samson : "Car voici, tu concevras, et tu enfanteras un fils ; aucun rasoir ne viendra sur sa tête, car l'enfant sera un naziréen pour Dieu dès le ventre de sa mère ; <b>et il commencera à sauver Israël</b> de la main des Philistins" (Juges 13:5). <b>Rabbi Ḥama, fils de Rabbi Ḥanina, dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

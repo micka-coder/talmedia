@@ -23,5 +23,5 @@ Si l'on vide la citerne [dans des bocaux] et que l'on trouve un sheretz [mort] d
 ### michna 8
 L'espace] entre les rouleaux et les peaux de raisin est considéré comme un domaine public. Une vigne située devant les vendangeurs est considérée comme un domaine privé et celle qui se trouve derrière les vendangeurs est considérée comme un domaine public. Quand en est-il ainsi ? Quand le public entre par un bout et sort par l'autre. Les récipients du pressoir à olives, du pressoir à vin et du pressoir à panier, s'ils sont en bois, n'ont qu'à être séchés et ils deviennent propres ; mais s'ils sont en roseau, ils doivent rester inutilisés pendant douze mois, ou ils doivent être ébouillantés dans de l'eau chaude. Rabbi Yose dit : s'il les met dans le courant de la rivière, cela suffit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

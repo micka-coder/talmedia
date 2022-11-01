@@ -39,4 +39,4 @@ Si une partie d'un membre est sortie de sa limite permise, on doit couper la via
 Deux groupes qui mangeaient un seul agneau pascal dans une même maison ne doivent pas s'inquiéter de paraître ne former qu'un seul groupe. Au contraire, ceux-ci tournent leur visage de ce côté et mangent, et ceux-là tournent leur visage de ce côté et mangent. Il leur est permis d'avoir la chaudière à partir de laquelle ils versent l'eau chaude au milieu, de sorte que le serveur puisse facilement servir les deux groupes. Lorsque le serveur qui sert les deux groupes se lève pour verser de l'eau pour le groupe dont il ne fait pas partie, il doit fermer sa bouche et tourner son visage afin de ne pas manger accidentellement avec l'autre groupe, jusqu'à ce qu'il rejoigne son groupe et mange avec lui. Et la mariée, qui est gênée de manger en présence d'hommes qu'elle ne connaît pas, détourne son visage de son groupe et mange, bien que cela puisse donner l'impression qu'elle fait partie d'un autre groupe.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

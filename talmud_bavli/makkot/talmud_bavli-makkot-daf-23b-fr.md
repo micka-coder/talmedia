@@ -54,4 +54,4 @@ En ce qui concerne <b>Solomon aussi,</b> peut-être a-t-il raisonné que <b>en r
 § <b>Rabbi Simlaï a enseigné :</b> Il y avait <b>613 mitzvot énoncées à Moïse</b> dans la Torah, composées de <b>365 interdictions correspondant au nombre de jours</b> dans <b>l'année solaire, et 248 mitzvot positives</b> <b>correspondant</b> au nombre de membres d'une personne. Rav Hamnuna dit : Quel est le verset</b> qui fait allusion à cela ? Il est écrit : <b>"Moïse nous a ordonné la Torah, un héritage</b> de la congrégation de Jacob" (Deutéronome 33, 4). Le mot <b>Torah, en</b> termes de <b>sa valeur numérique [<i>gimatriyya</i>],</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

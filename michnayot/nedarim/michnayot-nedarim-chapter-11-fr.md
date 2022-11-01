@@ -35,5 +35,5 @@ Si elle fait le vœu suivant : "Honore le bénéfice que je tire de mon père ou
 ### michna 12
 Au début, on disait que trois femmes devaient divorcer et recevoir leur ketubah : Celle qui dit : "Je suis souillée pour toi", "Le ciel est entre moi et toi", "J'ai été éloignée des Juifs". Mais par la suite, ils ont modifié la règle pour éviter qu'elle ne jette son regard sur une autre et ne se souille pour son mari : Celle qui a dit : "Je suis souillée par toi" doit en apporter la preuve. "Le Ciel est entre moi et toi", elle [devra les apaiser] par une demande. "J'ai été éloignée des Juifs", il [le mari] doit annuler sa part, et elle pourra avoir des relations avec lui, et elle sera éloignée des autres Juifs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

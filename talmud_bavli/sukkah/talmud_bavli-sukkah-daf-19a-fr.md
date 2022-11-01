@@ -48,4 +48,4 @@ Après avoir constaté que la <i>sukka</i> possède trois murs, la surface requi
 La Guemara remet en question cette affirmation. <b>Est-ce qu'il existe un élément qui se combine</b> avec d'autres éléments pour engendrer une aptitude, <b>mais</b> l'élément <b>lui-même n'est pas apte ? Rabbi Yitzḥak ben Elyashiv a dit : Oui,</b> ce modèle existe aussi dans d'autres domaines de la <i>halakha</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

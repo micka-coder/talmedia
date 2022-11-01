@@ -57,4 +57,4 @@ La Guemara demande : Selon <b>de quel avis</b> la mishna est-elle enseignée ? L
 <b>Et ici,</b> à Silo, <b>et là,</b> à Jérusalem, <b>on mange les offrandes de l'ordre le plus sacré</b> seulement <b>dans les tentures.</b> La cour du Tabernacle à Silo était entourée de tentures et la cour du Temple à Jérusalem était entourée d'un mur. Il existe une autre différence : En ce qui concerne <b>le caractère sacré de Silo,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

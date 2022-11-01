@@ -39,4 +39,4 @@ Alors que <b>selon</b> l'avis de <b>Shmuel,</b> la répétition doit être compr
 <b>Comment cela ? </b> S'il y a des <b>vignes dans la grande</b> cour, <b>il est interdit de semer</b> des cultures <b>dans la petite,</b> même à une distance de quatre coudées, en raison de l'interdiction de planter d'autres cultures vivrières dans une vigne. <b>Et s'il a semé</b> des cultures, <b>les graines sont interdites.</b> Comme la petite cour est considérée comme faisant partie de la grande, les vignes de la grande cour rendent interdites les graines de la petite cour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

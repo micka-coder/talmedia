@@ -33,4 +33,4 @@ La Gemara répond : L'encrage de l'espace entre le texte et les signatures des t
 La Gemara soulève une autre question : <b>Et qu'il y ait</b> une inquiétude</b> que <b>peut-être</b> le détenteur du document <b>excise</b> l'ensemble du texte qui apparaît <b>au-dessus</b> des signatures, <b>et</b> ensuite <b>efface la partie encrée</b> <b>et écrive ce qu'il veut</b> dans cette zone effacée, <b>et</b> le fait signer par des <b>témoins</b> sans scrupules. <b>Et</b> ce serait un document valable, comme le <b>Rav le dit : Un document qui se présente</b> devant le tribunal pour ratification dans lequel <b>son</b> contenu <b>et</b> les signatures de <b>ses témoins sont</b> tous deux écrits <b>sur une rature</b> est <b>valide.</b> On supposerait alors que la ratification du tribunal se réfère à ce nouveau document falsifié.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

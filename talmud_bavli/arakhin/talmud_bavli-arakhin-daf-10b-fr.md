@@ -54,4 +54,4 @@ La Guemara cite une autre explication du verset d'Ezra. Il <b>est enseigné</b> 
 <b>Rava bar Sheila a dit</b> que <b>Rav Mattana a dit</b> que <b>Shmuel a dit : Il y avait</b> un instrument appelé <b><i>magreifa</i> dans le Temple.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

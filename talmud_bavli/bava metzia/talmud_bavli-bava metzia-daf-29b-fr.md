@@ -72,7 +72,7 @@ La Guemara cite d'autres déclarations de Rabbi Yoḥanan donnant des conseils p
 <b>Et Rabbi Yoḥanan dit :</b> Dans le cas de <b>quelqu'un dont le père lui a légué beaucoup d'argent et qui cherche à le perdre,</b> il <b>doit porter des vêtements en lin, et utiliser des récipients en verre, et doit engager des ouvriers et ne pas s'asseoir avec eux</b> pour les surveiller. La Guemara développe : <b>Il doit porter des vêtements en lin;</b> ceci est énoncé <b>par rapport au lin romain,</b> qui se déchire rapidement. <b>Il doit utiliser des récipients en verre;</b> ceci est précisé <b>en ce qui concerne</b> le verre blanc coûteux. Et il devrait engager des ouvriers et ne pas s'asseoir avec eux ; l'explication est</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara répond que la déclaration dans la mishna : Par conséquent, si l'argent est perdu, il est tenu de le restituer, peut être expliquée <b>conformément</b> à la déclaration <b>de Rabba, comme Rabba le dit</b> concernant une autre mishna (58a) : Lorsque le <i>tanna</i> dit qu'ils ont été volés,</b> la référence est au cas où l'objet a été volé <b>par des bandits armés;</b> lorsqu'il dit qu'ils ont été perdus,</b> la référence est au cas où le <b>bateau de l'agent a coulé en mer.</b>
 
@@ -146,4 +146,4 @@ La Guemara cite d'autres déclarations de Rabbi Yoḥanan donnant des conseils p
 <b>Et Rabbi Yoḥanan dit :</b> Dans le cas de <b>quelqu'un dont le père lui a légué beaucoup d'argent et qui cherche à le perdre,</b> il <b>doit porter des vêtements en lin, et utiliser des récipients en verre, et doit engager des ouvriers et ne pas s'asseoir avec eux</b> pour les surveiller. La Guemara développe : <b>Il doit porter des vêtements en lin;</b> ceci est énoncé <b>par rapport au lin romain,</b> qui se déchire rapidement. <b>Il doit utiliser des récipients en verre;</b> ceci est précisé <b>en ce qui concerne</b> le verre blanc coûteux. Et il devrait engager des ouvriers et ne pas s'asseoir avec eux ; l'explication est</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

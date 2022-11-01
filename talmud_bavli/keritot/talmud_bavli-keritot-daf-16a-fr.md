@@ -60,4 +60,4 @@ La Guemara soulève une autre question à l'égard de la mishna : <b>Et</b> en c
 <b>Rabba a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

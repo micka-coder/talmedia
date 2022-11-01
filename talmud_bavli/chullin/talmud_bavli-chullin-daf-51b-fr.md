@@ -48,4 +48,4 @@ Si l'oiseau est tombé directement sur du <b>lin disposé en fagots, on doit s'i
 Si l'oiseau est tombé sur du <b><i>nevara</i>,</b> les fibres qui poussent autour d'un palmier, <b>on doit s'inquiéter</b> que ses membres aient pu être brisés. S'il est tombé sur <b><i>timaḥta</i>,</b> l'écorce de palmier coupée en lanières, <b>nous</b> devons <b>ne pas nous inquiéter.</b> S'il est tombé sur des <b>cendres tamisées, nous devons nous inquiéter,</b> car les cendres durcissent. Si elle est tombée sur des cendres <b>non tamisées</b>, <b>nous</b> ne devons <b>pas nous inquiéter,</b> car elles sont molles et se dispersent à l'impact.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

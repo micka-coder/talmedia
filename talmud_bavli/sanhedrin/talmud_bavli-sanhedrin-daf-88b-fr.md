@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais n'y a-t-il pas</b> la mitsva des <b>franges rituelle
 La Guemara rejette cette possibilité : Ce n'est pas le cas, car <b>en ce qui concerne les franges rituelles, que retenons-nous ? Si nous retenons que le nœud supérieur n'est pas</b> imposé <b>par la loi de la Torah,</b> et que l'on s'acquitte de son obligation en plaçant les fils sur le coin du vêtement, <b>ces</b> fils avec lesquels il accomplit la mitsva <b>sont indépendants et ce</b> fil supplémentaire <b>est indépendant</b> et ne compromet pas l'accomplissement de la mitsva. Le fil supplémentaire n'est pas considéré comme joint aux fils requis. <b>Et si nous tenons</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

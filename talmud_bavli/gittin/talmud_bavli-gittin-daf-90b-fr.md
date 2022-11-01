@@ -21,4 +21,4 @@ Si <b>le second</b> homme <b>mérite, il la renverra, comme il est dit</b> dans 
 <b>Comme le dit Rabbi Elazar :</b> En ce qui concerne <b>celui qui divorce de sa première femme, même l'autel verse des larmes sur lui, comme il est dit : "Et voici ce que vous faites de plus : Vous couvrez l'autel du Seigneur de larmes, de pleurs et de soupirs, au point qu'Il ne considère plus l'offrande, et ne la reçoit pas avec bienveillance de votre main. Et vous dites : Pourquoi ? Parce que l'Éternel a été témoin entre toi et la femme de ta jeunesse, contre laquelle tu as été infidèle, bien qu'elle soit ta compagne et la femme de ton alliance"</b> (Malachie 2:13-14). Il est clair que l'on ne doit pas divorcer de la femme de sa jeunesse, c'est-à-dire de sa première femme, car celui qui le fait est haï par Dieu pour avoir divorcé de la femme à laquelle il était lié par un compagnonnage et une alliance.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

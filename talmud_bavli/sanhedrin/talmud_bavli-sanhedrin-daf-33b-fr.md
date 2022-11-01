@@ -48,4 +48,4 @@ La Guemara explique : <b>Comme il est enseigné</b> dans un <i>baraita</i> : Le 
 <b>Rav Pappa dit :</b> Lorsque la mishna fait référence à toutes les personnes présentes au procès, elle ne se réfère pas aux témoins mais <b>à l'un des étudiants</b> assis devant le tribunal, <b>et</b> donc <b>tous sont d'accord</b> avec la décision de la mishna.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara relate : Il y avait <b>certains marchands de glaces [<i>ahaluyei</i>],
 La Guemara commente : <b>Cela marche bien selon celui qui dit</b> que dans un cas de <b>négligence</b> d'un dépositaire alors qu'il est <b>avec les propriétaires</b> il est <b>exonéré ; à cause de cette</b> raison Rav Pappa <b>était embarrassé. Mais selon celui qui dit</b> que dans un cas de négligence, il est <b>responsable</b> même pendant qu'il est avec les propriétaires, <b>pourquoi Rav Pappa a-t-il été <b>embarrassé ? Au contraire,</b> voici ce qui s'est réellement passé : <b>Ce jour-là, ce n'était pas son</b> tour de cuire, <b>et on lui dit : Tu vas</b> et <b>couler pour nous, et il leur a dit : En paiement de la cuisson pour vous</b> quand ce n'est pas mon tour, <b>sauvegarde mon manteau.</b> En d'autres termes, ils étaient des bailees payés.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

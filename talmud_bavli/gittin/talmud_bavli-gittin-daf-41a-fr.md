@@ -36,4 +36,4 @@ Il <b>est enseigné</b> dans <b>un autre</b> <i>baraita</i> (<i>Tosefta</i>, <i>
 <strong>MISHNA :</strong> Dans le cas de <b>quelqu'un qui est mi-esclave mi-libre</b> parce qu'un seul de ses deux propriétaires l'a émancipé, <b>il sert son maître un jour et</b> sert <b>lui-même un jour;</b> c'est <b>la déclaration de Beit Hillel. Beit Shammai disent :</b> Par un tel arrangement <b>tu as remédié à son maître,</b> car son maître ne perd rien par ce biais. Cependant, <b>vous n'avez pas remédié</b> à l'esclave <b>même,</b> car l'esclave lui-même reste dans une situation insoutenable. <b>Il n'est pas possible</b> pour lui <b>d'épouser une servante</b> car <b>il est déjà un demi-libre,</b> car il est interdit à un libre d'épouser une servante.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

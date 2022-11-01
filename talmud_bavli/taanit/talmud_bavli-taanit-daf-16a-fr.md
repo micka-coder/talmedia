@@ -51,4 +51,4 @@ Le verset dit : <b>"Et qu'ils se détournent, chacun de sa mauvaise voie, et de 
 Rabbi Yehouda poursuit sa description de l'animateur de prière digne de ce nom. <b>Et sa jeunesse devenait, et</b> il est <b>humble et accepté par le peuple,</b> car il est sympathique. <b>Et</b> en outre, il doit être <b>familier aux chants et avoir une voix agréable, et</b> il est <b>expert dans la lecture de la Torah, des Prophètes et des Ecrits, et</b> il sait <b>étudier le midrash, la <i>halakha</i> et la <i>aggada</i>. Et</b> enfin, il doit être <b>expert dans toutes les bénédictions.</b> Il est clair qu'il est difficile de trouver quelqu'un qui possède toutes ces qualités. <b>Et</b> la Guemara relate que lorsque cette personne digne de ce nom a été décrite, les <b>Sages</b> présents <b>ont tourné leurs regards vers Rav Yitzḥak bar Ami,</b> qui possédait toutes ces vertus.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

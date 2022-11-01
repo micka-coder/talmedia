@@ -21,4 +21,4 @@ Nous avons appris dans la mishna : La mesure qui détermine la responsabilité d
 <b>Un</b> <b>dilemme similaire</b> en matière d'orthographe <b>a été soulevé devant</b> les Sages.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

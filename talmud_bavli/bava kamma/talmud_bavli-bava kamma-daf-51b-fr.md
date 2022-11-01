@@ -69,4 +69,4 @@ La Gemara répond : <b>En fait,</b> le cas est <b>où</b> la citerne a été acq
 La Gemara cite une décision connexe : <b>Rabbi Yehoshua ben Levi dit :</b> Si quelqu'un <b>vend une maison à un autre,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

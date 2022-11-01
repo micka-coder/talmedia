@@ -72,4 +72,4 @@ La Guemara répond : Cette ordonnance <b>n'était nécessaire</b> dans un cas <b
 <b>Rav Naḥman bar Yitzḥak dit :</b> Ce n'est pas la raison. Plutôt, <b>Rabban Yoḥanan ben Zakkai</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

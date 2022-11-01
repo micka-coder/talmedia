@@ -39,4 +39,4 @@ Toutefois, si la <b>conception de la fille a eu lieu</b> alors que sa mère <b>n
 Si une jeune femme fiancée commet un adultère et <b>qu'elle a un père mais n'a pas d'entrée dans</b> la maison de son <b>père,</b> c'est-à-dire, si son père ne possède pas de maison propre, ou si <b>elle a une entrée à</b> la maison de son <b>père mais n'a pas de père,</b> car il est décédé, <b>elle est</b> néanmoins exécutée <b>par lapidation, car</b> l'exigence qu'elle soit exécutée à l'<b>entrée de la maison de son père est énoncée uniquement pour une mitzva</b> mais ce n'est pas une exigence indispensable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara réplique : <b>Mais</b> il n'est pas nécessaire d'invoquer le cas des
 <b>Au contraire, Rav Mordekhai a dit à Rav Ashi : Nous disons au nom de Reish Lakish ce qui suit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

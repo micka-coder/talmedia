@@ -57,4 +57,4 @@ La Gemara développe : <b>Cette</b> <i>baraita</i>, qui interdit l'utilisation d
 La Guemara soulève une objection : <b>De quelle</b> manière avez-vous établi cette</b> <i>baraita</i>, qui <b>permet</b> l'utilisation du sable et du natron ? Vous l'avez établie <b>conformément</b> à l'avis de <b>Rabbi Shimon.</b> Si c'est le cas, <b>dit la dernière clause</b> de cette même <i>baraita</i> : <b>Cependant, on ne peut pas se laver les cheveux avec eux</b> le Chabbat. <b>Et, si</b> c'est conforme à l'avis de <b>Rabbi Shimon, il permet</b> de le faire. <b>Comme nous l'avons appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

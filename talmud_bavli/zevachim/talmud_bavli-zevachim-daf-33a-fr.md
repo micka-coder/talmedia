@@ -30,4 +30,4 @@ La Guemara <b>souleve une objection</b> à partir d'un <i>baraita</i> cité pré
 <b>Par contre, inversez</b> cela et dites que <b>l'imposition des mains</b> sur la tête de l'<b>offrande de culpabilité d'un lépreux</b> n'est <b>pas par la loi de la Torah,</b> et donc le lépreux doit le faire en dehors de la cour, <b>mais</b> en ce qui concerne les offrandes qui nécessitent l'imposition des mains par la loi de la Torah, l'exigence selon laquelle <b>immédiatement</b> après l'<b>imposition</b> des <b>mains</b> doit avoir lieu l'<b>abattage</b> est <b>par la loi de la Torah. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

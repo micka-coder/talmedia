@@ -12,4 +12,4 @@ La Guemara remet en question la décision de la mishna : <b>Mais que</b> les ani
 <b>Mais selon celui qui dit</b> que <b>on a appris</b> dans cette mishna : Un article <b>dont la manière est</b> exclusivement <b>d'être compté,</b> c'est-à-dire un article qui est toujours vendu à l'unité, est considéré comme significatif, <b>que peut-on dire ?</b> Bien que les animaux soient souvent vendus à l'unité, ils sont occasionnellement vendus en tant que partie d'un troupeau, et ne seraient donc pas considérés comme significatifs. La Guemara cite la mishna dans laquelle apparaît cette dispute. <b>Comme nous l'avons appris</b> (<i>Orla</i> 3:6-7) : A propos de <b>quelqu'un qui avait des fagots de fenugrec,</b> un type de légumineuse, qui étaient de <b>diverses sortes</b> plantés <b>dans un vignoble,</b> dont il est interdit de tirer un bénéfice,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara demande : <b>Et</b> doivent-ils <b>soulever le dilemme</b> également 
 <b>Rav Sheshet leur a dit : Vous avez appris</b> la réponse dans la mishna : C'est <b>parce que ce qui émerge de l'animal non casher</b> <b>est non casher et ce qui émerge de l'animal casher</b> <b>est casher.</b> Du fait qu'il <b>ne dit pas :</b> Ce qui émerge <b>d'un animal non casher</b> [<i>mittamei</i>], c'est-à-dire du corps d'un animal non casher, mais <b>plutôt</b> il dit : <b>Du</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

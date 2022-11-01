@@ -39,4 +39,4 @@ Du terme <b>"une maison" j'ai</b> dérivé <b>uniquement une maison</b> dans laq
 <b>Rabbi Eliezer ben Ya'akov dit :</b> Le mot <b>"maison"</b> doit être compris comme signifiant, <b>comme il l'indique,</b> un bâtiment destiné à la résidence humaine. En ce qui concerne la maison pour laquelle un homme peut être renvoyé du camp, puisque le verset ne dit pas simplement : <b>"Et n'a pas consacré,"</b> mais plutôt : <b>"Et ne l'a pas consacrée"</b> en précisant la maison particulière à laquelle l'homme est lié, le verset <b>exclut donc un brigand</b> qui n'est pas propriétaire de sa maison. La Gemara demande : <b>Devons-nous dire</b> que cet avis n'est <b>pas conforme</b> à l'avis du <b>Rabbi Yosei HaGelili ? Car, si</b> elle était conforme à l'opinion du <b>Rabbi Yosei HaGelili, n'a-t-il pas dit :</b> Lorsque le verset distingue les "craintifs <b>et les pusillanimes"</b> (Deutéronome 20:8), <b>cela</b> fait référence à <b>ceux qui ont peur</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

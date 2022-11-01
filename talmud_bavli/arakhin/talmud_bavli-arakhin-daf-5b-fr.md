@@ -60,4 +60,4 @@ La Gemara demande : <b>Si c'est ainsi,</b> que l'évaluation n'est pas utilisée
 <b>Rava a plutôt dit</b> qu'en fait Rabbi Yehouda soutient que l'évaluation d'un Gentil est donnée à l'entretien du Temple et n'est pas enterrée. Et quant à ce que les Juifs ont dit aux Gentils à l'époque du Second Temple : "Vous n'avez rien à faire avec nous", ce refus n'était pas pour des raisons halakhiques. Au contraire, <b>il</b> était <b>du à</b> la tentative des Gentils de favoriser <b>l'affaiblissement des mains</b> de ceux qui reconstruisaient le Temple. <b>Comme il est écrit : "Alors les gens du pays affaiblirent les mains du peuple de Juda, et les haranguèrent pendant qu'ils construisaient"</b> (Esdras 4:4).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

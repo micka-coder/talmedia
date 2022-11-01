@@ -45,7 +45,7 @@ La Gemara demande : <b>Est-ce le cas ? Mais lorsque Rabbi Abba rencontra les ét
 La Guemara revient sur l'exposé des versets de Rabbi Yoḥanan : <b>"Tu seras béni dans les champs"</b> signifie <b>que tes biens doivent être</b> divisés en <b>tiers : Un tiers</b> doit être investi <b>dans les céréales, un tiers dans les olives, et un tiers dans les vignes. "Heureux serez-vous quand vous entrerez et heureux serez-vous quand vous sortirez"</b> signifie <b>que votre sortie du monde doit être comme votre entrée dans le monde : De même que ton entrée dans le monde</b> était <b>sans péché, de même ta sortie du monde</b> doit être <b>sans péché.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 est <b>lénifiant,</b> car il soutient que les donateurs ne sont pas particuliers à cet égard. Cela montre que Rabban Shimon ben Gamliel n'est pas gêné par un changement d'avis si aucun préjudice n'en résulte.
 
@@ -92,4 +92,4 @@ La Gemara demande : <b>Est-ce le cas ? Mais lorsque Rabbi Abba rencontra les ét
 La Guemara revient sur l'exposé des versets de Rabbi Yoḥanan : <b>"Tu seras béni dans les champs"</b> signifie <b>que tes biens doivent être</b> divisés en <b>tiers : Un tiers</b> doit être investi <b>dans les céréales, un tiers dans les olives, et un tiers dans les vignes. "Heureux serez-vous quand vous entrerez et heureux serez-vous quand vous sortirez"</b> signifie <b>que votre sortie du monde doit être comme votre entrée dans le monde : De même que ton entrée dans le monde</b> était <b>sans péché, de même ta sortie du monde</b> doit être <b>sans péché.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -23,5 +23,5 @@ Que l'on y ait fait bouillir ou que l'on y ait versé de la [chair sacrificielle
 ### michna 8
 Si l'on y a fait bouillir des sacrifices et du hullin [la marmite en cuivre], ou des sacrifices très saints et des sacrifices moins saints, s'ils étaient suffisants pour donner leur saveur, le moins rigoureux doit être mangé comme le plus rigoureux d'entre eux ; Mais ils n'ont pas besoin d'être récurés et rincés ; Et ils ne sont pas disqualifiés par le toucher. Si une galette [impropre] a touché une galette [saine], ou si un morceau de viande [impropre] a touché un morceau de viande [saine], ce n'est pas toute la galette ou tout le morceau de viande qui est interdit ; seule la partie qui a absorbé [l'impropre] est interdite.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

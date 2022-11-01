@@ -48,4 +48,4 @@ La Guemara s'interroge : <b>Au contraire, que</b> peut-on dire, que la <i>barait
 § <b>Rav Yehuda dit,</b> concernant un sujet similaire : Si des témoins ont <b>vu</b> une personne <b>qui</b> est entrée dans la maison d'un autre, <b>a dissimulé des objets sous ses vêtements, et est sortie,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : D'où vient ce principe ? <b>Comme</b> il <b>est énoncé</
 <b>Rabbi Ḥiyya bar Avin a dit</b> que <b>Rabbi Yehoshua ben Korḥa a dit : Une personne doit toujours passer en premier</b> en ce qui concerne <b>une question de mitzva, comme en récompense de</b> la <b>une nuit où l'aînée</b> fille de Lot <b>précéda la cadette</b> pour une mitzva,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

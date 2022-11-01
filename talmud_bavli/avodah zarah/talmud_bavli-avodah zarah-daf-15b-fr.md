@@ -45,4 +45,4 @@ A propos de la <i>baraita</i> qui traite de l'interdiction de vendre des armes, 
 § <b>Les Sages ont enseigné : Il est interdit de vendre des boucliers [<i>terisin</i>] à</b> des gentils, malgré le fait qu'ils servent à se protéger et non à attaquer autrui. <b>Et certains disent : On peut leur vendre des boucliers.</b> La Gemara demande : <b>Quelle est la raison</b> derrière l'opinion qui interdit de vendre des boucliers aux Gentils ? <b>Si on dit</b> que c'est <b>parce qu'ils les protègent</b> en temps de guerre, <b>si c'est le cas,</b> alors <b>même le blé et l'orge ne doivent pas</b> leur être vendus. <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

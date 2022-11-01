@@ -66,4 +66,4 @@ Rava <b>lui a dit : As-tu dit les chemins de Beit Gilgul ? Josué,</b> qui a con
 <b>Rabbi Yehuda ben Bava dit : On peut disposer</b> des <b>planches droites uniquement pour un puits public. Mais pour les autres,</b> c'est-à-dire une citerne publique ou un puits privé, <b>on doit mettre en place une ceinture,</b> c'est-à-dire une cloison constituée de cordes, <b>de dix centimètres de hauteur.</b> Un tel arrangement crée une cloison adéquate basée sur le principe du <i>lavud</i>, à savoir que les surfaces solides dont les espaces entre elles sont inférieurs à trois centimètres sont considérées comme jointives.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

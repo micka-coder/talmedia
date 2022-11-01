@@ -93,4 +93,4 @@ Autre explication : "<b>Le figuier a produit ses figues vertes.</b> Ce sont les 
 <b>Distant.</b> Expression de la séparation et de la distance.</sup></sup><i class="footnote">Alternativement,  הרי בתר  signifie montagne fendue et fait référence au mont des Oliviers qui sera fendu selon la prophétie de Zacharie [14:4]. Ainsi, la signification de  בתר  est similaire à " il les a fendus [ויבתר] au centre ", dans Bereshit 15:10. </i> 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -109,5 +109,5 @@
 ### passuk 42
 <b>Et [il] l'appela Novach.</b> לָה n'a pas de point dans son ה . J'ai vu dans le commentaire de R'Moshe Hadarshan : Parce que ce nom n'a pas perduré, il est donc silencieux, ce qui implique qu'il doit être expliqué comme לָא, " pas " [Novach]. Mais je me demande <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comment il (R' Moshe) exposerait deux mots similaires, וַיֹאמֶר 'לָה' בֹעַז, "Boaz lui dit," לִבְנוֹת לָה בַיִת, "de lui construire une maison. " 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

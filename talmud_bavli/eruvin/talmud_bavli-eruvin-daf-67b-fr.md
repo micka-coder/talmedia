@@ -57,4 +57,4 @@ Rabba <b>lui dit : Faisons confiance à la fusion</b> des ruelles, qui peut serv
 <b>Après cela,</b> lorsqu'ils eurent apporté l'eau, Rav Yosef <b>dit à</b> Abaye : <b>Quelle objection voulais-tu soulever contre le Maître,</b> Rabba ? Il lui <b>a dit : Comme il a été enseigné</b> dans une <i>baraita</i> : <b>Arroser</b> l'eau de purification sur une personne impure le Chabbat n'est pas interdit par la loi de la Torah ; il s'agit seulement d'un <b>décret rabbinique</b> pour renforcer le caractère de Chabbat comme jour de repos. <b>Et dire à un Gentil</b> d'accomplir un travail de Chabbat au nom d'un Juif n'est de même qu'un <b>décret rabbinique.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

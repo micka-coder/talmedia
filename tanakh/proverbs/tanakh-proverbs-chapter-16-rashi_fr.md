@@ -111,4 +111,4 @@
 <b>mais tout son jugement</b> pour choisir pour chacun sa part.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

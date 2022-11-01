@@ -69,7 +69,7 @@ Abaye a demandé à Rava : <b>Mais comment</b> le prêtre <b>brûle-t-il</b> la 
 Alternativement, si le prêtre <b>brûle</b> la poignée qui remplit l'<b>obligation en premier, comment peut-il brûler</b> la poignée <b>de l'offrande de don</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et des galettes</b> ensemble ; <b>et</b> selon cette suggestion, <b>il retire une poignée des pains pour les galettes et</b> une poignée <b>des galettes pour les pains.</b>
 
@@ -140,7 +140,7 @@ Abaye a demandé à Rava : <b>Mais comment</b> le prêtre <b>brûle-t-il</b> la 
 Alternativement, si le prêtre <b>brûle</b> la poignée qui remplit l'<b>obligation en premier, comment peut-il brûler</b> la poignée <b>de l'offrande de don</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et des galettes</b> ensemble ; <b>et</b> selon cette suggestion, <b>il retire une poignée des pains pour les galettes et</b> une poignée <b>des galettes pour les pains.</b>
 
@@ -211,4 +211,4 @@ Abaye a demandé à Rava : <b>Mais comment</b> le prêtre <b>brûle-t-il</b> la 
 Alternativement, si le prêtre <b>brûle</b> la poignée qui remplit l'<b>obligation en premier, comment peut-il brûler</b> la poignée <b>de l'offrande de don</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

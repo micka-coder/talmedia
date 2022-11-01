@@ -36,4 +36,4 @@ Pourquoi cette <i>halakha</i> aurait-elle été instituée par la loi rabbinique
 <b>Rav Yosef soulève une objection à Rabba</b> à partir d'une mishna (96b) : Si <b>quelqu'un a volé</b> un autre de <b>pain levé et que Pessah s'est écoulé</b> entre temps, de sorte qu'en tirer un bénéfice est interdit,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

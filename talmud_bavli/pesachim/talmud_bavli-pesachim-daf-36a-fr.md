@@ -57,4 +57,4 @@ La Gemara demande : <b>Et</b> en <b>quelle manière <b>ce cas est-il</b> différ
 <b>Rabbi Akiva dit :</b> Ce verset n'est pas la source de cette <i>halakha</i> ; plutôt, le fait qu'on ne puisse pas remplir son obligation avec des <i>matza</i> de premiers fruits provient de la juxtaposition de <b><i>matza</i> et d'herbes amères : De même que les herbes amères ne sont pas des prémices,</b> comme elles ne font pas partie des sept espèces auxquelles s'applique la mitsva des prémices, <b>de même la <i>matza</i></b> peut <b>ne pas être</b> des <b>premiers fruits. Si</b> vous prétendez : <b>De même que les herbes amères</b> sont <b>issues d'une espèce</b> qui n'est <b>pas</b> apportée comme <b>premiers fruits, de même <i>matza</i></b> doit être préparée <b>à partir d'une espèce</b> qui n'est <b>pas</b> apportée comme <b>premiers fruits,</b> par exemple l'épeautre,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

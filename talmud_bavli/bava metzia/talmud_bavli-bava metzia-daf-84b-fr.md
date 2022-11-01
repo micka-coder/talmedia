@@ -57,4 +57,4 @@ A la suite de cet incident, la relation de Rabbi Elazar, fils de Rabbi Shimon, a
 La Guemara conclut : <b>Cet</b> incident <b>est</b> le fond d'une déclaration <b>que Rabbi</b> Yehuda HaNasi <b>a dit : Il y a trois</b> prototypes de personnes <b>modestes</b>, <b>et ce sont : Le père,</b> c'est-à-dire Rabban Shimon ben Gamliel ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

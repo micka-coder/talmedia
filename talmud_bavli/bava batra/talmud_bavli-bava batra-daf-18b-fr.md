@@ -27,4 +27,4 @@ La Guemara développe : Rabbi Yosei disait aux rabbins : <b>À mon</b> avis, la 
 La Gemara continue : <b>Et</b> comment <b>les rabbins</b> répondent-ils à cette affirmation ? Ils soutiennent que <b>les abeilles n'endommagent pas la moutarde : si</b> cela fait référence <b>à une graine,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

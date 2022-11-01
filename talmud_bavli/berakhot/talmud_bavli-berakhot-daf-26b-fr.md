@@ -45,4 +45,4 @@ Quoi qu'il en soit, il est clair que selon cette <i>baraita</i> les <i>halakhot<
 Nous avons appris dans la mishna que <b>Rabbi Yehuda dit :</b> La priere du matin peut etre recitee <b>jusqu'a quatre heures</b> de la journee. <b>Un dilemme a ete souleve devant</b> les etudiants de la yeshiva : Lorsque Rabbi Yehouda dit <b>jusqu'a</b>, veut-il dire <b>jusqu'a et y compris</b> la quatrieme heure, <b>ou, peut-etre</b> lorsque qu'il dit <b>"uvre jusqu'a</b>, il veut dire <b>jusqu'a et non compris,</b> auquel cas on ne peut pas prier pendant la quatrieme heure ? <b>Venez entendre</b> une resolution de ce dilemme basee sur la mishna. <b>Rabbi Yehuda dit :</b> La priere de l'apres-midi ne peut etre recitee que <b>jusqu'au milieu de l'apres-midi.</b> Maintenant, <b>concede, si vous dites</b> que <b>jusqu'a</b> signifie <b>jusqu'a et non compris, alors il y a</b> une difference <b>entre</b> l'opinion de <b>Rabbi Yehuda et</b> l'opinion des <b>Rabbins. Cependant, si vous dites</b> que <b>jusqu'a</b> signifie <b>jusqu'a et y compris,</b> alors l'opinion de <b>Rabbi Yehuda</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

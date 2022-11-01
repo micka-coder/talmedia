@@ -11,5 +11,5 @@ L'évaluation [du préjudice] en argent ou en objets de valeur doit être faite 
 ### michna 4
 Cinq [agents de dommages] sont considérés comme inoffensifs et cinq comme un danger attesté. Les bovins ne représentent pas un danger attesté lorsqu'ils donnent des coups de tête, poussent, mordent, se couchent ou donnent des coups de pied. La dent [d'un animal] est un danger attesté de manger ce qui lui est destiné ; La patte [d'un animal] est un danger attesté de casser [des choses] en marchant ; De même qu'un bœuf averti [un bœuf qui a déjà encorné] ; Et un bœuf qui endommage dans le domaine de la partie endommagée, et les êtres humains. Le loup, le lion, l'ours, le léopard, la panthère et le serpent sont tous des dangers attestés.  Rabbi Eliezer dit :  Lorsqu'ils sont apprivoisés, ils ne sont pas un danger avéré, mais le serpent est toujours un danger avéré. Quelle est la différence entre ce qui est inoffensif et ce qui est un danger attesté ?  L'inoffensif paie des demi-dommages sur son propre corps et le danger attesté paie des dommages complets sur les meilleurs biens (de son propriétaire et de son gardien).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

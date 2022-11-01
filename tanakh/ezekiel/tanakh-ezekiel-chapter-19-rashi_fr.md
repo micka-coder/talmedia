@@ -56,4 +56,4 @@
 <b>C'est une lamentation, et ce sera une lamentation</b> La prophétie est une lamentation, et ce sera une lamentation.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

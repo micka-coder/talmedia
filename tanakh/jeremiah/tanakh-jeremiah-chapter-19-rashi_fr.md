@@ -34,7 +34,7 @@
 <b>Cette ville comme le Topheth</b> Elle sera toute remplie de tués comme le Topheth, où l'on égorge les enfants pour Molech.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>une cruche</b> Heb. בַּקְבֻּק.
 <b>Faïence de potier</b> C'est-à-dire d'un potier, qui est de la faïence.
@@ -70,4 +70,4 @@
 <b>Cette ville comme le Topheth</b> Elle sera toute remplie de tués comme le Topheth, où l'on égorge les enfants pour Moloch.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -51,7 +51,7 @@
 <b>Au début de chaque année.</b> [Le Targum Yonathan rend :] "au début de l'année"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -104,4 +104,4 @@
 <b>Au début de chaque année.</b> [Le Targum Yonathan rend,] "au début de l'année,"<sup>11</sup><i class="footnote">C'est-à-dire que בָּא שָׁנָה signifie "lorsque l'année [= שָׁנָה] entre [=בָּא]". Or, שָׁנָה est féminin et בא est masculin. Cette difficulté peut être résolue en substituant בָּא à בָּהּ, qui signifie " cette année-là même ", c'est-à-dire l'année de la mort d'Élisée.-Radak. Ou bien, בָּא שָׁנָה signifie : " lorsqu'il [Elisée] était venu [dans son lieu de repos] pour une année.-Ralbag </i> [c'est-à-dire] au retour de l'année, lorsque le sol est encore plein de végétation, et qu'il y a de la nourriture pour leurs animaux, il est d'usage que les troupes se mettent en route [pour la guerre] ".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

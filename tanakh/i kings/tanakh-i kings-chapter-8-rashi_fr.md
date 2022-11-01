@@ -176,4 +176,4 @@
 <b>Et pour Israël Son peuple.</b> Qu'Il leur a pardonné le péché de Yom Kippour,<sup>44</sup><i class="footnote">I.e., pour avoir mangé le jour de Yom Kippour.</i> et un <i>Bas</i> <i>Kol</i> émana et déclara : "Vous êtes tous préparés pour la vie du monde à venir."<sup>45</sup><i class="footnote">Masehet Mo'ed Katan 9a. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Cela</b> fonctionne <b>bien selon celui qui a dit</b> qu
 La Guemara demande : Et pourquoi dire que le visage dans le verset est spécifiquement le visage d'une personne ? <b>Disons</b> que le couvercle de l'Arche est <b>comme le visage</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

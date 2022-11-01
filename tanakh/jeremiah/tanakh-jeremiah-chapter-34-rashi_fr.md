@@ -51,7 +51,7 @@
 <b>Voici, j'ordonne</b> que l'armée de Pharaon retourne dans son pays, et que les Chaldéens reviennent sur vous.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -104,4 +104,4 @@
 <b>Voici, j'ordonne</b> que l'armée de Pharaon retourne dans son pays, et que les Chaldéens reviennent sur vous.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

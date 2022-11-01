@@ -42,4 +42,4 @@ La Gemara demande : <b>Si c'est le cas, une veuve doit également avoir des rapp
 <b>Bar Kappara a enseigné : Quel est</b> le sens de ce qui <b>est écrit : Et tu auras une cheville parmi tes armes [<i>azenekha</i>]"</b> (Deutéronome 23:14) ? <b>Ne le lisez pas</b> comme suit : <b>Vos armes [<i>azenekha</i>]. Au contraire,</b> lisez-le comme suit : <b>Sur ton oreille [<i>oznekha</i>],</b> ce qui signifie <b>que si une personne entend un propos inapproprié,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

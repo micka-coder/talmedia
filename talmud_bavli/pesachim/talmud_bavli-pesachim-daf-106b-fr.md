@@ -12,4 +12,4 @@ La Guemara relate que <b>Rav Yirmeya bar Abba se trouvait</b> venir à <b>la mai
 <b>Rav Yosef dit</b> que <b>Shmuel a dit :</b> Celui qui a <b>goûté</b> de la nourriture avant le <i>kiddouch</i> peut <b>ne pas réciter le <i>kiddouch</i>,</b> et <b>celui qui a goûté</b> de la nourriture avant le <i>havdala</i> peut <b>ne pas réciter le <i>havdala</i>. Et Rabba a dit</b> que <b>Rav Naḥman a dit</b> que <b>Shmuel a dit :</b> Celui qui a <b>goûté</b> peut néanmoins <b>reciter <i>kiddush</i>, et celui qui a goûté</b> peut de même <b>reciter <i>havdala</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

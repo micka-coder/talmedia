@@ -42,4 +42,4 @@ La Gemara explique la difficulté à partir de cette <i>baraita</i>. <b>Apparemm
 La Guemara relate une histoire concernant le verset de Zacharie cité plus haut. <b>Rav Huna bar Manoaḥ, Rav Shmuel bar Idi, et Rav Ḥiyya de Vastanya étaient</b> souvent <b>trouvés devant Rava,</b> car ils étaient parmi ses élèves les plus distingués. <b>Lorsque Rava mourait, ils venaient devant Rav Pappa</b> pour apprendre de lui. Cependant, comme ils étaient également de grands Sages, <b>chaque fois que Rav Pappa disait une <i>halakha</i> qui ne leur semblait pas</b> <b>raisonnable, ils se faisaient signe</b> que Rav Pappa n'était pas de la même stature que Rava. Rav Pappa <b>était offensé</b> par leur comportement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

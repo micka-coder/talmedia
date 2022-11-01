@@ -21,4 +21,4 @@ Rav Pappa explique son objection : Rabba a déclaré que lorsqu'on qualifie ses 
 <b>Mais selon toi,</b> Rava, qui soutient que s'il a dit : J'aurais dit qu'untel et untel sont interdits de participation et que le père est autorisé à le faire, tous concèdent que tout le monde est autorisé à participer, et que le différend porte sur le moment où l'on dit : J'aurais dit que vous êtes tous interdits de participation sauf le père, <b>Accordé, il établit la première clause</b> de la déclaration de Rabbi Akiva comme un cas <b>où il</b> se rétracte et <b>dit :</b> Les biens <b>de vous tous</b> sont <i>konam</i> pour moi sauf ceux du père, et le bénéfice de tous est permis, conformément à l'opinion de Beit Hillel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

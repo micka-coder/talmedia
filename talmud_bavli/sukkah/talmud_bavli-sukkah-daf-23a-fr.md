@@ -33,4 +33,4 @@ La Guemara demande : <b>Et</b> selon <b>celui qui a dit :</b> C'est en raison d'
 La Gemara demande plus loin : <b>Et</b> même si l'on ne craint pas que l'animal ne meure, <b>peut-être qu'il s'accroupira,</b> laissant une paroi de moins de dix coudées ? La Gemara répond : Elle fait référence à un cas <b>où l'animal <b>est attaché avec des cordes par le haut</b> afin qu'il ne puisse pas s'accroupir. Sur la base de cette explication, la Gemara demande : <b>Et selon celui qui a dit :</b> C'est en raison d'un <b>décret de peur qu'il ne meure,</b> il n'y a <b>également</b> aucune inquiétude puisque <b>il est attaché avec des cordes par le haut.</b> Même si l'animal mourait, il resterait en place comme une cloison convenable. La Gemara répond : <b>Parfois</b> la cloison de dix pieds de long consiste en l'animal qui est un peu plus haut que sept pieds de long <b>établi à côté de la toiture, à moins de trois</b> pieds de long.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -17,5 +17,5 @@ Le prêtre qui avait gagné la cuvette prenait la cuvette d'argent, montait au s
 ### michna 6
 Lorsqu'ils arrivaient entre le Sanctuaire et l'autel, on prenait la magréfah et on la jetait entre le Sanctuaire et l'autel. Les gens ne pouvaient pas s'entendre parler à Jérusalem à cause du bruit de la magrefah. Il avait trois fonctions : Lorsqu'un prêtre en entendait le bruit, il savait que ses collègues prêtres allaient se prosterner, et il courait pour les rejoindre. Lorsqu'un lévite entendait ce bruit, il savait que ses compagnons lévites allaient entrer pour chanter, et il courait pour les rejoindre. Et le chef du Ma"amad avait l'habitude de faire se tenir les impurs à la porte orientale.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

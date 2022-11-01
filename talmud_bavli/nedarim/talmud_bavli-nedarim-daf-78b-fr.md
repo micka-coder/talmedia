@@ -18,4 +18,4 @@ La Guemara soulève une difficulté : <b>Mais dans la partie sur les vœux</b> l
 <b>Rav Ḥisda soulève une objection</b> d'une autre <i>baraita</i> : D'une certaine manière, le <i>halakha</i> est plus <b>stringent dans la ratification que dans l'annulation, et</b> d'une autre manière, il est plus strict <b>dans l'annulation que dans la ratification.</b> La <b>stringence dans la ratification</b> des vœux est...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

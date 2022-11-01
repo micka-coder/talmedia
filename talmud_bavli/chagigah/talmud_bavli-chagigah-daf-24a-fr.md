@@ -30,4 +30,4 @@ La <i>baraïta</i> ci-dessus enseignait qu'il existe un <b>troisième</b> degré
 <b>Il a également été déclaré</b> que les <i>amora'im</i> ont contesté une question similaire : <b>Reish Lakish a dit : Ils ont enseigné</b> qu'une main rend l'autre impure <b>seulement</b> si la seconde main est <b>sa</b> propre <b>main,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

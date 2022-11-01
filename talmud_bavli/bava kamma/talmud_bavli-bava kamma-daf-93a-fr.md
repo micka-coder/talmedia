@@ -57,4 +57,4 @@ La Gemara relate : Il y avait <b>une certaine bourse</b> pleine <b>d'argent de c
 Rav Yosef lui <b>dit : Les pauvres de Pumbedita</b> ont une somme qui leur est <b>fixée</b> à recevoir. Chaque pauvre avait déjà une somme spécifique désignée pour lui, <b>et</b> en conséquence <b>se trouve</b> dans la catégorie de : <b>Sauvegarder.</b> Par conséquent, il est responsable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

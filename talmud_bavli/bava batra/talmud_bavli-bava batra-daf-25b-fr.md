@@ -45,4 +45,4 @@ La Guemara relate qu'un homme appelé <b>Pappei Yona'a était pauvre et est deve
 La Gemara demande : <b>Et de combien</b> doit trembler le manoir pour que le propriétaire ait le droit d'obliger les presseurs de sésame à s'éloigner ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

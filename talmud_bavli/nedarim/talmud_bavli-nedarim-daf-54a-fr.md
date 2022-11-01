@@ -21,4 +21,4 @@ La Gemara demande : <b>Qui est</b> le <b><i>tanna</i></b> qui a <b>enseigné</b>
 <b>Abaye a dit : Même</b> si <b>on dit</b> que la mishna est conforme à l'opinion de <b>Rabbi Akiva,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

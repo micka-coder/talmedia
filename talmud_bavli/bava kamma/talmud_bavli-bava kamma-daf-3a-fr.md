@@ -66,4 +66,4 @@ La Gemara demande : <b>En fin de compte, cette</b> fosse qui a dix mètres de pr
 La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles on est responsable des dommages causés par ces obstacles ? <b>Si</b> il s'agit d'un cas <b>où l'on a déclaré</b> ces objets <b>sans propriétaire, à la fois selon</b> l'avis du <b>Rav et selon</b> l'avis de <b>Shmuel,</b> cité plus loin dans la Gemara, <b>Ces cas</b> <b>sont</b> une sous-catégorie de <b>Pit,</b> car Rav et Shmuel s'accordent à dire que tout obstacle déclaré sans propriétaire par son propriétaire qui cause des dommages dans le domaine public est une sous-catégorie de Pit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

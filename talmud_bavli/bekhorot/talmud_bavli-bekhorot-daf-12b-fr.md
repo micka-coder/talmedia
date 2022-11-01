@@ -81,4 +81,4 @@ La Gemara demande : <b>Et</b> il faut <b>rédemander le rachat d'un âne premier
 La Gemara répond : <b>N'a-t-il pas été dit à propos de cette</b> question que <b>Rava dit : Tout le monde</b> s'accorde à dire que si l'on dit dans les trente jours de la naissance de son fils qu'on le rachète <b>dès maintenant, son fils n'est pas racheté.</b> Un tel rachat ne serait effectif que si l'on donnait l'argent à condition que le rachat prenne effet après les trente jours de son fils.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

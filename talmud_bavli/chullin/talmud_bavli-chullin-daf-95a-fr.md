@@ -36,4 +36,4 @@ La Guemara répond : <b>Cette mishna</b> nécessite une <b>explication uniquemen
 La Guemara commente : <b>Et cette</b> déclaration <b>de Rav,</b> que la viande qui a été cachée à la vue est interdite, <b>n'a pas été énoncée explicitement</b> par Rav. <b>Il a plutôt été dit</b> qu'il avait cette opinion <b>sur la base d'une déduction</b> d'une autre déclaration de Rav. <b>Ainsi, Rav était</b> une fois <b>assis sur le gué de</b> la rivière <b>Ishtetit. Il vit un certain homme qui était</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

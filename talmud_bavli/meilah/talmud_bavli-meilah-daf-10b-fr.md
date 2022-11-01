@@ -15,4 +15,4 @@ Par conséquent, <b>le verset indique : "Dites-leur : Quiconque de toute votre d
 Le <i>baraita</i> explique que <b>Rabbi Elazar a dit : Mais existe-t-il</b> un cas de celui qui <b>touche</b> un objet <b>qui est responsable ?</b> Plutôt, <b>comment</b> est-ce <b>possible ? La réponse est que la phrase "s'approche [<i>yikrav</i>] des objets sacrés" peut également être comprise comme suit : Les objets sacrés qui sont aptes à être sacrifiés [<i>yikarev</i>], et donc en ce qui concerne <b>tout objet qui a des facteurs de permission,</b> on n'est <b>pas responsable tant que les facteurs de permission</b> n'ont pas été <b>sacrifiés. Et</b> dans le cas de <b>tout élément qui n'a pas de facteurs de permission,</b> on n'est <b>pas responsable jusqu'à ce qu'il soit sanctifié dans</b> un <b>récipient de service.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

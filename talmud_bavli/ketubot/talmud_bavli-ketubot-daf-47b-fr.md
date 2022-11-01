@@ -33,4 +33,4 @@ Après avoir analysé le langage de la <i>baraita</i>, la Guemara porte son atte
 La <i>baraita</i> continue : <b>Rabbi Elazar dit : "<i>She'era</i>" ; il s'agit</b> de ses <b>droits conjugaux, et c'est pourquoi il est dit : "Aucun d'entre vous ne s'approchera de quelqu'un qui est proche [<i>she'er</i>] de sa parenté, pour découvrir sa nudité"</b> (Lévitique 18:6), ce qui démontre que le mot <i>she'er</i> est utilisé dans le contexte des relations sexuelles. <b>"<i>Kesuta</i>" est</b> compris <b>dans son sens littéral</b> comme faisant référence aux vêtements. <b>"<i>Onata</i>" ; il s'agit de la subsistance, et c'est ainsi qu'il est dit : "Et Il t'affligea [<i>vayanekha</i>], te fit souffrir de la faim,</b> et te nourrit de manne" (Deutéronome 8:3).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

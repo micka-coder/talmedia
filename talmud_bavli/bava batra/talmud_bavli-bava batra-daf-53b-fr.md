@@ -30,4 +30,4 @@ En ce qui concerne cette dernière affirmation, la Guemara demande : <b>Qu'est-c
 <b>Rav Yirmeya Bira'a dit</b> que <b>Rav Yehuda dit :</b> En ce qui concerne <b>cette dernière</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

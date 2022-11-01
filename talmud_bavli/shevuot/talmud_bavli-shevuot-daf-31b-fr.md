@@ -45,4 +45,4 @@ Si <b>il y avait deux ensembles de témoins</b> qui ont prêté le serment de t�
 <strong>GEMARA :</strong> <b>Shmuel dit :</b> Si les témoins <b>ont vu</b> le plaignant <b>les poursuivre,</b> et <b>ils lui ont dit :</b> Pour <b>quelle</b> raison <b>nous poursuivez-vous ? </b> Sur notre <b>serment nous ne connaissons</b> aucun <b>témoignage en votre</b> nom, ils sont <b>exemptés, jusqu'à ce qu'ils entendent</b> une demande de témoignage directement <b>de sa bouche.</b> La Gemara demande : <b>Qu'est-ce que</b> Shmuel <b>nous apprend ? Nous apprenons</b> ceci dans une mishna (35a) : Si le plaignant <b>envoie</b> une demande de témoignage <b>avec son serviteur, ou</b> si <b>le défendeur dit aux</b> témoins potentiels : <b>Je vous fais prêter serment que si vous connaissez</b> un <b>témoignage en faveur</b> du demandeur, c'est-à-dire mon adversaire dans le litige, <b>vous viendrez témoigner en sa faveur,</b> et qu'ils ont prêté un faux serment selon lequel ils n'ont aucune connaissance de l'incident, <b>ils sont exemptés,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

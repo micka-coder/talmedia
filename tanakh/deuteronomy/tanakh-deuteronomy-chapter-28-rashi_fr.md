@@ -201,5 +201,5 @@
 <b>Pour ratifier avec les Bnei Israël.</b> Par lequel ils devaient accepter la Torah par imprécation et serment.
 <b>Dans l'alliance.</b> Les imprécations de <i>Toras Kohanim</i> prononcées au Sinaï.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : <b>Rabbi Akiva</b> aurait pu <b>vous dire</b> que <b>ce vers
 La Guemara demande : <b>Et Rabbi Akiva, qu'as-tu vu</b> qui t'a conduit à utiliser la phrase : <b>"Qui n'était pas fiancée" pour une analogie verbale, et</b> le terme <b>"vierge" pour exclure une non-vierge</b> de l'amende ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

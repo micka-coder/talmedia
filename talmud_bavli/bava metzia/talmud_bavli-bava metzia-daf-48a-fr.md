@@ -39,4 +39,4 @@ La Gemara commente : <b>Cela est également enseigné</b> dans une <i>baraïta</
 La Gemara commente : <b>Et ainsi dit Rav Naḥman,</b> en accord avec l'avis de Rabbi Yoḥanan : <b>Selon la loi de la Torah,</b> le don d'une <b>monnaie entraîne l'acquisition</b> d'un bien mobilier. La Guemara ajoute : <b>Et Lévi examina son</b> compendium de <b><i>baraitot</i>, et il découvrit</b> cette <i>baraita</i> : Si quelqu'un possédait une <i>ma'a</i> consacrée et <b>qu'il la donnait à un grossiste [<i>siton</i>]</b> comme premier paiement d'une grande quantité de produits, il est responsable de <b>l'abus de biens consacrés. </Cette <i>baraita</i> décrit une situation où l'acheteur n'a pas tiré le produit, et pourtant il est responsable de l'abus. Apparemment, selon la loi de la Torah, le fait de donner de l'argent entraîne l'acquisition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara commente : En effet, c'est une <b>refutation concluante.</b>
 <b>Rav Adda bar Ahava a dit : Sur le costus,</b> une epice, <b>on recite : Qui cree des arbres odorants, mais</b> sur une <b>huile</b> qui a ete <b>pressee</b> avec des epices pour absorber leurs parfums, <b>non,</b> on ne recite pas cette benediction. <b>Et Rav Kahana a dit : Meme</b> sur de l'<b>huile pressee</b> avec des epices, on recite : Qui cree des arbres odorants, <b>mais pas</b> sur de l'<b>huile</b> dans laquelle des epices ont ete <b>moulues. Les Sages de Nehardeâ disent : Meme</b> sur l'<b>huile</b> dans laquelle les epices ont ete <b>moulues,</b> qui est de qualite encore inferieure, on recite cette benediction.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

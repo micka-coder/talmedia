@@ -48,4 +48,4 @@ La mishna enseigne que <b>Rabbi Yehuda dit : Quand</b> doit-il informer l'achete
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon ben Zoma a enseigné cette</b> explication : <b>Parce que toute la section</b> de la Torah où l'interdiction : Lui-même et sa progéniture, apparaît <b>ne parle que des animaux sacrifiés</b>, <b>et en ce qui concerne les animaux sacrifiés</b> la <b>nuit suit le jour,</b> on <b>pourrait</b> penser que <b>même</b> en ce qui concerne <b>cette</b> interdiction il <b>est ainsi.</b> Par conséquent, la dérivation suivante est requise : <b>Il est dit ici,</b> en ce qui concerne l'abattage d'un animal et de sa progéniture : <b>"Un jour", et il est dit dans l'acte de création : "Un jour". De même que</b> concernant la phrase <b>"un jour" qui est énoncée dans l'acte de la Création, le jour suit la nuit, de même</b> concernant la phrase <b>"un jour" qui est énoncée en ce qui concerne</b> l'abattage d'un animal <b>lui-même et sa progéniture, le jour suit la nuit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

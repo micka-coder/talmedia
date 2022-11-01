@@ -35,5 +35,5 @@ Si un homme a laissé des pièces de monnaie chez un changeur : Si elles étaien
 ### michna 12
 Si un homme fait un usage personnel d'un dépôt : Bet Shammai soutient qu'il est désavantagé que la valeur augmente ou diminue. Bet Hillel disent :  [Il doit restituer le dépôt] à sa valeur au moment où il en a fait usage. Rabbi Akiva dit : [Il doit restituer le dépôt] à sa valeur au moment où il est réclamé. Celui qui exprime son intention d'utiliser un dépôt [pour un usage personnel] : Bet Shammai disent qu'il est responsable [de tout dommage ultérieur au dépôt, comme s'il en avait déjà fait usage]. Bet Hillel disent : Il n'est pas responsable tant qu'il ne l'utilise pas effectivement, comme il est dit (Exode 22:7) :  "S'il n'avait pas mis la main sur la propriété de son voisin". Comment cela se fait-il ? S'il a incliné la cruche et pris un quart de log de vin et que la cruche s'est ensuite cassée, il ne paie que le quart de log. S'il l'a soulevée et a pris un quart de bouteille et que la cruche a été brisée, il paie pour toute la cruche.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara répond : <b>Rabbi Yirmeya dit : La mishna</b> fait référence à un
 Ce sont <b>Rabba et Rav Yosef qui ont tous deux dit :</b> Le doute ici ne résulte pas des faits du cas eux-mêmes, mais de témoignages contradictoires et d'une incapacité à les départager. <b>Il s'agit ici de deux séries de témoignages, dont l'une</b> dit : </b> Le <i>teruma</i> <b>est devenu impur alors qu'il faisait encore jour,</b> avant le début du Chabbat ; <b>et dont l'autre</b> dit : </b> Le <i>teruma</i> n'est devenu impur qu'<b>après la tombée de la nuit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

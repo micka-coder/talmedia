@@ -18,4 +18,4 @@ Rava poursuit : <b>Et ce sont les Sages qui ont décrété à propos</b> de ce c
 La Guemara ajoute : <b>Qui as-tu entendu qui dit</b> que les objets utilisés dans l'accomplissement des <b>mitzvot ne s'annulent pas les uns les autres ? Il s'agit de Hillel, comme il est enseigné</b> dans une <i>baraita</i> : <b>On a dit de Hillel l'Ancien que</b> lorsqu'il mangeait l'offrande pascale, la <i>matza</i>, et les herbes amères la première nuit de Pessah, <b>il les enveloppait</b> toutes <b>en même temps et les mangeait</b> ensemble, <b>car il est dit</b> à propos de l'offrande pascale : <b>"Ils la mangeront avec <i>matzot</i> et des herbes amères"</b> (Nombres 9:11), ce qui indique que ces trois aliments doivent être mangés ensemble. Hillel ne craignait pas que le goût des herbes amères annule le goût de la <i>matza</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ Il a également été dit à propos de la manne : <b>"Et son goût était comme 
 Le verset indique : <b>"Et Moïse dit : Voici ce qui se passera : le Seigneur vous donnera le soir de la viande à manger, et le matin du pain à satiété"</b> (Exode 16:8). Un <i>tanna</i> <b>enseignant au nom de Rabbi Yehoshua ben Korḥa : La viande que le peuple juif a demandée de manière inappropriée,</b> puisqu'il avait la manne et n'avait pas besoin de viande, leur a été <b>donnée de manière inappropriée,</b> d'une manière désagréable ; ils ont été punis par la suite (Rabbeinou Elyakim).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

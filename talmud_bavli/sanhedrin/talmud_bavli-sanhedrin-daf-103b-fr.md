@@ -54,4 +54,4 @@ En ce qui concerne ce qui est écrit : <b>"Il traversera la mer avec affliction 
 La Gemara développe : Le fait qu'elle <b>distingue le proche</b> est dérivé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

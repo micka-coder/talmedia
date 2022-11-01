@@ -33,4 +33,4 @@ A la fin de la mishna ici, la <i>tanna</i> réitère la <i>halakha</i> énoncée
 <b>Rav Naḥman dit : </b> La <b>halakha</i></b> pratique est qu'en ce qui concerne le <b>vin</b> qui a été effectivement utilisé pour <b>une libation, le vin</b> qui s'est mélangé <b>avec du vin</b> rend l'ensemble du mélange <b>interdit, </b> mais si <b>un tonneau</b> est devenu mélangé <b>avec des tonneaux</b> de vin autorisé, il est <b>permis</b> de vendre les tonneaux de la manière décrite par Rabban Shimon ben Gamliel. En ce qui concerne le <b>vin indéfini</b> des gentils, qui est interdit en raison de la suspicion qu'il a été utilisé pour une libation, <b>même</b> si le <b>vin</b> s'est mélangé <b>avec du vin,</b> il est <b>permis</b> de vendre le mélange de la manière décrite par Rabban Shimon ben Gamliel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

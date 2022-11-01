@@ -32,5 +32,5 @@ Un pot perforé est considéré comme une terre. Si quelqu'un a donné de la ter
 ### michna 11
 Si quelqu'un a donné de la teroumah d'un [produit de] demai pour [un autre produit de] demai, ou d'un [produit de] demai pour [un produit] qui n'était certainement pas perforé, [cela devient] de la teroumah, mais il doit donner de la teroumah à nouveau. S'il a donné de la térouma] d'un [produit] qui n'a certainement pas été mis en valeur pour un [produit de] demai, [cela devient] de la térouma, mais il ne peut pas être mangé jusqu'à ce qu'il donne d'abord de la térouma et la dîme pour cela.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

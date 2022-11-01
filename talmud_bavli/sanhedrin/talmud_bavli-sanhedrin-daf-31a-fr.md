@@ -87,4 +87,4 @@ Rav Naḥman <b>lui dit :</b> Ce n'est pas la raison de ma décision ; plutôt, 
 <b>Certains disent</b> qu'il existe une autre version de l'histoire, selon laquelle <b>Rav Naḥman n'a pas jugé son</b> témoignage <b>crédible. Rava a dit à Rav Naḥman : Mais si elle avait voulu</b> faire ,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

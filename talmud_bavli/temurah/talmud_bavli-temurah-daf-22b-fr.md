@@ -72,4 +72,4 @@ La Gemara poursuit : Mais maintenant <b>dit la dernière clause</b> de la mishna
 La Gemara demande : Se peut-il que <b>la première clause</b> de la mishna soit conforme à l'opinion des <b>Rabbins, tandis que la dernière clause</b> est conforme à l'opinion du <b>Rabbi</b> Yehuda HaNasi ? La Guemara note : <b>Cela marche bien selon Rav Huna, car Rav Huna a dit</b> que <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

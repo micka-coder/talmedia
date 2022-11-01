@@ -51,4 +51,4 @@ Le <i>baraita</i> demande : Pourquoi est-il nécessaire de déduire cette <i>hal
 La <i>baraita</i> continue : <b>Rabbi Eliezer dit : Si</b> ce verset sert <b>à enseigner qu'il peut la vendre à</b> des personnes de <b>lignée défectueuse</b>, il est inutile, <b>car il est déjà dit : "Si elle ne plaît pas à son maître,</b> qui l'a désignée" (Exode 21, 8). Cela indique <b>qu'elle déplaît dans son mariage,</b> c'est-à-dire que le mariage avec lui était interdit, et pourtant la vente est valable. Si c'est le cas, <b>Quel est le sens</b> lorsque <b>le verset dit "comme une servante" ?</b> Cela <b>enseigne qu'il peut la vendre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

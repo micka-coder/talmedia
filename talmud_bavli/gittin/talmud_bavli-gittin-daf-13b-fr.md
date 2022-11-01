@@ -36,4 +36,4 @@ Le Rav Ashi développe : <b>Aussi, même selon</b> l'opinion de <b>Rabbi Meir, q
 <b>Au contraire, Rav Ashi dit</b> que c'est la raison de la question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

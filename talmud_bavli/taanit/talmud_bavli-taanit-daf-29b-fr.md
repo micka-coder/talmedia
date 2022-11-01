@@ -39,4 +39,4 @@ La Guemara reprend sa citation de la <i>baraïta</i> : Si le Neuvième d'Av <b>s
 <b>Rabbi Yoḥanan a dit : Et tous les trois de</b> ces <i>tanna'im</i> <b>dérivent</b> leurs opinions d'un <b>verset,</b> dont ils ont tiré des conclusions différentes, <b>comme il est écrit : "Et je ferai cesser toutes ses réjouissances, sa fête, sa nouvelle lune et son shabbat"</b> (Osée 2:13). <b>C'est celui qui a dit</b> que ces activités sont interdites <b>de la Nouvelle Lune jusqu'à</b> après <b>le jeûne,</b> Rabbi Meir,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

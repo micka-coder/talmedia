@@ -21,4 +21,4 @@ Le tribunal <b>n'oblige pas</b> le voisin réticent à contribuer à la construc
 <strong>GEMARA :</strong> <b>Reish Lakish dit :</b> Si un prêteur <b>fixe un délai pour qu'un autre</b> rembourse le prêt qu'il lui a consenti <b>et</b> lorsque la dette arrive à échéance, l'emprunteur <b>dit au prêteur : <b>Je</b> t'ai déjà <b>remboursé dans les délais, il n'est pas jugé crédible,</b> car les gens ne remboursent pas ordinairement leurs dettes avant leur échéance. Le prêteur serait heureux <b>si</b> l'emprunteur <b>remboursait seulement</b> sa dette <b>à temps. Abaye et Rava</b> ne sont pas d'accord avec Reish Lakish, <b>car ils disent tous les deux : Une personne est apte à rembourser</b> sa dette <b>dans son temps,</b> c'est-à-dire avant son échéance. Ceci parce que <b>parfois il lui arrive d'avoir de l'argent</b> et l'emprunteur <b>se dit</b> à lui-même : <b>Je vais aller</b> et <b>rembourser</b> ma dette.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

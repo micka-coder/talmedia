@@ -6,4 +6,4 @@
 <b>Qu'est-ce que</b> on entend quand on dit que <b>on examine pour ceux qui offrent l'agneau pascal ?</b> Pratiquement, comment l'examine-t-on ? <b>Rav Yehuda dit</b> que <b>Shmuel a dit : On doit souffler</b> la poussière sur le chemin avant de faire chaque pas dans <b>le <i>bien que haperas</i> en marchant</b> à travers celui-ci, afin de voir s'il y a un os caché à cet endroit. <b>Rav Yehuda bar Abaye au nom du Rav Yehuda a dit : Une <i>mais haperas</i> qui a été foulée</b> aux pieds est considérée comme <b>rituellement pure,</b> car on suppose que les os qui s'y trouvaient ont été retirés ou brisés. L'impureté d'une <i>haperas</i> est due à un décret rabbinique. Les Sages ont dérogé à ce décret dans un cas où l'examen nécessaire est effectué, afin de permettre aux gens de pouvoir offrir leurs agneaux pascals. Cependant, cette indulgence est limitée au cas de l'agneau pascal, puisque sa négligence entraîne l'interdiction de <i>karet</i>. Elle n'est pas étendue aux autres cas, comme l'interdiction de manger des <i>teruma</i> impurs.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

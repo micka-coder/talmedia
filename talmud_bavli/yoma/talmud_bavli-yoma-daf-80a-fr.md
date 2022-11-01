@@ -48,4 +48,4 @@ La Guemara exprime sa surprise : <b>Est-ce que</b> la <i>baraita</i> <b>préfér
 <b>Rav Hoshaya s'oppose fermement à cette</b> compréhension : <b>Si tel est le cas,</b> si la mesure de Beit Hillel' est une seule bouchée de joue, alors <b>c'est</b> un cas de <b>Beit Shammai's indulgences et Beit Hillel's rigueurs,</b> puisque la mesure d'un quart de<i>log</i> est plus grande qu'une seule bouchée de joue. Si tel est le cas, pourquoi ce débat n'est-il pas répertorié dans le traité <i>Eduyyot</i>, qui énumère tous les cas où les Beit Shammai sont plus indulgents que les Beit Hillel ? <b>Il lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

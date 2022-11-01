@@ -60,4 +60,4 @@ La Guemara demande : <b>Mais</b> on pourrait tout aussi bien <b>dire</b> le cont
 La Gemara répond : <b>De même que nous trouvons dans chaque cas</b> que l'<b>élément facilitateur</b> va <b>au-dessus</b> de l'élément primaire, par exemple, dans le cas d'une <i>sota</i>, la poussière va au-dessus de l'eau, <b>de même ici,</b> dans le cas de la génisse rouge, l'<b>élément facilitateur</b> doit aller <b>au-dessus</b> de l'élément primaire. L'eau doit être placée en premier, et seulement ensuite les cendres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Une autre coutume de Rav Huna était <b>que lorsqu'il avait</b> un nouveau <b>m�
 La Guemara relate en outre : <b>Quand</b> Rav Huna <b>mangeait du pain, il ouvrait les portes</b> de sa maison, <b>en disant : Celui qui a besoin, qu'il entre et mange. Rava a dit : Je peux accomplir toutes ces</b> coutumes de Rav Huna, <b>sauf celle-ci, que je ne peux pas faire,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

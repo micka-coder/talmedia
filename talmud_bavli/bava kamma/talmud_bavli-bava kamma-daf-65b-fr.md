@@ -66,4 +66,4 @@ La Guemara clarifie la source de ces deux avis. <b>Quelle est la raison de Beit 
 <b>Et Beit Shammai</b> répondrait : <b>Ce terme</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

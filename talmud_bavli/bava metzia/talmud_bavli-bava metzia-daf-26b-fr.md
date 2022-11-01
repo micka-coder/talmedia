@@ -42,7 +42,7 @@ La Guemara demande : <b>Et Rabbi Elazar</b> lui-même, <b>d'où</b> tire-t-il <b
 § La mishna enseigne : Dans le cas de <b>quelqu'un qui achète un produit à un autre,</b> et qu'il a trouvé des pièces de monnaie entremêlées avec le produit, ces pièces lui appartiennent. <b>Reish Lakish dit au nom de Rabbi Yannai :</b> Les Sages <b>ont enseigné</b> ceci <b>seulement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>qui est tombé de</b> une des <b>deux</b> personnes, il est <b>obligé de le rendre</b>. <b>Quelle en est la raison ? La</b> personne <b>de qui</b> la <i>sela</i> <b>est tombée ne désespère pas</b> de la récupérer. <b>Il dit : Après tout, aucune autre personne n'était avec moi, seulement cette</b> personne qui était avec moi, car elle ignore que la <i>sela</i> a été trouvée par une tierce personne. Il pense donc : <b>Je vais le saisir et lui dire :</b> C'est <b>toi qui l'as prise.</b>
 
@@ -86,4 +86,4 @@ La Guemara demande : <b>Et Rabbi Elazar</b> lui-même, <b>d'où</b> tire-t-il <b
 § La mishna enseigne : Dans le cas de <b>quelqu'un qui achète un produit à un autre,</b> et qu'il a trouvé des pièces de monnaie entremêlées avec le produit, ces pièces lui appartiennent. <b>Reish Lakish dit au nom de Rabbi Yannai :</b> Les Sages <b>ont enseigné</b> ceci <b>seulement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara rejette cet argument : <b>Vous</b> pouvez <b>même dire</b> qu'en gé
 On raconte encore qu'il y avait <b>une certaine</b> personne <b>qui s'est présentée devant Rabbi Abbahou</b> et lui a <b>dit : </b> En ce qui concerne <b>le rouleau de Torah que j'ai écrit pour untel, je n'ai pas traité son parchemin avec l'intention appropriée.</b> Rabbi Abbahou lui <b>dit : Le rouleau de la Torah est</b> actuellement <b>en la possession de qui ?</b> Le scribe <b>lui a répondu :</b> Il est <b>en la possession de l'acheteur.</b> Rabbi Abbahou <b>lui a dit : Puisque vous êtes jugé crédible pour causer la perte de votre salaire,</b> puisque vous avez admis que le parchemin sur lequel était écrit le rouleau de la Torah n'est pas valide, <b>vous êtes jugé crédible pour causer une perte</b> à, c'est-à-dire disqualifier, <b>le rouleau de la Torah.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara suggère : <b>Disons</b> que la mishna suivante (<i>Mikvaot</i> 8:4) 
 La Guemara cite une autre source qui pourrait éventuellement soutenir l'opinion de Rava : <b>Venez</b> et <b>entendez</b> une <i>baraita</i> : <b>Tu es trouvé</b> pour <b>dire que le sperme d'un juif est impur partout</b> où il se trouve,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

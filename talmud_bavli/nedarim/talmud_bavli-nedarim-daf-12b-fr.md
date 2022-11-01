@@ -27,4 +27,4 @@ La Gemara suggère : <b>Disons</b> que cette question, à savoir si l'on a l'int
 La Guemara clarifie : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si l'on dit</b> qu'il associe l'objet de son vœu au statut d'animal premier-né <b>avant l'aspersion du sang,</b> alors qu'il est interdit en tant qu'objet consacré, <b>quel est le raisonnement de celui qui le rend</b> <b>permis ? Et si</b> il associe l'objet de son vœu au statut d'un animal premier-né <b>après l'aspersion du sang,</b> alors qu'il appartient au prêtre et qu'il est autorisé à être mangé, <b>quelle est la logique de celui qui le rend</b> <b>interdit ? Au contraire, n'est-ce pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

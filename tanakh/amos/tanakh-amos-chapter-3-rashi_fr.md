@@ -51,4 +51,4 @@
 <b>Maisons d'ivoire</b> - Qui sont lambrissées d'ivoire. [de <i>Jonathan</i>]
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

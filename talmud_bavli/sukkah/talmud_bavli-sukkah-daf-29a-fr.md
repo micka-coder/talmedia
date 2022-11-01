@@ -45,4 +45,4 @@ Les Sages ont dit : <b>Il n'y a pas de nation qui soit affligée dont le dieu ne
 <b>Et à cause de quatre affaires, les biens des propriétaires sont livrés à la monarchie</b> à titre de sanction : <b>A cause de</b> ceux <b>des gardiens de billets à ordre <b>payés</b> qui conservent ces documents au lieu de les déchirer ou de les rendre aux emprunteurs, car cela permettrait au prêteur de percevoir de l'argent avec le billet une seconde fois ; <b>et à cause</b> des <b>prêteurs avec intérêt;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

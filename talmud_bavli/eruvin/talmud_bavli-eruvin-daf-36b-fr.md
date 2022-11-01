@@ -39,4 +39,4 @@ La Guemara pose une question par rapport à la déclaration du Rav' citée ci-de
 La Guemara répond : <b>Il ne doit pas vous venir à l'esprit</b> de maintenir la décision de la mishna parce qu'elle contredit d'autres sources, <b>car nous avons</b> déjà <b>entendu que Rabbi Yehuda n'accepte pas</b> le principe de la <b>désignation rétroactive. Comme il a été enseigné</b> dans la <i>Tosefta</i> : <b>Celui qui achète du vin chez les Samaritains [<i>Kutim</i>],</b> qui ne prélèvent pas correctement la dîme de leurs produits,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

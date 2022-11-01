@@ -60,4 +60,4 @@ La Gemara demande : <b>Qui est le <i>tanna</i></b> qui soutient <b>qu'avec un ai
 La Guemara relate que <b>Rav Neḥemya, fils de Rav Yosef, a dit : J'étais</b> une fois <b>debout devant Rava, et il était</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

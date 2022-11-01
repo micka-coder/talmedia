@@ -72,4 +72,4 @@
 <b>Où David [et ses hommes] étaient partis.</b> Car ils voulaient le cacher à Shaul.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

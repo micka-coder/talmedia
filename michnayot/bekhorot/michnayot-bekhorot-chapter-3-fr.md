@@ -11,5 +11,5 @@ Rabbi Yose ben Meshullam dit : celui qui abat le premier né, dégage d'abord un
 ### michna 4
 Si [une partie] du poil d'un premier né taché est tombée et qu'il l'a placée dans la fenêtre, puis qu'il a abattu l'animal, Akavya ben Mahalalel le permet. Mais les sages l'interdisent, ce sont les paroles de Rabbi Juda. Rabbi Yose lui a dit : Akavya ben Mahalalel n'a pas permis [seulement] dans ce cas, mais [même] dans le cas où le poil d'un premier né taché qui est tombé et qu'il l'a placé dans la fenêtre, et que l'animal est mort par la suite, [même] dans ce cas Akavya ben Mahalalel permet, mais les sages interdisent. Si la laine d'un premier-né pend librement, la partie qui apparaît [au même niveau] que [le reste de] la laine est permise, tandis que celle qui n'apparaît pas [au même niveau] que [le reste de] la laine est interdite.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

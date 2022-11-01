@@ -39,4 +39,4 @@ Lorsque la Torah déclare : "Et les fils d'Aaron, les prêtres, disposeront les 
 <b>Rav Hamnuna dit</b> que <b>Rabbi Elazar a posé une difficulté : Ce</b> verset <b>est écrit</b> à propos d'un jeune taureau, et non d'un agneau ; et un <b>taureau nécessite vingt-quatre</b> prêtres. Comment, dès lors, peut-on utiliser ce verset comme source que six prêtres sont nécessaires pour porter les membres d'un agneau ? Et <b>il a résolu</b> lui-même la difficulté comme suit : Le même verset stipule : <b>"Sur le bois qui est sur le feu sur l'autel"</b> (Lévitique 1:8), tout cela n'enseignant apparemment rien de nouveau sur le sacrifice. Par conséquent, on y voit une allusion à l'offrande quotidienne, qui était un agneau, car <b>Qu'est-ce qu'un élément au sujet duquel il est indiqué que</b> du <b>bois et du feu</b> spécialement préparés sur un <b>autel</b> doivent être fournis, et que du bois et du feu préexistants ne suffisent pas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

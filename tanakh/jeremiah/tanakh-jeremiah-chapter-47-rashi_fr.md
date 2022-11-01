@@ -24,7 +24,7 @@
 <b>repos</b> Heb. הרגעי, expression du repos מרגועַ.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Concernant les Philistins</b> Heb. אל פלישתים [lit.] aux Philistins.
 <b>Avant que Pharaon ne frappe Gaza</b> Lorsque Nabuchodonosor assiégea Jérusalem, la dixième année de Sédécias, l'armée de Pharaon sortit d'Égypte, et les Chaldéens se retirèrent de Jérusalem. Pharaon entendit, envahit Gaza et retourna dans son pays. Dans le Seder Olam (ch. 26).
@@ -50,4 +50,4 @@
 <b>repos</b> Heb. הרגעי, expression du repos מרגועַ.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

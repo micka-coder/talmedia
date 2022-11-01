@@ -45,4 +45,4 @@ La Guemara note : <b>Et Rav Naḥman,</b> qui considère que les vêtements en s
 <b>Abaye a dit : Cette</b> déclaration de <b>un <i>tanna</i> de l'école de Rabbi Yishmael diverge d'une autre</b> déclaration de <b>un <i>tanna</i> de l'école de Rabbi Yishmael,</b> qui soutient que tous les tissus sont considérés comme des vêtements. <b>Comme</b> un <i>tanna</i> <b>de l'école de Rabbi Yishmael a enseigné :</b> Du fait que le verset dit : "Un <b>vêtement de laine"</b> (Lévitique 13:47), <b>J'ai</b> déduit <b>uniquement</b> qu'un <b>vêtement de laine</b> peut devenir rituellement impur. <b>D'où vient</b> que les vêtements en <b>poil de chameau, en laine de lapin, en poil de chèvre, ou</b> les types de soie <b><i>kalakh</i>, <i>serikin</i>, et <i>shirayin</i>,</b> sont également <b>inclus</b> dans cette <i>halakha</i> ? <b>La</b> même <b>verse indique : "Ou</b> un <b>vêtement en lin."</b> Le mot "ou" sert d'amplification pour inclure tous les types de tissus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Rabbi Zeira énonce la contradiction : <b>Et si l'on dit</b> que le <b>mari d'un
 <strong>MISHNA :</strong> La Torah déclare : <b>"Mais tout vœu d'une veuve, et de celle qui est divorcée,</b> avec lequel elle a lié son âme, <b>se tiendra contre elle"</b> (Nombres 30:10). <b>Comment cela ? </b> Si une veuve ou une femme divorcée <b>a dit : Je suis par la présente nazirite après trente jours,</b> alors <b>même si elle s'est mariée dans les trente jours,</b> son nouveau mari <b>ne peut pas annuler</b> son vœu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

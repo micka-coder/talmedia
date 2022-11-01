@@ -45,4 +45,4 @@ Rav Naḥman <b>a dit à</b> Rava : Les masses <b>savent que l'année intercalai
 § En ce qui concerne l'intercalation sur la base de la saison, <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> Le tribunal <b>intercale l'année seulement si la saison</b> de Tammuz, c'est-à-dire l'été, <b>manquait</b> son achèvement pour <b>la majeure partie du mois</b> de Tishrei, ce qui signifie que la saison d'été avait commencé si tard dans le calendrier que l'équinoxe d'automne ne se produirait qu'après que la majeure partie du mois de Tishrei soit passée. Comme la fête de <i>Sukkot</i>, qui commence le quinze de Tichrei, doit tomber après l'équinoxe d'automne, un mois est ajouté à l'année précédente, ce qui fait que la saison d'été se termine et que l'automne commence plus tôt dans le calendrier juif. Cela permet à <i>Sukkot</i> de commencer après l'équinoxe d'automne, dans la saison de Tishrei. <b>Et combien : La majeure partie du mois ? Seize jours;</b> c'est <b>la déclaration de Rabbi Yehuda.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

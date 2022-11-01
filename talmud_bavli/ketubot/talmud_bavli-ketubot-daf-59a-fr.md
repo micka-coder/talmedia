@@ -48,4 +48,4 @@ La Guemara demande : <b>Y a-t-il quelque chose</b> que l'on ferait <b>de sorte q
 <b>Rav Pappa s'oppose à cela : Est-ce que</b> l'analogie de Rav Yirmeya est <b>comparable ? Là,</b> le champ <b>en soi et</b> son <b>produit</b> sont <b>en possession de l'acheteur,</b> et donc le vendeur ne peut pas les consacrer. <b>Ici, son corps est en sa possession,</b> comme elle possède ses mains. Au contraire, <b>cette situation n'est comparable qu'à</b> un cas où <b>quelqu'un dit à un autre:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

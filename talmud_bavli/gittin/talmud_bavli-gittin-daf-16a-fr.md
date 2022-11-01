@@ -24,4 +24,4 @@ De même, <b>Rav Pappa dit : On a dit</b> dans une mishna (<i>Mikvaot</i> 3:4) :
 § La mishna a enseigné que si <b>quelqu'un dit : C'était écrit en ma présence, et que l'autre dit :</b> C'était signé en ma présence, l'acte de divorce est invalide. <b>Rav Shmuel bar Yehuda dit</b> que <b>Rabbi Yoḥanan dit : Ils ont enseigné</b> que le document est invalide <b>seulement si l'acte de divorce</b> n'a <b>pas été produit par les deux</b> au tribunal. En d'autres termes, cette <i>halakha</i> ne s'applique que s'ils n'ont pas été tous deux agents pour apporter cet acte de divorce. Au contraire, l'un d'eux seul a rempli ce rôle et il n'a pas dit : Il a été écrit en ma présence et il a été signé en ma présence, conformément au décret rabbinique. <b>Cependant,</b> si l'<b>acte de divorce</b> a été <b>produit par les deux, </b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

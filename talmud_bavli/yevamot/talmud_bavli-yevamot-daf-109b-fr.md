@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais ceci n'est-il pas</b> aussi évident ? </b> On ne r
 La Guemara demande : <b>Mais Rav</b> pense-t-il vraiment <b>que</b> seulement <b>si il a des rapports sexuels avec elle</b> après qu'elle soit devenue adulte, alors <b>oui, ses</b> fiançailles sont réalisées, <b>mais s'il n'a pas eu de rapports sexuels avec elle,</b> alors <b>non, </b> elles ne sont pas réalisées ? <b>N'a-t-on pas dit</b> qu'en ce qui concerne <b>une mineure qui n'avait pas refusé</b> son mari <b>et atteint la majorité, et</b> ensuite <b>allait et se mariait</b> avec un autre, <b>Rav a dit : Elle n'a pas besoin d'un acte de divorce du second</b> homme, car elle est pleinement mariée au premier et par conséquent son second mariage est invalide ? <b>Et Shmuel a dit : Elle a besoin d'un acte de divorce du deuxième</b> homme, car il est incertain si son deuxième mariage est valide.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

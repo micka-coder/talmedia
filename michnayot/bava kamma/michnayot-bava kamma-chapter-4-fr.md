@@ -26,5 +26,5 @@ Si un bœuf sort pour être lapidé, et que son propriétaire l'a dédié au Tem
 ### michna 9
 Si on l'a remis à un gardien non payé, ou à un emprunteur, ou à un gardien payé, ou à un loueur, ils prennent la place des propriétaires ; si la bête était un danger attesté, il paie la totalité des dommages, et si elle a été reconnue inoffensive, il paie la moitié des dommages. Si son propriétaire l'avait attachée avec un licou, ou l'avait enfermée correctement, mais qu'elle est sortie et a causé des dommages, le propriétaire est responsable, qu'il s'agisse d'un danger attesté ou d'un animal inoffensif, ce sont les paroles de Rabbi Meir. Rabbi Judah dit :  "Si c'était considéré comme inoffensif, il est responsable, mais si c'était un danger attesté, il est exempt, comme il est dit, "et son propriétaire ne l'a pas gardé", mais celui-ci a été gardé. Rabbi Eliezer dit :  "Sa seule garde est le couteau".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

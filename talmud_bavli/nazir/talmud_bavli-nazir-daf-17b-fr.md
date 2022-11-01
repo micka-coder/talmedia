@@ -30,4 +30,4 @@ Le <i>baraita</i> continue : Mais <b>on peut dire</b> que <b>tout comme</b> en c
 La Guemara tente maintenant de prouver à partir des <i>baraita</i> que celui qui a fait vœu de naziréat alors qu'il se trouvait dans un cimetière doit se raser à la fin de son processus de purification : <b>Quoi, n'est-ce pas</b> ainsi que lorsque la <i>baraita</i> mentionne le rasage, elle se réfère au <b>rasage de l'impureté,</b> et elle enseigne que celui qui a fait vœu de naziréat dans un cimetière doit se raser à la fin de son processus de purification ? La Guemara rejette cette idée : <b>Non,</b> elle fait référence au <b>rasement de la pureté,</b> c'est-à-dire le rasage effectué après que l'on ait terminé son terme de naziréité. Il rasera alors tous ses cheveux, y compris ceux qui ont poussé pendant la période où il était rituellement impur en raison de sa présence au cimetière. La Guemara ajoute : <b>Aussi, il est raisonnable</b> de dire que c'est l'interprétation correcte,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

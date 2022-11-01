@@ -45,4 +45,4 @@ Rav Huna</b> lui a répondu : Ḥova,</b> ma femme, <b>surveille</b> les animaux
 § <b>Rav et Shmuel et Rav Asi</b> un jour, <b>il se trouve qu'ils étaient</b> présents <b>dans une maison</b> où se déroulait une fête marquant le passage <b>d'une semaine d'un <b>fils nouveau-né,</b> c'est-à-dire une circoncision. <b>Et certains disent que c'était une maison</b> où se déroulait une célébration marquant la <b>rédemption</b> d'un <b>fils premier-né. Rav</b> n'entrerait <b>pas avant Shmuel,</b> pour des raisons que la Gemara expliquera ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

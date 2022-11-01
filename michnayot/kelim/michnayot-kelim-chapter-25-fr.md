@@ -26,5 +26,5 @@ Si les mains d'une personne sont propres et que le côté extérieur d'une tasse
 ### michna 9
 Les vases saints n'ont pas de côtés extérieur et intérieur ou une partie par laquelle ils sont tenus. Il est interdit d'immerger des récipients les uns dans les autres pour un usage sacré. Tous les vases deviennent susceptibles d'être impurs par intention, mais ils ne peuvent être rendus insusceptibles que par un acte ayant pour effet de les changer, car un acte annule un acte antérieur ainsi qu'une intention antérieure, mais une intention n'annule ni un acte antérieur ni une intention antérieure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

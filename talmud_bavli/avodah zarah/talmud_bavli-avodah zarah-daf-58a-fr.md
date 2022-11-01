@@ -21,4 +21,4 @@ Abaye dit : <b>Si c'est le cas, laissons</b> le <i>baraita</i> <b>enseigner</b> 
 § La Gemara relate : <b>Rabbi Yoḥanan ben Arza et Rabbi Yosei ben Nehorai étaient assis et buvaient du vin. Un certain homme arriva</b> et <b>ils lui dirent : Viens, sers-nous à boire. Après avoir versé</b> le vin <b>dans la coupe, il s'avéra que</b> la personne <b>était un Gentil. Un</b> de ces Sages <b>interdisait</b> à quelqu'un de <b>même</b> de tirer un <b>bénéfice</b> du vin, <b>et un</b> d'entre eux <b>permettait</b> le vin <b>même pour le boire. Rabbi Yehoshua ben Levi a dit : Celui qui a interdit</b> le vin <b>de manière correcte</b> l'a jugé <b>interdit, et celui qui l'a autorisé</b> <b>de manière correcte</b> l'a jugé <b>permis,</b> car les deux avis sont viables. <b>Celui qui a interdit</b> le vin tient que...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

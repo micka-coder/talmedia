@@ -66,4 +66,4 @@ Rav Sheshet <b>lui a dit : Qu'est-ce que tu dis ? Si</b> vous <b>ensemble vous e
 <b>Et si</b> vous <b>enseignez</b> cette <i>baraita</i> par rapport aux rapports <b>avec tous ces autres avec lesquels les relations sont interdites,</b> comment se fait-il qu'ils aient rendu celui qui achève</b> l'acte <b>comme celui qui s'engage dans la phase initiale</b> du rapport ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

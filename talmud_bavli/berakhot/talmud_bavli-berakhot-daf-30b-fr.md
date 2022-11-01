@@ -36,4 +36,4 @@ La Guemara reprend la discussion ci-dessus concernant l'omission de la mention d
 <b>Rav Ashi a dit a Ameimar : Puisque Rav enonce une raison</b> pour sa declaration, <b>quelle</b> difference <b>y a-t-il <b>pour moi</b> si le mois est <b>court, et quelle</b> difference <b>y a-t-il <b>pour moi</b> s'il est <b>complet ? Au contraire, il n'y a pas de difference.</b> Rav fonde son opinion sur le parallele etabli entre la sanctification du mois et la mention de la Nouvelle Lune dans la priere <i>Amida</i> ; la sanctification du mois n'est pas pertinente la nuit.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

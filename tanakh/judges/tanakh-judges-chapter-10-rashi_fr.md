@@ -45,4 +45,4 @@
 <b>On les a convoqués.</b> Ils ont été rassemblés par une proclamation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

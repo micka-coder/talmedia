@@ -54,4 +54,4 @@ A la lumière de cela, la Guemara explique la discussion entre Rabbi Akiva et Ra
 <strong>MISHNA :</strong> <b>Quelqu'un qui pince</b> la nuque d'un <b>oiseau</b> offert <b>à l'intérieur</b> de la cour du Temple <b>et</b> ensuite <b>l'offre</b> à l'extérieur</b> de la cour est <b>responsable. </b> Mais si <b>quelqu'un a pincé</b> sa nuque <b>en dehors</b> de la cour <b>et</b> puis l'a <b>offert</b> <b>en dehors</b> de la cour, il est <b>exempté,</b> car pincer la nuque d'un oiseau en dehors de la cour n'est pas considéré comme un pincement valable. <b>Quelqu'un qui égorge,</b> avec un couteau, <b>une offrande d'oiseau</b> <b>à l'intérieur</b> de la cour <b>et l'offre</b> <b>en dehors</b> de la cour est <b>exempté,</b> car l'égorgement d'une offrande d'oiseau dans la cour du Temple la disqualifie comme offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

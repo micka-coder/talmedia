@@ -21,4 +21,4 @@ La Guemara objecte : <b>Mais Rabban Gamliel et Rabbi Eliezer,</b> qui sont en d�
 La mishna développe : Son statut halakhique est comme celui <b>d'un arbre de trois manières :</b> En ce qui concerne <b>la <i>orla</i>,</b> c'est-à-dire qu'il est interdit de manger de ses fruits pendant les trois premières années après sa plantation ; en ce qui concerne <b>les produits de quatrième</b> année, c'est-à-dire, les fruits qui poussent au cours de la quatrième année après la plantation de l'arbre, qui ne peuvent être utilisés en dehors de Jérusalem, à moins qu'ils ne soient déconsacrés par voie de rachat ; <b>et</b> en ce qui concerne <b>l'année sabbatique.</b> En ce qui concerne toutes ces <i>halakhot</i>, l'année à laquelle le fruit est attribué est déterminée par le moment où il mûrit. Et son statut halakhique est semblable à celui <b>d'un légume d'une certaine manière :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

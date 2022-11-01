@@ -33,4 +33,4 @@ Et <b>si tu veux, dis</b> plutôt que la <b>entière</b> mishna <b>est</b> énon
 La Guemara répond : <b>Cette</b> clause du verset est <b>nécessaire pour ce qui est enseigné</b> dans une <i>baraita</i> : <b>Abba Ḥanan dit au nom de Rabbi Eliezer :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ Rav Yehouda a expliqué son objection : <b>Et ce</b> cas <b>ci concerne quelqu'u
 Shmuel <b>a dit à</b> Rav Yehuda en réponse : <b>La grande dentée [<i>shinnana</i>], laisse la mishna et suis-moi,</b> c'est-à-dire qu'il ne faut pas comprendre comme tu le penses. <b>De quoi s'agit-il ici ?</b> Nous avons affaire à un cas <b>où le cueilleur a perdu son</b> train de <b>pensée.</b> Il avait initialement <b>l'intention de cueillir des raisins et</b> ensuite <b>il a oublié</b> son intention initiale <b>et a pensé :</b> Ce sont des <b>figues</b> que <b>je veux. Mais sa main</b> a involontairement <b>allé parmi les raisins</b> et il a cueilli les raisins qu'il avait initialement prévus. Dans <b>cette</b> cas, <b>Rabbi Eliezer estime</b> qu'il est responsable, car <b>son</b> <b>intention initiale s'est réalisée. Et Rabbi Yehoshua soutient</b> f <b>son</b> <b>intention et sa pensée</b> actuelles ne sont <b>pas accomplies,</b> et donc il est exempt. En revanche, dans un cas standard où l'on agit à l'insu de tous, les deux s'accordent à dire qu'il est exempté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

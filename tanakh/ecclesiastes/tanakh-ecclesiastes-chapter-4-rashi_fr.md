@@ -82,4 +82,4 @@
 <b>Car ils ne savent pas qu'ils font le mal.</b> L'insensé ne se rend pas compte qu'il se fait du mal.</sup>30</sup><i class="footnote">L'insensé pense qu'il n'y a pas de mal à pécher tant qu'il apporte un sacrifice pour le péché. (Metsudas David) </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

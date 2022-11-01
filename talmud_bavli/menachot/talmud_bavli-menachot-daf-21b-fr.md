@@ -51,4 +51,4 @@ La Guemara clarifie : <b>Mais selon</b> l'avis de <b>ben Bukhri,</b> pourquoi un
 La Gemara énonce la pertinence de l'opinion de ben Bukhri par rapport à la déclaration de Shmuel : Selon l'avis de ben Bukhri, il pourrait <b>entrer dans votre esprit de dire</b> que.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

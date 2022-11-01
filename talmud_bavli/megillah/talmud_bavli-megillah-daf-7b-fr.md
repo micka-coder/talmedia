@@ -66,4 +66,4 @@ La Gemara demande : Selon l'opinion de <b>qui</b> la mishna</b> est enseignée ?
 <b>Rav Ashi a dit : Même</b> si <b>on dit</b> que la mishna est selon l'avis des <b>Rabbins</b> qui ne sont pas d'accord avec Rabbi Yitzḥak et qui soutiennent qu'il y a des fouets même dans les cas où il y a responsabilité pour <i>karet</i>, il n'y a aucune preuve que les collègues de Rabbi Ḥananya ben Gamliel ne sont pas d'accord avec lui. La mishna peut être comprise comme suit : Dans <b>cette</b> affaire, Shabbat, la <b>primaire</b> punition pour <b>sa profanation intentionnelle</b> est <b>de la main de l'Homme ; et</b> dans <b>cette</b> affaire, Yom Kippour, la <b>primaire</b> punition pour <b>sa profanation intentionnelle</b> est <b>avec <i>karet</i>. </b> Si, par contre, il a été fouetté, il est exempté de <i>karet</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara raconte : <b>Rabbi Asi a demandé à Rabbi Yoḥanan :</b> En ce qui 
 <b>Eliezer ben Yehuda d'Evlayim a dit au nom de Rabbi Ya'akov, et ainsi dit Rabbi Shimon ben Yehuda d'Ikos au nom de Rabbi Shimon : Que ce soit la peau des sabots, ou la peau de la tête d'un jeune veau, ou la peau sous la queue, ou n'importe quelle</b> peau <b>que les Sages ont énumérée en ce qui concerne l'impureté rituelle</b> sous le titre : <b>Ceci</b> sont les entités <b>dont la peau est comme leur chair</b> en termes de statut halakhique,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

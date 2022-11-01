@@ -51,4 +51,4 @@ Le Rav Ḥanan bar Rava poursuit : <b>La mère de David s'appelait Natzvat bat A
 <b>Et Rav Ḥanan bar Rava dit</b> que <b>Rav dit :</b> Le <b>jour où notre aïeul Abraham a quitté le monde, les dirigeants des nations du monde se sont tenus en ligne,</b> à la manière des personnes en deuil, <b>et ont dit : Malheur au monde qui a perdu</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

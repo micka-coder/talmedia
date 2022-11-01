@@ -43,4 +43,4 @@
 <b>Le cinquième : Nethaniah</b> le troisième fils d'Asaph. Le sort est donc tombé de celui-ci à celui-là.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

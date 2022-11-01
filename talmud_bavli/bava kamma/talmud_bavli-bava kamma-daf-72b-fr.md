@@ -36,4 +36,4 @@ La Guemara explique les raisons de ces deux avis : <b>Abaye dit qu'il est disqua
 <b>Il y a</b> ceux <b>qui disent</b> que <b>Rava tient aussi comme Abaye, qui dit</b> que de droit un témoin conspirateur <b>doit être disqualifié rétroactivement</b> à partir du moment où il a fourni son témoignage, <b>et voici la raison de Rava</b> pour ne pas le disqualifier rétroactivement :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

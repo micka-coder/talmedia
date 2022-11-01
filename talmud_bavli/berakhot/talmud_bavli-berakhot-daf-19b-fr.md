@@ -51,4 +51,4 @@ Les Sages ont déduit par le midrash halakhique que chacune de ces relations vie
 Je <b>pourrais</b> avoir pense : <b>De meme qu'il ne devient pas impur pour</b> ses proches, <b>il ne devient pas impur pour un cadavre sans personne pour l'enterrer [<i>met mitzva</i>]. Le verset precise : "Et sa sœur" ; il ne peut devenir impur pour sa sœur,</b> car quelqu'un d'autre peut s'occuper de son enterrement,
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

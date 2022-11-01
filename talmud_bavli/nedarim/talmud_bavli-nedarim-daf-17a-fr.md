@@ -15,4 +15,4 @@ La Guemara répond que les deux versets sont nécessaires. <b>Un verset :</b> "F
 La Guemara demande : <b>Et selon Rav Huna, au lieu d'enseigner</b> qu' <b>il n'y a pas de serment dans un serment,</b> en faisant une distinction entre un vœu et un serment, <b>laissons</b> la mishna <b>enseigner</b> une distinction plus étroite entre différents vœux, en précisant qu' <b>il y a</b> un cas de <b>vœu dans un vœu, et il y a</b> un cas dans lequel il n'y a <b>pas de vœu dans un vœu. </b> Comment cela ? Si l'on dit : <b>Je suis par la présente un nazirite aujourd'hui, je suis par la présente un nazirite demain,</b> dans ce cas, <b>il y a un vœu dans un vœu.</b> Cependant, si on dit : <b>Je suis par la présente un nazirite aujourd'hui,</b> puis dit à nouveau : <b>Je suis par la présente un nazirite aujourd'hui,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

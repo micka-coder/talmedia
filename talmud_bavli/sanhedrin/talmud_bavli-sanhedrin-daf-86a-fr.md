@@ -60,4 +60,4 @@ La Guemara développe : C'est <b>Ḥizkiyya qui a dit</b> sa déclaration <b>con
 La Guemara note : <b>Et Ḥizkiyya concède en ce qui concerne les derniers témoins d'un fils têtu et rebelle qui ont été rendus témoins conspirateurs qu'ils sont exécutés.</b> Un fils têtu et rebelle n'est exécuté que si des témoins ont attesté qu'il s'est livré à une conduite gloutonne et alcoolique et qu'il a été fouetté, puis qu'une deuxième paire de témoins atteste qu'il s'est à nouveau livré à une conduite gloutonne et alcoolique. Sa condamnation à mort est basée uniquement sur le témoignage de la seconde paire, <b>car les premiers</b> témoins <b>pourraient dire :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

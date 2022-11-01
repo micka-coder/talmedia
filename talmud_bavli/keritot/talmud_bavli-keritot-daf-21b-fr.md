@@ -54,4 +54,4 @@ La Gemara conteste cette réponse : <b>Dans la situation correspondante</b> <b>e
 <b>Rav Sheshet dit :</b> En ce qui concerne le <b>sang</b> des <b>bipèdes, il n'y a même pas un commandement de s'abstenir</b> de le consommer <i>ab initio</i>. La Guemara <b>souleve une objection</b> de la <i>baraita</i> : <b>Le sang de la rate, le sang du cœur, le sang des reins,</b> et le <b>sang des membres,</b> tous <b>ceux-ci sont</b> interdits à la consommation <b>par</b> un <b>interdit régulier.</b> En revanche, le <b>sang des bipèdes,</b> c'est-à-dire, les êtres humains, et le <b>sang des animaux rampants et des choses rampantes</b> sont <b>interdits mais on n'est pas responsable</b> de leur consommation. La Guemara répond : <b>Quand</b> il <b>est enseigné</b> dans cette <i>baraita</i> que le sang humain <b>est interdit,</b> cela fait référence à un cas...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara remet en question cette explication : <b>Mais préoccupons-nous</b> q
 La Guemara pose une question supplémentaire : <b>Mais qu'il y ait</b> <b>une inquiétude</b> que <b>peut-être</b> le détenteur du document ait <b>effacé</b> la déclaration : Tout est <b>confirmé et établi, et</b> ensuite <b>écrit ce qu'il voulait</b> sur l'effacement, <b>et par la suite écrit</b> la déclaration : Tout est <b>confirmé et établi.</b> La Gemara répond : Comment cela a-t-il pu arriver ? <b>N'est-ce pas Rabbi Yoḥanan qui dit :</b> Un document qui comprend <b>une correction suspendue</b> du texte inséré entre les lignes du document, qui est <b>vérifiée</b> à la fin du document, <b>est valide;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

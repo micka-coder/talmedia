@@ -42,4 +42,4 @@ Rav Huna <b>dit à</b> Rabbi Abba : <b>On ne s'inquiète pas</b> que <b>peut-êt
 Rabbi Abba <b>souleve une objection à</b> l'opinion de Rav Huna : Si <b>on voit un oiseau picorer une figue ou une souris ronger des melons,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Si une nourriture est <b>pendue dans une maison,</b> elle <b>entraîne la pauvre
 <b>L'ange administrateur</b> désigné sur la <b>alimentation est appelé Nakid,</b> c'est-à-dire qu'il est propre [<i>naki</i>] et particulier à la propreté. <b>L'ange administrateur</b> nommé sur la <b>pauvreté est appelé Naval,</b> L'ange nommé sur la nourriture ne restera pas dans un endroit sale, alors que l'ange nommé sur la pauvreté s'y épanouira. <b>Une assiette</b> placée <b>sur une cruche provoque la pauvreté. Celui qui boit de l'eau dans une assiette provoque</b> des <b>douleurs aux yeux.</b> Celui <b>qui mange du cresson sans se laver les mains aura peur pendant trente jours.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ Apparemment, Rabbi Elazar <b>soutient</b> que c'est <b>dans</b> un cas où le <i
 § <b>Les Sages ont enseigné :</b> En ce qui concerne le <b><i>temed</i></b> devenu rituellement impur, <b>jusqu'à ce qu'il fermente,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara apporte encore une autre preuve : <b>Venez</b> et <b>entendez</b> ce 
 La Guemara discute de l'opinion de Rabbi Yehuda : <b>Et ils ont soulevé une contradiction entre</b> une déclaration <b>de Rabbi Yehuda et</b> une autre déclaration <b>de Rabbi Yehuda</b> en ce qui concerne les questions qui sont interdites uniquement <b>par la loi rabbinique. Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

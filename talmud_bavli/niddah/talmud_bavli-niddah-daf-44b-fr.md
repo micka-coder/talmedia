@@ -45,4 +45,4 @@ Si la fille a <b>moins de cet âge</b>, moins de trois ans et un jour, le statut
 La Guemara <b>souleve une objection</b> contre l'explication de Rabbi Yannai à partir d'une <i>baraita</i> : Une fille qui a <b>trois ans, et même</b> une qui a <b>deux ans et un jour, est fiancée par des rapports sexuels ;</b> c'est <b>la déclaration de Rabbi Meir. Et les rabbins disent :</b> Elle doit être âgée de <b>trois ans et un jour.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

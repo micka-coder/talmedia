@@ -75,4 +75,4 @@ La Gemara répond : <b>C'est ce que les sages disent à Rabbi Eliezer : Ne nous 
 <b>Rav a dit : En fait,</b> la mishna traite <b>avec</b> une brèche qui n'est pas plus large que <b>dix</b> coudées,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

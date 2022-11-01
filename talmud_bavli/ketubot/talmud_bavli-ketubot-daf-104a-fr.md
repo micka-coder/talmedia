@@ -66,7 +66,7 @@ La Gemara répond : <b>Ici aussi,</b> le cas est celui <b>où le débiteur,</b> 
 <b>Rav Naḥman bar Yitzḥak a dit : Rav Yehouda bar Kaza enseigne dans une <i>baraita</i> de l'école</b> de <b>bar Kaza :</b> Si la veuve <b>demande</b> le paiement de <b>son contrat de mariage,</b> <b>la veuve est en possession de son contrat de mariage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>qui est</b> situé à une <b>haute</b> altitude <b>et</b> dont l'<b>air est parfumé.</b>
 
@@ -134,4 +134,4 @@ La Gemara répond : <b>Ici aussi,</b> le cas est celui <b>où le débiteur,</b> 
 <b>Rav Naḥman bar Yitzḥak a dit : Rav Yehouda bar Kaza enseigne dans une <i>baraita</i> de l'école</b> de <b>bar Kaza :</b> Si la veuve <b>demande</b> le paiement de <b>son contrat de mariage,</b> <b>la veuve est en possession de son contrat de mariage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@
 <b>en un jour</b> Je ne sais pas quel jour.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

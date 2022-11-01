@@ -121,4 +121,4 @@
 <b>du fruit de ses mains</b> Gloire et grandeur, force, beauté et pouvoir de domination.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

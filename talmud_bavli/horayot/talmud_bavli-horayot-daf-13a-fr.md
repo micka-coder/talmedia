@@ -72,4 +72,4 @@ La mishna enseigne : <b>Quand</b> ces <i>halakhot</i> de préséance prennent-el
 <b>Les étudiants de Rabbi Eliezer lui ont demandé</b> : <b>Pour quelle</b> raison <b>tous</b> les prédateurs <b>dominent-ils les souris</b> et s'en prennent à elles ? Il leur répondit : <b>Parce que</b> concernant les souris, <b>leur penchant [<i>shesuran</i>] est mauvais.</b> La Gemara demande : <b>Quelle est</b> l'indication de ceci ? Rava répond : <b>Ils rongent même les manteaux,</b> malgré le fait que les manteaux ne leur fournissent pas de nourriture.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

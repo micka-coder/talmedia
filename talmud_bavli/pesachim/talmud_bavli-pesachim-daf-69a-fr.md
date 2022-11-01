@@ -45,4 +45,4 @@ La Guemara demande : Au moins <b>selon Rabbi Eliezer, portons</b> l'eau purifica
 <b>Rabba dit</b> en réponse à cette objection : <b>Rabbi Eliezer soutient</b> que <b>on ne peut pas abattre</b> l'agneau pascal <b>ou asperger</b> son sang <b>pour quelqu'un qui est rituellement impur en raison</b> d'un contact avec <b>un animal rampant</b> car il est actuellement impur, même s'il peut s'immerger dans un bain rituel et devenir pur la nuit de Pessah.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

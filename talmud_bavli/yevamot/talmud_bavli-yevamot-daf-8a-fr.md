@@ -57,4 +57,4 @@ La Gemara demande : <b>Et</b> si c'est le cas, <b>qu'est-ce qui est différent</
 <b>Rav Aḥa, fils de Beivai Mar, a dit à Ravina</b> que <b>ceci est ce que nous disons au nom de Rava:</b> En ce qui concerne <b>une épouse rivale aussi, un verset n'est pas nécessaire,</b> comme c'est le cas pour une relation interdite elle-même, puisque l'interdiction dans son cas aussi encourt <i>karet</i>, et donc on ne penserait pas que la mitzva positive du mariage lévirat passe outre cette interdiction. <b>Le verset est nécessaire</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Rabbi Yosei conclut : <b>A ce moment-la,</b> de ce bref echange, <b>j'ai appris 
 <b>Les Sages ont enseigne que pour trois raisons, on ne peut pas entrer dans une ruine : a cause d'un soupcon</b> de prostitution, <b>parce que</b> la ruine est susceptible de <b>s'effondrer,</b> et <b>a cause des demons.</b> Trois raisons distinctes semblent etrangeres, aussi la Guemara demande-t-elle : Pourquoi la raison <b>a cause de la suspicion</b> etait-elle necessaire ? <b>Que cette</b> <i>halakha</i> <b>soit derivee a cause de l'effondrement.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

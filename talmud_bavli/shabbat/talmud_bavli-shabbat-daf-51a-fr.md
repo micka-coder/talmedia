@@ -39,4 +39,4 @@ Et Rabban Shimon ben Gamliel a dit : Si <b>il a isolé</b> le pot <b>et l'a couv
 Toutefois, si <b>il</b> à la fois <b>l'a isolé</b> <b>et l'a recouvert</b> <b>de quelque chose qui ne peut être déplacé le Chabbat, ou s'il l'a isolé</b> <b>dans quelque chose qui peut être déplacé le Chabbat et l'a recouvert de quelque chose qui ne peut être déplacé le Chabbat, si</b> le pot <b>était partiellement exposé, il peut retirer</b> le pot et le couvercle tombera de lui-même <b>et</b> puis le <b>remettre</b> à sa place. <b>Et si</b> le pot n'était <b>pas</b> partiellement exposé,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

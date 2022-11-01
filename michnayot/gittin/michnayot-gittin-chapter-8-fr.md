@@ -29,5 +29,5 @@ Un homme divorce de sa femme et passe la nuit avec elle dans une auberge : Bet S
 ### michna 10
 Un get "bald", n'importe qui peut compléter ses signatures, selon les mots de Ben Nannas. Mais Rabbi Akiva dit qu'il ne peut être rempli que par des parents qui sont qualifiés pour témoigner ailleurs. Qu'est-ce qu'un get "bald" ? Celui qui a plus de plis que de signatures.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

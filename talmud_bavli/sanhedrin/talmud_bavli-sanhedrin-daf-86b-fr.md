@@ -60,4 +60,4 @@ Un ancien qui rend une décision contraire à la décision de ses collègues et 
 <strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> à propos de ce qui est énoncé : "S'il y a une affaire trop dure pour toi dans le jugement, entre sang et sang, entre plaidoyer et plaidoyer, et entre marque et marque, même des affaires de controverse dans tes portes, alors tu te lèveras, et tu monteras au lieu que le Seigneur ton Dieu choisira" (Deutéronome 17:8). <b>"S'il y a une affaire trop dure [<i>yippaleh</i>] pour toi";</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

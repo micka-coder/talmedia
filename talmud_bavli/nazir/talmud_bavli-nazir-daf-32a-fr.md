@@ -42,4 +42,4 @@ La Guemara rejette cet argument : <b>Et ce n'est pas le cas,</b> car cette dédu
 <strong>MISHNA : </strong>En ce qui concerne <b>celui qui a fait vœu de naziréité et qui est allé apporter son animal</b> qu'il avait mis de côté pour son offrande naziréenne <b>et qui a découvert qu'il avait été volé,</b> et qui, en raison de la nécessité de séparer un animal supplémentaire, regrette maintenant d'avoir fait son vœu, <b>s'il a fait vœu de naziréité avant que son animal soit volé, il est naziréen,</b> car un vœu ne peut être dissous à la suite d'un événement ultérieur.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

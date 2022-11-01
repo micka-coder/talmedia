@@ -51,4 +51,4 @@ Les trésoriers <b>leur dirent : Puisque vous êtes</b> si <b>stricts avec vous-
 <b>Abaye a dit : Maintenant que</b> l'on sait que <b>Shmuel a dit</b> que cela <b>est interdit et</b> un Sage <b>de l'école de Shmuel a enseigné</b> une <i>baraita</i> que cela <b>est permis,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

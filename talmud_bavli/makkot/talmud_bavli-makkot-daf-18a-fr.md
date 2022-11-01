@@ -15,4 +15,4 @@ La Gemara suggère : <b>Et qu'il soit aussi fouetté pour</b> avoir violé l'int
 La Guemara suggère : <b>Et qu'il soit aussi fouetté conformément</b> à la déclaration <b>de Rabbi Eliezer. Car Rabbi Eliezer dit</b> que lorsqu'il est dit à propos des restes de chair et des pains des offrandes d'inauguration : <b>"On n'en mangera pas car c'est sacré"</b> (Exode 29:34),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

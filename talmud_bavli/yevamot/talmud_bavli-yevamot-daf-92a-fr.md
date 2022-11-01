@@ -54,4 +54,4 @@ La Gemara explique que <b>parce que</b> le <i>tanna</i> <b>voulait enseigner</b>
 La Gemara répond : <b>Ce <i>tanna</i></b> appelé les Rabbins <b>est</b> en fait un autre <b><i>tanna</i></b> citant l'opinion de <b>Rabbi Akiva, </b> qui prétend <b>que</b> Rabbi Akiva <b>a dit</b> qu'un enfant né <b>de</b> ceux qui sont <b>responsables de</b> la violation des <b>interdictions</b> proscrivant les relations sexuelles avec les <b>proches</b> parents <b>est un <i>mamzer</i>,</b> mais celui né <b>de</b> ceux qui sont <b>responsables de</b> la violation des <b>interdictions régulières,</b> c'est-à-dire. e., un interdit qui n'implique pas un lien de parenté, comme l'interdit selon lequel " la femme du mort ne se mariera pas en dehors de la famille à quelqu'un qui n'est pas de sa parenté " (Deutéronome 25, 5), <b>n'est pas un <i>mamzer</i>. Le Rav Yehuda a dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Et quant à l'affirmation selon laquelle dans <b>tous</b> cas <b>où par leurs l
 Rava continue de s'interroger sur la formulation de la mishna. Elle stipule : <b>Et tu as</b> le droit de percevoir de moi <b>sa valeur en <b>vin, et il n'a pas de vin</b> en sa possession. <b>Mais</b> le <i>tanna</i> <b>enseigne : </b> Au prix <b>de</b> un <b><i>kor</i></b> de blé <b>pour</b> un <b>dinar d'or, et en effet</b> c'est <b>le</b> <b>prix</b> du blé sur le marché à ce moment-là. Ces deux clauses ne s'accordent pas avec l'explication d'Abaye. <b>Au contraire, Rava a dit</b> une autre explication. Il la fait précéder d'un commentaire : <b>Lorsque je mourrai, Rabbi Oshaya sortira</b> du jardin d'Eden <b>pour me saluer,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

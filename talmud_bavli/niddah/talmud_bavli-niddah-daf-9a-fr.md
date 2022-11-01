@@ -60,4 +60,4 @@ La Guemara conclut la discussion sur les eaux de purification par l'observation 
 § La mishna enseigne : <b>Qui est</b> la femme caractérisée comme <b>une femme âgée</b> dans ce contexte ? Il s'agit de <b>toute</b> femme pour <b>laquelle trois</b> cycles menstruels typiques <b>de trente jours</b> se sont écoulés</b> à un stade de sa vie <b>proche de sa vieillesse,</b> durant lequel elle n'a pas vu de sang menstruel. La Gemara demande : <b>Qu'est-ce qui est considéré comme proche de la vieillesse ? Rav Yehuda répond : Toute</b> femme <b>dont ses amis disent</b> qu'elle est une femme âgée. Et Rabbi Shimon dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

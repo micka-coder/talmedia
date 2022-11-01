@@ -42,4 +42,4 @@ Ceci indique que selon Rabbi Yehoshua, dès que le propriétaire réalise l'expi
 <b>Rav Ḥisda a soulevé une objection à Rav Huna</b> en ce qui concerne son opinion sur le déracinement du statut d'une offrande de ce que nous avons appris dans notre mishna : Si <b>quelqu'un a abattu</b> un agneau pascal le Chabbat <b>et</b> par la suite <b>on a appris que les propriétaires s'en étaient retirés</b> et s'étaient inscrits pour un autre, ou qu'ils étaient morts ou devenus rituellement impurs, il est dispensé d'apporter une offrande pour le péché, car il a abattu avec la permission.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara soulève une difficulté : <b>Mais n'est-il pas enseigné</b> dans un
 <b>Et nous soutenons</b> que <b>partout où il est dit : </b> Il y eut <b>un incident impliquant un certain homme pieux</b>, l'homme en question est <b>soit Rabbi Yehuda ben Bava, soit Rabbi Yehuda bar Ilai. Et</b> ces <b>Sages</b> ont vécu <b>de nombreuses générations après Yosef ben Yo'ezer de Tzereida.</b> Si c'est le cas, alors même dans les générations ultérieures il y avait des Sages sans défaut.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Rav Naḥman <b>lui dit : Établissez pour lui une cloison humaine,</b> c'est-à
 La Guemara explique : <b>Si l'on dit</b> que <b>nous avons affaire</b> à un cas où l'espace entre Neḥemya et la limite du Shabbat pourrait être <b>rempli par des gens</b> qui avaient établi un <i>eirouv</i> et étaient autorisés à sortir au-delà de la limite du Shabbat et à établir une partition humaine pour Neḥemya, <b>et</b> alors on peut soutenir que <b>le dilemme</b> qu'il <b>soulevait</b> était : Est-ce que <b>la <i>halakha</i> est conforme</b> à l'avis de <b>Rabban Gamliel</b> selon lequel une personne peut se promener dans un espace clos, bien qu'elle n'y ait pas établi sa résidence avant Chabbat alors qu'il faisait encore jour, et il en va de même pour une partition humaine de ce type ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

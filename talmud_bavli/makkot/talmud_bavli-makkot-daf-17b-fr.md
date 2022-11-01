@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais Rava ne dit-il pas :</b> En ce qui concerne <b>un no
 La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna : <b>Et voici</b> les personnes <b>qui sont fouettées</b> par la loi de la Torah ? Parmi eux, il y a un prêtre qui mange des prémices avant la récitation des versets de la Torah qui les accompagnent, et la Guemara a établi que la mishna est conforme à l'opinion de Rabbi Shimon.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

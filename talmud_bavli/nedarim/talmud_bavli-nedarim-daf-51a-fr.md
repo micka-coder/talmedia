@@ -36,4 +36,4 @@ Guemara <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Celui qui fait vœu
 <b>Celui qui fait le vœu</b> que <b>ce qui entre dans un four</b> lui est interdit <b>pour</b> est <b>interdit seulement de</b> manger du <b>pain,</b> car c'est le principal aliment qui cuit dans un four. <b>Mais si</b> on <b>dit : Tout ce qui est fait dans un four est</b> interdit <b>à moi,</b> il lui est <b>interdit de</b> manger <b>tout ce qui est fait dans un four.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

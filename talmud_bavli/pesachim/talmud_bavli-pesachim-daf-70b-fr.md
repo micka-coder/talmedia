@@ -36,4 +36,4 @@ La Guemara s'interroge sur le nœud du problème : <b>Et</b> selon l'avis des <b
 <b>Ulla a dit que Rabbi Elazar a dit :</b> En ce qui concerne les <b>offrandes de paix que l'on a égorgées la veille de la Fête, on n'accomplit avec elles ni</b> la mitzva d'apporter des offrandes de paix de <b>réjouissance</b> ni la mitzva d'apporter une <b>offrande de paix de Fête.</b> La mitzva d'apporter des offrandes de paix de <b>réjouissance</b> n'est pas accomplie, <b>comme il est écrit : "Tu égorgeras</b> des sacrifices de paix et tu en mangeras, <b>et tu te réjouiras</b> devant le Seigneur ton Dieu" (Deutéronome 27:7). Sur la base de ce verset, <b>nous exigeons</b> que l'<b>abattage</b> soit...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

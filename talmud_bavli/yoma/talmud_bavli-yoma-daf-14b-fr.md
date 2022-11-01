@@ -27,4 +27,4 @@ La Guemara demande : <b>Est-ce à dire que la</b> combustion de l'<b>encens s'in
 La Gemara demande : <b>Quel est le raisonnement</b> de l'opinion de <b>Abba Shaul ?</b> C'est <b>comme il est écrit : <b>Chaque matin, lorsqu'il enlève la cendre des lampes,</b> il la brûlera"¯(Exode 30:7), <b>et ensuite</b> il est écrit : <b>"Il la brûlera"</b> (Exode 30:8). On nettoie d'abord les lampes, et ensuite seulement on brûle l'encens. <b>Et</b> comment les <b>sages,</b> qui soutiennent que l'encens était brûlé en premier, interprètent-ils ce verset ? Ils disent : <b>Que dit le Miséricordieux ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

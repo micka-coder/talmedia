@@ -57,4 +57,4 @@ Sur la base de ces deux hypothèses, <b>disons</b> que <b>la mishna n'est pas co
 La Gemara demande : <b>Et</b> selon l'opinion de <b>Rabbi Yehoshua également, n'est-il pas écrit : "Et le sang de vos offrandes sera répandu,"</b> ce qui indique que le sang est la partie essentielle de l'offrande ? <b>Il</b> aurait pu <b>vous dire</b> que <b>il est écrit</b> juste à côté de <b>cela : "Et tu mangeras la chair,"</b> ce qui indique que la viande est également essentielle et doit encore être propre à la consommation.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

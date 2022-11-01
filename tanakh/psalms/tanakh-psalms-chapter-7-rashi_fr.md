@@ -61,4 +61,4 @@
 <b>Je remercierai le Seigneur selon sa justice</b> Quand il exécutera la justice stricte avec droiture, pour juger les méchants selon leur méchanceté.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

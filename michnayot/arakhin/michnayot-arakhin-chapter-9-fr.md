@@ -23,5 +23,5 @@ Les maisons dans les cours - nous leur accordons les avantages des maisons dans 
 ### michna 8
 Si un Israélite a hérité du père de sa mère qui était Lévite, il ne peut pas le racheter selon l'ordre prescrit ici. De même, si un lévite a hérité du père de sa mère qui était Israélitene, il ne peut pas la racheter selon l'ordre prescrit ici. Comme il est dit : "Quant aux maisons des villes des lévites"(Levitique 25:32) [cet ordre ne s'applique pas] à moins qu'il ne soit lévite et dans les villes des lévites, les paroles de Rabbi. Les sages disent : ces choses s'appliquent aux villes des lévites. On ne peut pas transformer un champ en pâturage, ni un pâturage en champ, ni un pâturage en ville, ni une ville en pâturage. Rabbi Elazar a dit : Quand est-ce que c'est le cas ? Quand il s'agit des villes des Lévites, mais quand il s'agit des villes des Israélites, on peut transformer un champ en pâturage, un pâturage en champ, un pâturage en ville, mais pas une ville en pâturage, afin de ne pas détruire les villes d'Israël. Les prêtres et les lévites pourront vendre [une maison] à tout moment et la racheter à tout moment, comme il est dit : "Les lévites auront toujours le droit de rachat "(Lévitique 25:32).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

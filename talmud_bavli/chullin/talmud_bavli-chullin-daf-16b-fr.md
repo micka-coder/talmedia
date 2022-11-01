@@ -51,4 +51,4 @@ Rabba a ajouté : <b>Et maintenant que</b> le peuple juif <b>était exilé, aura
 <b>Rav Yosef s'oppose à cela.</b> Si oui, <b>cette phrase</b> : <b>On peut toujours abattre,</b> est inappropriée ; le <i>tanna</i> <b>devrait avoir</b> enseigné : <b>On peut toujours abattre et manger,</b> car la question de la permission concerne principalement la consommation de la viande et non l'abattage de l'animal. <b>Et en outre, initialement, quelle est la raison</b> pour laquelle la viande de désir <b>était interdite ?</b> C'était <b>parce que</b> dans le désert, <b>ils étaient proches du Tabernacle</b> et pouvaient prendre part à la viande sacrificielle de la table de Dieu. <b>Et finalement, quelle est la raison</b> pour laquelle la viande de désir <b>était autorisée ?</b> La raison était <b>que</b> en Eretz Yisrael <b>ils étaient éloignés du Tabernacle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Ravina explique son objection : <b>Et s'il pouvait vous venir à l'esprit</b> de
 Ravina <b>souleve une objection à</b> l'opinion de Rav Naḥman bar Yitzḥak à partir d'une autre source : S'il y a un choix entre <b>l'honneur du jour</b> de Chabbat <b>et l'honneur de la nuit, l'honneur du jour prime. Et si l'on n'a qu'une seule coupe,</b> il faut <b>réciter sur elle</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

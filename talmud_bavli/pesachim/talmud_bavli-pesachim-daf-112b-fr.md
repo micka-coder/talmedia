@@ -51,4 +51,4 @@ La Gemara déclare : <b>Initialement,</b> ces démons <b>étaient présents tous
 <b>Et en outre, une fois</b> Agrat, fille de Maḥalat <b>rencontre Abaye</b> et lui <b>dit : Si on n'avait pas annoncé à ton sujet dans les Cieux : Fais attention à Naḥmani,</b> Abaye, <b>et à sa Torah, je t'aurais mis en danger. Il lui a dit : Si je suis</b> considéré comme <b>important au Ciel, je décrète sur toi que tu</b> ne dois <b>jamais passer par des lieux habités.</b> La Gemara demande : <b>Mais nous voyons que,</b> nonobstant ces anecdotes, les démons passent <b>par des lieux habités</b>. Les Sages <b>Disent</b> en guise d'explication : <b>Ces démons</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

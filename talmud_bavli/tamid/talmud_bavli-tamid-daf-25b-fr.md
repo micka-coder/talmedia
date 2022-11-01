@@ -9,7 +9,7 @@ In <b>the Chamber of the Hearth,</b> there was no upper story, as its ceiling wa
 The <b>young men of the priesthood,</b> who were old enough to serve in the Temple, would also sleep in the Chamber of the Hearth. They would not sleep on benches, but instead <b>each</b> of the priests would sleep with <b>his garment on the ground.</b> Furthermore, <b>they would not sleep</b> dressed <b>in the sacred vestments; rather, they would remove</b> them and fold them up. <b>And</b> then <b>they</b> would <b>place</b> their vestments on the floor <b>beneath their heads, and cover themselves with their own</b> non-sacred <b>garments.</b> If <b>a seminal emission befell one of</b> the priests, rendering him ritually impure and unfit for service, <b>he would leave</b> the Chamber of the Hearth, <b>and he would walk</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> <b>Les prêtres</b> <b>veillaient en trois endroits de la cour du Temple</b>, en l'honneur du Temple, comme les gardes des cours royales : <b>Dans la Chambre d'Avtinas,</b> qui est la Chambre où l'encens était préparé, <b>et</b> sur les deux côtés de la section nord de la cour : <b>Dans la Chambre de l'Etincelle,</b> où il y avait un petit feu perpétuel, à partir duquel on allumait le feu de l'autel s'il s'éteignait ; <b>et dans la Chambre du Foyer,</b> où il y avait aussi un feu, par lequel les prêtres se réchauffaient quand il faisait froid. <b>Dans la Chambre d'Avtinas et dans la Chambre de l'Etincelle, il y avait des étages supérieurs,</b> et <b>les jeunes</b> prêtres, qui n'étaient pas encore aptes à servir dans le Temple, y <b>surveillaient.</b>
 
@@ -20,4 +20,4 @@ Dans <b>la Chambre du Foyer,</b> il n'y avait pas d'étage supérieur, car son p
 Les <b>jeunes hommes du sacerdoce,</b> qui étaient assez âgés pour servir dans le Temple, dormiraient aussi dans la Chambre du Foyer. Ils ne dormiraient pas sur des bancs, mais au contraire <b>chacun</b> des prêtres dormirait avec <b>son vêtement sur le sol.</b> En outre, <b>ils ne dormiraient pas</b> vêtus <b>des vêtements sacrés ; au contraire, ils les enlèveraient</b> et les replieraient. <b>Et</b> alors, <b>ils</b> <b>déposeraient</b> leurs vêtements sacrés sur le sol <b>sous leur tête, et se couvriraient de leurs propres</b> <b>vêtements non sacrés.</b> Si <b>une émission séminale frappait un des</b> prêtres, le rendant rituellement impur et inapte au service, <b>il quitterait</b> la Chambre du Foyer, <b>et il marcherait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

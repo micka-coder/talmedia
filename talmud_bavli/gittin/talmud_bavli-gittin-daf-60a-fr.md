@@ -51,4 +51,4 @@ La Guemara demande : <b>Et</b> selon <b>l'autre</b> Sage, Reish Lakish, <b>aussi
 <b>Alternativement,</b> ce verset sert à faire allusion <b>aux sections de la Torah abordées dans <b>cette</b> déclaration <b>de Rabbi Levi, comme le dit Rabbi Levi : Huit sections ont été dites le jour où le Tabernacle a été érigé,</b> le premier de Nisan. <b>Ils sont : La section des prêtres</b> (Lévitique 21:1-22:26) ; <b>la section des Lévites</b> (Nombres 8:5-26) ; <b>la section des impurs</b> (Lévitique 13:1- 14:57) ; <b>la section du renvoi des impurs</b> (Nombres 5:1-4) ; <b>la section</b> commençant par les mots <b>"Après la mort"</b> (Lévitique, chapitre 16) ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

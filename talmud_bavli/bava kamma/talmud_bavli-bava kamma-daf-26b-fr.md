@@ -33,4 +33,4 @@ Et si <b>il avait l'intention de jeter</b> la pierre de <b>quatre</b> coudées <
 <b>Et Rabba dit :</b> Si quelqu'un <b>a jeté un enfant d'un toit et qu'un autre est</b> arrivé <b>et l'a empalé sur son épée</b> et que l'enfant est mort, la question de savoir qui est susceptible de recevoir la peine de mort pour avoir tué l'enfant dépend de <b>la dispute entre Rabbi Yehuda ben Beteira et les rabbins. Comme il est enseigné</b> dans une <i>baraïta</i> : Si <b>dix personnes frappent</b> une victime <b>avec dix bâtons, que</b> elles l'aient fait <b>simultanément ou séquentiellement, elles sont toutes</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara commente : Il est <b>évident</b> que c'est le cas ; puisqu'il couvre
 § <b>Rabba a dit :</b> Si l'on <b>abattait un oiseau la veille d'une Fête, on ne peut pas couvrir</b> son sang <b>lors de la Fête</b> elle-même.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

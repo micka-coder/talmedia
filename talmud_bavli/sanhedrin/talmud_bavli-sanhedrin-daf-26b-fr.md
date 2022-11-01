@@ -90,4 +90,4 @@ Rav Pappa a demandé : <b>Mais ne les ai-je pas excommuniés</b> pour cela ? Né
 § Un témoin conspirateur est celui qui a témoigné qu'un certain incident s'est produit à un moment et un endroit précis, puis deux autres témoins attestent qu'il était ailleurs à ce moment-là. La Gemara discute de la disqualification d'un témoin conspirateur pour fournir un témoignage dans d'autres cas. <b>Il a été déclaré</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

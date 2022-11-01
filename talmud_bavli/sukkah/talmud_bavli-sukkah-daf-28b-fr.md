@@ -30,4 +30,4 @@ La mishna raconte : Il y eut <b>un incident où la belle-fille de</b> Shammai l'
 En ce qui concerne l'étude de la Torah dans la <i>sukka</i>, la Gemara demande : <b>C'est le cas ? Rava n'a-t-il pas dit : L'étude de la Bible et l'étude de la Mishna</b> sont entreprises <b>dans la <i>sukka</i>;</b> cependant, l'<b>analyse</b> de la Mishna doit être entreprise <b>en dehors de la <i>sukka</i>.</b> Cela indique qu'il ne faut pas analyser la Torah dans la <i>sukka</i>. La Guemara répond : Ce n'est <b>pas difficile. Cette</b> <i>baraita</i>, où il a été enseigné que l'on étudie dans la <i>sukka</i>, est <b>en ce qui concerne l'étude extensive,</b> c'est-à-dire l'étude large et la mémorisation. <b>Cette</b> déclaration de Rava selon laquelle il faut étudier en dehors de la <i>sukka</i> est <b>en ce qui concerne l'étude intensive,</b> une telle étude nécessite un environnement où l'on peut se concentrer correctement afin de s'engager dans l'analyse de la Mishna.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ Certains details de cette mishna ne sont pas suffisamment clairs. Tout d'abord, 
 La conclusion a ete tiree de la declaration de Rabbi Shimon ben Lakish selon laquelle il considerait que l'unique benediction recitee etait : Qui cree la lumiere. Les considerations qui ont conduit les Sages a cette conclusion sont : <b>Grace a vous, si vous dites qu'ils reciteraient : Qui cree la lumiere,</b> alors la conclusion de Reish Lakish, selon laquelle le fait de ne pas reciter l'une des <b>benedictions</b> recitees avant <i>Shema</i> <b>n'empeche pas de</b> reciter l'<b>autre,</b> est comprehensible, puisqu'ils ont recite : Qui cree la lumiere, <b>et n'ont pas recite : Un amour abondant,</b> et ils ont neanmoins rempli leur obligation.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara continue à discuter de la signification du mot <i>ulbena</i>. <b>Les
 § La Gemara demande : <b>Quel</b> est le sens du mot <b><i>prosbol</i> ? Le Rav Ḥisda répond : Une ordonnance [<i>pros</i>] de <i>bulei</i> et <i>butei</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ On fait confiance à un prêtre pour dire : "J'ai montré ce premier né [à un 
 ### michna 6
 Si l'on a abattu un premier né et que l'on apprend qu'il ne l'a pas montré [à un expert] : Ce que [les acheteurs] ont mangé, ils l'ont mangé, et il doit leur rendre l'argent. Ce qu'ils n'ont pas encore mangé, la chair doit être enterrée et il doit leur restituer l'argent. De même, si l'on a abattu une vache et qu'on l'a vendue et que l'on a appris qu'elle était terefah : Ce que [les acheteurs] ont mangé, ils l'ont mangé, et il doit leur rendre l'argent. Ce qu'ils n'ont pas mangé, ils lui rendent la chair et il doit leur rendre l'argent. Si [les acheteurs] l'ont vendu à des non-Juifs ou l'ont jeté aux chiens, ils doivent lui payer le prix d'une terefah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

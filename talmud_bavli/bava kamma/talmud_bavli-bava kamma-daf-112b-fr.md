@@ -57,7 +57,7 @@ La Gemara commente : <b>Et</b> cela <b>n'est pas le cas. Là,</b> Ravina a retar
 De plus, <b>Ravina a dit : On peut donner</b> à un défendeur un <b>temps</b> particulier pour se présenter au tribunal en l'informant du procès <b>par</b> bouche à oreille d'une femme ou de ses voisins,</b> car on fait confiance à ces personnes pour notifier au défendeur la convocation du tribunal. La Gemara commente : <b>Et nous avons dit</b> ceci <b>seulement lorsque</b> le défendeur n'est <b>pas dans la ville.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 qui témoignent <b>en l'absence d'un plaideur ?</b> Puisque le défendeur est un mineur, sa présence n'est pas légalement reconnue, et le tribunal n'accepte pas de témoignage contre lui. Rabbi Yirmeya a remis en question cette affirmation : <b>Et</b> est-il vrai que le tribunal n'accepte <b>pas</b> un tel témoignage ? <b>Mais n'est-il pas enseigné</b> que si un voleur laisse des biens volés à ses enfants, <b>qu'ils soient majeurs ou mineurs, ils sont obligés</b> de payer le propriétaire ? Si le tribunal oblige les mineurs à payer, il doit accepter les témoignages les concernant. Rabbi Avin <b>dit à</b> Rabbi Yirmeya : <b>Le différend de Sumakhos est à tes côtés,</b> c'est-à-dire que Sumakhos n'est pas d'accord avec cette décision et considère que les mineurs sont exemptés de payer. Rabbi Yirmeya <b>lui dit</b> : <b>Le monde entier s'est-il donné la peine de tenir conformément</b> à l'avis de <b>Sumakhos</b> afin de <b>s'emparer de ce qui m'appartient ?</b>
 
@@ -116,4 +116,4 @@ La Gemara commente : <b>Et</b> cela <b>n'est pas le cas. Là,</b> Ravina a retar
 De plus, <b>Ravina a dit : On peut donner</b> à un défendeur un <b>temps</b> particulier pour se présenter au tribunal en l'informant du procès <b>par</b> bouche à oreille d'une femme ou de ses voisins,</b> car on fait confiance à ces personnes pour notifier au défendeur la convocation du tribunal. La Gemara commente : <b>Et nous avons dit</b> ceci <b>seulement lorsque</b> le défendeur n'est <b>pas dans la ville.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

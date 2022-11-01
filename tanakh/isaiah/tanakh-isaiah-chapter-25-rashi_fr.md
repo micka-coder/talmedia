@@ -51,7 +51,7 @@
 <b>La force de tes murs</b> Il s'adresse à Moab.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Conseils de longue date dans la vraie foi</b> Conseils que Tu as conseillés de longue date à Abraham dans l'alliance entre les parties.
 <b>Vraie foi</b> (אֱמוּנָה אֹמֶן). אֹמֶן est comme אֹהֶל, tente, אֹכֶל, nourriture, et ce n'est pas un verbe au présent mais l'expression d'un nom, obrement (vérité) en ancien français.
@@ -104,4 +104,4 @@
 <b>La force de tes murs</b> Il s'adresse à Moab.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

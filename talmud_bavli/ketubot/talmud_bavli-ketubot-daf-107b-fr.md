@@ -51,7 +51,7 @@ A l'inverse, les <b>verts</b> <b>sont interdits,</b> car ils absorbent des subst
 <strong>GEMARA:</strong> <b>On a appris</b> dans une mishna <b>là</b> (<i>Nedarim</i> 33a) : En ce qui concerne <b>quelqu'un</b> qui est <b>interdit par un vœu</b> de <b>recevoir un bénéfice d'un autre,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 il soutient qu'elle ne reçoit pas d'argent de sa propriété pour la <b>charité,</b> car le tribunal ne prend pas de dons de charité de la propriété de quelqu'un à son insu. A l'inverse, <b>celui qui a dit</b> que le tribunal ne donne pas d'argent pour la <b>charité</b> soutiendra : <b>Cependant, on lui donne des ornements,</b> car on suppose <b>qu'il n'est pas satisfaisant pour lui</b> que sa femme <b>soit dégradée</b> par un manque de bijoux.
 
@@ -104,4 +104,4 @@ A l'inverse, les <b>verts</b> <b>sont interdits,</b> car ils absorbent des subst
 <strong>GEMARA:</strong> <b>On a appris</b> dans une mishna <b>là</b> (<i>Nedarim</i> 33a) : En ce qui concerne <b>quelqu'un</b> qui est <b>interdit par un vœu</b> de <b>recevoir un bénéfice d'un autre,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

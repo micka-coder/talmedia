@@ -39,4 +39,4 @@ La Gemara demande : <b>Raven Huna</b> a-t-il réellement <b>savoir</b> que la di
 La Gemara demande : Si tel est le cas, <b>Qu'est-ce que</b> Rav Huna <b>nous enseigne</b> dans le cas de la brèche dans le mur de la ville, que <b>on attribue un <i>karpef</i>,</b> une surface mesurant un peu plus de soixante-dix coudées, <b>à cette</b> section de la ville <b>et un <i>karpef</i> à cette</b> section de la ville ? <b>Rav Huna</b> n'a-t-il pas déjà <b>dit</b> ceci <b>à une occasion ? Comme nous l'avons appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

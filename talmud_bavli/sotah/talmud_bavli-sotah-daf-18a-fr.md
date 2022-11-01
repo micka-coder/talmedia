@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> d'un <b>serment qui a 
 <strong>MISHNA :</strong> <b>A l'égard de quoi dit-elle : "Amen, amen"</b> (Numéro 5:22), deux fois, comme le rapporte le verset ? La mishna explique qu'elle comprend de ce qui suit : <b>Amen sur la malédiction,</b> car elle accepte la malédiction sur elle-même si elle est coupable, et <b>amen sur le serment,</b> car elle déclare qu'elle n'est pas souillée. Elle déclare : <b>Amen</b> si j'ai commis l'adultère <b>avec cet homme</b> dont j'ai été avertie, <b>amen</b> si j'ai commis l'adultère <b>avec un autre homme. Amen que je ne me sois pas égaré</b> quand j'étais <b>bétesté ni</b> après avoir été <b>marié,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

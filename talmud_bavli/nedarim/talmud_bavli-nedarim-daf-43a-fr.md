@@ -24,4 +24,4 @@ De même, si la <b>maison</b> de celui à qui le bénéfice est interdit par un 
 <b>Rabbi Abba soulève une objection</b> d'un <i>baraita</i> : <b>Et</b> alors <b>cette</b> personne <b>prend et mange</b> la nourriture ; <b>et Rabbi Yosei interdit</b> de le faire. <b>Rabbi Yosei a dit : Quand</b> est-il interdit de le faire ? <b>Lorsque son vœu est antérieur à sa</b> déclaration que la nourriture est <b>sans propriétaire.</b> Dans ce cas, le vœu a pris effet sur tous ses biens, y compris ceux qu'il a ensuite déclarés sans propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

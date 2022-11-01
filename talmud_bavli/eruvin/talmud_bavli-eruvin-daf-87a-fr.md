@@ -57,4 +57,4 @@ La Guemara soulève une difficulté : <b>Mais quand Rav Dimi est venu</b> d'Eret
 La Gemara répond : <b>Il y a,</b> Rav Dimi fait référence aux <b>domaines de la loi de la Torah,</b> c'est-à-dire que cette <i>halakha</i> implique le transfert d'objets d'un domaine privé à un domaine public via un domaine exempté. Les Sages ont interdit cette activité, afin que les gens ne transfèrent pas les objets directement du domaine privé au domaine public.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

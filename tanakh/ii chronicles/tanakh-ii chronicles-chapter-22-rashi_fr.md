@@ -30,4 +30,4 @@
 <b>Dans la chambre des lits</b> Le <i>Targum</i> [<i>Jonathan</i> à II Rois 11:2] rend : dans la chambre des lits, c'est-à-dire dans l'avant-cour, dans la pièce où dorment les prêtres, mais Rabbi Salomon de mémoire bénie (Rashi ad loc) l'a expliqué comme le grenier du Saint des Saints, comme il est écrit dans Rois (verset 3) : "Et il se cacha avec elle dans la Maison du Seigneur, etc." et, à son sujet, David a dit, (Ps. 27:5) : "Car il me cachera dans son tabernacle, etc." Il l'appelle la chambre à coucher en se basant sur (Cantique 1:13) : "entre mes seins il se couchera", et c'est ce que le Kallir, Rabbi Eliezer Kara a composé (dans Zichronoth pour le premier jour de Roch Hachana dans la section consacrée à la lettre "nun") : S'Il a dit de les faire vaciller, il se souviendra de la destruction de la chambre à coucher comme d'une expiation. La destruction du Temple leur servira d'expiation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

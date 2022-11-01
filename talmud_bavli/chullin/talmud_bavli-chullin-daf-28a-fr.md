@@ -45,4 +45,4 @@ La Gemara demande : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <b
 La Gemara demande : <b>Qu'est-ce</b> alors que la <i>halakha</i> en cas d'abattage ? La Gemara répond : <b>Venez</b> et <b>entendez</b> la preuve à partir de l'incident suivant, <b>qu'il y avait <b>un certain canard qui était dans la maison de Rava,</b> qui <b>se présentait</b> pour l'abattage <b>avec le cou souillé de sang</b> et ils ne savaient pas si le sang provenait du fait que sa trachée avait été sectionnée ou que son gosier avait été perforé, auquel cas le canard est un <i>tereifa</i>. <b>Rava dit : Que devons-nous faire</b> à l'égard de ce canard ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

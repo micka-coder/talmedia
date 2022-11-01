@@ -57,4 +57,4 @@ Rabbi Abbahou <b>lui a dit : Oui, comme le dit Rabbi Yoḥanan :</b> En ce qui c
 <b>Et</b> on peut <b>conclure trois</b> points <b>à partir de</b> cette déclaration : <b>Conclure de là</b> que les <b>animaux</b> qui ne peuvent être sacrifiés <b>sont</b> définitivement <b>disqualifiés ; et conclure de là</b> que la <b>disqualification dès le départ,</b> c'est-à-dire à partir du moment où l'offrande est consacrée, <b>est</b> une <b>disqualification permanente ; et conclure de là</b> que...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

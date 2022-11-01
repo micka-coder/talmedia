@@ -27,4 +27,4 @@ La Gemara répond : Un Sage <b>de l'école de Rabbi Yannai a dit : La première 
 A l'inverse, <b>Rabbi Ḥiyya bar Abba</b> dit que <b>Rabbi Yoḥanan a dit :</b> Conformément à <b>quel</b> avis <b>cette déclaration</b> de la première clause de la mishna ? <b>C'est</b> conformément à l'opinion de <b>Rabbi Meir, qui dit : Quiconque s'écarte de l'intention de l'employeur</b> en agissant contre son accord...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

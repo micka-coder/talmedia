@@ -54,4 +54,4 @@ La Gemara répond : <b>Et</b> est-ce que <b>Rabbi Yehuda n'accepte pas</b> l'exi
 La Guemara demande : <b>Et</b> est-ce que <b>Rabbi Yehuda soutient</b> qu'en ce qui concerne <b>une offrande pour le péché que l'on égorge dans le sud,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

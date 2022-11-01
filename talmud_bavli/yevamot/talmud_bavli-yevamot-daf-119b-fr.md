@@ -48,4 +48,4 @@ Il a été enseigné dans la mishna : Si <b>ils</b> tous deux <b>ont contracté 
 La Guemara demande : <b>Quelle est la différence pratique</b> entre ces deux raisons ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

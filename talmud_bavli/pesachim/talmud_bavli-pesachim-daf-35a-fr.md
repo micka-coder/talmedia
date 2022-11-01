@@ -45,4 +45,4 @@ Rav Pappa</b> lui a dit : Le verset dit : "Tu ne mangeras pas de pain levé avec
 A ce moment-là, <b>Rav Idi bar Avin se réveilla,</b> en raison de leur discussion, et leur <b>dit : Enfants, voici le raisonnement de Reish Lakish :</b> On n'est pas susceptible de recevoir <i>karet</i> pour avoir mangé de la pâte pétrie avec de l'huile ou du miel, <b>parce que</b> l'huile et le miel <b>sont</b> considérés comme des <b>jus de fruits,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

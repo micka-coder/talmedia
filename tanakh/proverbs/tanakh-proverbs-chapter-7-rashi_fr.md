@@ -70,4 +70,4 @@
 <b>comme un oiseau se hâte</b> de courir vers un piège, et il ne sait pas que le piège a été tendu là pour la vie de l'oiseau.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

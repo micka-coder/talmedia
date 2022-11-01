@@ -54,4 +54,4 @@ Il est raconté : <b>Rav Shmuel bar Yehouda se tenait devant Rav Yehouda.</b> Ra
 Parenthèse à la mention du statut d'un converti vis-à-vis d'un tribunal de <i>ḥalitza</i>, la Gemara relate : <b>Rava a dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

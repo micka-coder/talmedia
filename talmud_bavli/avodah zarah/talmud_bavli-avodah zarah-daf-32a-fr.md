@@ -33,4 +33,4 @@ La Guemara explique : <b>Quel est le sens de la phrase : <b>Mais ils n'ont pas c
 § La mishna enseigne en outre : <b>Et les peaux</b> avec une déchirure en face du <b>cœur</b> sont interdites. <b>Les Sages ont enseigné : Qu'est-ce qui est</b> considéré comme <b>une peau</b> avec une déchirure à l'opposé du <b>cœur</b> ? Toute</b> peau <b>qui est déchirée à l'opposé du cœur et incisée</b> dans une forme <b>similaire à une ouverture,</b> et qui <b>porte une trace de</b> sang coagulé sur elle,</b> est <b>interdite.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

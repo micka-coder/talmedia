@@ -36,4 +36,4 @@ La Guemara note : <b>Et cette</b> déclaration <b>de Rava n'a pas été énoncé
 § <b>Ameimar dit :</b> En ce qui concerne celui qui n'est pas assez âgé pour vendre un bien qu'il hérite de son père, s'il a fait un cadeau à partir de ce bien, <b>son cadeau</b> est un <b>cadeau valide. Rav Ashi a dit à Ameimar : Maintenant, si</b> en ce qui concerne <b>une vente,</b> dans laquelle il reçoit de l'argent, vous dites</b> que les Sages ont institué une ordonnance <b>qu'il n'est <b>pas</b> autorisé à vendre, <b>de peur qu'il ne réduise</b> le prix du bien et n'appauvrisse le patrimoine de son père, <b>à plus forte raison</b> dans le cas d'un <b>cadeau</b> il n'est pas autorisé à faire un cadeau, <b>puisque rien du tout n'entre en sa</b> possession en échange. Ameimar <b>a dit au</b> Rav Ashi :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

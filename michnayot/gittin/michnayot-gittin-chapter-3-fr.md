@@ -23,5 +23,5 @@ Si un homme prête de l'argent à un prêtre, à un lévite ou à un pauvre à c
 ### michna 8
 Si un homme met de côté des produits afin de les compter comme teroumah et dîme, ou de l'argent afin de les compter comme seconde dîme, il peut continuer à les compter comme tels en présumant qu'ils existent toujours. S'ils sont perdus, il doit se préoccuper, de période en période, des paroles de Rabbi Elazar ben Shammua. Rabbi Juda dit : à trois moments, on vérifie le vin : lorsque le vent d'est commence à souffler à la fin de Souccot, lorsque les bourgeons apparaissent [sur la vigne], et lorsque le jus commence à se former dans les raisins.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

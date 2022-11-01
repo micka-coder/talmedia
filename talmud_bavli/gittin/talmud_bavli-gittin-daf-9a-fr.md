@@ -36,4 +36,4 @@ La Guemara clarifie : <b>Il peut se rétracter</b> le transfert du <b>bien,</b> 
 § La mishna enseigne que <b>les actes de divorce et</b> les actes <b>de manumission</b> sont les mêmes en ce sens que le mandataire qui les apporte est tenu de dire : Il a été écrit en ma présence et il a été signé en ma présence. <b>Les Sages ont enseigné : De trois manières</b> les <i>halakhot</i> des <b>actes de divorce sont égales</b> aux <i>halakhot</i> des actes de <b>manumission : Ils sont égaux en ce qui concerne celui qui livre et celui qui apporte,</b> c'est-à-dire que si quelqu'un porte un acte de divorce ou un acte de manumission dans un pays d'outre-mer d'Eretz Yisrael, ou s'il l'apporte de là-bas, il est tenu de témoigner qu'il a été écrit et signé en sa présence. <b>Et tout document sur lequel un témoin samaritain</b> a signé <b>est invalide, à l'exception des actes de divorce et</b> des actes <b>de manumission,</b> car les témoins samaritains sont autorisés à servir de témoins pour ces documents. <b>Et</b> en ce qui concerne <b>tous les documents</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

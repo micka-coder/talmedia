@@ -54,4 +54,4 @@ La Guemara demande : <b>Cela marche bien selon celui qui dit</b> que <b>le récu
 <strong>MISHNA :</strong> <b>Rabbi Tarfon dit :</b> Si l'on <b>cuit</b> une offrande pour le péché dans un récipient en cuivre <b>depuis le début du</b> <b>festival de pèlerinage,</b> on <b>peut y cuire</b> pendant <b>toute</b> la durée du <b>festival de pèlerinage;</b> il n'a pas besoin de récurer et de rincer le récipient après chaque utilisation. <b>Et les rabbins disent :</b> On ne peut pas continuer à l'utiliser de cette manière ; on doit plutôt effectuer le <b>rincage et le rinçage avant</b> la fin de la <b>période</b> pendant laquelle la <b>participation</b> à l'offrande cuite particulière est permise. <b>Le récurage</b> est <b>comme le récurage de</b> l'intérieur d'une <b>gobelet,</b> le nettoyage effectué lorsque le vin colle à la coupe, <b>et le rinçage</b> est <b>comme le rinçage de</b> l'extérieur d'une <b>gobelet. Le récurage et le rinçage</b> sont tous deux effectués <b>avec de l'eau froide</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

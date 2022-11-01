@@ -12,4 +12,4 @@
 La Guemara <b>souleve une objection</b> à la déclaration du Rav Naḥman à partir d'une <i>baraita</i> dans la <i>Tosefta</i> (5:4) : En ce qui concerne <b>celui qui lance un avertissement à sa fiancée, ou à sa</b> <i>yevama</i> alors qu'elle est une <b>veuve attendant son <i>yavam</i>, si elle s'est retirée</b> avec l'autre homme <b>avant</b> que son mari <b>consomme</b> le mariage, <b>elle ne boit</b> l'eau amère <b>ni ne perçoit</b> le paiement de <b>son contrat de mariage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

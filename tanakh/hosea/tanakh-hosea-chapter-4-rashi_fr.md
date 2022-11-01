@@ -78,4 +78,4 @@
 <b>Et ils auront honte de leurs autels</b> Héb. מִזְבְּחוֹתָם, des autels de leurs divinités (litt. leurs abominations), vers lesquels ils ne se tournent pas. Or, de même que חֵטְא, le péché, peut être énoncé au féminin comme חֲטָאָה, de même on peut dire, au lieu de זֶבח, זִבְחָה, qui désigne les lieux où ils sacrifieraient. Et c'est ainsi que Jonathan a rendu : des autels de leurs abominations. Addendum selon Abarbanel : J'ai trouvé un Midrash Tanhuma, où il s'agit d'une expression de ligature, comme un homme qui menace une personne qui le provoque : " [Je jure] par ta vie que je te l'attacherai à ta fin. " Ainsi ce verset menace-t-il Israël : "Mon zèle et Ma fureur sont attachés pour Me venger à la fin, et ils auront honte de leurs actes."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara raconte : Il y avait <b>une certaine synagogue des Juifs de Rome qui s
 § <b>Et Rav Pappi dit au nom de Rava :</b> Transformer un bâtiment <b>d'une synagogue en salle d'étude</b> est <b>permis,</b> mais <b>d'une salle d'étude en synagogue</b> est <b>interdit,</b> car il considère qu'une salle d'étude a un degré de sainteté plus élevé qu'une synagogue. <b>Et Rav Pappa, au nom de Rava, enseigne le contraire,</b> car il soutient qu'une synagogue a un degré de sainteté plus élevé qu'une salle d'étude. <b>Rav Aḥa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

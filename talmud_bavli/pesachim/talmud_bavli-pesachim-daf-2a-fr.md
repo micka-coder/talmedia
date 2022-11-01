@@ -27,4 +27,4 @@ La Gemara <b>souleve une objection:</b> "Louez-Le, soleil et lune ; <b>Laissez-L
 La Guemara <b>souleve une objection : "Le meurtrier se lève avec le <i>ou</i> pour tuer le pauvre et le nécessiteux ; et dans la nuit il est comme un voleur"</b> (Job 24:14).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

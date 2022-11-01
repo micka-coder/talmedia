@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais disons</b> plutôt que l'obligation d'apporter une o
 La Gemara demande : Mais <b>Disons</b> que <b>cette déclaration</b> ne s'applique qu'à <b>une offrande de péché fixe</b>, mais</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

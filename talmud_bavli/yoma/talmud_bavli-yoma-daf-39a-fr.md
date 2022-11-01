@@ -12,4 +12,4 @@ Dans <b>l'école de Rabbi Yishmael, il était enseigné : Le péché stupéfie l
 A l'inverse, <b>les Sages ont enseigné</b> ce qui suit à propos du verset : <b>"Sanctifiez-vous et vous serez sanctifiés"</b> (Lévitique 11:44) ; <b>une personne</b> qui se <b>sanctifie un peu, ils la sanctifient</b> et l'assistent <b>grandement.</b> Si une personne se sanctifie <b>en bas, ils la sanctifient en haut.</b> Si une personne se sanctifie <b>dans ce monde, ils la sanctifient dans le Monde-à-Come.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

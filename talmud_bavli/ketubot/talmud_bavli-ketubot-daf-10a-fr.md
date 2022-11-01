@@ -39,7 +39,7 @@ La Gemara relate : <b>Un certain</b> homme <b>qui s'est présenté devant Rabban
 <b>Huna Mar, fils de Rava, de Parzakya, dit à Rav Ashi : Faisons de même</b> dans des cas similaires et examinons s'il y a du sang masqué par du sperme ou une autre substance. Rav Ashi <b>lui répondit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Part 1
 § <b>Il a été dit : Rav Naḥman a dit</b> que <b>Shmuel a dit au nom de Rabbi Shimon ben Elazar : Les Sages ont institué</b> le contrat de mariage <b>pour les femmes juives : Pour une vierge deux cents</b> dinars <b>et pour une veuve cent dinars.</b> Et ils ont <b>jugé</b> le marié <b>crédible</b> en <b>ce que si</b> il <b>dit</b> à l'égard de son épouse vierge : <b>J'ai rencontré un orifice non obstrué</b> et qu'elle n'est pas vierge, <b>il est jugé crédible,</b> lui faisant perdre son contrat de mariage. La Guemara demande : <b>Si c'est le cas,</b> et que les Sages l'ont jugé crédible, <b>qu'ont-ils accompli dans leur ordonnance</b> selon laquelle le contrat de mariage d'une vierge est de deux cents dinars, si son affirmation selon laquelle elle n'est pas vierge est effective ?
 
@@ -80,4 +80,4 @@ La Gemara relate : <b>Un certain</b> homme <b>qui s'est présenté devant Rabban
 <b>Huna Mar, fils de Rava, de Parzakya, dit à Rav Ashi : Faisons de même</b> dans des cas similaires et examinons s'il y a du sang masqué par du sperme ou une autre substance. Rav Ashi <b>lui répondit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

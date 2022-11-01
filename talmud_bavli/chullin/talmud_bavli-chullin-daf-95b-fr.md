@@ -60,4 +60,4 @@ La Guemara relate que <b>Rav Naḥman de Néharde'a arriva à</b> la maison de <
 <b>Rava a dit : Dans un premier temps, je dirais</b> que <b>une marque distinctive est préférable à la reconnaissance visuelle, car nous rendons un objet perdu</b> à son propriétaire sur la base <b>d'une marque distinctive,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

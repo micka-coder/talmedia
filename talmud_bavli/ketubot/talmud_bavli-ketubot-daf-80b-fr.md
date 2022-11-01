@@ -42,4 +42,4 @@ Si le <i>yavam</i> <b>divorcé</b> après avoir célébré le lévirat, <b>elle 
 <strong>GEMARA:</strong> <b>Un dilemme a été soulevé devant</b> les Sages : Dans le cas d'une <b>veuve en attente de son <i>yavam</i> qui meurt, qui l'enterre ? </b> Qui est tenu de supporter les frais de son enterrement ? Les <b>héritiers du mari doivent-ils l'enterrer, car ils héritent du contrat de mariage, ou peut-être</b> les héritiers de son <b>père</b> sont-ils obligés de <b>l'enterrer, car ils héritent</b> des <b>biens qui vont et viennent avec elle ? Rav Amram a dit : Venez</b> et <b>entendez</b> une solution. <b>Comme il est enseigné</b> dans une <i>baraita</i> : Dans le cas d'une <b>veuve qui attend son <i>yavam</i> qui meurt,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

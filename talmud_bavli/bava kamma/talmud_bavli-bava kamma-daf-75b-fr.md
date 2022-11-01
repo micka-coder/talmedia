@@ -66,4 +66,4 @@ La Gemara demande : <b>Mais ne maintenons-nous pas</b> comme un principe accept�
 <b>Le Maître a dit</b> dans le <i>baraita</i> que les Sages ont déclaré au nom de Sumakhos : Les témoins <b>paient</b> le <b>double paiement.</b> La Gemara demande : <b>Du fait</b> que le voleur admet avoir volé</b> l'animal, <b>il est tenu de payer le montant principal</b> indépendamment de tout témoignage ultérieur fourni par les témoins. Pourquoi, alors, les témoins conspirateurs devraient-ils être tenus de payer un double paiement, qui inclut le montant principal ? <b>Rabbi Elazar dit au nom du Rav : Enseignez</b> la <i>baraita</i> différemment, et dites plutôt que le Sumakhos a dit que les témoins sont responsables de...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

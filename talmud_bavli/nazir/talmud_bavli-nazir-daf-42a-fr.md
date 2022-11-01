@@ -42,4 +42,4 @@ La Guemara explique : Il y a une différence dans un cas <b>où il y a</b> un ty
 <strong>MISHNA:</strong> <b>Un nazirite qui a bu du vin toute la journée est susceptible</b> de recevoir <b>une seule</b> série de coups de fouet. Si des personnes lui <b>disent</b> au cours de la journée : <b>Ne buvez pas, ne buvez pas, et</b> néanmoins <b>il</b> continue à <b>boire, il est responsable de chacune des</b> fois où il a été averti. Si un nazirite <b>a continué à se raser toute la journée, il est passible</b> de recevoir <b>une seule</b> série de coups de fouet. Si <b>on lui a dit : Ne te rase pas, ne te rase pas, et qu'il se rase, il est passible pour chaque</b> fois qu'il a été averti. S'il <b>s'est rendu rituellement impur à partir d'un cadavre</b> plusieurs fois <b>toute la journée, il est passible</b> de recevoir <b>une seule</b> série de coups de fouet. Si <b>ils lui ont dit : Ne deviens pas impur, ne deviens pas impur, et qu'il</b> continue à <b>devenir impur, il est passible pour chaque</b> fois qu'il a été averti.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara répond : <b>En fait,</b> même si elle était simplement fiancée, el
 La Guemara soulève une autre difficulté : <b>Du fait</b> <b>que la dernière clause</b> de la mishna (92a) <b>enseigne : Même si</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ A propos de Yaël, <b>Rabbi Yoḥanan dit : Ce méchant</b> homme Sisera <b>a ac
 § A propos de Loth et de ses filles, <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : D'où</b> provient-il <b>que le Saint, Béni soit-Il, ne retient même pas</b> la <b>récompense pour un discours euphémique ?</b> Il provient <b>d'ici, comme la fille aînée</b> <b>appelle son fils Moab,</b> une allusion au fait que l'enfant est de son propre père [<i>me'av</i>], et <b>le Miséricordieux a dit à Moïse : "Ne sois pas en inimitié avec Moab, et ne leur livre pas bataille"</b> (Deutéronome 2, 9). On peut en déduire ce qui suit : <b>C'est</b> dans la <b>bataille</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

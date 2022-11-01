@@ -36,4 +36,4 @@ Le <i>baraita</i> continue : <b>Si</b> il y a une comparaison entre le <i>teruma
 Le <i>baraita</i> continue : <b>Si</b> on déduit de l'analogie verbale qu'il existe plusieurs <i>halakhot</i> communes à la fois au <i>teruma</i> et au fait de commettre un mauvais usage, on peut prétendre ce qui suit : <b>Tout comme</b> dans le cas du mot <b>"péché" qui est énoncé à propos de <i>teruma</i>,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

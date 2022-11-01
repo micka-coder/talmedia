@@ -51,4 +51,4 @@ Abaye poursuit : <b>Au contraire, quelle</b> était la raison de Shmuel pour dir
 <b>Rav Idi bar Avin a dit : Nous apprenons nous aussi</b> de l'ordonnance de Usha dans la <i>baraita</i> : Si des témoins ont dit : <b>Nous témoignons à propos d'untel qu'il a divorcé de sa femme et lui a donné</b> la valeur totale des obligations inscrites dans <b>son contrat de mariage,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Dans cette même <i>Tosefta</i> où <b>Rabbi Yosei a témoigné au nom de Rabbi 
 <strong>MISHNA :</strong> <b>Une pierre qui est dans une calebasse</b> utilisée pour puiser de l'eau <b>[<i>kiruya</i>], si on la remplit</b> d'eau <b>et</b> la pierre <b>ne tombe pas, on peut la remplir</b> le Chabbat, <b>et sinon,</b> et la pierre tombe, <b>on ne peut pas la remplir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

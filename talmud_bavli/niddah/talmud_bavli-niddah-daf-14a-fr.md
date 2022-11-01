@@ -48,4 +48,4 @@ A propos d'un cas similaire, il <b>a été déclaré : </b> Si une femme s'est <
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution pour ce dilemme, <b>comme il est enseigné</b> dans une <i>baraita</i> : Si une femme <b>s'est examinée</b> avec un tissu qui n'a pas été examiné par elle</b> avant son utilisation, <b>et qu'elle l'a placé dans une boîte, et que le lendemain elle a trouvé du sang sur</b> ce tissu, <b>Rabbi</b> Yehuda HaNasi <b>dit : Elle est</b> définitivement <b>impure comme une femme ayant ses règles, et Rabbi Ḥiyya dit : Elle est impure</b> à titre d'incertitude <b>à cause</b> de la <b>tache.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

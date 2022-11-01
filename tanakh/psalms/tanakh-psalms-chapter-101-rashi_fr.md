@@ -23,4 +23,4 @@
 <b>Je coupe parfois</b> Chaque jour, je coupe peu à peu les méchants d'Israël, ceux qui sont condamnés à mort.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

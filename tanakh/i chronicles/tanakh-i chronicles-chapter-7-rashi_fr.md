@@ -78,4 +78,4 @@
 <b>Le père de Birzaith</b> le gouverneur de cette ville. Mais dans <i>Genèse Rabbah</i> (71:9) [il est dit] : " Rabbi Levi et Rabbi Simon [ont donné des interprétations différentes de Birzaith]. Rabbi Levi dit : Cela signifie que ses filles étaient belles et qu'elles étaient mariées à des [grands] prêtres qui étaient oints d'huile d'olive. Rabbi Simon dit : [Cela signifie] que ses filles étaient belles et qu'elles étaient mariées à des rois qui étaient oints avec l'huile d'onction, et comme ils avaient beaucoup d'huile, elles [les filles] s'en oignaient. Elles étaient donc belles, car il est écrit à propos d'Asher (Deut. 33:24) : "et trempe son pied dans l'huile", et Rabbi Hanina a dit : "L'eau chaude et l'huile avec laquelle ma mère m'a oint m'ont rendu ma jeunesse".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

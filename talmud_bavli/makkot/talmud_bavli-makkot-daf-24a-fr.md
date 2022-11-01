@@ -99,4 +99,4 @@ La Guemara développe : <b>"Faire juste", c'est</b> <b>la justice ; "aimer la mi
 § A propos des tribulations de l'exil et de l'espoir de rédemption, la Gemara relate : <b>Et il arriva que Rabban Gamliel, Rabbi Elazar ben Azarya, Rabbi Yehoshua et Rabbi Akiva marchaient le long de la route</b> dans l'Empire romain, <b>et ils entendirent le bruit des multitudes de Rome depuis Puteoli à une distance de cent vingt <i>mil</i>.</b> La ville était si grande qu'ils pouvaient entendre son tumulte à une grande distance. <b>Et</b> les autres Sages <b>se mirent à pleurer et Rabbi Akiva</b> était <b>rire. Ils lui dirent : Pour quelle</b> raison <b>tu ris ?</b> Rabbi Akiva <b>leur répondit : Et vous, pour quelle</b> raison <b>vous pleurez ? Ils lui dirent : Ces Gentils, qui se prosternent devant de faux dieux et brûlent de l'encens aux idoles, habitent en toute sécurité et tranquillité</b> dans cette ville colossale, <b>et</b> pour <b>nous, la Maison du marchepied de notre Dieu,</b> le Temple, <b>est brûlée</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

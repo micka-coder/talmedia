@@ -51,4 +51,4 @@ Rabba a dit : <b>Apprenez de</b> cet incident <b>trois</b> principes : <b>Appren
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>quelqu'un qui est venu et a dit : Je suis un converti,</b> on <b>pourrait avoir pensé que <b>on devait l'accepter;</b> par conséquent, <b>le verset dit:</b> "Et si un converti séjourne <b>avec vous</b> dans votre pays, vous ne l'opprimerez pas" (Lévitique 19:33). L'accent mis sur "avec vous" suggère que seul quelqu'un qui était déjà <b>présumé par vous</b> comme étant un converti valide devrait être accepté comme converti. Si <b>il est venu et</b> a amené des <b>témoins</b> de sa conversion <b>avec lui, d'où</b> vient qu'il doit être accepté ? C'est du <b>début</b> de ce <b>verset,</b> qui <b>déclare : "Et si un converti séjourne chez vous dans votre pays."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

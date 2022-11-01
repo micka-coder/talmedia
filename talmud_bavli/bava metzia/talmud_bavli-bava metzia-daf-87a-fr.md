@@ -57,4 +57,4 @@ En référence à Sarah ayant donné naissance à Isaac, le verset indique : <b>
 <strong>MISHNA:</strong> Cette mishna détaille la <i>halakha</i> qu'il est permis à un ouvrier de manger des produits avec lesquels il travaille. <b>Et ces</b> ouvriers <b>peuvent manger selon la loi de la Torah:</b> Un ouvrier <b>qui travaille avec</b> un produit <b>attaché au sol au moment de l'achèvement de</b> son <b>travail,</b> par ex, la récolte des produits ; <b>et</b> un ouvrier qui travaille <b>avec</b> des produits <b>détachés du sol avant l'achèvement de son travail,</b> c'est-à-dire avant qu'ils ne soient suffisamment transformés et donc soumis à la dîme. <b>Et</b> c'est la <i>halakha</i> à condition qu'ils travaillent <b>avec un article dont la croissance provient de la terre. Et voici</b> les ouvriers qui <b>ne doivent pas manger :</b> Un ouvrier qui <b>travaille avec</b> des produits <b>attachés au sol</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

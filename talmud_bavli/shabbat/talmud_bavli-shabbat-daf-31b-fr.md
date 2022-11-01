@@ -30,4 +30,4 @@ Nous avons appris dans la mishna que si quelqu'un a éteint une flamme le Chabba
 <strong>GEMARA:</strong> La Gemara demande : Une femme qui n'a pas été attentive à l'observation des lois de la <b>menstruation, quelle est la raison</b> pour laquelle elle est punie lors de l'accouchement ? <b>Rabbi Yitzḥak dit : Elle a péché en ce qui concerne</b> <b>les chambres de son utérus ; par conséquent, elle est affligée dans les chambres de son utérus.</b> La Gemara demande : <b>Accordé,</b> en ce qui concerne les <b>menstruations;</b> mais en ce qui concerne une femme qui n'a pas fait attention à la séparation des <b><i>ḥalla</i> et à l'allumage des lumières du Chabbat, que dire ? </b> Il faut plutôt expliquer <b>conformément à ce que ce Galiléen a enseigné avant Rav Ḥisda. Le Saint, béni soit-Il, a dit : J'ai placé un quart [<i>revi</i>'<i>il</i>]</b> d'un <i>log</i> <b>de sang en toi</b> lorsque tu as été formée, et <b>sur les questions de</b> le <b>sang</b> des menstruations <b>je t'ai avertie.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

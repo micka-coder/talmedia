@@ -53,4 +53,4 @@
 <b>et il mourut</b> Il ne mourut pas immédiatement, mais se détériora continuellement à cause des guerres, et dans <i>Genèse Rabbah</i> (65:20), il est expliqué que le Seigneur frappa Abijah.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

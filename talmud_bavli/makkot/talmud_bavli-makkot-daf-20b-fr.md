@@ -36,4 +36,4 @@ Dans une <i>halakha</i> connexe, les Sages <b>enseignent : Celui qui enlève une
 La Gemara demande : <b>Mais n'avez-vous pas</b> déjà <b>dérivé</b> de l'expression "pour l'âme" une exemption pour celui qui a fait une incision de chagrin <b>sur sa maison qui s'est effondrée, ou sur son navire qui a coulé en mer ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

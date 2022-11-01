@@ -24,4 +24,4 @@ La Gemara rejette également cette suggestion : <b>Mais peut-être</b> les autre
 <b>Un <i>tanna</i> a enseigné devant Rav Sheshet : </b> Conformément à <b>quel</b> avis <b>c'est ? </b> C'est <b>selon l'avis de <b>Rabbi Shimon ben Yehuda, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Yehuda dit au nom de Rabbi Shimon :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

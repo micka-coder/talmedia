@@ -45,4 +45,4 @@ La suggestion est qu'un <b>Sage,</b> Rabbi Meir, <b>est d'avis</b> que la <i>hal
 <b>Et si vous le souhaitez, dites</b> plutôt : <b>Tout le monde est d'avis</b> que la <i>halakha</i> est conforme à l'avis <b>du Rav Pappa,</b> et même Rabbi Meir est d'accord pour dire qu'elle n'est fiancée que s'il a écrit dans le document : Qu'elle soit acquise par toi, elle et tous ses privilèges. <b>Et ici</b> ils <b>désaccordent par rapport</b> à la déclaration <b>de Shmuel, car Shmuel dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

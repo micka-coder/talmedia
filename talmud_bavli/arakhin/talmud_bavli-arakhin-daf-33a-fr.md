@@ -63,4 +63,4 @@ Le Rav Pappa développe : <b>À quoi allez-vous comparer</b> ce cas ? <b>Si vous
 La Gemara note : <b>C'est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>du Rav Huna, et</b> cette <i>baraita</i> est <b>une réfutation concluante de</b> l'avis du <b>Rabbi Oshaya : </b> En ce qui concerne <b>celui qui consacre une maison parmi les maisons de</b> <b>cours non murés, cet</b> individu <b>peut racheter</b> la maison <b>immédiatement et il peut la racheter toujours. </b> Si <b>un autre</b> individu <b>l'a rachetée de la possession du Trésor du Temple</b> et que l'année du <b>Jubilé</b> <b>arrive et qu'elle n'a pas été rachetée</b> par le propriétaire initial, la maison <b>retourne à son propriétaire l'année du Jubilé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

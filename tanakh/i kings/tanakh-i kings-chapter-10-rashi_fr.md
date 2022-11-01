@@ -87,4 +87,4 @@
 <b>Par leur intermédiaire.</b> Par les marchands de Shlomo, ils les exportaient d'Egypte.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

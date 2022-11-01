@@ -94,5 +94,5 @@
 ### passuk 34
 <b>Et Oholiov.</b> Il était de la Tribu de Dan, l'une des plus basses des Tribus, l'un des fils des servantes [de Yaakov]. Pourtant, Dieu l'assimile à Betzalel en ce qui concerne les travaux du <i>mishkon,</i> et il (Betzalel) est issu de la plus grande des Tribus. Cela tend à accomplir ce qui est énoncé : "Il ne reconnaît pas le riche sur le pauvre". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

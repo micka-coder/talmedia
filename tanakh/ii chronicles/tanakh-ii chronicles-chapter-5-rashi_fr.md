@@ -38,4 +38,4 @@
 <b>Et les trompettes, etc. étaient comme un seul</b> Le sens est : Et ils étaient unis - tous les trompettes ensemble. Or, dans quel but étaient-ils unis ? Pour faire un seul son ensemble pour louer et remercier le Seigneur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

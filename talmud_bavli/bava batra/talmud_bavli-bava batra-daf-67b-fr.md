@@ -21,4 +21,4 @@
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, 3:3) : Celui <b>qui vend une maison de bain</b> sans préciser ce qui est inclus dans la vente <b>a vendu</b> avec elle <b>la réserve</b> pour <b>les planches, et la réserve</b> pour <b>les</b> outils appelés <b><i>yekamin</i>, et la réserve pour les bassins, et la réserve pour les rideaux [<i>vilaot</i>], mais</b> il n'a <b>pas</b> vendu <b>les planches elles-mêmes, ni les <i>yekamin</i> elles-mêmes, ni les bassins eux-mêmes, ni les rideaux eux-mêmes. Lorsque</b> le vendeur <b>dit à</b> l'acheteur : Je te vends <b>cela et tout ce qui s'y trouve, tous ces</b> composants <b>sont vendus</b> en même temps que la maison de bain. <b>Tant</b> dans <b>cette affaire</b>, où il exécute la vente sans spécification, <b>et</b> dans <b>cette affaire</b>, où il ajoute la phrase qu'il vend tout ce qui est dans la maison de bain, <b>il ne lui a pas vendu les bassins qui l'alimentent en eau, que</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

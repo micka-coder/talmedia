@@ -21,4 +21,4 @@
 § Par ailleurs, en ce qui concerne un aliment interdit qui s'est mélangé à un aliment permis, <b>Rabbi Abbahou dit</b> que <b>Rabbi Yoḥanan dit :</b> Dans <b>tout</b> cas <b>où la saveur et la substance de</b> l'aliment interdit sont perceptibles dans le mélange, le mélange est <b>interdit,</b> et <b>on est fouetté pour</b> l'avoir consommé. Et</b> il est de tradition que <b>ce soit</b> la mesure pour un tel cas : Celui qui mange <b>une olive-bulk</b> de l'élément interdit dans le mélange <b>dans</b> le temps qu'il faut <b>pour manger un demi-pain</b> est responsable de la consommation de l'aliment interdit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

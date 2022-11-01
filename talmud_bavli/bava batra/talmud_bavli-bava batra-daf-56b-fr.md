@@ -27,4 +27,4 @@ La Guemara demande : <b>Et</b> en ce qui concerne <b>les rabbins,</b> qui accept
 § La mishna enseigne que si le témoignage a été donné par <b>trois frères,</b> chacun d'eux témoignant d'une année, <b>et qu'un autre individu </b> sans lien de parenté <b>se joint à</b> chacun des frères comme second témoin, <b>ce sont trois</b> <b>témoignages</b> distincts et ils sont acceptés par le tribunal. <b>Mais ils constituent un seul témoignage pour</b> le but de les rendre comme <b>témoins conspirateurs</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

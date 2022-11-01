@@ -85,4 +85,4 @@
 <b>Bénir d'abord le peuple de Israël.</b> Prononcer les bénédictions avant les malédictions,</sup>12</sup><i class="footnote">Lorsque toutes les tribus furent rassemblées (comme décrit dans Devorim 27:12,13,) les <i>Levi'im</i> commencèrent à réciter les bénédictions et les malédictions. Bien que la Torah ne mentionne que les malédictions, chaque malédiction était en fait précédée d'une bénédiction correspondante. (Voir Rachi à Devorim 27:12).</i> "Béni soit l'homme qui ne fera pas de statue ou d'image en fusion."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

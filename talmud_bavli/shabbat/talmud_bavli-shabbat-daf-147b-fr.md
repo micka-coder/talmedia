@@ -51,4 +51,4 @@ Nous avons également appris dans la mishna que <b>On ne peut pas fabriquer une 
 Nous avons également appris dans la mishna que <b>On ne peut pas remettre à zéro une fracture</b> d'un os pendant Chabbat. <b>Rav Ḥana de Bagdad a dit</b> que <b>Shmuel a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

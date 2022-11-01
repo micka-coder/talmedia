@@ -30,4 +30,4 @@ La Gemara répond : <b>En fait,</b> la <i>baraita</i> est en accord avec l'opini
 <b>Rava dit à</b> Rav Ḥisda : <b>Si c'est ainsi,</b> qu'un <i>tumtum</i> est certainement soit un homme, soit une femme, <b>en ce qui concerne les évaluations,</b> lorsque quelqu'un fait vœu de donner l'évaluation d'un <i>tumtum</i>, <b>il doit être évalué,</b> soit selon l'évaluation d'un homme, soit d'une femme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

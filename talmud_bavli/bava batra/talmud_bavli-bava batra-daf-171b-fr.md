@@ -51,4 +51,4 @@ La Gemara répond : Rav Hamnuna <b>soutient que</b> on ne <b>pas écrire un reç
 <b>Ravina a dit à Rav Ashi, et certains disent</b> que c'est <b>Rav Ashi</b> qui a dit <b>à Rav Kahana :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

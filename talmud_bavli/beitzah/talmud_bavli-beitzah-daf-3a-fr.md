@@ -39,4 +39,4 @@ La déclaration de Rabbi Yehuda' indique que <b>au deuxième</b> jour, <b>oui,</
 La signification de la déclaration de Rabbi Yoḥanan' pour la question qui nous occupe est la suivante : <b>Puisque</b> Rabbi Yoḥanan <b>souleve une contradiction entre</b> les cas d'un œuf et d'un liquide qui suinte, on peut <b>en conclure qu'il s'agit de la même raison</b> dans les deux cas, c'est-à-dire qu'un œuf est interdit sur une Fête en raison du décret rabbinique contre le liquide qui suinte d'un fruit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

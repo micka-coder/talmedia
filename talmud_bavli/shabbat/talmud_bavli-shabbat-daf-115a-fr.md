@@ -3,4 +3,4 @@
 <b>Il est permis de tailler les légumes. Et Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Si <b>Yom Kippour se produit un</b> <b>jour de semaine, on peut casser des noix et enlever des graines de grenade à partir</b> de la fin de l'<b>après-midi et au-delà,</b> parce que faire cela n'implique aucun travail réel et <b>en raison de l'anxiété,</b> c'est-à-dire, si une personne ne sait pas qu'il y a de la nourriture préparée pour la fin du jeûne, elle souffre davantage pendant les dernières heures de la journée (Rabbi Zeraḥia HaLevi). La Guemara relate : Les membres de la maison de <b>Rav Yehuda' taillaient les choux.</b> Les membres de la maison de <b>Rabba' frottaient les courges. Une fois</b> Rabba <b>s'aperçut</b> qu'ils faisaient</b> cela <b>tôt,</b> avant la fin de l'après-midi, <b>il leur dit : Une lettre est venue d'Occident,</b> c'est-à-dire d'Eretz Yisrael, <b>au nom</b> de <b>Rabbi Yoḥanan,</b> disant que faire cela est <b>interdit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

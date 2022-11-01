@@ -21,4 +21,4 @@ La Gemara explique : Pour avoir conduit l'animal <b>involontairement, il n'est p
 Et de même, <b>il n'est pas</b> même <b>responsable</b> d'être fouetté <b>pour</b> avoir enfreint une <b>interdiction</b> de la Torah pour laquelle la peine est le fouet. Même si la Torah met explicitement en garde contre l'exécution d'un travail le Chabbat, <b>c'est une interdiction qui a été</b> fondamentalement <b>donnée,</b> non pas comme une interdiction standard punie par des coups de fouet, mais plutôt <b>comme un avertissement de la peine capitale imposée par le tribunal, et</b> pour <b>toutes les interdictions qui ont été données comme un avertissement de la peine capitale imposée par le tribunal,</b> si la peine de mort n'est pas imposée pour une raison quelconque, <b>on n'est pas fouetté pour sa</b> violation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

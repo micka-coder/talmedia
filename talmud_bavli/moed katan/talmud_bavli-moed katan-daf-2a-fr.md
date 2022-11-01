@@ -45,4 +45,4 @@ La Guemara explique la clause suivante de la <i>baraita</i>, qui stipule : <b>Ra
 Quoi qu'il en soit, Rabbi Yehuda semble maintenir une opinion qui ressemble à celle de la mishna, c'est-à-dire que seul un champ qui nécessite une irrigation peut être arrosé, mais pas un champ qui se suffit d'eau de pluie. Et même dans le cas d'un champ qui nécessite une irrigation, un effort excessif est interdit. La Guemara remet en question cette compréhension : <b>Et d'où</b> concluez-vous que la mishna reflète l'opinion de Rabbi Yehuda ? <b>Peut-être que Rabbi Yehuda a déclaré</b> que <b>un champ qui nécessite une irrigation, oui,</b> on peut l'irriguer les jours intermédiaires d'une Fête, et <b>un champ qui se suffit de l'eau de pluie, non,</b> on ne peut le faire, <b>seulement</b> en ce qui concerne <b>une source nouvellement apparue,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

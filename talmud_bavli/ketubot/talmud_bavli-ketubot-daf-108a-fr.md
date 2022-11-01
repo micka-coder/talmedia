@@ -18,7 +18,7 @@ La Gemara discute cette mishna : <b>Accordé, il peut verser son shekel pour lui
 La Guemara analyse ces avis : <b>Accordé, Rava n'a pas dit</b> sa déclaration conformément à l'explication <b>de Rav Oshaya, car il établit</b> la mishna dans <i>Nedarim</i> non seulement conformément à l'avis de Ḥanan, mais aussi <b>conformément</b> à l'avis des <b>Rabbins. Cependant, quelle est la raison</b> pour laquelle <b>Rav Oshaya n'a pas dit</b> que la mishna fait référence à un prêt qui n'avait pas à être remboursé, <b>conformément</b> à l'explication de <b>Rava ?</b> La Guemara répond que <b>Rav Oshaya</b> aurait pu <b>vous dire : Bien que</b> dans ce type de prêt <b>il n'y a pas d'avantage pour</b> l'emprunteur, car il n'a pas besoin de le rembourser dans un certain délai,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 l'autre <b>peut contribuer son shekel pour lui,</b> c'est-à-dire qu'il est permis au second individu de donner le demi-shekel de son propre argent au Temple pour le compte du premier, à qui le vœu interdit de tirer un bénéfice ; <b>et il peut rembourser sa dette</b> pour lui, c'est-à-dire que si celui qui est interdit par le vœu doit de l'argent à un tiers, celui dont il ne peut tirer un bénéfice peut payer cette dette pour lui. <b>Et il peut lui rendre son objet perdu, et dans un lieu où l'on prend un salaire</b> pour rendre un objet perdu, <b>le bénéfice</b> payé pour la restitution de l'objet <b>va à</b> la trésorerie du Temple des <b>biens consacrés</b>.
 
@@ -38,4 +38,4 @@ La Gemara discute cette mishna : <b>Accordé, il peut verser son shekel pour lui
 La Guemara analyse ces avis : <b>Accordé, Rava n'a pas dit</b> sa déclaration conformément à l'explication <b>de Rav Oshaya, car il établit</b> la mishna dans <i>Nedarim</i> non seulement conformément à l'avis de Ḥanan, mais aussi <b>conformément</b> à l'avis des <b>Rabbins. Cependant, quelle est la raison</b> pour laquelle <b>Rav Oshaya n'a pas dit</b> que la mishna fait référence à un prêt qui n'avait pas à être remboursé, <b>conformément</b> à l'explication de <b>Rava ?</b> La Guemara répond que <b>Rav Oshaya</b> aurait pu <b>vous dire : Bien que</b> dans ce type de prêt <b>il n'y a pas d'avantage pour</b> l'emprunteur, car il n'a pas besoin de le rembourser dans un certain délai,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

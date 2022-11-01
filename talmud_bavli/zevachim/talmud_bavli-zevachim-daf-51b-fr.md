@@ -9,4 +9,4 @@ La Guemara explique : <b>Parce que s'il entre dans votre esprit</b> que le verse
 <b>Et si vous disiez</b> que l'on pourrait dire à tort <b>que</b> le prêtre <b>renverse</b> les aspersions,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

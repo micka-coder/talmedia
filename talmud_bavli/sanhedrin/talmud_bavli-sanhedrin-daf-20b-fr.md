@@ -60,4 +60,4 @@ La Gemara demande : <b>Est-il revenu</b> pour régner sur le monde entier, <b>ou
 § La mishna enseigne que le roi <b>brise</b> les clôtures de quiconque se trouve sur son chemin <b>pour se créer un chemin. Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Les trésors des rois</b> pris comme butin de guerre appartiennent <b>au roi, et</b> quant au <b>reste du butin qui est pris</b> dans une guerre, <b>la moitié</b> est <b>pour le roi et la moitié</b> est <b>pour le peuple. Abaye a dit au Rav Dimi, et certains disent</b> qu'il a dit cela <b>au Rav Aḥa : Accordé, les trésors des rois</b> appartiennent <b>au roi. </b> C'est <b>la manière typique</b> des rois, car il convient que le roi utilise les trésors des rois qu'il conquiert ; <b>mais</b> en ce qui concerne <b>le reste du butin qui est pris</b> dans une guerre, où <b>la moitié</b> est <b>pour le roi et la moitié</b> est <b>pour le peuple, d'où tirons-nous</b> cette <i>halakha</i> ? Il répondit à Abaye : La source est <b>comme il est écrit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

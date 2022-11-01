@@ -54,4 +54,4 @@ Rav Anan poursuit sa déclaration en ce qui concerne les deux <i>halakhot</i> qu
 <b>Rav Yosef a dit : Voyons</b> si l'on peut déterminer quel cas implique quelle <i>halakha</i>. <b>D'après ce qui est enseigné dans le <i>baraita</i> : Celui qui vend son esclave à</b> un Juif <b>en dehors</b> de <b>Eretz</b> Yisraël, alors <b>il est émancipé, mais</b> il a néanmoins <b>besoin d'un acte de manumission de son second maître. Apprenez de</b> la <i>baraita</i> que <b>son second maître l'a acquis, et l'argent</b> de la <b>vente n'est pas restitué.</b> En d'autres termes, du fait qu'il y a nécessité pour le second maître de l'émanciper, il est clair que la vente a pris effet. Il est donc logique que l'acheteur ne soit pas remboursé de l'argent de la vente. <b>Et</b> si tel est le cas, <b>lorsque Shmuel a dit là</b> que le champ <b>n'est pas vendu,</b> il voulait dire que la vente ne prend pas du tout effet <b>et que l'argent revient</b> à l'acheteur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

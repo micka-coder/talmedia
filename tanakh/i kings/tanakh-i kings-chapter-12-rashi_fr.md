@@ -75,4 +75,4 @@
 <b>Il a pensé de son propre cœur.</b> Expression du mensonge, <i>controver</i>, en ancien français.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

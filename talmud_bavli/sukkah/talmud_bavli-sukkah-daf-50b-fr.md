@@ -24,4 +24,4 @@
 <b>Rav Pappa a dit :</b> Rav Yosef a déclaré que le différend entre Rabbi Yosei bar Yehuda et les sages concernant la primauté ou non de la flûte sur le Chabbat et les Fêtes est basé sur la signification et le rôle du chant dans le sacrifice des offrandes.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

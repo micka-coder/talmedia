@@ -39,4 +39,4 @@ De même, <b>Rav Pappi a dit :</b> En ce qui concerne <b>ces robes de Bei Mikhse
 <b>Les Sages ont enseigné :</b> Concernant <b>un garçon orphelin et une fille orpheline qui sont venus</b> et ont fait appel <b>pour être soutenus</b> par le fonds de charité, les distributeurs <b>proviennent pour la fille orpheline</b> d'abord <b>et ensuite</b> ils <b>proviennent pour le garçon orphelin. </b> Ceci est <b>parce que c'est la manière de l'homme de circuler autour des entrées</b> pour demander la charité, <b>et ce n'est pas la manière de la femme de circuler</b> pour la charité. Par conséquent, son besoin est plus grand. Concernant <b>un garçon orphelin et une fille orpheline</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ Ulla <b>lui a dit : Je connais</b> ma décision d'après l'<b>incident suivant :
 La Guemara raconte encore : Il y avait un cas impliquant <b>certains tendons mous</b> qui se combinaient avec la chair pour couvrir la majorité d'un os cassé, et <b>ils se sont présentés devant Rabba</b> pour une décision. <b>Rabba a dit : Quel souci</b> y a-t-il <b>avec</b> les tendons dans <b>cette</b> affaire ? <b>Premièrement,</b> il n'y a pas de souci, <b>parce que Rabbi Yoḥanan dit :</b> En ce qui concerne les <b>sinews qui finiront par durcir,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

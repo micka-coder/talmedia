@@ -27,4 +27,4 @@ A l'inverse, si <b>il n'y a pas</b> assez de haricots cassés de <i>teruma</i> p
 Abaye commente : Lorsque la mishna dit qu' <b>il n'y a pas</b> suffisamment de lentilles <b>pour neutraliser</b> les haricots cassés <b>dans cent un</b> fois leur volume, et que néanmoins si les haricots cassés ne conféraient pas de saveur aux lentilles, le mélange est permis, <b>dans quelle quantité</b> de lentilles les haricots cassés sont-ils annulés ? N'est-ce <b>pas</b> que les haricots cassés sont autorisés parce qu'ils sont mélangés <b>avec soixante</b> fois leur volume de lentilles non sacrées ? Ceci contredit l'opinion de Rabbi Shmuel bar Rav Yitzḥak.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

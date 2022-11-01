@@ -33,4 +33,4 @@ A propos des psaumes récités pendant la Fête, la Gemara demande : <b>Et nous,
 La Guemara cite un troisième avis : <b>Ameimar a institué dans</b> sa ville de <b>Neharde'a que</b> pendant les jours intermédiaires, <b>on répète</b> la deuxième des offrandes supplémentaires qu'il a mentionnées la veille et on ajoute les offrandes supplémentaires du jour suivant. Le premier des jours intermédiaires en Diaspora, on mentionne les offrandes supplémentaires du deuxième et du troisième jour de <i>Sukkot</i>. Au deuxième des jours intermédiaires, on répète les versets du troisième jour de <i>Sukkot</i> et on ajoute les versets du quatrième jour.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

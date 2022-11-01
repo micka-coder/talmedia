@@ -48,7 +48,7 @@ Le <i>baraita</i> conclut : <b>Et toute personne qui ne s'est pas conduite</b> <
 <b>Rav Ashi a dit : Il y avait deux ordonnances</b> instituées : <b>Initialement, la</b> cour des prêtres <b>instituait pour une vierge</b> fille de prêtre un contrat de mariage de <b>quatre cents dinars, et pour une veuve,</b> un contrat de mariage de <b>cent dinars.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Rabba a dit : C'est-à-dire,</b> si <b>on a épousé</b> une femme <b>avec le statut présumé de vierge,</b> car il y avait des témoins qu'elle n'a pas eu de rapports sexuels, <b>et il s'est avéré</b> qu'elle était <b>non vierge, elle a</b> droit à <b>un contrat de mariage de cent dinars.</b> La Gemara rejette la preuve. <b>Rav Ashi a dit : En général, en fait, je</b> vous <b>dirais</b> que dans ce cas, <b>elle ne reçoit pas</b> un contrat de mariage <b>du tout,</b> car il s'agit d'une transaction erronée. <b>Mais ici c'est différent,</b> et elle ne perd pas totalement son contrat de mariage, <b>car le premier</b> mari l'a <b>amené dans</b> sa maison. Par conséquent, le second mari aurait dû considérer qu'une femme qui est entrée dans la maison de son mari n'est plus vierge.
 
@@ -98,4 +98,4 @@ Le <i>baraita</i> conclut : <b>Et toute personne qui ne s'est pas conduite</b> <
 <b>Rav Ashi a dit : Il y avait deux ordonnances</b> instituées : <b>Initialement, la</b> cour des prêtres <b>instituait pour une vierge</b> fille de prêtre un contrat de mariage de <b>quatre cents dinars, et pour une veuve,</b> un contrat de mariage de <b>cent dinars.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

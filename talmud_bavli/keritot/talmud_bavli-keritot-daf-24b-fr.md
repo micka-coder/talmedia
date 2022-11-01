@@ -54,4 +54,4 @@ La Guemara soulève une difficulté : <b>Disons que Rabbi Chimon n'a dit</b> ce 
 La Guemara soulève une difficulté : <b>Accordé, selon Rava</b> l'interdiction prend effet <b>à partir du moment où une action,</b> c'est-à-dire la rupture du cou, <b>a été effectuée sur</b> la génisse. <b>Mais selon le Rav Hamnuna, à partir de quand</b> exactement l'interdiction prend-elle effet ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

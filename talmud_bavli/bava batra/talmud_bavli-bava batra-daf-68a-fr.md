@@ -30,4 +30,4 @@ La Guemara rejette cette preuve : <b>Vous soutenez</b> que <b>ce que l'on entend
 <b>Certains disent</b> que la discussion s'est déroulée comme suit : Les Sages ont d'abord <b>assumé</b> que <b>que signifie <b><i>shelaḥin</i> ? </b> Cela fait référence aux <b>jardins</b> que l'on trouve dans la ville. <b>Grâce à celui qui a dit</b> que <i>santar</i> signifie <b>les champs</b> qui entourent la ville, <b>la première <i>tanna</i></b> de la mishna <b>dit</b> que <b>les jardins</b> trouvés à l'intérieur de la ville <b>sont vendus</b> avec la ville, mais <b>les champs</b> qui entourent la ville <b>ne sont pas vendus, et Rabban Shimon ben Gamliel en vient à dire</b> que <b>même les champs</b> qui entourent la ville <b>sont vendus. </b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ De même, <b>Rabbi Ya'akov a dit :</b> Si <b>quelqu'un fait vœu</b> que le bén
 <strong>MISHNA :</strong> Dans le cas de <b>quelqu'un pour qui le bénéfice d'autrui est interdit par vœu et qu'il entre</b> sa maison <b>pour lui rendre visite, il se tient</b> là <b>mais ne s'assied pas. Et</b> cette autre personne <b>le guérit</b> avec <b>une guérison</b> du <b><i>nefesh</i> mais pas une guérison du <i>mamon</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

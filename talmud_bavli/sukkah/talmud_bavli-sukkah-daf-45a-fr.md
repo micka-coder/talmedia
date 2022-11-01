@@ -21,4 +21,4 @@ La mishna note : <b>Comme son exécution pendant la semaine, ainsi est son exéc
 <b>Rabbi Abbahou a dit : Quel est</b> le <b>verset</b> qui fait allusion au fait que les branches doivent s'incliner d'une coudée au-dessus du sommet de l'autel ? C'est <b>comme il est dit : "Encercler [<i>isru</i>] avec des branches sur le Festival jusqu'aux cornes de l'autel"</b> (Psaumes 118:27), indiquant que les branches de saule doivent entourer les cornes de l'autel. Cela est facilité par le fait de placer les branches sur la base. La Guemara cite des dérivations basées sur différentes interprétations des termes de ce verset. <b>Rabbi Abbahou a dit</b> que <b>Rabbi Elazar a dit :</b> En ce qui concerne <b>celui qui prend un <i>lulav</i> dans sa reliure et une branche de myrte dans sa forme à feuilles denses</b>, <b>le verset lui attribue</b> un crédit <b>comme s'il construisait un autel et y sacrifiait une offrande, comme il est dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

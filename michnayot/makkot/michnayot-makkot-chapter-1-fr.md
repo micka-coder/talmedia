@@ -29,5 +29,5 @@ Si deux personnes le voient [le transgresseur] d'une fenêtre et que deux autres
 ### michna 10
 Si une personne s'est enfuie après avoir été condamnée par un tribunal et qu'elle se présente à nouveau devant le même tribunal, le [premier] jugement n'est pas annulé. Lorsque deux témoins se lèvent et déclarent : "Nous attestons qu'untel a été jugé et condamné par un certain tribunal et qu'untel était le témoin", l'accusé est exécuté. Les [procès devant] un sanhédrin sont habituels tant en terre [d'Israël] qu'en dehors. Un sanhédrin qui exécute une fois tous les sept ans, est appelé meurtrier. Rabbi Eliezer b. Azariah dit : une fois tous les soixante-dix ans. Rabbi Tarfon et Rabbi Akiva disent :  Si nous étions membres d'un sanhédrin, personne ne serait jamais mis à mort. Rabban Shimon ben Gamaliel remarque :  "Ils multiplieraient aussi les meurtriers en Israël."
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara conclut : <b>Et la <i>halakha</i></b> est que l'acheteur peut acquéri
 <b>Accordé, si vous dites</b> que le <b>dispute</b> concerne un cas où le <i>pe'a</i> a été glané <b>par un pauvre pour le compte d'un pauvre,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

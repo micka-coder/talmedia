@@ -75,4 +75,4 @@ Nous avons également appris dans la mishna : <b>On peut prendre</b> du foin <b>
 <b>Abaye dit :</b> Tant <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> soutiennent que <b>on peut prendre</b> du foin <b>de devant un âne</b> et le placer <b>devant un bœuf. </b> Cependant, <b>on ne peut pas prendre</b> du foin <b>devant un bœuf</b> et le placer <b>devant un âne.</b> La formulation des <i>baraitot</i> peut être expliquée comme suit : <b>Ce qui a été enseigné : On peut prendre</b> du foin <b>devant un animal dont la bouche est fine,</b> fait référence à <b>un âne,</b> et la raison pour laquelle la <i>baraita</i> dit que sa bouche est fine est <b>parce qu'il n'a pas de crachat.</b> Par conséquent, l'âne n'humidifie pas le foin restant avec sa salive. <b>Et</b> l'affirmation : <b>Et on peut le placer devant un animal dont la bouche est fétide,</b> fait référence à <b>une vache,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

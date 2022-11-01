@@ -30,4 +30,4 @@ La Guemara <b>souleve une objection :</b> Est-il permis d'essuyer avec une pierr
 <b>Rabba bar Rav Sheila a soulevé un dilemme devant Rav</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

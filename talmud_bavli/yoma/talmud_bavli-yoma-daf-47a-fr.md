@@ -57,4 +57,4 @@ La Gemara rejette cette affirmation : Non ; <b>peut-être</b> la mishna veut en 
 § <b>Les Sages ont enseigné : "Ses poignées"</b> (Lévitique 2:2). J'ai <b>pouvais</b> penser qu'il fallait <b>déborder</b> de la poignée, et donc <b>le verset dit : "Sa poignée"</b> (Lévitique 6:8), ce qui indique une quantité précise. <b>Si</b> la <i>halakha</i> se base uniquement sur l'expression <b>"sa poignée"</b>, j'aurais <b>pu penser</b> que le prêtre peut pincer une petite quantité <b>même avec</b> seulement <b>le bout de ses doigts,</b> pas avec tout son doigt. Par conséquent, le verset dit : "Ses poignées"</b> (Lévitique 2:2), c'est-à-dire <b>comme les gens</b> ont l'habitude de <b>prendre une poignée,</b> c'est-à-dire avec toute la main. <b>Comment</b> doit-il accomplir ce service ? <b>Il pellette</b> en fermant <b>ses trois doigts sur la paume de sa main, et prend une poignée</b> de la farine de l'offrande.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

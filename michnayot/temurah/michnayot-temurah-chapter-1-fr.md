@@ -17,5 +17,5 @@ L'eau hatat ne devient pas de l'eau hatat sauf si l'on met des cendres [dans l'e
 ### michna 6
 Les oiseaux et les menahot ne constituent pas un substitut, car il est seulement dit "une bête" (Lévitique 27:10). Une congrégation ou des partenaires ne peuvent pas faire de substitut, puisqu'il est dit : Un individu peut faire un substitut, mais une assemblée ou des partenaires ne peuvent pas faire de substitut. On ne peut pas faire de substitut avec les [objets] destinés aux réparations du Temple. Rabbi Shimon a dit :  La dîme n'est-elle pas incluse [dans les lois de substitution] ? Alors pourquoi l'a-t-on mentionnée spécialement ?  Afin d'établir une comparaison avec elle : la dîme est une offrande privée, elle exclut donc les offrandes de congrégation. Et la dîme est une dédicace pour l'autel, elle exclut donc les offrandes dédiées aux réparations du Temple.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

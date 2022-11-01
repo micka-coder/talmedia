@@ -24,4 +24,4 @@ La Gemara suggère : <b>Mais peut-être</b> il n'est pas annulé <b>jusqu'à</b>
 La Guemara soulève une autre objection à l'explication de Rabbi Yoḥanan : <b>Nous avons appris</b> dans la mishna ici que <b>Rabbi Yehuda dit : </b> Si la poignée était mêlée <b>à l'offrande de repas des prêtres, à l'offrande de repas du</b> <b>prêtre oint, ou à l'offrande de repas des libations,</b> le mélange est <b>inadéquat car</b> en ce qui concerne <b>ceci, </b> la poignée de l'offrande de repas standard, <b>son mélange est épais, et</b> en ce qui concerne <b>cela,</b> l'offrande de repas du prêtre oint et l'offrande de repas des libations, <b>son mélange est lâche. Et</b> les mélanges, qui ne sont pas identiques, <b>s'absorbent l'un l'autre,</b> invalidant les deux. La Guemara demande : <b>Mais lorsque</b> les mélanges <b>s'absorbent l'un l'autre, qu'en est-il ?</b> Il s'agit là d'un <b>cas de substance</b> en contact <b>avec</b> le <b>même</b> type de <b>substance,</b> et donc aucune huile n'annule l'autre et les deux doivent être sacrifiées sur l'autel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

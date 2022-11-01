@@ -15,4 +15,4 @@ Dans la phrase <b>"déclarer à Mon peuple sa transgression", ces</b> personnes 
 <b>De peur que vous ne disiez,</b> à propos de ces groupes qui ne sont pas des érudits de la Torah, que <b>leur espoir a cessé et que leurs chances sont éliminées, le verset dit : "Afin que nous puissions contempler votre joie"</b> L'ensemble du peuple juif, y compris les groupes cités ci-dessus, contemplera la joie des érudits de la Torah. <b>Au cas où vous diriez que le peuple juif aura honte, le verset dit : "Mais ils auront honte"</b>, ce qui signifie que les <b>gentils seront honteux, mais que le peuple juif sera joyeux.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

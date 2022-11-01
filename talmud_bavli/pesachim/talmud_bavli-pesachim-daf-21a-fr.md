@@ -18,4 +18,4 @@ Après avoir cité la preuve de l'opinion de Rabbi Yosei, fils de Rabbi Ḥanina
 <b>Rav Huna, fils de Rav Yehoshua, a dit : En fait, il ne faut pas inverser</b> les noms. Plutôt, <b>De quoi s'agit-il ici ?</b> Nous faisons référence à un cas où il est possible de recueillir le vin uniquement <b>dans un récipient dont l'intérieur est rituellement pur et dont l'extérieur est impur</b> selon la loi rabbinique, étant devenu impur par contact avec des liquides impurs. <b>Tu dis</b> que <b>nous</b> devrions <b>émettre un décret</b> selon lequel on ne peut sauver même un quart de<i>log</i>, <b>de peur que l'</b> extérieur du récipient ne touche le <i>teruma</i></b> et ne le rende impur, la <i>baraita</i> <b>nous apprend</b> que Rabbi Eliezer concède à Rabbi Yehoshua que malgré cette préoccupation, il est permis de sauver un quart de<i>log</i> de <i>teruma</i> pur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

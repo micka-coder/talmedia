@@ -57,4 +57,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> de cette question ? <b
 La Gemara explique : <b>Non,</b> il est <b>nécessaire</b> de soulever le dilemme dans le cas d'une <b>cour qui n'a pas vocation à être louée, mais l'homme</b> qui y squatte <b>aurait loué</b> d'autres locaux d'habitation s'il n'avait pas squatté cette propriété. <b>Quoi</b> est le <i>halakha</i> dans ce cas ? Le squatter est-il légalement <b>en mesure de dire au</b> propriétaire de la cour : <b>Quelle perte vous ai-je causée,</b> puisque vous ne l'auriez pas louée de toute façon ? <b>Ou peut-être</b> le propriétaire de la cour a légalement <b>le droit de dire</b> au squatter :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

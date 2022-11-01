@@ -27,4 +27,4 @@ Rav Adda bar Mattana explique son objection : <b>Mais un sac à main est un obje
 La Guemara soulève une autre objection. <b>Venez</b> et <b>entendez : </b> Si la marchandise est <b>dans le domaine</b> du <b>vendeur,</b> l'acheteur <b>n'acquiert pas</b> la marchandise <b>jusqu'à ce qu'il la soulève ou jusqu'à ce qu'il la retire du domaine</b> du vendeur. <b>Apparemment,</b> en ce qui concerne <b>un objet qui peut être soulevé, s'il</b> le désire il l'acquiert en le soulevant, et s'il</b> le désire il l'acquiert en le tirant. Rav Naḥman bar Yitzḥak dit :</b> Ceci n'est pas une preuve, car on peut expliquer que la <i>tanna</i> <b>l'enseigne de manière disjonctive,</b> c'est-à-dire que les deux options font référence à deux cas différents : Dans le cas d'un <b>objet qui peut être soulevé,</b> il l'acquiert <b>en soulevant,</b> alors que par rapport à un <b>objet qui peut être tiré,</b> il l'acquiert <b>en tirant.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

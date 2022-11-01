@@ -45,4 +45,4 @@ La Gemara demande : <b>Quel est</b> la signification de : Merodach-<b>Baladan, f
 La Guemara développe : <b>"Un fils honore son père"</b> fait référence à <b>ce que nous avons énoncé</b> à propos de Baladan. <b>"Et un serviteur son maître"</b> fait référence à un verset, <b>comme il est écrit : "Et au cinquième mois, le dixième jour du mois, qui était la dix-neuvième année de Nabuchodonosor, roi de Babylone, Nabuzaradan, capitaine des gardes, qui se tenait devant le roi de Babylone, entra dans Jérusalem. Et il brûla la Maison du Seigneur et la maison du roi"</b> (Jérémie 52, 12-13).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

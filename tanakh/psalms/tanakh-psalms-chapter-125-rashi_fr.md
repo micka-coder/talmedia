@@ -13,4 +13,4 @@
 <b>et ceux qui tournent leurs chemins tortueux</b> sur le peuple pour trouver de méchantes accusations, que le Seigneur les emmène avec les ouvriers d'iniquité.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

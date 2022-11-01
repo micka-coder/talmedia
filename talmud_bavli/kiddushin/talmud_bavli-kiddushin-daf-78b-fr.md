@@ -42,4 +42,4 @@ La Guemara demande : <b>Et selon Rabbi Meir, qui dit</b> que <b>une personne peu
 <strong>MISHNA : </strong>Dans le cas d'une <b>personne qui a autorisé son agent à fiancer sa fille</b> à un homme que l'agent jugerait bon, <b>et</b> le père <b>est allé la fiancer</b> à quelqu'un d'autre, <b>si son</b> fiançailles <b>précèdent</b> celle de l'agent, <b>son fiançailles est</b> une <b>fiançailles valide ; et si</b> la fiançailles <b>de son agent a précédé</b> la sienne, la <b>fiançailles</b> de l'agent <b>est</b> une <b>fiançailles valide. Et si l'on ne sait pas</b> lequel des fiançailles a précédé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara demande : <b>Et d'où tirons-nous</b> que</b> Juges 3:2 est <b>écrit 
 § La mishna enseigne que <b>une femme ne peut pas s'isoler avec</b> des gentils. La Gemara demande : <b>De quoi s'agit-il ? Si nous disons</b> que nous avons affaire à une femme qui s'isole <b>avec un</b> gentil, <b>est-ce <b>permis dans la situation correspondante</b> <b>concernant un juif ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Kiddushin</i> 80b) : <b>Un homme ne peut s'isoler</b> même <b>avec deux femmes ?</b> Il est certainement interdit à un homme de s'isoler avec une seule femme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

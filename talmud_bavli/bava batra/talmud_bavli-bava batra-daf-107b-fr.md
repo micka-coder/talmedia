@@ -27,4 +27,4 @@ La Guemara soulève une difficulté : <b>Au contraire,</b> disons que <b>cette t
 § La mishna enseigne que l'acheteur <b>accepte sur lui-même</b> de fournir de sa propre propriété <b>l'espace pour la clôture</b> entre les deux moitiés du champ et pour les fossés plus grands et plus petits. Un Sage <b>enseignait</b> dans une <i>baraita</i> : le plus grand <b>ditch</b> est creusé <b>à l'extérieur, tandis que le plus petit fossé</b> est creusé <b>à l'intérieur,</b> plus près du champ. Les deux <b>ceci et ça</b> sont creusés <b>derrière la clôture,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

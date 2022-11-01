@@ -104,7 +104,7 @@
 <b>Et cela a brûlé parmi eux</b> Après le châtiment des païens ([ms.] nations) alentour, cela a brûlé sur eux mêmes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Vois Mon serviteur, je le soutiendrai</b> Voici que Mon serviteur Jacob n'est pas comme vous, car je le soutiendrai.
 <b>Mon élu</b> Israël est appelé "Mon élu" ([mss. :] Son élu) (Ps. 135:4) "Car l'Eternel s'est choisi Jacob." L'Écriture dit aussi (infra 45, 4) : "Pour l'amour de Mon serviteur Jacob et d'Israël Mon élu."
@@ -210,4 +210,4 @@
 <b>Et cela brûla parmi eux</b> Après le châtiment des païens ([ms.] nations) alentour, cela brûla sur eux mêmes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

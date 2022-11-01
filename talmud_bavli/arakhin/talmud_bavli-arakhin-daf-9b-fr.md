@@ -48,4 +48,4 @@ La Gemara explique : La <i>halakha</i> est que <b>en ce qui concerne les vœux,<
 La Guemara ajoute : <b>Et Rabbi</b> Yehuda HaNasi <b>est également d'avis, conformément</b> à l'opinion de <b>Rav Huna,</b> qu'il est permis d'établir huit mois complets dans une année. <b>Comme il est enseigné</b> dans une <i>baraita</i> : Il y eut un <b>incident</b> dans lequel <b>Rabbi</b> Yehuda HaNasi <b>établit neuf mois déficients</b> dans une année, <b>et</b> néanmoins <b>la nouvelle lune fut aperçue à son</b> moment propre,</b> le jour de Roch HaShana, et pas plus tard. <b>Et Rabbi</b> Yehuda HaNasi <b>exprima son étonnement et dit : Nous avons fait neuf</b> mois <b>déficients</b> en une année <b>et</b> pourtant <b>la nouvelle lune a été aperçue à son</b> moment approprié.</b> Comment cela peut-il être ? <b>Rabbi Shimon, fils de Rabbi</b> Yehuda HaNasi, <b>a dit avant lui : Peut-être</b> l'année dernière <b>était-elle une année bissextile</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

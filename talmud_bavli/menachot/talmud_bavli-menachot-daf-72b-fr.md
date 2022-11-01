@@ -51,4 +51,4 @@ Le <i>baraita</i> continue : Mais si <b>on ne les a pas abattus pour leur</b> pr
 <b>Rav Naḥman bar Yitzḥak dit:</b> En fait, Rabbi Yehuda HaNasi soutient que le four consacre les pains. Ce que la <i>baraïta</i> <b>dit</b> lorsqu'elle utilise les catégories de consacré et non consacré en ce qui concerne l'abattage des agneaux, c'est que soit les deux pains <b>sont fixés</b> comme offrandes de repas de <i>Chavouot</i> et ne peuvent être utilisés pour aucune autre offrande, <b>ou</b> ils <b>ne sont pas fixés</b> comme offrandes de repas de <i>Chavouot</i>. En d'autres termes, si les agneaux ont été abattus et le sang aspergé de manière appropriée, on ne peut pas changer la désignation des pains, alors que s'ils n'ont pas été abattus et que leur sang n'a pas été aspergé correctement, on peut changer leur désignation. Si les agneaux ont été abattus correctement mais que leur sang a été aspergé de manière incorrecte, le statut des pains est sujet à contestation. Cela n'a rien à voir avec le moment où les pains sont consacrés.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

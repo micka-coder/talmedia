@@ -24,4 +24,4 @@ D'ici <b>J'ai</b> dérivé <b>seulement</b> qu'une extension est ajoutée à <b>
 La Guemara demande : <b>Et Rabbi Akiva,</b> qui apprend qu'on ajoute du profane au sacré à partir du verset traitant de l'année sabbatique, <b>que fait-il</b> de ce verset : <b>Et vous affligerez vos âmes le 9</b> du mois, le soir</b> ? La Guemara répond : <b>Il l'exige pour</b> ce <b>qui a été enseigné par Ḥiyya bar Rav de Difti, car Ḥiyya bar Rav de Difti a enseigné</b> la <i>baraita</i> suivante : le verset dit : <b>Et vous affligerez vos âmes le 9</b> du mois.</b> <b>Le jeûne est-il le 9 ? Mais le jeûne de</b> Yom Kippour n'est-il pas le <b>dixième</b> de Tishrei ? <b>Au contraire,</b> ce verset vient <b>vous enseigner : Celui qui mange et boit le neuf,</b> se préparant ainsi au jeûne du lendemain, <b>le verset lui attribue</b> un crédit...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

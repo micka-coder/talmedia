@@ -42,4 +42,4 @@ La Gemara répond : <b>Ici,</b> en Babylonie, <b>on a expliqué</b> que le fait 
 <strong>GEMARA:</strong> <b>Un dilemme a été soulevé devant</b> les Sages : Les <i>mishnayot</i> (89a) enseignaient qu'une offrande fréquente précède d'autres offrandes, et aussi qu'une offrande de plus grande sainteté en précède d'autres. S'il y a <b>une offrande fréquente</b> <b>et</b> une offrande <b>de</b> plus grande <b>sainteté</b> à sacrifier, <b>laquelle précède</b> l'autre ? Est-ce que l'offrande <b>fréquente</b> a la priorité, en raison</b> du fait <b>qu'elle est <b>fréquente, ou peut-être</b> l'offrande <b>de</b> plus grande <b>sainteté a la priorité, car</b> elle est <b>de</b> plus grande <b>sainteté ?</b> La Gemara suggère : <b>Venez</b> et <b>entendez</b> la décision de la première mishna de ce chapitre, à savoir que les <b>offrandes quotidiennes précèdent</b> les <b>offrandes supplémentaires</b> car elles sont fréquentes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

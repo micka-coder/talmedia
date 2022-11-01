@@ -75,4 +75,4 @@ On peut tirer une morale de cette <i>halakha</i> : <b>Et si le verset a puni cel
 La mishna cite une autre dérivation basée sur la juxtaposition de deux à trois : <b>Et de même que</b> en ce qui concerne <b>deux témoins</b>, si <b>l'un d'entre eux s'avère</b> être <b>un parent ou</b> est autrement <b>disqualifié, leur</b> tout leur <b>témoignage est annulé,</b> car ce n'est plus le témoignage de deux témoins, <b>de même, </b> en ce qui concerne <b>trois</b> témoins venus témoigner en un seul ensemble, si <b>l'un d'entre eux se révèle</b> être <b>un parent ou</b> est autrement <b>disqualifié, leur</b> tout leur <b>témoignage est annulé,</b> même s'il reste deux témoins valables. <b>D'où vient</b> que la même <i>halakha</i> s'applique <b>même</b> dans le cas de <b>centaines de témoins</b> ? C'est dérivé d'un verset, car <b>le verset dit : "Témoins."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

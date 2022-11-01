@@ -57,4 +57,4 @@ La Gemara demande : Si <b>elle est arrivée avant</b> son <b><i>yavam</i></b> qu
 § <b>Les Sages ont enseigné :</b> Dans le cas d'une <b>yevama</b> avec laquelle les frères</b> de son mari décédé <b>ont effectué une <i>ḥalitza</i> dans les trois</b> mois suivant le décès de son mari, elle doit encore <b>attendre trois mois</b> avant de se remarier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

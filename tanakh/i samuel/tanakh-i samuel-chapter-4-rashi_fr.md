@@ -56,4 +56,4 @@
 <b>Et à cause de son beau-père.</b> C'est-à-dire à cause de ce malheur que son beau-père et son mari avaient péri.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

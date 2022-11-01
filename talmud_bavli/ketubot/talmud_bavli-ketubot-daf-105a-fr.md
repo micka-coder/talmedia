@@ -48,7 +48,7 @@ Ceci <b>ressemble</b> à un incident impliquant <b>Rav Huna. Lorsque</b> des gen
 <b>Les Sages ont enseigné : "Car un pot-de-vin aveugle les yeux des sages"</b> (Deutéronome 16:19) ; <b><i>a fortiori</i></b> il aveuglera certainement les yeux <b>des insensés. "Et pervertit les propos des justes"</b> (Deutéronome 16:19) ; <b><i>a fortiori</i></b> elle pervertira certainement les propos <b>des méchants.</b> La Gemara s'interroge : <b>Les insensés et les méchants sont-ils aptes au jugement,</b> c'est-à-dire à être désignés comme juges ? <b>C'est plutôt ce que</b> le <i>tanna</i> du <i>baraita</i> <b>dit : "Car le pot-de-vin aveugle les yeux du sage" ; même</b> s'il était <b>très sage mais qu'il a accepté un pot-de-vin,</b> il <b>ne quittera pas</b> ce <b>monde sans</b> souffrir de <b>l'aveuglement du cœur,</b> c'est-à-dire qu'il finira par devenir idiot. <b>"Et pervertit les paroles des justes";</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Elle prête serment à la fin</b> de leur mariage, c'est-à-dire lorsqu'elle apprend que son mari est décédé. Le serment porte sur le fait qu'il ne lui a pas laissé de fonds lorsqu'il est parti à l'étranger, car elle réclame le paiement intégral de son contrat de mariage. <b>Et elle ne prête pas serment dès le début</b> de son voyage à l'étranger, alors qu'elle réclame un soutien peu après son départ. <b>Les fils de grands prêtres ne sont pas d'accord avec</b> l'avis de Ḥanan <b>et disent : Elle prête serment</b> à la fois <b>au départ et à la fin. Rabbi Dosa ben Harkinas a dit :</b> La <i>halakha</i> est <b>conforme à leur déclaration,</b> c'est-à-dire celle des fils des grands prêtres. <b>Rabban Yoḥanan ben Zakkai a dit</b> que <b>Ḥanan a bien parlé : Elle ne prête serment qu'à la fin.</b>
 
@@ -98,4 +98,4 @@ Ceci <b>ressemble</b> à un incident impliquant <b>Rav Huna. Lorsque</b> des gen
 <b>Les Sages ont enseigné : "Car un pot-de-vin aveugle les yeux des sages"</b> (Deutéronome 16:19) ; <b><i>a fortiori</i></b> il aveuglera certainement les yeux <b>des insensés. "Et pervertit les propos des justes"</b> (Deutéronome 16:19) ; <b><i>a fortiori</i></b> elle pervertira certainement les propos <b>des méchants.</b> La Gemara s'interroge : <b>Les insensés et les méchants sont-ils aptes au jugement,</b> c'est-à-dire à être désignés comme juges ? <b>C'est plutôt ce que</b> le <i>tanna</i> du <i>baraita</i> <b>dit : "Car le pot-de-vin aveugle les yeux du sage" ; même</b> s'il était <b>très sage mais qu'il a accepté un pot-de-vin,</b> il <b>ne quittera pas</b> ce <b>monde sans</b> souffrir de <b>l'aveuglement du cœur,</b> c'est-à-dire qu'il finira par devenir idiot. <b>"Et pervertit les paroles des justes";</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

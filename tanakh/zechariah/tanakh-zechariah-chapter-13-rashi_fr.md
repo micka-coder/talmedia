@@ -34,4 +34,4 @@
 <b>Et il dira : "Le Seigneur..."</b> Lorsqu'il priera, il priera le Seigneur et non sa divinité précédente.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

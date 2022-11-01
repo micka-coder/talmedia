@@ -27,4 +27,4 @@ La Guemara commente : <b>Apparemment,</b> Rabbi Yoḥanan <b>soutient</b> que la
 A propos de la pureté et de l'impureté rituelles dans le Temple, la Guemara cite ce que <b>nous avons appris</b> dans une mishna <b>là :</b> Les Sages ont témoigné <b>à propos</b> du cas d'une <b>aiguille qui a été trouvée dans la viande</b> d'un animal qui a été conduit dans l'eau, <b>que le couteau et les mains</b> qui ont touché l'aiguille <b>sont rituellement purs mais que la viande est impure,</b> car l'aiguille aurait pu être impure. Si l'aiguille <b>a été trouvée dans les sécrétions</b> de l'estomac de l'animal, <b>tout est pur,</b> car les sécrétions ne transfèrent pas l'impureté à la viande. <b>Rabbi Akiva a dit : Nous avons eu le privilège</b> d'apprendre d'ici une nouvelle <i>halakha</i>, qui est <b>qu'il n'y a pas d'impureté des mains dans le Temple</b> car dans ce cas, les mains ne sont pas devenues impures au contact de l'aiguille.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

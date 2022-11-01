@@ -15,4 +15,4 @@ Le <i>baraita</i> présente un deuxième avis. <Rabbi Yonatan dit : Eretz</b> Yi
 Le <i>baraita</i> présente un troisième avis. <b>Rabbi Shimon ben Elazar dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

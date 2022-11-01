@@ -65,4 +65,4 @@
 <b>et Tes pas n'étaient pas connus</b> Les pas ne sont pas reconnaissables sur l'eau. [Le mot]  ועקבותיךָ  signifie trazes en vieux français, empreintes de pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

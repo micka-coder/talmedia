@@ -88,4 +88,4 @@
 <b>Et il n'a pas non plus attribué</b> Héb. נתן lit. a donné, attribuer l'inconvenance et l'injustice au Saint, béni soit-il, comme (I Sam. 18:8) "Ils ont attribué (נתנו) à David dix milliers, et à moi ils ont attribué (נתנו) les milliers."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

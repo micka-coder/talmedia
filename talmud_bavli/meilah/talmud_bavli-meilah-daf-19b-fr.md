@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelle est la raison de la première <i>tanna</i></b> dan
 <strong>MISHNA :</strong> Dans le cas où <b>quelqu'un a pris</b> pour son usage <b>une pierre consacrée ou une poutre, cette</b> personne <b>n'est pas responsable</b> de son <b>mauvais usage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

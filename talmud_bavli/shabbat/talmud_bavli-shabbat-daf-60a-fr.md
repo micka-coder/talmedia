@@ -39,4 +39,4 @@ Il arriva que <b>la sandale de l'un d'eux</b> était <b>renversée,</b> l'avant 
 Pour commémorer cette catastrophe survenue à cause d'une sandale à pointes, <b>à cette époque, ils ont dit : Une personne ne doit pas sortir avec une sandale à pointes.</b> La Gemara demande : <b>Si c'est le cas, un jour de semaine, elle doit également être interdite.</b> La Gemara répond : <b>Lorsque cet incident s'est produit, c'était le Chabbat.</b> Par conséquent, ils ont émis le décret interdisant la sandale à pointes spécifiquement dans des circonstances parallèles. La Gemara conteste : Si c'est le cas, <b>lors d'une fête</b> porter une sandale à pointes devrait <b>être autorisé. Pourquoi, </b> alors, <b>on apprend</b> dans la même mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

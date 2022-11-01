@@ -27,4 +27,4 @@ A l'égard de celui <b>qui dit à un autre : Entrer dans ta maison est <i>konam<
 <b>Rabba dit</b> que <b>Ze'eiri a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

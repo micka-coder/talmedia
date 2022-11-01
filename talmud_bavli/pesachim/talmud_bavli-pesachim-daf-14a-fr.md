@@ -48,4 +48,4 @@ Il a été dit dans la mishna que <b>Rabbi Akiva a ajouté : Dans</b> tous <b>le
 Si c'est le cas, <b>Qu'est-ce que</b> Rabbi Akiva <b>nous enseigne</b> par cette <i>halakha</i> ? Cet énoncé nous enseigne apparemment qu'en ce qui concerne un objet rituellement impur au <b>troisième</b> degré d'impureté, <b>il est permis de le rendre</b> impur au <b>second</b> degré d'impureté. Pourtant, <b>c'est</b> la même <i>halakha</i> que <b>celle</b> qui était enseignée par Rabbi Ḥanina le grand prêtre adjoint. Quelle est la nouveauté de la <i>halakha</i> enseignée par Rabbi Akiva ? <b>Rav Yehuda a dit : Ici, nous avons affaire à une lampe en métal,</b> qui a un statut halakhique unique. <b>Comme le dit le Miséricordieux :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara demande : <b>Mais</b> s'il s'agit d'une dispute entre <i>tanna'im</i>,
 Rava explique son objection : <b>Et si l'on dit</b> que l'on peut offrir des cadeaux d'un <b>prêtre même</b> à une <b>femme de prêtre,</b> car lorsque le verset mentionne un prêtre, il fait référence même à la fille d'un prêtre, <b>mais n'est-il pas écrit : "Et toute offrande de repas du prêtre sera entièrement fumée ; elle ne sera pas consommée" ?</b> Pourquoi, alors, le reste d'une offrande de repas de la fille d'un prêtre est-il consommé ? Ulla <b>lui a dit</b> en réponse : <b>Mon maître,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

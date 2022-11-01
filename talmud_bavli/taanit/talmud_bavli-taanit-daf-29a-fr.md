@@ -54,4 +54,4 @@ L'officier romain <b>alla le voir en privé, et lui dit : Si je te sauve</b> de 
 § La mishna enseigne que <b>à partir du moment où le mois d'<b>Av commence, on diminue</b> les actes de <b>réjouissance. Rav Yehuda, fils de Rav Shmuel bar Sheilat, a dit au nom du Rav : De même que lorsque Av commence on diminue les réjouissances, de même lorsque</b> le mois de <b>Adar commence, on augmente les réjouissances.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

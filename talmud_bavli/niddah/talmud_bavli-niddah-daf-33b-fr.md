@@ -63,4 +63,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> la dernière clause de la m
 La Gemara objecte : <b>Et que</b> le Grand Prêtre <b>dérive</b> que ses vêtements sont impurs <b>à cause de la salive d'un <i>am ha'aretz</i>,</b> qui transmet l'impureté. <b>Abaye a dit :</b> Ce cas impliquait <b>un sadducéen <i>ḥaver</i>,</b> qui était particulier en ce qui concerne les <i>halakhot</i> de pureté rituelle. <b>Rava dit : Es-tu en train d'assimiler un Sadducéen <i>ḥaver</i></b> à un homme qui <b>engage des rapports sexuels avec une femme en période de menstruation ?</b> Après tout, le Grand Prêtre était initialement préoccupé par le fait que le Sadducéen puisse engager des rapports sexuels avec sa femme alors qu'elle a encore ses menstruations. <b>Rava dit plutôt :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

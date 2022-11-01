@@ -24,4 +24,4 @@ La Guemara clarifie d'autres cas similaires non mentionnés dans la <i>baraita</
 Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Si un homme dit : Ceci est votre acte de divorce si je ne reviens pas <b>après la fête du pèlerinage,</b> alors le document n'est valable que <b>trente jours</b> après la fête. <b>Rabbi Ḥiyya est sorti</b> et a <b>enseigné</b> cette <i>halakha</i> en public <b>au nom de Rabbi</b> Yehuda HaNasi, <b>et ils l'ont louée.</b> Il l'a ensuite enseignée <b>au nom de la majorité,</b> comme une opinion non attribuée, <b>et ils ne l'ont pas louée. Apparemment, la <i>halakha</i> n'est pas en accord avec</b> cette décision. Par conséquent, les Sages n'ont pas fait l'éloge de Rabbi Ḥiyya lorsqu'il l'a enseigné comme s'il s'agissait d'une décision majoritaire, car cela l'aurait fait accepter comme <i>halakha</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

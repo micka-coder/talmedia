@@ -110,7 +110,7 @@
 <b>"Je suis malade"</b> A cause de cette nation, ce malheur m'est arrivé, car <b>Le peuple</b> Israël, qui est appelé peuple, qui habite à Jérusalem, sera pardonné du péché.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Malheur</b> A l'ennemi, que tu gâtes sans cesse, mais que tu n'es pas gâté, que tu traites sans cesse avec perfidie, mais que personne ne traite avec perfidie avec toi ou ne te gâche.
 <b>Quand tu auras fini</b> d'être un spoliateur, quand tu auras fini de spolier ceux sur qui il a été décrété d'être spolié par toi, tu seras spolié.
@@ -222,4 +222,4 @@
 <b>"Je suis malade"</b> A cause de cette nation, ce malheur m'est arrivé, car <b>Le peuple</b> Israël, qui est appelé peuple, qui habite à Jérusalem, sera pardonné du péché.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

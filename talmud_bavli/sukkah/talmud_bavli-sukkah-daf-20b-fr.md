@@ -24,4 +24,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Ḥananya a dit : L
 <b>Ulla a dit : Ces nattes des habitants de Meḥoza, si elles n'avaient pas leur mur,</b> c'est-à-dire leur bord retourné, <b>on</b> serait autorisé à <b>couvrir</b> une <i>sukka</i> <b>avec elles. Cette opinion est également enseignée</b> dans un <i>baraita</i> : <b>On</b> peut <b>toiler</b> la <i>sukka</i> <b>avec une natte ; et s'ils ont un mur, on</b> ne peut <b>pas toiser</b> une <i>sukka</i> avec <b>leur</b> car le bord retourné en fait un réceptacle susceptible d'impureté rituelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

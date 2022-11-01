@@ -57,4 +57,4 @@ La Gemara conteste : <b>Si c'est le cas,</b> l'inclusion de <b>sa grande sœur</
 La Guemara répond : <b>Oui,</b> il <b>en est effectivement ainsi;</b> la <i>halakha</i> à l'égard de la sœur aînée est dérivée du dénominateur commun de la mère et d'une vache. <b>Au contraire, pourquoi ai-je</b> besoin de la mention supplémentaire du verset de l'expression <b>"dans le lait de sa mère" ? Elle est nécessaire pour ce qui est enseigné</b> dans un <i>baraita</i> : Quand le verset dit : <b>"Dans le lait de sa mère", j'en ai</b> déduit <b>seulement</b> l'interdiction de cuire le chevreau <b>dans le lait de sa mère;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

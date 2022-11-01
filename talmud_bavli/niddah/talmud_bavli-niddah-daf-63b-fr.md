@@ -69,4 +69,4 @@ La Guemara demande : <b>Et pourquoi ai-je</b> besoin de <b>deux</b> déclaration
 Si <b>elle s'est écartée</b> de la norme <b>pour voir</b> l'écoulement du sang <b>le <b>vingtième jour</b> à trois reprises, il lui devient permis</b> d'avoir des rapports sexuels le <b>quinzième jour, et elle</b> a <b>établi pour elle-même</b> le vingtième jour comme jour de son cycle menstruel fixe, <b>comme une femme établit</b> un <b>cycle menstruel fixe seulement après l'avoir établi trois fois. Et</b> une femme <b>est purifiée du</b> cycle menstruel fixe existant,</b> en ce sens que les rapports sexuels sont permis ce jour-là, <b>seulement lorsqu'elle a été déplacée de</b> ce jour <b>trois fois.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara énonce sa question : <b>Accordé, selon celui qui dit</b> que cette 
 <b>Rami bar Ḥama soulève un dilemme : Quelle est</b> la <i>halakha</i> à l'égard de celui qui <b>est devenu impur pendant le terme complet</b> des jours réguliers de sa naziréité <b>mais</b> son impureté <b>n'a été connue de lui</b> qu'<b>après le terme complet</b> mais avant qu'il ne se rase ? Peut-être que <b>nous allons</b> selon sa <b>connaissance, et qu'il s'agit</b> d'un cas de <b>connaissance après le terme complet, ou</b> peut-être que la <i>halakha</i> n'est <b>pas</b> déterminée par le moment de sa prise de conscience mais par le moment réel de l'impureté, qui s'est produit pendant sa naziréité. La Guemara ajoute : <b>Et à propos de quelle</b> question ce dilemme a-t-il été soulevé ? C'était <b>en ce qui concerne</b> sa possible <b>négation</b> de la période qu'il a observée en tant que nazirite : Nie-t-il sa naziréité, ou est-il considéré comme ayant contracté l'impureté après l'achèvement de son terme, auquel cas il n'a pas besoin de recommencer sa naziréité ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

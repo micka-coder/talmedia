@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais du fait que la dernière clause</b> de cette même m
 <b>Au contraire,</b> cette compréhension doit être rejetée et nous devons plutôt dire que la mishna parle d'un cas où l'agneau pascal <b>est venu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

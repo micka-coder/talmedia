@@ -60,4 +60,4 @@ La mishna enseigne un fait similaire : <b>Depuis</b> l'époque <b>où les adult�
 <b>Depuis</b> le moment <b>où Yosei ben Yo'ezer de Tzereida et Yosei ben Yehuda de Jérusalem sont morts, les grappes ont cessé,</b> c'est-à-dire qu'ils étaient les derniers des grappes, comme l'explique la Gemara, <b>comme</b> il <b>est dit : "Il n'y a pas de grappe à manger, ni de figue primeur que mon âme désire"</b> (Michée 7, 1). La mishna poursuit dans la même veine : <b>Yoḥanan le Grand Prêtre a supprimé la déclaration de la dîme.</b> Après son époque, personne ne récitait le passage sur l'élimination de la dîme qui avait été dit auparavant à la fin d'un cycle de dîme de trois ans. <b>Il annula également</b> les actions des <b>éveilleurs et des grévistes</b> au Temple.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

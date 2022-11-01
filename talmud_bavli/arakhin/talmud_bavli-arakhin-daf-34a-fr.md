@@ -27,4 +27,4 @@ La Gemara demande : <b>Ces cas sont-ils</b> <b>comparables ? Ses choses sacrées
 Nous reviendrons vers toi, "Celui qui a vendu son champ"...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

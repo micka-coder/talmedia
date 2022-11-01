@@ -66,7 +66,7 @@ Par conséquent, <b>même si</b> la <i>tanna</i> de la mishna <b>s'accorde avec<
 <b>Comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Nazir</i> 6:1) : Comment celui dont le statut de lépreux est incertain doit-il apporter son offrande de culpabilité et son <i>log</i> d'huile le huitième jour de sa purification ? <b>Rabbi Shimon dit : Le jour suivant,</b> après ses sept jours de purification, <b>il apporte son offrande de culpabilité et son <i>log</i></b> d'huile.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Premier,</b> dans le passage traitant des holocaustes (voir Lévitique 1:3).
 
@@ -134,7 +134,7 @@ Par conséquent, <b>même si</b> la <i>tanna</i> de la mishna <b>s'accorde avec<
 <b>Comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Nazir</i> 6:1) : Comment celui dont le statut de lépreux est incertain doit-il apporter son offrande de culpabilité et son <i>log</i> d'huile le huitième jour de sa purification ? <b>Rabbi Shimon dit : Le jour suivant,</b> après ses sept jours de purification, <b>il apporte son offrande de culpabilité et son <i>log</i></b> d'huile.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Premier,</b> dans le passage traitant des holocaustes (voir Lévitique 1:3).
 
@@ -202,4 +202,4 @@ Par conséquent, <b>même si</b> la <i>tanna</i> de la mishna <b>s'accorde avec<
 <b>Comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Nazir</i> 6:1) : Comment celui dont le statut de lépreux est incertain doit-il apporter son offrande de culpabilité et son <i>log</i> d'huile le huitième jour de sa purification ? <b>Rabbi Shimon dit : Le jour suivant,</b> après ses sept jours de purification, <b>il apporte son offrande de culpabilité et son <i>log</i></b> d'huile.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara clarifie : <b>Qu'est-ce que</b> le <i>tanna</i> <b>tient ? S'il tient<
 La Gemara répond : <b>En fait,</b> le <i>tanna</i> <b>soutient</b> qu'une <b>fusion des</b> <b>portions de la Torah est écrite ici, et de droit</b> il <b>aurait dû exiger des juges experts</b> pour juger les cas d'admissions et de prêts <b>aussi. Et ce</b> fait, à savoir, <b>que nous n'exigeons pas de juges experts</b> pour ces cas, est <b>du au raisonnement</b> de Rabbi Ḥanina, comme le dit Rabbi Ḥanina : Selon la loi de la Torah, les deux</b> cas de <b>droit monétaire et</b> cas de <b>droit du capital</b> nécessitent une <b>enquête et un interrogatoire</b> des témoins afin de déterminer de manière concluante le moment, le lieu et les circonstances de l'incident, dans le but de trouver toute contradiction possible dans le témoignage des témoins.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

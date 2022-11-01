@@ -36,4 +36,4 @@ Le <i>baraita</i> continue : <b>L'ordre des Ecrits</b> est : <b>Ruth et le livre
 Le <i>baraita</i> s'intéresse maintenant aux auteurs des livres bibliques : <b>Et qui a écrit</b> les livres de la Bible ? <b>Moses a écrit son propre livre,</b> c'est-à-dire la Torah, <b>et la portion de Balaam</b> dans la Torah, <b>et</b> le livre de <b>Job. Josué a écrit son propre livre et huit versets dans la Torah,</b> qui décrivent la mort de Moïse. <b>Samuel a écrit son propre livre,</b> le livre des <b>Juges, et</b> le livre de <b>Ruth. David a écrit le livre des Psaumes par l'intermédiaire de dix anciens</b> des générations précédentes, assemblant un recueil qui comprenait des compositions d'autres personnes en plus des siennes. Il a inclus des psaumes dont l'auteur était <b>Adam le premier</b> homme, <b>Melchisédek</b> roi de Salem, <b>Abraham, Moïse, Héman, Jeduthun et Asaph,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

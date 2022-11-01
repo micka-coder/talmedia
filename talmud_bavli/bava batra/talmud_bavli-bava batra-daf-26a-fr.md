@@ -39,4 +39,4 @@ La Guemara raconte encore que <b>Rav Pappa avait ces palmiers</b> qui se trouvai
 Rav Pappa lui a <b>dit : Cette déclaration</b> ne s'applique que jusqu'à <b>trois</b> coudées, alors que le <b>Maître creuse</b> et coupe <b>plus</b> que trois. Rav Huna lui <b>dit : Je suis</b> en train de creuser des <b>citernes, des fossés et des grottes, comme nous l'avons appris</b> dans la mishna : S'il <b>creusait une citerne, un fossé ou une grotte, il peut couper vers le bas</b> normalement <b>et le bois</b> des racines <b>est à lui. Rav Pappa a dit : Je lui ai dit toutes</b> les preuves que j'ai pu trouver, <b>mais je n'ai pas pu</b> le convaincre <b>qu'il</b> que j'avais raison,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

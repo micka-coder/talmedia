@@ -51,4 +51,4 @@ La Guemara résout la difficulté : <b>C'est ce que</b> Rabbi Yehuda HaNasi <b>d
 <b>Rav Pineḥas a soulevé une objection</b> de ce qui est enseigné dans une <i>baraita</i> : <b>Tous ceux</b> à propos de <b>quels les Sages <b>ont dit : Il est permis de se raser</b> et de se couper les cheveux <b>les jours intermédiaires de la <b>Fête, il est</b> également <b>permis de se raser</b> et de se couper les cheveux <b>pendant les jours de son deuil. Mais</b> de ceci il résulte que <b>celui à qui il est interdit de se raser</b> et de se couper les cheveux <b>les jours intermédiaires d'<b>une Fête est</b> également <b>interdit de se raser</b> et de se couper les cheveux <b>pendant les jours de son deuil.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

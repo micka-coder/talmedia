@@ -42,4 +42,4 @@ La Gemara répond : <b>Là,</b> Rabbi Asi faisait référence à un cas <b>où l
 La Guemara ajoute : <b>Cela est également enseigné</b> dans une <i>baraita</i> : <b>Un juif peut placer de la viande sur</b> des <b>brais chauds et</b> laisser <b>un gentil venir et la retourner</b> au besoin <b>jusqu'à ce que le juif revienne</b> <b>de la synagogue ou de la salle d'étude, et</b> le juif n'a pas à <b>se préoccuper</b> de l'interdiction de manger la cuisine des gentils. De même, une <b>femme juive peut mettre une casserole sur le poêle et</b> laisser venir <b>une femme gentille</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Rabbi Asi <b>a dit à</b> Rabbi Yirmeya : Je veux dire <b>comme la séparation d
 <b>Dîtes-vous</b> que c'est <b>selon l'ordonnance d'une offrande pour le péché d'un animal, ou</b> peut-être <b>que c'est seulement selon l'ordonnance d'une offrande pour le péché d'un oiseau ?</b> La Gemara répond : <b>Lorsqu'il est dit</b> à propos de l'holocauste d'oiseau apporté en offrande : <b>"Et</b> le prêtre <b>l'apportera</b> à l'autel" (Lévitique 1:15), ce qui signifie qu'il sera sacrifié d'une manière unique, <b>le verset a fait la distinction entre une offrande pour péché d'oiseau et un holocauste d'oiseau. Et</b> si c'est le cas, <b>comment je réalise</b> le sens de l'expression <b>"selon l'ordonnance"?</b> Elle signifie <b>selon l'ordonnance d'une offrande pour le péché d'un animal ; tout comme une offrande pour le péché d'un animal ne vient que</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

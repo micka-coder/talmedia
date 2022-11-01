@@ -84,4 +84,4 @@ La Guemara demande : <b>Pour quelle question</b> Rabbi Meir et Rabbi Yehuda sont
 <b>Rav Ika, fils de Rav Ami, a dit : Et</b> Rabbi Meir et Rabbi Yehuda <b>suivent tous deux leurs</b> lignes de <b>raisonnement, comme il est enseigné</b> dans une mishna (<i>Terumot</i> 7:2) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

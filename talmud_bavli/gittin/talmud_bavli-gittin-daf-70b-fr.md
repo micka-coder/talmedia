@@ -60,4 +60,4 @@ La Gemara demande : <b>Mais que</b> l'on craigne que peut-être des <b>mouvement
 La Gemara demande : <b>Quels sont ces</b> sujets que le tribunal lui demande ? <b>Si l'on dit</b> que le tribunal lui demande s'il veut un <b>manteau chaud</b> en été ou un <b>drap fin</b> en saison des pluies, et qu'il répond que oui, cela ne peut servir de preuve de ses capacités intellectuelles, car ce qui suit est possible : <b>Qu'il y ait</b> une inquiétude</b> qu'il ait <b>peut-être des frissons</b> alors que c'est l'été et qu'il ait besoin d'un manteau chaud. <b>Alternativement,</b> que <b>la chaleur l'afflige</b> pendant la saison des pluies et qu'il a besoin d'un drap fin, auquel cas sa réponse ne démontre pas un manque de compréhension.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

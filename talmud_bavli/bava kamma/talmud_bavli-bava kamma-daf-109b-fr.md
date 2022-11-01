@@ -48,7 +48,7 @@ Le <i>baraita</i> poursuit en rétorquant que cette déduction logique n'est pas
 Le <i>baraita</i> continue : <b>Et d'où vient</b> que l'accomplissement du <b>service</b> de l'offrande,</b> c'est-à-dire la consommation de la viande de l'animal qu'il sacrifie, <b>et</b> la peau de l'offrande, lui appartiennent ? Le verset dit : "Et les choses sanctifiées de chacun seront à lui"</b> (Nombres 5:10). <b>Comment cela ? Si</b> ce prêtre <b>était souillé, il donne</b> son offrande <b>à</b> un autre <b>prêtre qui est de la même garde sacerdotale</b> que lui pour la sacrifier, <b>mais l'accomplissement de son service et sa peau lui appartiennent.</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 La Guemara remet en question l'explication de Rava : <b>Par déduction</b> s'ensuit-il <b>que Rabbi Yosei HaGelili considère</b> qu'il <b>peut pardonner</b> la restitution de l'objet volé <b>même à lui-même ? Mais</b> si tel est le cas, le paiement pour le <b>vol d'un converti</b> qui meurt sans héritiers, au sujet duquel le Miséricordieux dit</b> qu'il exige de <b>donner</b> le remboursement <b>aux prêtres, comment pouvez-vous trouver ces</b> circonstances si dans chaque cas où l'on vole un converti et que celui-ci meurt, le voleur peut pardonner la restitution de l'objet à lui-même ?
 
@@ -98,4 +98,4 @@ Le <i>baraita</i> poursuit en rétorquant que cette déduction logique n'est pas
 Le <i>baraita</i> continue : <b>Et d'où vient</b> que l'accomplissement du <b>service</b> de l'offrande,</b> c'est-à-dire la consommation de la viande de l'animal qu'il sacrifie, <b>et</b> la peau de l'offrande, lui appartiennent ? Le verset dit : "Et les choses sanctifiées de chacun seront à lui"</b> (Nombres 5:10). <b>Comment cela ? Si</b> ce prêtre <b>était souillé, il donne</b> son offrande <b>à</b> un autre <b>prêtre qui est de la même garde sacerdotale</b> que lui pour la sacrifier, <b>mais l'accomplissement de son service et sa peau lui appartiennent.</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

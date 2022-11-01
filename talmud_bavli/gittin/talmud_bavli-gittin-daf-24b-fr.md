@@ -51,4 +51,4 @@ La Gemara demande : <b>Et pourquoi ai-je</b> besoin de <b>la dernière clause</b
 <b>En Occident,</b> Eretz Yisrael, <b>on dit au nom de Rabbi Elazar : </b> Si <i>ḥalitza</i> a été accomplie sur le <b>pied gauche</b> du <i>yavam</i>, <b>ou</b> à <b>nuit,</b> ces actes de <i>ḥalitza</i> sont <b>invalides, et</b> ils <b>disqualifient néanmoins</b> le <i>yevama</i> de contracter un mariage lévirat avec les autres frères.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

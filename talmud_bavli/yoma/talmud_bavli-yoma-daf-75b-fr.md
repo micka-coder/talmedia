@@ -51,4 +51,4 @@ De plus, en ce qui concerne la manne, le verset énonce la plainte d'Israël : <
 <b>Alternativement, "L'homme [<i>ish</i>] a mangé le pain des puissants"</b> (Psaumes 78:25) ;
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

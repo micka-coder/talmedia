@@ -15,4 +15,4 @@ C'est <b>comme cela est enseigné</b> dans une <i>baraita</i> : Le verset dit : 
 La Guemara répond : <b>Retirez le bois de</b> la <i>baraita</i> <b>ici,</b> car il n'est pas exclu par le terme "et toute offrande de repas de ta part". La Gemara demande : <b>Mais</b> alors, l'expression dans <b>le verset</b> "et toute offrande de repas de toi" est <b>pour exclure quoi ? Si</b> elle sert <b>à exclure le sang,</b> ceci est <b>dérivé</b> de la suite du verset, qui dit : <b>"De ton offrande de repas"</b>, comme l'explique la suite de la <i>baraita</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

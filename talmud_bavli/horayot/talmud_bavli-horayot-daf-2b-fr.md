@@ -51,4 +51,4 @@ La Gemara rejette cette idée : <b>Si c'est le cas, pourquoi</b> le <i>tanna</i>
 La Gemara demande : <b>Maintenant, nous avons appris les deux</b> <i>baraitot</i> <b>non attribuées. D'où</b> peut-on établir <b>que</b> la <i>tanna</i> de <b>la première</b> <i>baraita</i> est <b>Rabbi Yehuda et</b> la <i>tanna</i> de <b>la seconde</b> <i>baraita</i> est <b>les rabbins ? Dites le contraire.</b> La Gemara répond : <b>Qui avez-vous entendu qui interprète les termes d'exclusion</b> <b>de cette manière ? C'est Rabbi Yehuda, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

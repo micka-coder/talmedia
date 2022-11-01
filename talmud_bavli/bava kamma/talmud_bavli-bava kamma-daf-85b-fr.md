@@ -48,4 +48,4 @@ Rava poursuit : <b>Et si l'on dit</b> comme résolution de ce dilemme que <b>pui
 <b>Venez</b> et <b>entendez</b> une résolution de ce dilemme à partir d'une mishna (87a) : <b>Quelqu'un qui frappe son père ou sa mère et ne leur a pas causé</b> une contusion,</b> et qui n'est donc pas passible de la peine capitale imposée par le tribunal, qui est la sanction de celui qui cause une contusion à son parent, <b>et celui qui blesse un autre à Yom Kippour,</b> et qui est donc passible de l'excision du Monde-à-Venir [<i>karet</i>] et passible de la peine capitale imposée par le tribunal,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

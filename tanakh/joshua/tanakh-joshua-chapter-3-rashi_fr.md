@@ -66,4 +66,4 @@
 <b>Fermement</b> Ils étaient placés fermement, exactement en face l'un de l'autre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara répond : Le <i>baraita</i> ne peut pas faire référence à un tel ca
 <b>Si l'on dit</b> qu'il s'agit de l'<b>incertitude</b> quant à savoir si l'un des deux jours de Roch HaShana est <b>un jour de semaine</b> ou <b>une Fête,</b> cela est irréalisable : <b>Maintenant</b> que la sonnerie du shofar <b>passe</b> la <b>Fête définie</b> de Rosh HaShana, <b>est-il nécessaire</b> d'enseigner qu'elle passe outre un jour à l'égard duquel il est <b>incertain</b> qu'il s'agisse d'une <b>Fête</b> ou d'un <b>jour de semaine ? </b> C'est-à-dire que si l'incertitude porte sur la Fête elle-même, alors ce cas ne devrait avoir aucune incidence sur la <i>halakha</i> concernant l'obligation de couvrir le sang d'un <i>koy</i> lors d'une Fête, puisque cette dernière a lieu lors d'une Fête définie.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

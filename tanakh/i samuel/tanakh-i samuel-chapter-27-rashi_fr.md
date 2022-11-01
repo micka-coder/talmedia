@@ -26,4 +26,4 @@
 <b>Où avez-vous fait votre raid ? </b> Le '<span>ל</span>' est interchangeable avec un '<span>נ</span>' [donc le mot <span>אֶל</span>=<span>אָן</span> qui signifie 'où'], comme dans "il prépara une grande chambre [<span>נִשְׁכָּה</span>],"<sup>8</sup><i class="footnote">Nechemyoh 13 : 7. </i> dans le Livre d'Esdras, signifiant l'équivalent de <span>לִשְׁכָּה</span> [=chambre].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

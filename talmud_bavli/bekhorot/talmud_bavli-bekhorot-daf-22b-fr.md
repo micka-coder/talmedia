@@ -9,4 +9,4 @@
 <b>Et il est enseigné à cet égard :</b> Concernant <b>ces</b> cent <i>se'a</i> de produits <b>non sacrés</b>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -83,4 +83,4 @@
 <b>Et je ne laisserai plus</b> l'un d'entre eux en exil.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

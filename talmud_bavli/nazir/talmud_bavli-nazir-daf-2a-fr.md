@@ -42,4 +42,4 @@ De même, il est enseigné dans une autre mishna (<i>Bava Batra</i> 108a) : <b>I
 <b>Cependant,</b> il existe une justification quant au moment où le <i>tanna</i> emploie chaque style. <b>Il y a,</b> dans les passages concernant les combustibles que l'on peut utiliser pour allumer la lampe de Chabbat, les matériaux que l'on peut utiliser pour isoler une casserole la veille de Chabbat, et les objets avec lesquels une femme peut sortir le Chabbat sur le domaine public, <b>lorsque c'est</b> l'interdiction <b>propre</b> de l'individu qui est discutée, le <i>tanna</i> <b>explique</b> d'abord les cas relatifs à l'interdiction <b>propre de l'individu. </Par contre, <b>en ce qui concerne</b> la mishna qui traite d'un <b>animal</b> transporté dans le domaine public le Chabbat, <b>où l'interdiction vient par le biais</b> de l'<b>animal,</b> le <i>tanna</i> <b>explique</b> ce qui est <b>permis en premier.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

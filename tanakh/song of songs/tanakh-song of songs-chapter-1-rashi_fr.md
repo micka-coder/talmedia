@@ -79,4 +79,4 @@
 <b>Nos panneaux. </b> Je ne sais pas si ce  רָהִיטֵנוּ  est un terme faisant référence aux panneaux ou un terme faisant référence aux barres, mais je sais qu'également dans le langage de la Mishna, nous avons appris, "les  רָהִיטֵי<sup>67</sup><i class="footnote">Le texte de la Mishna auquel se réfère Rachi tel que nous l'avons ne mentionne pas du tout  רהיטי , le texte dit plutôt : les  אבנות  [pierres] de la maison d'une personne et les  קורות  [poutres] de sa maison, témoignent contre elle. " Cependant, le texte que Rashi avait [רהיטי ביתו של אדם] se trouve dans Dikdukei Sofrim et aussi dans le Sefer Hashoroshim de Radak. </i> [Les panneaux] de la maison d'une personne témoignent contre elle."<sup>68</sup><i class="footnote">Masehet Chagigah 16a. </i> <sup>69</sup><i class="footnote">Alternativement,    signifie "hâtez-vous" en araméen. Le targum pour  רהט  [=run] est "  רץ  ", voir Bereshit 18:7. Il symbolise donc le Beit Hamikdash que le roi Shlomo a hâté et achevé en sept ans. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

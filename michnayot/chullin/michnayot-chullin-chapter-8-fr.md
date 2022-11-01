@@ -17,5 +17,5 @@ Le lait dans l'estomac [d'un animal] d'un païen ou [dans l'estomac] d'une néve
 ### michna 6
 À certains égards, l'interdiction de la graisse est plus stricte que l'interdiction du sang, et à certains égards, l'interdiction du sang est plus stricte que l'interdiction de la graisse. L'interdiction de la graisse est plus stricte, en ce que la graisse est soumise à la loi du sacrilège, et on est obligé sur elle pour le piggul, le notar, et l'impureté, ce qui n'est pas le cas du sang. Et l'interdiction du sang est plus stricte, car elle s'applique au bétail, aux animaux sauvages et aux volailles, qu'ils soient propres ou impurs ; mais l'interdiction de la graisse ne s'applique qu'au bétail propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

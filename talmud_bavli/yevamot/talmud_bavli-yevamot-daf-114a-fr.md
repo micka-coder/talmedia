@@ -48,4 +48,4 @@ La Guemara explique : <b>Et</b> Abba Shaul <b>soutient</b> que sucer directement
 La Guemara ajoute : Et ces trois cas <b>sont nécessaires,</b> malgré le fait qu'ils enseignent apparemment la même <i>halakha</i>, c'est-à-dire que les adultes ne doivent pas donner aux mineurs des aliments interdits. <b>Aussi,</b> si le <i>tanna</i> <b>nous avait enseigné</b> uniquement le cas des <b>créatures répugnantes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

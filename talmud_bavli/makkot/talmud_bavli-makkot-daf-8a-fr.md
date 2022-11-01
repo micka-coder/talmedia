@@ -51,4 +51,4 @@ La Gemara demande : Est-ce <b>pour dire que</b> le terme <b>"et trouve" indique<
 Rava répond : <b>Là, c'est différent, car le verset précise</b> à l'égard de celui qui est impur avec l'impureté communiquée par un cadavre :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

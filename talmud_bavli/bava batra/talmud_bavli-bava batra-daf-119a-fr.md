@@ -24,4 +24,4 @@ Rabbi Ḥideka continue en citant Rabbi Shimon HaShikmoni : <b>Et</b> la Torah <
 Rabbi Ḥideka continue en citant Rabbi Shimon HaShikmoni : <b>Et Moïse notre maître</b> savait pareillement que le</b> collecteur de bois,</b> qui ramassait du bois le Chabbat (voir Nombres 15:32-36), devait être puni <b>par la mort, comme il est dit : "Quiconque le profane sera mis à mort"</b> (Exode 31:14), <b>mais il ne savait pas par quelle peine de mort</b> le ramasseur de bois <b>devait mourir. Et la</b> Torah <b>portion</b> concernant la punition <b>du</b> ramasseur de bois était apte à avoir été écrite par</b> Dieu initiant un commandement à <b>Moses,</b> pour enseigner quelle forme de peine capitale imposée par le tribunal est administrée à celui qui viole Shabbat. <b>Mais</b> le ramasseur de bois fut</b> déclaré <b>coupable, et</b> la portion fut <b>écrite à travers</b> l'incident le concernant.</b> Ceci est <b>pour vous enseigner</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

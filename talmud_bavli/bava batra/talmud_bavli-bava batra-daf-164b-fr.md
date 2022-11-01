@@ -48,4 +48,4 @@ La Gemara demande : <b>Accordé, là,</b> dans le premier épisode, <b>il y a un
 <b>Rav Amram dit</b> que <b>Rav dit :</b> Il y a <b>trois péchés dont une personne n'est pas épargnée chaque jour.</b> Ce sont : Avoir des <b>pensées pécheresses, et</b> commettre des péchés concernant la <b>délibération dans la prière, et</b> prononcer des <b>discours malveillants.</b> La Gemara demande : Peut-il <b>entrer dans votre esprit</b> qu'une personne ne peut pas passer la journée sans proférer <b>des paroles malveillantes ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

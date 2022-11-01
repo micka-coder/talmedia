@@ -33,4 +33,4 @@ La Guemara demande : <b>Si</b> la déclaration de Rav est <b>conforme</b> à l'o
 La Guemara analyse cette <i>baraita</i>. Elle affirme que <b>s'il a épousé</b> la femme qu'il a lui-même violée ou séduite, <b>il est marié. Rav Huna dit</b> que <b>Rav a dit : Et il doit divorcer</b> d'elle <b>avec un acte de divorce.</b> La Gemara demande : <b>Mais</b> considérez <b>ce que</b> le <i>baraita</i> <b>enseigne : S'il l'a épousée</b>, <b>il est marié.</b> Puisqu'il est évident que le mariage est techniquement valide, il faut dire qu'il leur est permis de rester mariés. <b>Rav Aḥa bar Ya'akov a dit :</b> Non, cela signifie <b>dire</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

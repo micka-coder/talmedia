@@ -21,4 +21,4 @@ Du verset : "Si quelqu'un fait un serment clair avec ses lèvres, pour faire le 
 La Gemara demande : <b>Comment peut-on</b> ces cas</b> être comparés ? Là, puisqu'il a initialement mangé</b> l'article interdit <b>et</b> seulement <b>ensuite fait un serment</b> disant qu'il n'a pas mangé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

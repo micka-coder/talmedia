@@ -78,4 +78,4 @@ La confiance (מבטח-) est un soutien robuste et solide. Néanmoins, s'abriter
 [21] <b>Je te remercierai car tu m'as exaucé</b> A partir de là , David, Samuel, Jessé et les frères de David ont récité cela, comme cela est décrit dans [le chapitre intitulé] " Les veilles de Pàques " (Pes. 119a). Celui qui a dit ceci n'a pas dit l'autre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -72,7 +72,7 @@ Le Rav Naḥman clarifie : <b>De quelle</b> manière ce prêtre a-t-il commis un
 <b>Rav Naḥman dit</b> que <b>son offrande est un arôme agréable</b> au Seigneur, <b>parce qu'il n'a pas effectué de service</b> pour une idole qui est considérée comme un rite sacrificiel dans le Temple. Et <b>Rav Sheshet dit</b> que <b>son offrande n'est pas un arôme agréable</b> au Seigneur,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais</b> selon l'avis de Rabba bar Avuh, <b>pourquoi</b> le vendeur peut-il donner automatiquement à l'acquéreur la maison tombée ou l'esclave mort ? <b>Laissons-le voir quelle</b> maison <b>est tombée,</b> ou <b>quel</b> esclave <b>mort,</b> car selon Rabba bar Avuh, la vente doit s'appliquer à la maison ou à l'esclave qui avait le plus de valeur au moment de la vente.
 
@@ -146,4 +146,4 @@ Rav Naḥman clarifie : <b>De quelle</b> manière ce prêtre a-t-il commis une i
 <b>Rav Naḥman dit</b> que <b>son offrande est un arôme agréable</b> au Seigneur, <b>parce qu'il n'a pas effectué de service</b> pour une idole qui est considérée comme un rite sacrificiel dans le Temple. Et <b>Rav Sheshet dit</b> que <b>son offrande n'est pas un arôme agréable</b> au Seigneur,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

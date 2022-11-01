@@ -54,4 +54,4 @@ Dans le cas où ces femmes <b>étaient veuves ou divorcées,</b> si c'était <b>
 <b>Selon Rabbi Meir, qui a dit</b> qu'une femme qui est <b>réservée pour un rapport sexuel invalide,</b> c'est-à-dire interdit, <b>par la loi de la Torah ne peut pas prendre part</b> au <i>teruma</i>, <b>celle-ci ne peut pas non plus prendre part</b> au <i>teruma</i>, car il est interdit par la loi de la Torah qu'elle ait un rapport sexuel avec un homme aux testicules écrasés. <b>Selon Rabbi Elazar et Rabbi Shimon, qui disent</b> qu'une femme qui est <b>réservée pour un rapport sexuel invalide par la loi de la Torah</b> <b>peut prendre part</b> au <i>teruma</i> jusqu'à ce qu'elle s'engage effectivement dans l'acte interdit du rapport sexuel,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

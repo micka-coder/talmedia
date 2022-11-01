@@ -27,4 +27,4 @@ La Guemara s'interroge sur cette <i>baraïta</i> : <b>Et que</b> la <i>tanna</i>
 Rav Ashi pose une question rhétorique : <b>Mais pourquoi</b> il ne peut pas annuler selon l'avis de Rabbi Meir ? <b>Que</b> son silence par erreur soit <b>comme</b> celui de <b>celui qui se tait pour ennuyer,</b> qui, selon Rabbi Ḥanina, peut annuler le vœu ultérieurement. Il s'agit là d'une <b>réfutation concluante</b> de l'opinion de Rabbi Ḥanina.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

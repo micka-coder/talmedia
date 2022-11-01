@@ -106,5 +106,5 @@
 ### passuk 43
 <b>Magdiel.</b> C'est Rome. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

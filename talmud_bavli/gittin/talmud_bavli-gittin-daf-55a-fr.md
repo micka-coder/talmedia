@@ -48,4 +48,4 @@ La Guemara demande : <b>Mais qu'elle participe à un <i>teruma</i></b> qui est d
 C'est une explication, <b>mais Rav Yehuda dit : Selon la loi de la Torah, que l'on sache ou que l'on ne sache pas</b> que l'offrande pour le péché a été obtenue par vol, <b>elle effectue l'expiation</b> pour le voleur qui la sacrifie. <b>Quelle est la raison</b> de ceci ? Le <b>désespoir</b> du propriétaire de récupérer un objet qui lui a été volé <b>par lui-même</b> permet au voleur de <b>acquérir</b> l'objet volé. Une fois que le propriétaire désespère de récupérer l'objet volé, celui-ci devient la propriété du voleur et il peut le consacrer. Par conséquent, l'offrande a été sacrifiée de manière appropriée et elle expie le vol.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

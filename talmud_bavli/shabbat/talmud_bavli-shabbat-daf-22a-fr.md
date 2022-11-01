@@ -24,4 +24,4 @@ La Guemara relate que <b>ils ont soulevé un dilemme devant Rabbi Yehoshua ben L
 <b>Rav Avya a soulevé une objection</b> de ce qui a été enseigné dans une <i>Tosefta</i> : <b>Une <i>sela</i> de</b> ...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

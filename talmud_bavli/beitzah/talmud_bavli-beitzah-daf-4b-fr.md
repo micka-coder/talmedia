@@ -39,4 +39,4 @@ La Gemara demande : <b>Et maintenant que nous connaissons la détermination du</
 § <b>Il a été</b> encore <b>établi</b> que les <i>amora'im</i> ont discuté d'un problème similaire, en ce qui concerne les <b>deux jours de Fête de Rosh HaShana. Rav et Shmuel ont tous deux dit :</b> Un œuf <b>déposé ce</b> jour-là <b>est interdit ce jour-là,</b> car les deux jours de Roch HaShana ont un statut particulier. <b>Comme nous l'avons appris</b> dans une mishna (<i>Rosh HaShana</i> 30b) : <b>Initialement,</b> le tribunal <b>accepterait le témoignage de</b> témoins qui ont vu la nouvelle lune pour établir le premier jour du <b>nouveau <b>mois.</b> Ce système serait également utilisé pour le premier de Tishrei, qui est Rosh HaShana, et le tribunal accepterait ce témoignage sur <b>tout</b> le trentième <b>jour</b> du mois d'Elul. <b>Une fois, les témoins se sont attardés</b> et n'ont réussi <b>à arriver</b> que lorsque l'heure était tardive,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

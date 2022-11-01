@@ -36,4 +36,4 @@ La Gemara explique : Maintenant <b>Ces disqualifications</b> sont-elles <b>déri
 La Guemara analyse la <i>baraïta</i> : <b>Attendu, la première clause</b> de la <i>baraita</i> est claire : <b>Rabbi Shimon</b> se conforme <b>à son</b> raisonnement,</b> cité dans la mishna, selon lequel la naissance par césarienne a le statut halakhique de l'accouchement ; <b>et les rabbins,</b> c'est-à-dire, le premier <i>tanna</i>, se conforment <b>à leur</b> ligne de <b>raisonnement,</b> que la naissance par césarienne n'a pas le statut halakhique de l'accouchement. <b>Mais</b> dans <b>cette dernière clause, à propos de quelle</b> question <b>ils sont en désaccord ? Ravina dit :</b> La dernière clause fait référence à un cas <b>où la progéniture a émergé par césarienne,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

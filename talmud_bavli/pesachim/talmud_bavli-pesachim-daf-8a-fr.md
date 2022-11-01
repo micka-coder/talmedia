@@ -54,4 +54,4 @@ La Guemara interroge la <i>halakha</i> dans la <i>Tosefta</i> sous un angle diff
 La Gemara demande : <b>Et dans un cas comme celui-là,</b> où il y a un intérêt personnel mêlé à l'accomplissement d'une mitzva, n'est-elle pas <b>n'empêche pas</b> considérée comme <b>une mitzva ? Mais n'a-t-on pas enseigné</b> dans une <i>baraita</i> que <b>celui qui dit :</b> je contribue <b>cette <i>sela</i> à la charité pour que mon fils vive, ou</b> s'il dit : j'accomplis la mitzva pour que <b>je sois un</b> destiné au <b>Monde-à-Venir,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

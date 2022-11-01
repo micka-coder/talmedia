@@ -60,4 +60,4 @@ Le verset dit : <b>Car Mardochée le Juif était le second du roi Assuérus, gra
 <b>Rabba a dit</b> que <b>Rav Yitzḥak bar Shmuel bar Marta a dit : L'étude de la Torah est</b> plus grande et <b>plus</b> importante <b>que d'honorer son père et sa mère,</b> et une preuve de cela est <b>que pendant toutes ces années que notre père Jacob a passées dans la maison d'Eber</b> et y a étudié la Torah <b>il n'a pas été puni</b> pour avoir négligé d'accomplir la mitzva d'honorer ses parents. <b>Comme l'a dit le Maître :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

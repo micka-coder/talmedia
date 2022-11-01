@@ -90,4 +90,4 @@ Rava <b>dit à</b> Abaye : <b>Comme il est enseigné</b> dans un <i>baraita</i> 
 La Guemara objecte : <b>Selon</b> l'avis de <b>Rabbi Yoḥanan, qui dit que la flexion de sa taille est</b> considérée comme <b>une action, la torsion de</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

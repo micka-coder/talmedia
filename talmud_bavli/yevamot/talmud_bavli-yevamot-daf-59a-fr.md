@@ -42,4 +42,4 @@ La Guemara demande : <b>A propos de quoi sont-ils en désaccord?</b> La Guemara 
 La Guemara clarifie : <b>Quelles sont les circonstances</b> de cette <i>halakha</i> ? <b>Si nous disons</b> que le Grand Prêtre l'a violée en se livrant à des <b>rapports typiques</b>, <b>pourquoi</b> la <i>baraita</i> <b>spécifique</b> déclare-t-elle qu'elle lui est interdite <b>parce que</b> elle est <b>veuve ? Qu'il dérive</b> cette <i>halakha</i> <b>du</b> fait <b>qu'elle est</b> maintenant <b>une non-vierge. Plutôt,</b> n'est-ce pas <b>n'est-ce pas</b> qu'il a eu des rapports <b>atypiques</b> avec elle, <b>et du fait</b> qu'elle est <b>veuve, oui,</b> c'est la raison pour laquelle elle est interdite, mais <b>du fait</b> qu'elle est <b>non vierge, non,</b> ce n'est pas la raison pour laquelle elle est interdite ? Ceci indique qu'une femme qui a eu des rapports sexuels d'une manière atypique n'est pas considérée comme non vierge et n'est pas disqualifiée pour épouser un Grand Prêtre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

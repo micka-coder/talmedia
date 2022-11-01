@@ -70,5 +70,5 @@
 ### passuk 26
 <b>Chatzarmaves.</b> Il a été appelé ainsi à cause de sa ville. Ce sont des paroles de Aggadah. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Le Rav Ḥama bar Yosef lui-même n'est pas d'accord : <b>Et je dis</b> que <b>c
 Rav Ḥama bar Yosef lui-même n'est pas d'accord : <b>Et je dis</b> que <b>ce n'est pas une réponse trompeuse</b>. <b>Bien que</b> le pavillon de bain ne serait <b>pas rendu interdit</b> en tant qu'objet de culte idolique en raison d'une désignation verbale, <b>il aurait au moins</b> le statut de <b>parure</b> d'un objet de culte idolique, ce qui est également interdit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

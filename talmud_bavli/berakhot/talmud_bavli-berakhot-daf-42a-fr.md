@@ -30,4 +30,4 @@ De meme, la Guemara relate : <b>Rava et Rabbi Zeira se trouvaient</b> a venir <b
 Une <i>halakha</i> supplementaire est citee : Si plusieurs personnes <b>etaient assises</b> pour manger non dans le cadre d'un repas commun, <b>chacun recite une benediction pour lui-meme. Si elles etaient allongees</b> sur des lits pour manger, ce qui en fait un repas commun, <b>une personne recite une benediction au nom de tous.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

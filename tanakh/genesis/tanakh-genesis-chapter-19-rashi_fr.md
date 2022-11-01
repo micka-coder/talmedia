@@ -141,5 +141,5 @@ Le mot הִמָּלֵט signifie se dérober. De même, chaque forme de הַמְ
 ### passuk 37
 <b>Moav.</b> Cette [fille] qui n'était pas pudique a déclaré ouvertement qu'il est de son père, mais, la plus jeune l'a nommé par euphémisme et a été récompensée pour cela à l'époque de Moshé, comme il est dit à propos des Amonites : " Ne les incite pas " - de quelque manière que ce soit. Alors qu'en ce qui concerne Moav, elle [la Torah] interdit seulement de leur faire la guerre, mais il était permis de les irriter. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -26,5 +26,5 @@ Un casque est susceptible d'impureté, mais les pommettes sont pures. Mais s'ils
 ### michna 9
 Si une boucle d'oreille avait la forme d'un pot à sa base et d'une lentille à son sommet et que les sections se détachent, la section en forme de pot est susceptible d'être impure parce qu'elle est un réceptacle, tandis que la section en forme de lentille est susceptible d'être impure en elle-même. Le crochet est propre. Si les sections d'une boucle d'oreille qui avait la forme d'une grappe de raisin se sont détachées, elles sont propres.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

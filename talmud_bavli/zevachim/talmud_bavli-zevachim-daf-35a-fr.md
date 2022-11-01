@@ -54,4 +54,4 @@ Si <b>il a rendu</b> l'offrande <b><i>piggul</i>,</b> c'est-à-dire, avait une i
 La Gemara suggère : <b>Disons</b> que le <i>baraita</i> suivant <b>sup-ports</b> l'opinion de Rabbi Elazar : <b>Et</b> même ceux qui soutiennent que <i>piggul</i> s'applique aux taureaux que l'on brûle <b>sont d'accord pour dire que s'il avait l'intention de prendre part aux taureaux ou</b> de les <b>brûler</b> au-delà de leur temps désigné <b>il n'a rien fait. </b> Ceci est dû au fait que ces taureaux ne sont pas mangés ou brûlés sur l'autel, et les intentions peuvent rendre une offrande <i>piggul</i> uniquement dans les cas d'offrandes qui sont mangées ou brûlées sur l'autel. La Guemara en déduit : <b>Quoi, il n'est pas</b> possible de déduire <b>que</b> si <b>il avait l'intention en ce qui concerne les portions sacrificielles</b> des taureaux qui sont consommées sur l'autel de les brûler au-delà de leur temps désigné, les <b>taureaux sont rendus <i>piggul</i>,</b> ce qui est conforme à la déclaration de Rabbi Elazar ? La Guemara rejette cette affirmation : <b>Non,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

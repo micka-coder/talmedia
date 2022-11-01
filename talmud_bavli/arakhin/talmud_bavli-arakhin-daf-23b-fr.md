@@ -45,4 +45,4 @@ Si <b>quelqu'un avait beaucoup</b> d'outils d'un <b>type et peu</b> d'outils d'u
 Gemara La Gemara demande : <b>Quelle est la raison</b> pour laquelle le trésorier lui laisse tous les outils mentionnés dans la mishna ? La Guemara explique que la raison est <b>que</b> le <b>verset stipule :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

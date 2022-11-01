@@ -18,4 +18,4 @@ La Gemara réfute cette preuve : <b>Disons</b> que cela signifie qu'elle prend <
 La Guemara explique : <b>Rav Yehuda a été induit en erreur par</b> le langage de <b>la mishna</b> et est arrivé à une conclusion incorrecte. <b>Il a pensé</b> que la phrase : <b>Son contrat de mariage est valide, fait référence à l'ensemble de la question,</b> à la somme entière du contrat de mariage. <b>Mais il n'en est rien,</b> car elle <b>se réfère</b> uniquement <b>à la somme principale</b> du contrat de mariage qui a été établie par les Sages, et non à une somme supplémentaire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

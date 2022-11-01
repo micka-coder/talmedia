@@ -48,4 +48,4 @@ La Gemara explique : <b>Quelle est la</b> <b>différence</b> pratique entre les 
 La Gemara conteste : <b>Et</b> même <b>s'il</b> a déjà <b>son propre animal, est-ce que <b>n'est pas</b> celui qui l'aide à <b>transgresser en raison</b> du commandement : <b>"Tu ne mettras pas de pierre d'achoppement</b> devant <b>l'aveugle" ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Natan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara objecte : <b>N'est-ce pas le contraire [<i>kelapei layya</i>] ? </b> N
 <b>Rav Ashi a dit : En fait, il ne faut pas inverser</b> la formulation, <b>et</b> ce n'est pas difficile. Il <b>était nécessaire</b> d'enseigner que même un prêtre avec une tare temporaire reçoit une part, car il pourrait <b>entrer dans votre esprit de dire</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

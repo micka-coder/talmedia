@@ -45,4 +45,4 @@ La Guemara explique l'opinion de Rabbi Yosei : <b>Et</b> puisqu'il est incertain
 § La mishna enseigne : Si les cadeaux des garçons d'honneur sont réciproques après la mort du père, ils sont réciproques au milieu, <b>parce que les cadeaux des garçons d'honneur sont</b> une dette légale due au père, <b>recouvrable en justice. Les Sages ont enseigné</b> (<i>Tosefta</i> 10:8) : <b>Cinq affirmations ont été dites à propos des cadeaux des garçons d'honneur :</b> Ils sont <b>recouvrables en justice ; et</b> ils sont <b>réciproques</b> uniquement <b>à leur</b> <b>temps pertinent,</b> c'est-à-dire au moment du propre mariage du garçon d'honneur ; <b>et ils ne sont pas soumis</b> à l'interdiction de l'<b>intérêt,</b> c'est-à-dire qu'il est permis de rendre la pareille avec un cadeau de plus grande valeur que le cadeau initial ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

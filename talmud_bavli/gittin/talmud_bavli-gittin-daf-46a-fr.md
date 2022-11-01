@@ -42,4 +42,4 @@ La Gemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord ?
 La Gemara répond : La mishna <b>est incomplète et voici ce qu'elle enseigne : Dans quel</b> cas <b>cette déclaration est-elle dite ? Lorsqu'elle a fait un vœu,</b> puisqu'il ne peut pas se remarier avec elle dans ce cas. <b>Cependant,</b> si <b>elle a fait un vœu, il peut se remarier</b> avec elle. <b>Et Rabbi Yosei, fils de Rabbi Yehuda, a dit :</b> Il y a eu <b>également un incident à Tzaidan impliquant un</b> homme <b>qui a dit à sa femme :</b> C'est <b><i>konam</i> si je ne divorce pas, et il a divorcé d'elle ; et les Sages lui ont permis de se remarier avec elle, pour le bien du monde.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

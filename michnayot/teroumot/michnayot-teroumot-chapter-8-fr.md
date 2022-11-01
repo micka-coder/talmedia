@@ -35,5 +35,5 @@ Concernant les deux cas, Rabbi Joshua dit : Ce n'est pas le genre de teroumah su
 ### michna 12
 De même, si les Gentils disent aux femmes : " Donnez-nous l'une d'entre vous pour que nous la souillions, et sinon, nous vous souillerons toutes ", alors qu'elles soient toutes souillées plutôt que de leur remettre une seule âme d'Israël.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

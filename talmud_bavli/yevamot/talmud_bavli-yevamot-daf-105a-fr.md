@@ -66,4 +66,4 @@ La Guemara répond : Ceci n'est <b>pas difficile. Ici,</b> où il est dit que le
 Il a été enseigné dans la mishna : <b>Si un homme sourd-muet subit <i>ḥalitza</i></b> ou si une femme sourde-muette accomplit <i>ḥalitza</i>, ou si une femme adulte accomplit <i>ḥalitza</i> avec un mineur de sexe masculin, sa <i>ḥalitza</i> est invalide.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

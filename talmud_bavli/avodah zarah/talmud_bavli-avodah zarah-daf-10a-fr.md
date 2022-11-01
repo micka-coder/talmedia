@@ -45,4 +45,4 @@ La Gemara fournit le contexte de cette affirmation. On raconte que <b>Antoninus 
 Antonin a également dit à Rabbi Yehuda HaNasi : <b>Les Romains importants me contrarient;</b> que puis-je faire à leur sujet ? Rabbi Yehuda HaNasi <b>l'emmena dans</b> son <b>jardin,</b> et <b>chaque jour, il déracinait un radis du lit du jardin devant lui.</b> Antoninus <b>se dit</b> à lui-même : <b>Apprends-en</b> que <b>ceci</b> est ce que Rabbi Yehuda HaNasi <b>me dit : Tu</b> dois <b>les tuer un</b> par <b>un, et ne pas les inciter tous</b> à la fois.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

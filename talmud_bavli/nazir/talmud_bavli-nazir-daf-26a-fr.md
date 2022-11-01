@@ -18,4 +18,4 @@ Le <i>baraita</i> explique que s'il <b>souhaite apporter une offrande de péché
 § <b>Rava a dit : Ce</b> que <b>nous avons dit,</b> à savoir que si on avait des <b>fonds non alloués</b> ils <b>seront alloués pour</b> les <b>offrandes</b> communales, ne s'applique que si l'argent pour toutes les offrandes était mélangé. Cependant, <b>si l'argent pour le sacrifice pour le péché est tombé</b> et a été séparé <b>des</b> autres, tout l'argent restant <b>est</b> maintenant considéré <b>comme alloué.</b> Cela signifie qu'au lieu que toute la somme soit utilisée pour un holocauste en cadeau, une partie est utilisée pour un sacrifice de paix, qui est mangé pendant un jour et ne nécessite pas de pain.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara calcule : <b>Quel est</b> la superficie d'un <i>se'a</i> ? Elle est de
 <b>Mais plutôt,</b> Ulla a dérivé cette mesure <b>de</b> ce <b>que nous avons appris</b> dans la mishna suivante (<i>Shevi'it</i> 1:5) : S'il y avait <b>trois</b> grands <b>arbres</b> appartenant <b>à trois</b> <b>personnes</b> différentes dans un <i>se'a</i>, <b>ces</b> arbres <b>se combinent, et on peut labourer la totalité</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

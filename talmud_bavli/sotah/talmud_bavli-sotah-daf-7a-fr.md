@@ -66,4 +66,4 @@ La mishna poursuit la description du rite de la <i>sota</i>. <b>Et le prêtre s'
 Si <b>elle était habillée de vêtements blancs</b>, <b>il</b> la couvrirait maintenant <b>de vêtements noirs</b>. Si <b>elle portait des parures en or</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

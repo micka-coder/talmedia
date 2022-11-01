@@ -39,4 +39,4 @@ L'interprétation de l'alphabet se poursuit avec d'autres combinaisons de lettre
 Le Saint, Béni soit-Il, lui <b>dit</b> en utilisant une autre configuration de l'alphabet : <b><i>Alef lamed</i>, <i>beit mem</i> : Pas avec eux [<i>al bam</i>],</b> c'est-à-dire que tu n'auras aucune part d'eux. <b><i>Gimmel nun</i>, <i>dalet samekh</i> : Vers où les conduirai-je ? </b> Je les conduirai <b>vers le jardin de myrte [<i>gan hadas</i>],</b> c'est-à-dire le jardin d'Eden. <b><i>Heh ayin</i>, <i>vav peh</i>:</b> Le ministre de <b>Gehenna a dit devant le Saint, Béni soit-il : Maître de l'Univers, je suis fatigué [<i>ayef anokhi</i>]</b> et j'ai soif et j'ai besoin de gens pour prendre soin de moi. Le Saint, Béni soit-Il, répondit : <b><i>Zayin tzadi</i>, <i>ḥet kuf</i> : Ce sont les descendants [<i>zaro</i>] d'Isaac [<i>Yitzḥak</i>]. <i>Tet reish</i>, <i>yod shin</i>, <i>kaf tav</i> : Attends [<i>tar</i>], j'ai des groupes</b> sur des <b>groupes [<i>yesh li kittot kittot</i>] de</b> autres <b>nations que je te donnerai</b> à la place.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

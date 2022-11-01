@@ -66,4 +66,4 @@ La Guemara note : <b>Maintenant que vous êtes arrivés à cette</b> nouvelle ex
 Il a été enseigné dans la mishna : <b>Et</b> il ne peut <b>pas</b> sortir <b>avec une seule</b> sandale <b>quand il n'y a pas de blessure au pied.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ Le <i>baraita</i> discute de la question : <b>Dîtes-vous que</b> ce verset ense
 Par conséquent, <b>le verset dit : "Et elle appartiendra au prêtre comme l'offrande de repas."</b> De cette manière, le verset <b>comparaît</b> l'offrande <b>obligatoire</b> du prêtre <b>à son offrande volontaire</b> : <b>De même que son offrande volontaire</b> <b>n'est pas mangée, de même, son offrande obligatoire</b> <b>n'est pas mangée.</b> En désaccord avec l'interprétation précédente, <b>Rabbi Shimon dit : Est-il dit : Et il appartiendra au prêtre, comme son offrande de repas ? Mais il est seulement dit : "Comme l'offrande de repas", </b> se référant à l'offrande de repas d'un non-prêtre. <b>Ce verset sert plutôt <b>à comparer</b> et à rendre la <i>halakha</i> de...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

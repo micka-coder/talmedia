@@ -57,4 +57,4 @@ La Gemara déclare : Le principe selon lequel la phase initiale du rapport sexue
 <b>Rav Aḥa de Difti a dit à Ravina : Est-ce à dire</b> que <b>c'est</b> seulement pendant <b>l'existence du facteur</b> <b>qui les rend interdites qu'une femme en période de menstruation et la femme d'un frère ne peuvent être permises</b> à d'autres, <b>mais par la suite,</b> lorsque le facteur d'interdiction a été résolu, <b>elles peuvent être permises ?</b> Dans le cas d'une <b>femme en période de menstruation,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

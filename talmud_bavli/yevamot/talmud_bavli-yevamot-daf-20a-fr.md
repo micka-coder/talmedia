@@ -60,4 +60,4 @@ La Gemara demande : <b>Disons</b> que cela fait référence à <b>ces femmes</b>
 La Guemara demande : <b>Si c'est le cas, ces</b> relations qui sont interdites car il serait <b>responsable</b> de la violation d'<b>une</b> norme <b>d'interdiction</b> ne devraient pas non plus exiger <i>ḥalitza</i>, car elles ne peuvent pas entrer dans le mariage lévirat. La Guemara répond : <b>Mais le Miséricordieux a inclus</b> une catégorie de <i>yevama</i> qui est éligible à la <i>ḥalitza</i> seule et non au mariage lévirat par le terme : <b>"Sa <i>yevama</i>."</b> La Gemara demande : <b>Et qu'as-tu vu</b> pour conclure que le terme supplémentaire fait référence aux relations interdites et avec lesquelles il serait responsable de la violation d'un interdit et non celles qui sont susceptibles de recevoir <i>karet</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,7 +60,7 @@ Les étudiants de la salle d'étude <b>soulèvent un dilemme devant Rav Sheshet 
 <b>Rav Sheshet leur a dit : Vous avez appris</b> ceci dans la mishna : En ce qui concerne <b>un objet qui</b> ne nécessite <b>pas</b> le travail d'un artisan, le locataire</b> est responsable de le <b>faire. Et cette</b> tâche <b>est également</b> quelque chose qui ne nécessite <b>pas</b> le travail d'un artisan,</b> car il <b>est possible</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Dans le</b> cas de <b>une maison,</b> le tribunal <b>l'écoute,</b> mais <b>dans le</b> cas de <b>un champ,</b> le tribunal <b>ne l'écoute pas.</b>
 
@@ -122,4 +122,4 @@ Les étudiants de la salle d'étude <b>soulèvent un dilemme devant Rav Sheshet 
 <b>Rav Sheshet leur a dit : Vous avez appris</b> ceci dans la mishna : En ce qui concerne <b>un objet qui</b> ne nécessite <b>pas</b> le travail d'un artisan, le locataire</b> est responsable de le <b>faire. Et cette</b> tâche <b>est également</b> quelque chose qui ne nécessite <b>pas</b> le travail d'un artisan,</b> car il <b>est possible</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

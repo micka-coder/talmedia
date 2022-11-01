@@ -42,4 +42,4 @@ La Guemara clarifie la question : <b>Selon</b> l'avis de <b>celui qui a dit</b> 
 Sur la base de cette hypothèse, <b>un dilemme a été soulevé devant</b> les Sages : Si la cour du Gentil donne sur une ruelle dans laquelle résident des Juifs, et qu'elle possède également une entrée qui <b>donne sur une enceinte</b> plutôt que sur une vallée, <b>quelle est</b> la <i>halakha</i> ? Quelle entrée est considérée comme son entrée principale ? <b>Rav Naḥman bar Ami dit, en citant une tradition [<i>mishmei de'ulpana</i>]</b> qu'il a reçue de ses maîtres :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -38,5 +38,5 @@ Les lois "Tu dois lui payer son salaire le jour même" (Deut. 24:15) et "Le sala
 ### michna 13
 Si quelqu'un a prêté à son compagnon, il ne peut exiger de lui un gage qu'avec la permission d'un tribunal, et il ne peut pas entrer dans sa maison pour prendre le gage, comme il est dit : "Tu te tiendras dehors"(Deut. 24:1). Si l'emprunteur avait deux ustensiles, il peut en prendre un mais doit rendre l'autre. Et il doit rendre l'oreiller la nuit et la charrue le jour. Et si le créancier meurt, il ne doit pas rendre le gage à ses héritiers. Rabban Shimon ben Gamaliel dit :  "Même pour le débiteur lui-même, il ne doit rendre le gage que dans les trente jours [du prêt], et après trente jours, il peut le vendre avec le consentement du tribunal. Il n'est pas permis de prendre en gage une veuve, qu'elle soit riche ou pauvre, car il est dit : "Ne prends pas en gage le vêtement d'une veuve" (Deut. 24:17). Si quelqu'un prend une meule en gage, il viole un commandement négatif et il viole également les deux parties [de la meule], comme il est indiqué : "Ne prends pas en gage une meule ou une meule supérieure "(Deut. 24:6). Et ils n'ont pas seulement parlé d'une meule supérieure ou d'un moulin, mais de tout ce qui est nécessaire à la nourriture, comme il est dit, "car ce serait prendre la vie de quelqu'un en gage "(ibid.).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

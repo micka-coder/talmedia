@@ -33,4 +33,4 @@ La mishna enseigne : <b>Et de même,</b> dans le cas de deux personnes qui ont d
 La raison en est <b>que si</b> le <i>tanna</i> nous avait <b>enseigné ce premier</b> cas à propos de l'argent seul, on en conclurait que c'est <b>dans ce</b> cas que <b>les rabbins disent</b> que chaque partie reçoit cent dinars, et que cent dinars sont gardés en lieu sûr, <b>parce que</b> dans ce cas <b>il n'y a pas de perte. Mais dans ce</b> cas des vases, <b>où il y a une perte du grand</b> vase, car il doit être brisé ou vendu pour payer la valeur du petit vase à l'autre partie, <b>disons</b> qu'ils concèdent à Rabbi Yosei</b> que les deux vases sont gardés en lieu sûr. <b>Et si</b> le différend <b>était énoncé</b> uniquement <b>dans ce</b> cas de récipients, on conclurait que c'est <b>dans ce</b> cas que <b>Rabbi Yosei a dit</b> que les deux récipients sont conservés dans un endroit sûr. <b>Mais dans ce</b> cas d'argent, <b>disons</b> que <b>il concède aux rabbins.</b> Il est donc <b>nécessaire</b> de citer les deux cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

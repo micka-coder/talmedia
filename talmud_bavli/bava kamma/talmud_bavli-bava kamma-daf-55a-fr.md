@@ -45,4 +45,4 @@ Le Sage <b>Raḥava soulève un dilemme :</b> En ce qui concerne celui <b>qui co
 Les Sages <b>Disent</b> en réponse à cette objection : <b>Comment peut-on</b> ces cas <b>être comparés ? Là,</b> dans le cas de la plantation de diverses sortes de graines, c'est spécifiquement <b>Eretz</b> Yisrael qui est <b>le lieu</b> soumis à cette <b>obligation,</b> alors que <b>hors d'Eretz</b> Yisrael n'est <b>pas un lieu</b> soumis à cette <b>obligation. Ici,</b> en revanche, dans le cas de la personne conduisant un chariot, à la fois <b>cette</b> localisation, c'est-à-dire la terre, <b>et cette</b> localisation, c'est-à-dire la mer, sont des <b>locations</b> soumises à cette <b>obligation.</b> Par conséquent, si l'on travaille ensemble deux espèces différentes soit sur la terre, soit dans la mer, on est responsable. Par conséquent, la question est valable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

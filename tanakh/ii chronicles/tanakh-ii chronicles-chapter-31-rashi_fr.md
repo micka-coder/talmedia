@@ -56,4 +56,4 @@
 <b>à chaque mâle parmi les prêtres</b> et aussi à leurs femmes, leurs fils et leurs filles. Le Chroniqueur dit "à chaque mâle" ici pour enseigner quelque chose de remarquable, c'est-à-dire qu'ils fourniraient même aux jeunes enfants mâles, comme ci-dessus (verset 16) : "des mâles à partir de trois ans et plus", et ils pourvoiraient sûrement à leurs femmes, fils et filles.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

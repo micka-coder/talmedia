@@ -72,4 +72,4 @@ La Guemara interjette que la logique de cette dernière déclaration semble peu 
 La <i>baraita</i> dont il est question présente également un autre cas qui suit un modèle similaire, à savoir qu'il est initialement permis, puis interdit, puis à nouveau permis. La Guemara analyse les explications de Rav Yitzḥak et de Rava en se basant sur cette clause de la <i>baraita</i> : <b>Dire la première clause</b> et essayer de l'expliquer d'une manière cohérente avec les différentes explications de la dernière clause : La Torah déclare concernant les offrandes de repas mangées par les prêtres : <b>"On les mangera sans levain dans un lieu sacré"</b> (Lévitique 6:9) ; cela indique que c'est une <b>mitsva,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

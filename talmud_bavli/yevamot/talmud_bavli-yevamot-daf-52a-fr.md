@@ -48,4 +48,4 @@ Rabba <b>lui dit : Nous craignons</b> que <b>peut-être</b> on en vienne à <b>c
 <b>Rami bar Ḥama a dit : Ils ont dit</b> que <b>si on dit à un scribe</b> [<b><i>lavlar</i></b>] : <b>Écrivez un acte de divorce pour ma fiancée</b> maintenant, <b>de sorte que lorsque je l'épouserai, je la divorcerai</b> avec l'acte de divorce, s'il lui a effectivement donné cet acte de divorce après leur mariage <b>c'est</b> un <b>acte de divorce valide.</b> Pourquoi ? <b>Parce qu'il est</b> déjà <b>en son pouvoir de la divorcer</b> alors qu'elle est fiancée à lui, et donc l'acte de divorce rédigé pendant leurs fiançailles est valide.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

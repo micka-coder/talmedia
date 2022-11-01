@@ -45,4 +45,4 @@ La Guemara soulève une difficulté avec cette interprétation de la mishna : <b
 La Guemara rejette ce raisonnement : <b>Au contraire, que</b> proposez-vous donc de dire, que cette <i>baraita</i> est conforme à <b>Rabbi Yehuda et</b> que Rabbi Yehuda permet à un sourd de lire <b>même <i>ab initio</i>,</b> alors que Rabbi Yosei le disqualifierait même après coup ? <b>Mais</b> alors <b>dont l'opinion est</b> représentée dans <b>ce qui est enseigné</b> dans une <i>baraita</i> : <b>Une personne ne doit pas réciter la Grâce après les Repas dans son cœur,</b> c'est-à-dire de manière inaudible, <b>mais si elle l'a récité</b> de cette manière, <b>elle a rempli</b> son obligation. C'est l'avis de <b>ni Rabbi Yehuda ni Rabbi Yosei.</b> Comme, <b>si</b> il suit l'avis de <b>Rabbi Yehuda,</b> il devrait être permis <b>même <i>ab initio</i>,</b> et <b>si</b> il suit l'avis de <b>Rabbi Yosei,</b> alors <b>même après coup, non,</b> cela ne devrait pas être valable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

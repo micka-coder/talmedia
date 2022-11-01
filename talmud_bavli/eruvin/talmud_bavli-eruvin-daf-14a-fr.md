@@ -69,4 +69,4 @@ La Gemara demande : <b>Mais</b> néanmoins, <b>n'y a-t-il pas</b> le <b>montant 
 <b>Rabbi Ḥiyya a enseigné</b> dans une <i>baraita</i> : <b>La mer que Salomon a façonnée contenait</b> un volume de <b>cent cinquante bains de purification rituelle.</b> La Gemara demande : <b>Après tout,</b> en ce qui concerne <b>un bain rituel, quel est</b> son volume ? Il est de <b>quarante <i>se'a</i>, comme il a été enseigné</b> dans une <i>baraita</i> : <b>Et il baignera sa chair</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

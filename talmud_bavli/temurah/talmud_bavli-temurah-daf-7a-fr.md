@@ -51,4 +51,4 @@ La Guemara présente <b>une version alternative</b> du point précédent. Rabbi 
 La Guemara note : <b>Il est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'opinion <b>de Rava:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

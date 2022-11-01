@@ -45,4 +45,4 @@ En ce qui concerne <b>la</b> matière <b>elle-même,</b> la <i>baraita</i> ensei
 La Gemara remet en question cette interprétation : <b>Et je renverserai</b> l'exposition, et dirai que l'on peut tirer un bénéfice de l'oiseau abattu et non de celui qui a été renvoyé. <b>Rabbi Yoḥanan dit au nom de Rabbi Shimon ben Yoḥai:</b> La raison d'exposer le verset comme le fait la <i>baraita</i> est que <b>nous n'avons pas trouvé</b> des <b>créatures vivantes cachères qui sont</b> en permanence <b>interdites</b> en ce qui concerne la consommation. Par conséquent, il est logique que l'oiseau abattu soit interdit, et non l'oiseau vivant. <b>Rav Shmuel bar Rav Yitzḥak s'oppose à cette</b> explication : <b>Mais n'avons-nous pas</b> trouvé des animaux vivants cachers qui sont interdits de manière permanente ? Mais <b>il y en a</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -76,5 +76,5 @@
 ### passuk 20
 <b>Les Refa'im.</b> [Désigne] le pays d'Og [roi de Bashan] au sujet duquel il est dit : "Ce [Bashan] est appelé le pays des Refa'im".
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

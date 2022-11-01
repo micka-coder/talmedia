@@ -45,4 +45,4 @@ La Guemara commente : <b>Accordé, Rabbi Yoḥanan ne dit pas</b> son explicatio
 La Gemara conteste : <b>Et qu'il le rachète</b> à Jérusalem, <b>comme le dit Rabbi Elazar : D'où</b> provient-il <b>en ce qui concerne les produits de second ordre</b> <b>qui sont devenus impurs, que l'on peut les racheter même à Jérusalem ?</b> Comme <b>le verset le précise :</b> "Et si le chemin est trop long pour toi <b>au point que tu ne puisses le porter [<i>se'eto</i>]...</b> et tu le transformeras en argent" (Deutéronome 14:24-25). <b>Et <i>se'et</i></b> signifie <b>rien d'autre que de manger, comme il est précisé : "Et il prit des portions [<i>masot</i>] de devant lui"</b> (Genèse 43:34), ce qui indique que les produits de second ordre qui ne peuvent être consommés, que ce soit en raison de la distance de Jérusalem ou de leur impureté, peuvent être rachetés. La Gemara répond : <b>De quoi s'agit-il ici ?</b> Il ne s'agit pas d'un cas où le produit du second tith est devenu impur, mais plutôt d'un cas <b>où</b> un article <b>acheté</b> avec l'argent du second tith est devenu impur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

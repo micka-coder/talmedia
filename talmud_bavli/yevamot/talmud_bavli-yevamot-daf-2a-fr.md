@@ -12,4 +12,4 @@ La loi de la Torah obligeant un homme dont le frère est mort sans enfant [<i>ya
 La mishna poursuit sa liste de parents proches. Si la <i>yevama</i> est la <b>demi-sœur</b> maternelle du <i>yavam</i>, <b>ou</b> si elle est la <b>sœur de sa mère, ou la sœur de sa femme, </b> alors elle est exemptée à la fois de <i>ḥalitza</i> et du mariage lévirat <b>Or</b> si elle était <b>la femme de son demi <b>frère maternel</b>, </b> et qu'après le décès de ce frère ou le divorce de sa femme, elle a épousé un autre des frères de son père, qui n'était pas son parent, et que ce frère est décédé, elle est exemptée. Dans ce cas, l'obligation de contracter un lévirat devrait être encourue par le frère survivant, mais comme elle était auparavant l'épouse de son frère maternel, elle est exemptée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

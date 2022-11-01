@@ -93,4 +93,4 @@
 <b>Dans le meilleur</b> - Heb. בְּמַעֲלֵה, dans le meilleur, comme cela est expliqué à la fin du premier chapitre de <i>Baba Kamma</i> (16b).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

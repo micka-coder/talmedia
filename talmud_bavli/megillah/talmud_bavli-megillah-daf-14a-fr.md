@@ -66,4 +66,4 @@ Hannah dit encore : <b>"Il n'y a pas de rocher [<i>tzur</i>] comme notre Dieu"</
 La Guemara répond qu'en fait, il faut comprendre cela comme une allusion à autre chose. <b>Rabba bar Shmuel a dit : Abigaïl,</b> dans sa tentative d'empêcher David de tuer son mari Nabal, est venue voir David et l'a interrogé <b>sur le compte</b> du <b>sang menstruel qui provient des parties cachées [<i>setarim</i>]</b> d'un corps. Comment cela ? <b>Elle prit</b> un tissu taché de sang <b>et le lui montra,</b> lui demandant de statuer sur son statut, à savoir si oui ou non elle était rituellement impure en tant que femme menstruée. <b>Il lui dit : Le sang est-il montré la nuit ? </b> On n'examine pas les linges tachés de sang la nuit, car il est difficile de distinguer les différentes teintes à la lumière des bougies. <b>Elle lui dit :</b> Si c'est le cas, tu dois aussi te souvenir d'une autre <i>halakha</i> : <b>Les affaires de <b>capital sont-elles</b> jugées la nuit ? </b> Comme on ne juge pas les affaires de capital la nuit, tu ne peux pas condamner Nabal à mort la nuit. David <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

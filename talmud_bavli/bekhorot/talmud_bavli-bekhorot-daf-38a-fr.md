@@ -63,4 +63,4 @@ La Gemara demande plus loin : <b>Et</b> même <b>selon</b> l'opinion de <b>Rabbi
 <strong>MISHNA:</strong> Pour ces tares de l'œil, on peut abattre l'animal premier-né en dehors du Temple : <b>La paupière qui a été percée,</b> une paupière <b>qui a été endommagée</b> et qui manque, ou une paupière <b>qui a été fendue ; </b> et de même, on peut égorger un animal premier-né en dehors du Temple <b>si</b> il y avait <b>dans son œil une cataracte, un <i>tevallul</i>,</b> ou une excroissance en forme de <b>escargot, de serpent</b> ou de <b>baie</b> qui couvre la pupille. <b>Qu'est-ce qu'un <i>tevallul</i> ? </b> C'est <b>un fil blanc</b> qui bissecte l'iris et entre dans la pupille noire</b>. Si c'est <b>un fil noir</b> qui bissecte l'iris et <b>entre dans le blanc</b> de l'œil, ce n'est <b>pas une tare.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

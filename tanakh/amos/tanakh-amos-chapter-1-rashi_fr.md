@@ -47,4 +47,4 @@
 <b>Ils ont déchiré la femme enceinte de Galaad</b> - Ils l'ont détruit et ont également déchiré leurs femmes enceintes afin qu'il ne reste aucun héritier qui puisse contester l'héritage. L'Écriture déclare également : (Jér. 49:1) "Au sujet des enfants d'Ammon. Ainsi parle l'Éternel : Israël n'a-t-il pas de fils ? N'a-t-il pas d'héritier ? Pourquoi Malcam a-t-il pris possession de Gad ?"
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

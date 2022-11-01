@@ -15,4 +15,4 @@ La Gemara répond : Selon lui, il <b>établit</b> cela <b>pour</b> enseigner la 
 La Gemara cite maintenant un long <i>baraita</i>, énonçant finalement une preuve pour répondre à la question précédente. <b>Venez</b> et <b>entendez</b> une <i>baraita</i> qui résoudra le dilemme : <b>Quand a-t-on dit</b> que si <b>le mari</b> d'une jeune femme fiancée <b>décède,</b> la <b>autorité</b> d'annuler ses vœux <b>revient au père,</b> qui peut alors annuler ses vœux à lui seul ? Cela se produit dans un cas <b>où le mari n'avait pas entendu</b> son vœu <b>avant de mourir ; ou</b> dans un cas <b>où il a entendu et s'est tu ; ou encore où il a entendu et annulé</b> celui-ci <b>et est mort le même jour. C'est ce que nous avons appris</b> dans la mishna, concernant un cas de ce genre (70a) : Si <b>le mari meurt,</b> la <b>autorité</b> d'annuler les vœux <b>revient au père.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

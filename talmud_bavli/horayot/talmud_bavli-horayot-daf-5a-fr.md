@@ -54,4 +54,4 @@ Parmi ces trois, <b>un</b> sert <b>à rendre responsable chaque congrégation,</
 <b>Comment cela ? </b> Comment résoudre cette apparente contradiction ? La Guemara explique : Si <b>six</b> tribus ont <b>péché et qu'elles</b> constituent <b>une majorité</b> de la <b>congrégation, ou</b> si <b>sept</b> tribus ont péché, <b>même si</b> en termes de population <b>elles ne</b> constituent pas <b>une majorité de</b> la <b>congrégation,</b> le tribunal est <b>responsable</b> d'apporter une bulle. Bien que dans les deux cas, ils ne constituent pas une majorité dans tous les sens du terme, le tribunal est responsable, car une référence à la minorité est également indiquée dans le verset.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -105,4 +105,4 @@
 <b>"Ils m'ont frappé mais je ne suis pas tombé malade, etc.</b> Lorsqu'il se dégrise de son vin, il ne ressent aucun des maux qui ont passé sur lui, et il boit à nouveau.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

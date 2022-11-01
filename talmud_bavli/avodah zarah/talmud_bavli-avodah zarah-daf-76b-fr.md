@@ -12,4 +12,4 @@ Ceci est <b>comme cet incident</b> impliquant Mar Yehuda,</b> un personnage impo
 <b>Il y a</b> ceux <b>qui disent</b> que le roi Shapur <b>lui a dit : Souviens-toi de ce que tu as fait hier soir.</b> La pratique perse consistait à présenter une femme à chaque invité, avec laquelle il avait des rapports sexuels. Mar Yehuda n'a pas accepté la femme qui lui a été envoyée, mais Bati bar Tuvi l'a fait, et par conséquent il n'était pas supposé être méticuleux en ce qui concerne la consommation de nourriture cachère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

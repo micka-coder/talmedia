@@ -45,4 +45,4 @@ La Gemara demande : <b>C'est le cas ? Mais lorsque Avimi est venu de Bei Ḥozai
 La Gemara demande : <b>Mais Avimi de Bei Ḥozai a cité une <i>baraita</i></b> qui apparemment n'accepte pas la déduction <i>a fortiori</i> de Rava. La Guemara répond : On peut <b>savoir</b> que le <i>baraita</i> ne veut pas dire que son lit et sa chaise sont rendus impurs avec le léger niveau d'impureté causé par son toucher, mais plutôt : <b>Son lit</b> sur lequel elle est allongée <b>et sa chaise</b> sur laquelle elle est assise.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

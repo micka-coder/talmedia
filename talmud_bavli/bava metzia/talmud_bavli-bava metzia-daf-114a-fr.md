@@ -30,7 +30,7 @@ La Gemara est perplexe face à cette affirmation : <b>Et</b> les biens consacré
 § La Gemara relate : <b>Rabba bar Avuh a trouvé Elie debout dans un cimetière de gentils.</b> Rabba bar Avuh <b>lui a dit : Quelle est</b> la <i>halakha</i> en ce qui concerne <b>la prise de dispositions pour le débiteur ? </b> Elie lui <b>répondit :</b> Une analogie verbale est <b>dérivée de</b> l'usage du terme <b>"pauvre"</b> écrit dans le contexte d'un débiteur et du terme <b>"pauvre"</b> écrit dans le contexte des <b>évaluations.</b> En ce qui concerne les <b>évaluations,</b> il <b>est écrit : "Mais s'il est trop pauvre [<i>makh</i>] pour ton évaluation"</b> (Lévitique 27:8), et <b>en ce qui concerne un créancier,</b> il <b>est écrit : "Mais si ton frère est pauvre [<i>yamukh</i>]"</b> (Lévitique 25:35).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>En effet,</b> les besoins du débiteur sont <b>jetés sur lui, car il est dit</b> en rapport avec cette même question de la restitution de la garantie : <b>"Et ce sera une justice pour toi"</b> (Deutéronome 24:13), ce qui indique qu'il y a une obligation pour le créancier d'agir envers le débiteur avec justice.
 
@@ -62,4 +62,4 @@ La Gemara est perplexe face à cette affirmation : <b>Et</b> les biens consacré
 § La Gemara relate : <b>Rabba bar Avuh a trouvé Elie debout dans un cimetière de gentils.</b> Rabba bar Avuh <b>lui a dit : Quelle est</b> la <i>halakha</i> en ce qui concerne <b>la prise de dispositions pour le débiteur ? </b> Elie lui <b>répondit :</b> Une analogie verbale est <b>dérivée de</b> l'usage du terme <b>"pauvre"</b> écrit dans le contexte d'un débiteur et du terme <b>"pauvre"</b> écrit dans le contexte des <b>évaluations.</b> En ce qui concerne les <b>évaluations,</b> il <b>est écrit : "Mais s'il est trop pauvre [<i>makh</i>] pour ton évaluation"</b> (Lévitique 27:8), et <b>en ce qui concerne un créancier,</b> il <b>est écrit : "Mais si ton frère est pauvre [<i>yamukh</i>]"</b> (Lévitique 25:35).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara demande : <b>Et puisque nous maintenons</b> que la <i>halakha</i> est 
 § <b>Rava dit :</b> Dans le cas d'une <b>prostituée gentille,</b> où des <b>Juifs</b> sont <b>dînant à sa</b> table, <b>le vin</b> à la table est <b>permis. Il est vrai que leur passion pour le péché</b> de prostitution <b>l'emporte sur leur</b> jugement,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ En outre, il est évident que si quelqu'un a écrit un document accordant tous s
 <b>Ravina dit au nom de Rava</b> que <b>dans tous</b> ces cas, le bénéficiaire <b>n'a pas acquis</b> le bien. Il a plutôt été simplement nommé intendant, <b>sauf pour</b> les cas de <b>sa femme fiancée et de son</b> ancienne <b>femme</b> dont il a <b>divorcé. </b> En revanche, <b>Rav Avira a dit au nom de Rava</b> que <b>dans tous</b> ces cas, le bénéficiaire <b>acquérait</b> le bien, <b>sauf</b> les cas de sa <b>femme avant</b> ses <b>frères et</b> sa <b>femme avant les fils du mari,</b> où il avait clairement l'intention de la nommer uniquement comme intendante.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

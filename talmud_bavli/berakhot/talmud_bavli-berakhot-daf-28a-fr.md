@@ -57,4 +57,4 @@ Rabbi Zeira <b>lui dit :</b> Est-ce que <b>Rabbi Yohanan</b> lui-meme a <b>dit</
 De meme, <b>Rabbi Elazar a dit : Concernant celui qui recite la priere du matin apres quatre heures</b> de la journee, <b>selon Rabbi Yehuda, le verset dit : "Ceux qui sont dans la peine [<i>nugei</i>] loin des Fetes, je les rassemblerai de chez vous,</b> eux qui ont porte pour vous le fardeau de l'insulte" (Sophonie 3:18). <b>D'ou</b> peut-on <b>en deduire que <i>nugei</i> est une expression de tristesse ? Comme il est ecrit : "Mon ame degouline de chagrin [<i>tuga</i>]"</b> (Psaumes 119:28). <b>Rav Nahman bar Yitzhak a dit :</b> La preuve que <i>nugei</i> indique la souffrance est <b>de la : "Ses vierges sont affligees [<i>nugot</i>] et elle est aigrie"</b> (Lamentations 1:4).
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

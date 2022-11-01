@@ -52,7 +52,7 @@
 <b>Etaient des [dirigeants] éminents.</b> [Yonasan traduit] "Ils étaient éminents".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Meseg Hoamah.</b> Dans le Divrei Hayamim (I, 18:1), il est écrit : "David a pris Goss de la main des Pelishtim." [Goss] est appelé Meseg Hoamah car elle était le bâton qui dominait tous les Pelishtim. C'était la métropole du roi parce que nous ne trouvons [associé à] aucun des dirigeants des Pelishtim [pas] à Azoh, Ashdod, Akron [ni] Ashkelon,<sup>1</sup><i class="footnote">Il s'agit d'une référence aux dirigeants des Pelishtim énumérés dans Yehoshua 13:3. Rachi a laissé de côté les Avites, car il s'appuie sur l'opinion de Rav dans Chulin 60b selon laquelle les Avites étaient originaires de Teimon et non du peuple philistin.</i> un titre royal. Ce n'est qu'en référence à Goss que l'on trouve [un titre royal], "Akish, le roi de Goss."<sup>2</sup><i class="footnote">Chmouel I, 20:11.</i>.
 <b>Meseg.</b> <i>Avillon</i> en ancien français.
@@ -106,4 +106,4 @@
 <b>Etaient des [dirigeants] éminents.</b> [Yonasan traduit] "Ils étaient éminents".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

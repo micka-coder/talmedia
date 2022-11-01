@@ -57,4 +57,4 @@ La Guemara propose un exemple : <b>Pour</b> exemple, <b>Shmuel a dit : On peut s
 <b>Abaye a énoncé</b> un principe différent : <b>Nous avons une tradition</b> selon laquelle <b>les <i>halakhot</i> des</b> jours intermédiaires d'une <b>Fête sont comme les <i>halakhot</i> de Shabbat :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

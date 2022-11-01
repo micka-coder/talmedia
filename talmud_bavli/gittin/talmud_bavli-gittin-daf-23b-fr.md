@@ -45,4 +45,4 @@ La Guemara explique la différence : Dans un cas qui a lieu <b>en Eretz</b> Yisr
 La Guemara note qu'il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>de Abaye</b> (<i>Tosefta</i> 2:6) : <b>Rabbi Shimon ben Elazar dit au nom de Rabbi Akiva : Une femme est jugée crédible pour apporter sa</b> propre <b>facture de divorce par une <i>a fortiori</i></b> déduction : <b>Tout comme les femmes</b> à propos de <b>quelles les Sages ont dit : </b> Elles <b>ne sont pas jugées crédibles pour dire : Son mari est mort, sont</b> néanmoins <b>réputées crédibles pour porter sa demande de divorce,</b> en ce qui concerne la femme elle-même, <b>qui est réputée crédible pour dire</b> que <b>son mari est mort, n'est-il pas juste qu'elle soit réputée crédible pour porter sa</b> propre <b>demande de divorce ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

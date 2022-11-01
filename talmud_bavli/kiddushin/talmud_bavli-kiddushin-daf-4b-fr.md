@@ -39,4 +39,4 @@ La Guemara réitère sa question. <b>Le verset dit : "Et s'engage dans des rappo
 On pourrait dire : <b>Ce qui</b> est unique chez <b>une <i>yevama</i></b>, c'est qu'elle <b>est liée</b> au <i>yavam</i> <b>et se tient</b> en attendant qu'il agisse, et pour cette raison, le rapport sexuel suffit à en faire son épouse. <b>Vous direz</b> la même chose <b>en ce qui concerne cette</b> femme, <b>qui n'est pas liée et</b> n'est pas <b>debout</b> en attente de quelqu'un ? Il est donc possible que le rapport sexuel ne suffise pas à acquérir une femme dans des circonstances ordinaires. Par conséquent, la déduction <i>a fortiori</i> ne résiste pas à un examen attentif. C'est pourquoi une preuve supplémentaire est requise, à savoir que <b>le verset dit : "Et s'engage dans des rapports sexuels avec elle."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

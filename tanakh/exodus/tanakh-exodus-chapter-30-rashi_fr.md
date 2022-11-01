@@ -147,5 +147,5 @@
 ### passuk 38
 <b>Pour profiter de son parfum.</b> Mais, vous pouvez le faire vous-même dans ses proportions adéquates dans le but de le vendre à la communauté. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

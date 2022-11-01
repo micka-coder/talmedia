@@ -68,4 +68,4 @@
 <b>et je te donnerai libre parole au milieu d'eux</b> Toi, Ezéchiel, tu auras libre parole quand ils verront ta prophétie s'accomplir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

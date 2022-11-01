@@ -65,4 +65,4 @@
 <b>Par tout le pays où ils ont souffert de la honte</b> Tout lieu où ils ont été pour leur honte, là je les ferai devenir une louange et un nom.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

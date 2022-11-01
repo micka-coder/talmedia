@@ -36,4 +36,4 @@ La Guemara rejette cette preuve : <b>En fait, je</b> pourrais <b>vous dire</b> q
 § Après avoir cité une déclaration de Rabbi Aḥa bar Ḥanina, citant Rabbi Asi, citant Rabbi Yoḥanan, la Guemara cite une autre déclaration en son nom : <b>Rabbi Aḥa bar Ḥanina dit</b> que <b>Rav Asi dit</b> que <b>Rabbi Yoḥanan dit : Jusqu'à combien</b> de jours dans un nouveau mois peut-on <b>réciter une bénédiction sur le mois,</b> c'est-à-dire <i>Birkat HaLevana</i> ? <b>Jusqu'à ce que la faille de la</b> lune <b>soit comblée,</b> lorsqu'elle n'apparaît plus déficiente. <b>Et</b> jusqu'à <b>combien de</b> jours cela fait-il ? <b>Rav Ya'akov bar Idi dit</b> que <b>Rav Yehouda dit : Jusqu'à ce que sept</b> jours du mois soient passés. Les Sages <b>de Néharde'a disent : Jusqu'à ce que seize</b> jours du mois soient passés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

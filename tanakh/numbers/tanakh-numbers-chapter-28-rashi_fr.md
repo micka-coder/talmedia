@@ -90,5 +90,5 @@
 ### passuk 31
 <b>[Les sacrifices] seront sans tache - et leurs libations.</b> Les libations doivent également être sans tache. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les rabbins en déduisent que le vin dans lequel des globules de pourriture farineuse ont fait surface est disqualifié pour les libations. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

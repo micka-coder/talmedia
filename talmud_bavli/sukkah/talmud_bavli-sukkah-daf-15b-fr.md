@@ -15,4 +15,4 @@ La Guemara rejette cette idée : La mishna fait référence à un cas <b>similai
 La Gemara demande : <b>Où est-il indiqué</b> que <b>ce que Rabbi Ḥanan</b> a dit que <b>Rabbi</b> Yehuda HaNasi <b>a dit ?</b> La Gemara répond : <b>Comme nous l'avons appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

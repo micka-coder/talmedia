@@ -27,4 +27,4 @@ Telle est la <i>halakha</i> concernant toutes les offrandes d'oiseaux, <b>à l'e
 § La Gemara note : <b>Et cette</b> question au sujet de laquelle Rabba et Rav Yosef sont en désaccord</b> est <b>évidente pour Rabbi Elazar, car Rabbi Elazar dit :</b> Dans le cas d'un <b>holocauste</b> consacré pour être sacrifié <b>sur un autel personnel,</b> pendant la période où il est permis de le faire, <b>que l'on a apporté à l'intérieur</b> de la cour du Temple,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

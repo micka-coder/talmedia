@@ -66,4 +66,4 @@ On <b>pourrait</b> avoir pensé que <b>on ne peut</b> également <b>pas biner</b
 La Guemara rejette cette opinion : Ces travaux, à l'exception des semailles, de la taille, de la vendange et de la moisson, sont tous interdits uniquement <b>par la loi rabbinique, et le verset</b> qui est cité comme source de la Torah <b>est un simple support,</b> et non une source authentique.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

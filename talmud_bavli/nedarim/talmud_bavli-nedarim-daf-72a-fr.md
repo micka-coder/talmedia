@@ -24,4 +24,4 @@ La Gemara répond : Elle fait référence à une situation <b>dans laquelle</b> 
 La Guemara rejette cette preuve : <b>Dit</b> que <b>ici,</b> c'est-à-dire dans la mishna citée, <b>on a affaire à une femme mariée, et c'est la raison pour laquelle il ne peut pas annuler</b> le vœu. Ce n'est pas parce qu'il a été ratifié par le divorce mais <b>parce que le mari ne peut pas annuler</b> les vœux de sa femme <b>qui précèdent</b> leur mariage. Le dilemme n'est pas résolu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

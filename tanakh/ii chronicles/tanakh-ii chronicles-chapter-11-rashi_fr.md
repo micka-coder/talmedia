@@ -58,4 +58,4 @@
 <b>et il dispersa</b> Il dispersa ses fils dans tous les pays de Juda. Une expression similaire est (I Chron. 4:38) : "Et les maisons de leurs pères s'étendirent (פָּרְצוּ) excessivement."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

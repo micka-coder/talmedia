@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle</b> conclusion <b>a-t-on</b> tiré <b>à ce sujet
 La Gemara relate à propos de cette question que <b>Rabbi Abba dit à son serviteur : Si tu m'apportes des mules</b> attachées <b>à un chariot [<i>rispak</i>], cherche celles qui sont semblables les unes aux autres</b> par leur voix et la taille de leurs oreilles et de leur queue, <b>et apporte</b> celles-là <b>pour moi,</b> afin de ne pas enfreindre l'interdiction des espèces diverses. <b>Evidemment,</b> Rabbi Abba <b>soutient</b> qu'en ce qui concerne la progéniture de diverses espèces, <b>on</b> n'a pas à se préoccuper de sa paternité,</b> puisque, comme expliqué précédemment, ces caractéristiques distinctives n'indiquent que l'espèce de la mère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

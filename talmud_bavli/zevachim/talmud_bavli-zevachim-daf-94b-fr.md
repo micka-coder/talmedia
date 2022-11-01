@@ -48,4 +48,4 @@ En ce qui concerne <b>un récipient en cuivre</b> dans lequel on a cuit un sacri
 La Gemara répond : La mishna décrit un scénario <b>où il laisse</b> non déchiré un fragment <b>du</b> vêtement dont la taille est <b>suffisante pour un petit tissu. Est-ce le cas ? </b> S'il laisse une telle portion intacte, lui est-il toujours permis de ramener le vêtement dans la cour ? <b>Mais Rav Huna ne dit-il pas :</b> Les Sages <b>ont enseigné</b> qu'un vêtement impur, dont la plus grande partie a été déchirée, perd son impureté <b>uniquement lorsque</b> on <b>n'en a pas laissé assez pour un petit tissu, mais s'il en a laissé assez</b> non déchiré <b>pour un petit tissu, c'est</b> considéré comme <b>une réunion</b> des morceaux, et le vêtement reste rituellement impur. En conséquence, laisser un morceau de cette taille ne servirait à rien en ce qui concerne l'impureté rituelle.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

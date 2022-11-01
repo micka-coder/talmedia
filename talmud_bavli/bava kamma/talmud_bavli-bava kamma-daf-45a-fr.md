@@ -36,4 +36,4 @@ Les Sages <b>ont dit</b> en réponse : <b>Il s'agit ici</b> d'un cas <b>où le d
 Les Sages ont <b>dit,</b> en éclaircissement de la <i>baraita</i> : <b>Selon l'opinion de qui</b> cette <i>baraita</i> est-elle ? <b>Si c'est en accord avec</b> l'opinion de <b>Rabbi Meir,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

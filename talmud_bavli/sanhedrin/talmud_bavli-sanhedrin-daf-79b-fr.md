@@ -42,4 +42,4 @@ La Guemara cite <b>un moyen mnémotechnique, <i>beit</i>, <i>shin</i>, <i>reish<
 <b>Rava dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

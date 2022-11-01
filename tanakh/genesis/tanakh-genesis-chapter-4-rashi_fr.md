@@ -96,5 +96,5 @@
 ### passuk 26
 <b>Alors [les hommes] commencèrent.</b> Il faut le comprendre dans le sens du mot חוּלִין [profane], c'est-à-dire [qu'il ont profané son nom] en appelant les noms des hommes ainsi que les noms des idoles par le nom d'Hachem dans leur culte idolâtre et en désignant comme des divinités. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

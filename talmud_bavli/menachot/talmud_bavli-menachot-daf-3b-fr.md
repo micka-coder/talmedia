@@ -60,4 +60,4 @@ La Gemara poursuit : Rav Ashi résout la contradiction en disant que lorsqu'on r
 La Guemara note : <b>La question qui est évidente pour Rabba dans un sens,</b> c'est-à-dire qu'en ce qui concerne les offrandes de repas l'intention fausse reconnaissable n'est pas prise en compte, mais lorsque l'intention fausse n'est pas reconnaissable l'offrande ne remplit pas l'obligation du propriétaire, <b>et</b> qui est évidente <b>pour Rava dans l'autre sens,</b> c'est-à-dire qu'en cas d'intention fausse reconnaissable l'offrande ne doit pas remplir l'obligation du propriétaire, <b>est un dilemme pour Rav Hoshaya. Comme Rav Hoshaya soulève un dilemme, et certains disent</b> que <b>Rav Hoshaya soulève</b> ce <b>dilemme devant Rav Asi :</b> Dans le cas de celui qui sacrifie <b>une offrande de repas pour une offrande abattue,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

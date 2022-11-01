@@ -73,4 +73,4 @@
 <b>et ses bonnes actions</b> Et dans II Rois (23:25) il est écrit : "Or, avant lui, il n'y avait pas de roi comme lui." C'est ce qui est affirmé ici : "Ils sont écrits dans le Livre des Rois d'Israël et de Judée."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

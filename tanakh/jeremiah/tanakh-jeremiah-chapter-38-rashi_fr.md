@@ -66,7 +66,7 @@
 <b>et cette ville tu la brûleras par le feu</b> C'est comme si tu la brûlais de tes mains car tu la provoques.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -134,4 +134,4 @@
 <b>et cette ville tu la brûleras par le feu</b> C'est comme si tu la brûlais de tes mains car tu la provoques.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

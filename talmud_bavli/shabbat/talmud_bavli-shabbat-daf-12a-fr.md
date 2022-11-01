@@ -36,4 +36,4 @@ En ce qui concerne la <i>halakha</i> de base, <b>il a été enseigné</b> dans u
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>L'individu qui entre pour visiter un malade</b> le Chabbat ne s'adresse pas à lui de la manière habituelle pendant la semaine ; il <b>dit plutôt : C'est</b> le <b>Chabbat</b> qu'il est interdit de <b>crier</b> et de demander de la compassion, <b>et la guérison est pour bientôt. Et Rabbi Meir dit</b> qu'il convient d'ajouter : Le mérite du Chabbat <b>est capable</b> d'engendrer la <b>compassion.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

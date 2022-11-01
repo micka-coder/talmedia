@@ -69,4 +69,4 @@ La mishna enseigne que le cas du <b>sorcier</b> fait référence à <b>celui qui
 <b>Rabbi Akiva lui a dit : J'ai dérivé</b> une <i>halakha</i> concernant les <b>Juifs de</b> une <i>halakha</i> concernant les <b>Juifs, à l'égard desquels le verset incluait de nombreux</b> types de peines de <b>mort</b>. Par conséquent, le fait que l'expression "Il ne vivra pas" se réfère à la lapidation lorsqu'elle est énoncée à l'égard des Juifs est particulièrement significatif. <b>Mais vous avez dérivé</b> une <i>halakha</i> concernant les <b>Juifs à partir</b> d'une <i>halakha</i> concernant les <b>gentils, à l'égard desquels le verset ne comprenait que</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

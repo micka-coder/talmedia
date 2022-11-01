@@ -36,7 +36,7 @@ Après avoir expliqué la viabilité de cette interprétation, la Guemara demand
 <b>Et</b> il est <b>nécessaire</b> que la mishna enseigne sa décision à la fois en ce qui concerne un objet trouvé et en ce qui concerne un achat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Les premiers commentaires demandent pourquoi ce chapitre, qui traite des détails des <i>halakhot</i> des objets trouvés, précède le deuxième chapitre, qui traite des <i>halakhot</i> fondamentales des objets trouvés. <br><i>Tosafot</i> expliquent que comme le tractat <i>Bava Metzia</i> suit le tractat <i>Bava Kamma</i>, les <i>halakhot</i> des articles trouvés sont élucidées dans ce chapitre comme une continuation des sujets discutés dans le dernier chapitre de <i>Bava Kamma</i>, qui traitait du partage des objets entre les parties au litige au moyen d'un serment, ce qui est également la décision de la mishna ici (voir <i>Shita Mekubbetzet</i>). Le Rosh explique que parce qu'il y a une suspicion de vol dans ce cas, ces questions sont juxtaposées aux <i>halakhot</i> du vol, qui sont décrites en détail dans <i>Bava Kamma</i>. <br><br><strong>MISHNA:</strong> Si <b>deux</b> personnes se présentent au tribunal <b>en tenant un vêtement,</b> et que <b>cette</b>-là, le premier plaideur, <b>dit : je l'ai trouvé, et que</b>-là, le second plaideur, <b>dit : je l'ai trouvé ; ce</b>-là <b>dit : Tout cela est à moi, et celui-là</b> <b>dit : Tout cela est à moi;</b> comment le tribunal statue-t-il sur cette affaire ? <b>Celui-ci</b> <b>prend le serment qu'il n'a pas</b> la propriété de <b>moins de la moitié, et celui-là</b> <b>prend le serment qu'il n'a pas</b> la propriété de <b>moins de la moitié, et ils le divisent</b>.
 
@@ -74,4 +74,4 @@ Après avoir expliqué la viabilité de cette interprétation, la Guemara demand
 <b>Et</b> il est <b>nécessaire</b> que la mishna enseigne sa décision à la fois en ce qui concerne un objet trouvé et en ce qui concerne un achat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

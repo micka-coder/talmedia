@@ -45,4 +45,4 @@ Rav Yehuda ben Bava lui <b>dit : Je me demande si ton gain,</b> ce que tu as sau
 La Gemara répond : La question de savoir si l'on peut ou non effectuer un travail interdit lors d'une Fête par égard pour les chiens <b>est</b> un différend entre <b><i>tanna'im</i>. Comme il est enseigné</b> dans une <i>baraita</i> : Il est écrit : <b>Ce que chaque âme doit manger, cela seul peut être fait pour vous.</b> Par déduction, de ce qui est dit : Â "Toute âme", je</b> pourrais <b>déduire</b> que <b>même l'âme d'un animal est incluse, à l'instar</b> de ce qui est dit : "Et celui qui tue l'âme d'un animal la paiera"</b> (Lévitique 24:18), ce qui indique que la force vitale d'un animal est aussi appelée âme. Par conséquent, <b>le verset affirme</b> et souligne : <b>"Pour vous">.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

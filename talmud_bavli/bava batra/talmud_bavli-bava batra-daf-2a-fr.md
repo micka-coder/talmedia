@@ -18,4 +18,4 @@ Néanmoins, dans un endroit où il n'est pas habituel de construire une cloison 
 <strong>GEMARA:</strong> Les Sages ont d'abord <b>pensé : Quelle</b> est la signification du terme <b><i>meḥitza</i></b> mentionné dans la mishna ? Il signifie <b>une séparation, comme il est enseigné</b> dans une <i>baraita</i> : Considérons le cas où <b>une cloison de [<i>meḥitzat</i>] une vigne</b> qui sépare la vigne d'un champ de céréales <b>a été violée,</b> ce qui fait que, si la situation n'est pas rectifiée, les céréales et les raisins deviennent des éléments dont il est interdit de tirer un bénéfice en raison de l'interdiction de diverses sortes plantées dans une vigne. Le propriétaire du champ de céréales peut <b>dire au</b> propriétaire de la vigne : <b>Construis une cloison</b> entre la vigne et le champ de céréales. Si le propriétaire de la vigne l'a fait, et que la cloison <b>a été violée à nouveau,</b> le propriétaire du champ de céréales peut <b>lui dire</b> à nouveau : <b>Construis une partition.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

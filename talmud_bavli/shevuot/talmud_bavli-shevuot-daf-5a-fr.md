@@ -60,4 +60,4 @@ La Gemara demande : <b>Quels sont</b> les cas de <b>responsabilité ?</b> Ce son
 La Guemara objecte : <b>Mais</b> la mishna <b>enseigne :</b> Des actes de <b>sortie.</b> Elle ne semble pas du tout mentionner des actes d'entrée. <b>Rav Ashi a dit : La <i>tanna</i> fait également référence</b> à un acte d'<b>apporter</b> un objet <b>comme</b> un acte de <b>porter</b> un objet. La Gemara demande : <b>D'où vient cette information ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

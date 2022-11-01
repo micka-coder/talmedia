@@ -48,4 +48,4 @@ A l'inverse, l'<b>inflammation par le tribunal</b> pour l'exécution par le feu 
 La Guemara rejette également cet argument. <b>Rav Shimi bar Ashi a dit : Ce <i>tanna</i></b> ne soulève <b>pas</b> la possibilité qu'une peine de mort administrée par un tribunal puisse l'emporter sur le Shabbat <b>parce qu'une mitzva positive vient l'emporter sur une interdiction. Au contraire,</b> il envisage cette option <b>parce qu'il l'apprend au moyen</b> d'une <b>inférence <i>a fortiori</i></b>, <b>et c'est ce</b> qu'il <b>dit : Comment établir</b> le verset <b>"Quiconque le profane sera certainement mis à mort"</b> (Exode 31:14) ? Cela s'applique <b>aux autres</b> travaux interdits, à l'exception de la peine capitale imposée par les tribunaux. Cependant,</b> on pourrait dire que la <b>peine capitale imposée par un tribunal prime sur le Shabbat, par une <i>a fortiori</i></b> déduction :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

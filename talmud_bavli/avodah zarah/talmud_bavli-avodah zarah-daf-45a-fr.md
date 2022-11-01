@@ -18,4 +18,4 @@ La mishna demande : <b>Et pour quelle raison,</b> alors, un <b>ashera</i> est-il
 Rejetant cette explication, <b>Rav Sheshet dit : Tout le monde</b> s'accorde à dire que le statut de <b>le revêtement d'une montagne n'est pas comme</b> la <b>montagne</b> elle-même et est interdit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

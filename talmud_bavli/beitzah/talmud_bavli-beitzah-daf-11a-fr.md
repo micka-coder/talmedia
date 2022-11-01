@@ -63,7 +63,7 @@ La Guemara demande : Il est <b>évident</b> que l'on ne peut pas saler la viande
 La Guemara demande : <b>Et</b> en <b>quelle manière</b> ce cas est-il <b>différent de</b> placer <b>une peau devant ceux qui la fouleront,</b> ce que Beit Hillel, dont la décision est acceptée comme <i>halakha</i>, permet pour la raison même que, si on n'est pas autorisé à le faire, on s'abstiendra d'abattre des animaux ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>leur nœud s'use</b> et se défait. Par conséquent, il est possible que quelqu'un n'ait pris qu'une seule des deux poches.
 
@@ -128,4 +128,4 @@ La Guemara demande : Il est <b>évident</b> que l'on ne peut pas saler la viande
 La Guemara demande : <b>Et</b> en <b>quelle manière</b> ce cas est-il <b>différent de</b> placer <b>une peau devant ceux qui la fouleront,</b> ce que Beit Hillel, dont la décision est acceptée comme <i>halakha</i>, permet pour la raison même que, si on n'est pas autorisé à le faire, on s'abstiendra d'abattre des animaux ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

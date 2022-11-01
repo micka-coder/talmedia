@@ -17,5 +17,5 @@ Des légumes de hullin ont été cuits avec de l'huile de teroumah et un tevul y
 ### michna 6
 Une personne pure qui a mâché un aliment et que celui-ci est tombé sur ses vêtements et sur un pain de teroumah, il [le pain] n'est pas susceptible d'être impur. S'il a mangé des olives écrasées ou des dattes humides, [ou] si son intention était de sucer le noyau, et que cela est tombé sur ses vêtements et sur un pain de teroumah, c'est susceptible d'être impur. S'il a mangé des olives sèches ou des figues sèches, ou si son intention n'était pas d'aspirer le noyau, et qu'elles sont tombées sur ses vêtements et sur un pain de teroumah, elles ne sont pas susceptibles d'être impures. Ceci est le cas indépendamment du fait que ce soit une personne pure ou un tevul yom [qui mangeait]. Rabbi Meir dit : dans les deux cas, il devient susceptible d'être impur dans le cas d'un tevul yom, car les liquides provenant de personnes impures rendent tout ce qui est susceptible d'être impur, que cela soit à son goût ou non. Mais les sages disent : un tevul yom n'est pas considéré comme une personne impure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

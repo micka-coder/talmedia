@@ -39,4 +39,4 @@ La Guemara note qu'il est enseigné</b> dans une <i>baraïta</i> <b>conformémen
 § On raconte que <b>deux</b> personnes <b>vivaient</b> dans un immeuble à deux étages ; <b>l'une habitait l'étage supérieur</b>, <b>et l'autre l'étage inférieur</b>. <b>L'étage inférieur</b> a commencé à s'<b>effondrer,</b> ses murs s'enfonçant dans le sol au point qu'il n'était plus habitable. Le propriétaire de <b>l'étage inférieur</b> <b>dit au</b> propriétaire de <b>l'étage supérieur</b> : <b>Venez et laissez-nous</b> démolir tout le bâtiment et <b>le reconstruire</b> ensemble. Le propriétaire de l'étage supérieur lui <b>dit : Je vis confortablement</b> et je n'ai aucune obligation de reconstruire votre résidence.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

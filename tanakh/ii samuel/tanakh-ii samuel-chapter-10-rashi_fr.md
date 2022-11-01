@@ -37,7 +37,7 @@
 <b>Shovach le commandant de l'aray d'Hadarezer.</b> Comme il était très puissant, il est mentionné par son nom.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -76,4 +76,4 @@
 <b>Shovach le commandant de l'aray d'Hadarezer.</b> Comme il était très puissant, il est mentionné par son nom.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

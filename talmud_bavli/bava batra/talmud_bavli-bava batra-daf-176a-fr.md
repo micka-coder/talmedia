@@ -51,4 +51,4 @@ La Gemara demande : Et la <b><i>halakha</i> est-elle conforme</b> à l'avis de R
 <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> Si le débiteur était <b>stranglé, et</b> en plus <b>un acte d'acquisition a été effectué avec</b> le garant, le garant <b>devient obligé</b> de rembourser la dette. La Gemara en déduit : <b>Par déduction</b> il ressort <b>qu'un garant n'a généralement pas besoin d'un acte d'acquisition</b> pour devenir obligé de payer. <b>Et</b> ceci est en <b>désaccord</b> avec une déclaration du <b>Rav Naḥman, car le Rav Naḥman dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

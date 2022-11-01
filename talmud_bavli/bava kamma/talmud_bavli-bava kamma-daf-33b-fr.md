@@ -72,4 +72,4 @@ La Guemara continue à expliquer la <i>baraita</i>, qui stipule : Si les <b>cré
 La Gemara demande : <b>Accordé,</b> dans le cas où <b>il a causé des dommages avant qu'il ne leur soit redevable</b>, <b>les parties lésées sont passées en premier,</b> et le bœuf est lié à la dette. <b>Mais</b> dans le cas où <b>il leur devait</b> <b>avant qu'il ne cause des dommages, le créancier</b> l'a perçu <b>en premier,</b> alors pourquoi n'a-t-il pas le droit de préemption sur le bœuf ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara lance un défi : <b>Venez</b> et <b>entendez</b> une <i>baraita</i> qu
 La Guemara répond : Ceci n'est <b>pas difficile,</b> car <b>cette</b> <i>baraita</i> est conforme à l'opinion de <b>Rabbi Yehuda,</b> qui considère que même une action non intentionnelle, c'est-à-dire, une action permise dont découle par inadvertance une action interdite, est interdite ; et <b>cette</b> déclaration de Shmuel est en accord avec l'opinion de <b>Rabbi Shimon,</b> qui soutient qu'une action permise dont découle par inadvertance une action interdite est permise. La Gemara demande : <b>Est-ce à dire que Shmuel est en accord avec</b> l'opinion de <b>Rabbi Shimon ? Mais Shmuel ne dit-il pas : On peut éteindre un morceau de métal chauffé à blanc dans une voie publique</b> le Chabbat <b>afin que les masses ne soient pas blessées par celui-ci;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

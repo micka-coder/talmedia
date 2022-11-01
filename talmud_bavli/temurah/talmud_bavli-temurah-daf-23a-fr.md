@@ -36,4 +36,4 @@ La Guemara s'oppose à l'explication de Rabbi Abba au nom du Rav : <b>Nous avons
 La Guemara poursuit son objection : <b>Et Rav dit</b> à propos de cette mishna : <b>Les animaux vivants ne sont pas rejetés.</b> En d'autres termes, l'offrande pour le péché de la première paire n'est pas disqualifiée en raison de la mort du premier bouc émissaire. Et donc, <b>lorsqu'il accomplit l'expiation,</b> il peut même <b>atteindre l'expiation avec le deuxième</b> bouc <b>de la première paire. Et l'autre</b> offrande pour le péché de la <b>dernière paire</b> <b>est comme</b> un animal <b>désigné</b> au lieu d'une offrande qui a été <b>perdue,</b> car la deuxième paire a été apportée à cause de la mort du premier bouc émissaire. <b>Et</b> la mishna précise que <b>la raison pour laquelle</b> l'offrande pour le péché restante n'est pas laissée à mourir est <b>que</b> c'est <b>une offrande pour le péché communautaire</b>, <b>mais</b> si c'était l'offrande pour le péché <b>d'un individu,</b> elle serait laissée <b>à mourir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

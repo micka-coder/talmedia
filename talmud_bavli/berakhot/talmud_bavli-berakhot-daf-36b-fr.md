@@ -60,4 +60,4 @@ En ce qui concerne la <i>halakha</i> de la benediction recitee sur les cinq espe
 La Guemara explique : Les deux declarations sont <b>necessaires,</b> comme <b>s'il nous avait enseigne</b> seulement : <b>Tout ce qui est</b> des cinq especes de cereales, on recite dessus : Qui cree les diverses sortes de nourriture, <b>J'aurais dit</b> que c'est <b>parce que</b> le grain <b>est dans sa forme pure,</b> non alteree, <b>mais</b> si on le mange <b>dans</b> le contexte d'un <b>melange, non,</b> on ne recite pas : Qui cree les differentes sortes de nourritures.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

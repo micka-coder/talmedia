@@ -15,4 +15,4 @@ Le <i>baraita</i> demande : <b>Si</b> ainsi, peut-être <b>comme là,</b> en ce 
 <b>Rabbi Elazar, fils de Rabbi Shimon, dit : "Selon l'ordonnance"</b> signifie <b>selon l'ordonnance</b> qui est écrite en ce qui concerne <b>l'offrande pour le péché d'un oiseau. Tout comme là,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -64,4 +64,4 @@
 <b>Et voici qu'ils envoient l'ignominie dans leur nez</b> Voici qu'ils envoient dans leur nez l'odeur fétide de ce "chant", qu'ils "chantent" avec le vent sortant de leur anus ; c'est-à-dire que cette ignominie qui est la leur reviendra sur leur visage. Menachem (p. 79) explique : "et voici qu'ils envoient la disgrâce dans leur nez" est une question de disgrâce et de honte ; et selon son explication, Il compare l'arôme de leurs encensoirs et (Ezek. 20:28) "la colère de leurs sacrifices" et (ibid.) "leur arôme agréable" à l'œuvre de la disgrâce des orifices. "Leur dos au Temple de l'Éternel" implique cette idée.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

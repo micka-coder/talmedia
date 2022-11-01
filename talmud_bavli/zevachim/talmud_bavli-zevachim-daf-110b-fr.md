@@ -27,4 +27,4 @@ La Gemara demande : <b>Quelle</b> est la différence <b>entre</b> ces deux avis 
 <b>Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

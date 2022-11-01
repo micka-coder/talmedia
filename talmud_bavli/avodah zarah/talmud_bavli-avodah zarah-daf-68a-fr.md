@@ -39,4 +39,4 @@ La Guemara suggère une autre source pour la déclaration de Rabbi Yoḥanan : <
 La Guemara commente : <b>Mais ici</b> il s'agit d'un cas <b>où la substance interdite <b>détournait</b> de la saveur de la pâte <b>dès le départ, et ils ne sont pas d'accord. Et si vous dites : Ici aussi,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

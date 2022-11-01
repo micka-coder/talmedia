@@ -27,4 +27,4 @@ Quelle est la différence pratique <b>entre</b> l'explication de <b>Rabbi Yoḥa
 Nous avons appris dans la mishna : <b>Et ni</b> une femme ne peut sortir le Chabbat sur le domaine public <b>avec une ville d'or.</b> La Guemara demande : <b>Quel est</b> le sens de : <b>Avec une ville d'or ? Rabba bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit : Jérusalem d'or,</b> une tiare en or gravée d'une représentation de la ville de Jérusalem,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

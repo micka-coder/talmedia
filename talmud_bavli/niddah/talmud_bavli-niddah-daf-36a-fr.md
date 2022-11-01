@@ -51,4 +51,4 @@ La Guemara explique : <b>Il s'agit ici d'une femme qui a donné naissance à une
 <b>Rav Ashi a dit : La <i>halakha</i></b> est <b>conforme</b> à l'avis <b>du Rav, que ce soit en tant que clémence ou en tant que rigueur.</b> De même, <b>Mareimar a enseigné : La <i>halakha</i></b> est <b>conforme</b> à l'avis <b>du Rav, qu'il s'agisse de clémence ou de rigueur.</b> La Gemara conclut : <b>Et la <i>halakha</i></b> est <b>conforme</b> à l'avis <b>du Rav, qu'il s'agisse de clémence ou de rigueur.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

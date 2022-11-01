@@ -45,4 +45,4 @@ La Guemara rejette cette affirmation. <b>N'a-t-il pas été dit à propos</b> de
 <b>Quand</b> Ḥizkiya et Rabbi Yoḥanan <b>sont en désaccord</b>, c'est à propos d'un cas où le donateur a désigné quatre-vingts pains <b>sans stipuler</b> combien il veut en consacrer. <b>Un Sage,</b> Ḥizkiya, <b>soutient : </b> Bien qu'il ait désigné quatre-vingts pains, il ne cherche à en consacrer que quarante, et lorsqu'il met de côté quatre-vingts pains, <b>il</b> a simplement <b>l'intention de s'assurer</b> qu'il en aura quarante, <b>et il</b> a donc <b>amené</b> les pains supplémentaires <b>à condition</b> que si les quarante premiers pains sont perdus ou deviennent rituellement impurs, les quarante seconds seront consacrés à leur place. En conséquence, les quarante premiers pains sont consacrés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

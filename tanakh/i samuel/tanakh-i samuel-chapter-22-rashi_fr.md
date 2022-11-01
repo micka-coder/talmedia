@@ -58,4 +58,4 @@
 <b>Pour l'homme qui cherche ma vie.</b> Une personne nous poursuit tous les deux. Partout où je m'échappe, tu t'échappes, car tu seras toujours dans ma sauvegarde ; comme le rend le Targum Yonathan, 'car celui qui cherche à me tuer, cherche à te tuer'. Mais cela peut aussi signifier : "Celui qui m'aimera, t'aimera, et celui qui gardera mon âme, gardera ton âme". Il existe un exemple similaire dans les Écritures : " Les hommes de sang haïssent une personne sincère, mais les hommes droits recherchent son âme.'<sup>11</sup><i class="footnote"> Mishlei 29:10.</i> Il s'agit [d'un exemple de] recherche d'une âme pour [faire] le bien.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

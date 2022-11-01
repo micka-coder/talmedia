@@ -51,4 +51,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution du dilemme
 § <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit : Quel</b> est le sens quand <b>le verset dit : "Et un second jeune taureau, tu le prendras en sacrifice pour le péché"</b> (Nombres 8:8), dans le contexte de la purification des Lévites à la suite du péché du Veau d'Or ? <b>Si</b> cela est écrit <b>pour enseigner qu'ils sont deux,</b> c'est-à-dire qu'il y a un taureau supplémentaire sacrifié, <b>n'est-il pas déjà dit : "Vous sacrifierez l'un en sacrifice pour le péché, et l'autre en holocauste, à l'Eternel"</b> (Nombres 8.12) ? <b>Au contraire,</b> on <b>pourrait</b> avoir pensé que le <b>sacrifice pour le péché</b> qui est sacrifié <b>pour les Lévites sera mangé</b> comme les autres offrandes pour le péché. Pour contrer cela, <b>le verset indique : "Et un second taureau"</b> pour souligner qu'il est <b>secondaire à l'holocauste</b> et similaire à celui-ci : <b>De même que l'holocauste ne se mange pas,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

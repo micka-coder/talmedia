@@ -45,4 +45,4 @@ En revanche, dans le cas d'un <b>nazirite</b> comme <b>Samson,</b> si <b>ses che
 <strong>GEMARA:</strong> La Gemara demande : <b>Qui a parlé d'un naziréen permanent ?</b> Puisque la mishna n'a pas encore mentionné ce concept, comment peut-elle analyser les différences entre celui-ci et un naziréen comme Samson ? La Guemara répond : La mishna <b>est incomplète et enseigne ce qui suit :</b> Dans le cas de <b>celui qui dit : je suis par la présente un nazirite permanent, il est</b> un <b>nazirite permanent. Quelle est</b> la différence <b>entre un nazirite permanent et un nazirite</b> comme <b>Samson ?</b> Dans le cas d'un <b>nazirite permanent,</b> si <b>ses cheveux poussent</b> trop <b>lourds</b> pour lui, <b>il les éclaircit</b> <b>avec un rasoir et il</b> alors <b>apporte trois animaux</b> en offrande. <b>Et s'il devient rituellement impur, il apporte</b> l'<b>offrande</b> pour l'<b>impureté.</b> Dans le cas d'un <b>nazirite</b> comme <b>Samson,</b> si <b>ses cheveux deviennent lourds, il ne peut pas les <b>alléger</b> <b>au moyen d'un rasoir,</b> <b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Dans le même ordre d'idées, on exhorte l'individu à soulager sa détresse. Le
 La mishna relate l'adresse du prêtre : <b>Mais tu n'es pas comme eux,</b> car, comme le dit le verset : "Car le Seigneur ton Dieu est Celui qui t'accompagne, pour combattre pour toi contre tes ennemis, pour te sauver" (Deutéronome 20, 4). <b>Et pourquoi</b> le verset s'élabore-t-il <b>autant</b> en explicitant la nature de la présence de Dieu au combat ? C'est <b>parce que le</b> ineffable <b>nom</b> de Dieu <b>et toutes Ses appellations</b> qui sont inscrites sur les tablettes...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

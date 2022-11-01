@@ -33,4 +33,4 @@ La Gemara relate : <b>L'Exilarque avait</b> un <b>pavillon de banquet [<i>abvarn
 Rav Huna bar Ḥinnana <b>alla et érigea</b> une clôture de <b>rames,</b> chaque roseau étant séparé du suivant par <b>moins de trois</b> millièmes de pouce. C'est-à-dire qu'il a érigé deux cloisons de ce type entre la maison et le pavillon, avec un passage entre les deux, à travers lequel l'Exilarque et ses hommes pouvaient transporter tout ce dont ils avaient besoin, car les cloisons étaient construites de manière appropriée pour la résidence. <b>Rava,</b> cependant, <b>allait</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

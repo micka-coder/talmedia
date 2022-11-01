@@ -45,4 +45,4 @@ La Guemara rejette cet avis. <b>En fait,</b> en général, <b>"On ne le mangera 
 La Gemara demande : <b>Mais, maintenant que ces</b> mots dans les <b>versets sont écrits,</b> indiquant l'interdiction de tirer un bénéfice de <i>orla</i>, <b>pourquoi ai-je</b> besoin des mots <b>"à vous",</b> c'est-à-dire, qu'est-ce que cette phrase nous enseigne ici ? La Guemara répond : <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Ce qui est énoncé : <b>"A toi,"</b> vient <b>inclure ce qui est planté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

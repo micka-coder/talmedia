@@ -60,4 +60,4 @@ La Guemara répond : <b>Non,</b> la mention d'une femme après l'accouchement n'
 La Guemara relate que Rabbi Yirmeya est effectivement <b>allé</b> et a <b>demandé</b> Rabbi Avin la raison, et Rabbi Avin <b>a répondu à</b> Rabbi Yirmeya : Les Sages ont <b>rendus</b> ce sang <b>comme la carcasse non abattue d'un oiseau casher, qui confère une impureté</b> même <b>aux</b> vêtements</b> de celui qui le mange, lorsqu'il y en a un grain d'olive <b>dans</b> sa <b>gorge,</b> malgré le fait que cette source d'impureté soit encapsulée dans son corps. Rabbi Yirmeya demande à Rabbi Avin : <b>Est-ce que ces cas sont <b>comparables ?</b> Comment peut-on comparer l'impureté d'une femme après un accouchement à l'impureté de celui qui mange la carcasse non abattue d'un oiseau casher ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

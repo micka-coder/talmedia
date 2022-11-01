@@ -60,4 +60,4 @@ C'est <b>comme le dit Rava :</b> En ce qui concerne <b>celui qui vend</b> un obj
 <b>Rav Aḥa, fils de Rav Yosef, dit à Rav Ashi : Mais nous disons au nom de Rava</b> que dans ce cas <b>il l'a acquis</b>. Rav Ashi lui <b>dit,</b> en résolution de la contradiction apparente entre ces deux versions de la décision de Rava : <b>Interpréter votre <i>halakha</i> à l'égard</b> de celui qui <b>vend son champ</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

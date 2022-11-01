@@ -36,4 +36,4 @@
 <b>Et que le Seigneur soit avec les bons</b> avec celui qui accomplit ce qui est bon et droit.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

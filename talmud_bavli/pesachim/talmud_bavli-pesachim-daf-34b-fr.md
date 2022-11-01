@@ -39,4 +39,4 @@ La Guemara répond : <b>Si tu veux, dis</b> cette réponse : <b>Ici aussi,</b> i
 <b>Rava a dit : Nous avons, nous aussi, appris</b> que les Sages ont créé des normes plus élevées en ce qui concerne les objets consacrés. Comme il a été enseigné que le verset dit à propos de la vache rousse : "Et pour l'impur, on prendra les cendres de la combustion du sacrifice pour le péché, <b>et il mettra de l'eau courante dans un récipient"/b> (Nombres 19:17), ce qui enseigne que l'eau courante de la source <b>doit couler</b> directement <b>dans le récipient</b> dans lequel elle sera sanctifiée. D'autre part, le verset dit <b>"et il mettra,"</b> ce qui signifie que l'eau doit être versée dans le récipient. <b>Apparemment</b> l'eau <b>se détache, mais elle est</b> clairement <b>attachée</b> à la source, puisqu'il a été dit précédemment que l'eau doit couler directement dans le récipient.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

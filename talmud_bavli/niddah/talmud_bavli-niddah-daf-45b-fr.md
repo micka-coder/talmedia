@@ -63,4 +63,4 @@ La Gemara répond : <b>Et</b> cela <b>n'est pas le cas,</b> car <b>Rava s'est tr
 La Guemara poursuit : <b>Mais il n'en est rien;</b> au contraire, <b>Rav Hamnuna a déduit</b> qu'il est considéré comme avant le temps <b>à partir de l'énoncé de <b>la mishna elle-même,</b> sans supposer qu'il soit superflu, comme suit : Dans <b>cette</b> mention dans la mishna de : <b>Après</b> ce <b>temps, quelles sont les circonstances ? Si</b> elle fait référence à un cas <b>où</b> le garçon <b>n'a pas</b> encore <b>développé deux</b> poils pubiens, il est mineur. Au contraire, n'est-ce pas</b> faisant référence à un cas <b>où</b> le garçon <b>a développé deux</b> <b>poils pubiens,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

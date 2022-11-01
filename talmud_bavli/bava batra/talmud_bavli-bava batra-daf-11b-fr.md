@@ -36,4 +36,4 @@ La Guemara exprime sa surprise quant à cette dernière décision : <b>Les cours
 La Guemara oriente la discussion sur les détails mentionnés dans la <i>baraita</i>. <b>Le Maître dit :</b> Si <b>il y avait auparavant</b> une entrée à cet endroit qui est maintenant <b>scellée et qu'il souhaite l'ouvrir, les habitants de l'autre <b>allée ne peuvent pas l'en empêcher</b>. <b>Rava dit : Ceci n'a été enseigné que lorsqu'il n'a pas brisé ses montants de porte,</b> c'est-à-dire lorsque les montants de porte sont restés intacts même après que l'entrée ait été scellée. <b>Mais s'il</b> a scellé l'entrée et <b>brisé ses montants de porte,</b> démontrant ainsi que l'entrée avait été complètement niée, <b>les résidents de l'autre <b>couloir</b> peuvent l'empêcher</b> d'ouvrir une nouvelle entrée. <b>Abaye dit à Rava :</b> Un <i>baraita</i> <b>est enseigné qui te soutient :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

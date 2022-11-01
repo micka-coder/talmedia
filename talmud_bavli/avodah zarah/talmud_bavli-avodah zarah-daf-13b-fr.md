@@ -36,4 +36,4 @@ La Gemara relate : <b>Rabbi Ya'akov a acheté des sandales</b> et <b>Rabbi Yirme
 <b>Et</b> en ce qui concerne <b>tous les objets restants, sans spécification</b> il est <b>permis</b> de les vendre, <b>mais</b> avec <b>spécification</b> il est <b>interdit</b> de les vendre. <b>Rabbi Meir dit : Même</b> dans le cas de <b>un bon palmier, <i>ḥatzav</i>, et <i>naklav</i>,</b> il est <b>interdit de les vendre</b> <b>aux Gentils.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Apropos de la déclaration précédente, la Gemara cite une déclaration supplé
 <b>Jusqu'à ce point</b> du psaume, <b>sa mère le bénissait. A partir de ce</b> point, <b>à partir de maintenant,</b> Dieu au <b>Ciel l'a béni,</b> car le psaume procède à une référence à Dieu à la première personne, comme s'il parlait en son nom :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

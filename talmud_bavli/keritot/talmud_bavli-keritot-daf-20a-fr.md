@@ -33,4 +33,4 @@ En ce qui concerne la dernière décision, la Guemara demande : N'est-ce pas <b>
 <b>Ami bar Avin et Rav Ḥananya bar Avin disent tous deux</b> une autre explication :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

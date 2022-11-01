@@ -42,4 +42,4 @@ La Gemara répond. Ce cas est également nécessaire, <b>De peur que vous ne dis
 Si <b>une</b> épouse <b>dit : Il est mort</b> de manière normale, <b>et</b> l'autre <b>dit : Il a été tué, Rabbi Meir dit : Puisqu'elles se contredisent, ces</b> femmes <b>ne peuvent pas se marier. Rabbi Yehuda et Rabbi Shimon disent : Puisqu'ils sont tous deux d'accord qu'il n'est pas vivant, ils peuvent se marier,</b> malgré le fait qu'ils contestent les circonstances de sa disparition. Si <b>un témoin dit : Il est mort, et un témoin dit : Il n'est pas mort,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

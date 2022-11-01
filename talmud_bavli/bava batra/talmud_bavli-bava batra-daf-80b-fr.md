@@ -54,4 +54,4 @@ La Gemara répond : <b>Au contraire, de quoi s'agit-il ici ?</b> Nous avons affa
 La Gemara demande : Mais <b>ce sont sept</b> espèces de cèdres, et non dix. <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie <b>il a dit : Ils ont ajouté à</b> la liste des cèdres <b><i>allonim</i>, <i>almonim</i>,</b> et <b><i>almugim</i>. <i>Allonim</i></b> désigne les <b>pistachiers [<i>butnei</i>], <i>almonim</i></b> sont des <b>chênes [<i>balutei</i>],</b> et <b><i>almugim</i></b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara explique : <b>Il n'est pas nécessaire</b> que la mishna mentionne le 
 § La mishna enseigne : Si les <b>bandits</b> eux-mêmes <b>ont pris</b> le mouton <b>dehors, les bandits sont responsables.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

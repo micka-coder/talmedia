@@ -42,4 +42,4 @@ La Guemara clarifie les deux côtés du dilemme : <b>Puisque le Maître a dit</b
 <b>Rabbi Elazar a soulevé un dilemme :</b> En ce qui concerne la <b>fille</b> d'une <b>relation secondaire</b> interdite,</b> c'est-à-dire une fille née d'un homme et d'une femme interdits l'un à l'autre par la loi rabbinique, dont la mère est pénalisée en étant privée de contrat de mariage, sa fille a-t-elle <b>la subsistance ou</b> n'a-t-elle pas la subsistance ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

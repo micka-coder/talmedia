@@ -30,4 +30,4 @@ La Guemara objecte : <b>Mais</b> peut-être <b>je devrais inverser</b> l'ordre, 
 <b>Chaque jour de <b>Hanouka</b> on lit des sélections <b>de</b> la portion de la dédicace de l'autel par <b>les</b> <b>princes</b> tribales (Nombres 7). <b>Lors de Pourim</b>, on lit la portion de <b>"Et Amalek vint"</b> (Exode 17:8""16). <b>Lors de la Nouvelle Lune</b>, on lit la portion de <b>"Et au début de vos mois"</b> (Nombres 28:11""15). <b>Et dans les</b> <b>veilles non sacrées</b> on lisait <b>l'acte de la Création</b> (Genèse 1:1""2:3). Le peuple juif était divisé en vingt-quatre veilles. Chaque semaine, c'était au tour d'une veille différente d'envoyer des représentants à Jérusalem pour être présents dans le Temple et assister au service sacrificiel. Ceux qui restaient devaient jeûner pendant la semaine, du lundi au jeudi, offrir des prières spéciales et lire le récit de la Création tiré de la Torah. <b>Les jours de jeûne,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara réfute cette preuve : <b>Oui, il en est bien ainsi.</b> Cette <i>bara
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue d'une mishna (<i>Ma'asrot</i> 2:7) : En ce qui concerne <b>celui qui engage un ouvrier pour préparer des figues à sécher,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

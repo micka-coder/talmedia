@@ -51,4 +51,4 @@
 <b>Il augmente</b> Heb. כביר, expression qui signifie, excessivement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

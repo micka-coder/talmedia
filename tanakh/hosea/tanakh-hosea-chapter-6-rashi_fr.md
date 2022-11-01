@@ -49,4 +49,4 @@
 <b>L'égarement de mon peuple</b> Heb. שְׁבוּת, expression de l'égarement de la jeunesse et de l'enfance, anwejjsdoure en ancien français. Comp. (Jer. 3:14) "enfants égarés (שוֹבָבִים)" ; (ibid. 31:21) "fille égarée (הַבַּת הַשׁוֹבֵבָה)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -89,5 +89,5 @@
 <b>Alors -</b> elle comprit qu'à cause [du retard] de la circoncision, il était venu pour le tuer, [et] <b>elle dit : "Époux de sang à cause de la circoncision."</b> [Signification :] Mon époux aurait été tué à cause [du retard] de la circoncision. 
 <b>À cause de la circoncision.</b> [לַמּוּלוֹת signifie :] à cause de la circoncision. [מוּלוֹת] est un nom, et la lettre <i>lamed</i> sert de préfixe signifiant : concernant, comme dans : "Et Pharaon dit ( לִבְנֵי ) <i>concernant</i> les B'nei Yisrael." Cependant, Onkelos traduit דָּמִים (sang) comme faisant référence au sang de la circoncision. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

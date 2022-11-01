@@ -20,5 +20,5 @@ Un "fils égaré et rebelle" est jugé en fonction de son résultat : qu'il meur
 ### michna 7
 Peuvent être sauvés [du péché] même au prix de leur vie : celui qui poursuit son prochain pour le tuer, [ou] un homme [pour le violer], [ou] une jeune fille fiancée [pour la violer]. Mais celui qui poursuit un animal [pour avoir des relations avec lui], ou celui qui violerait le sabbat, ou commettrait une idolâtrie, ne doit pas être sauvé [du péché] au prix de sa vie.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

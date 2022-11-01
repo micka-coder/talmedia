@@ -78,5 +78,5 @@
 <b>Tout individu qui s'approche, etc.</b> Nous ne pouvons pas prendre de précautions contre cela. Nous sommes tous autorisés à entrer dans <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la cour de la Tente de la Rencontre. Et quiconque s'avancera plus loin que ses compagnons, et entrera dans la Tente de la Rencontre, mourra. 
 <b>Avons-nous été condamnés à mort ?</b> Peut-être <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>avons-nous été abandonnés à la mort ?
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

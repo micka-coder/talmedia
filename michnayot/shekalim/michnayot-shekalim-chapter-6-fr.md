@@ -17,5 +17,5 @@ Il y avait treize coffres dans le Temple, sur lesquels étaient inscrits [respec
 ### michna 6
 Celui qui dit : "Voici, je suis obligé d'apporter du bois", il ne pourra pas apporter moins de deux log. S'il dit : "Voici, je suis tenu d'apporter de l'encens", il ne pourra en apporter moins d'une poignée. S'il dit : "Voici, je suis tenu d'apporter de l'or", il ne peut apporter moins d'un denier d'or. "Sur six [était inscrit] "pour les offrandes volontaires ": Que faisait-on avec les offrandes volontaires ? On achetait avec elles des holocaustes, dont la chair était destinée au nom [de Dieu] et les peaux aux prêtres. Voici le midrash qui a été exposé par le grand prêtre Yehoyada : "C'est un sacrifice de culpabilité ; c'est un sacrifice de culpabilité, il va à l'Éternel "(Lévitique 5:19). C'est la règle générale : tout ce qui est apporté en raison d'un péché ou d'une culpabilité, on doit en acheter des holocaustes, dont la chair est destinée au nom [de Dieu] et les peaux aux prêtres. Ainsi s'accomplissent les deux versets : un sacrifice de culpabilité pour le Seigneur et un sacrifice de culpabilité pour les prêtres, et il est dit : "L'argent apporté comme offrande de culpabilité ou comme offrande pour le péché n'était pas déposé dans la Maison de l'èternel ; il allait aux prêtres "(II Rois 12:17).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara relate un autre incident au cours duquel un individu a rédigé deux a
 L'homme <b>lui dit : Que le Maître m'écrive</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

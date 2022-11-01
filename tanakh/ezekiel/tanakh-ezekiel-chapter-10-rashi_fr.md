@@ -57,4 +57,4 @@
 <b>Et je savais</b> que le visage du bœuf était transformé en visage de chérubin, et qu'il y avait en lui deux visages d'homme : un petit visage d'enfant et un grand visage d'homme.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

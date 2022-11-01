@@ -60,4 +60,4 @@ La Gemara objecte : <b>Mais le Maître n'a-t-il pas dit : Tous</b> les animaux d
 <strong>MISHNA : </strong> <b>Le membre</b> d'un animal, avec sa chair, ses tendons et ses os, <b>et la chair</b> d'un animal, <b>qui ont été</b> partiellement sectionnés et qui restent <b>pendus de l'animal</b> n'ont pas le statut halakhique d'un membre sectionné d'un animal vivant, qui impure comme une carcasse non abattue, ou de la chair sectionnée d'un animal vivant, qui est rituellement pure, respectivement. Si on avait l'intention de manger le membre ou la chair, le membre ou la chair deviennent impurs s'ils entrent en contact avec une source d'impureté, et ils <b>importent l'impureté en tant que nourriture</b> à d'autres aliments et liquides, bien qu'ils restent <b>à leur place</b> attachés à l'animal. <b>Mais</b> pour qu'ils deviennent impurs, <b>il faut</b> qu'ils soient <b>rendus susceptibles</b> d'être impurs par contact avec l'un des sept liquides qui facilitent la susceptibilité.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

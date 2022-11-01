@@ -75,4 +75,4 @@ La Guemara explique : <b>Les rabbins ont entendu que Rabbi Akiva enseigne</b> da
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 1:1) : Celui qui <b>blasphème involontairement apporte une offrande, puisque <i>karet</i> est énoncé à son égard.</b> C'est <b>la déclaration de Rabbi Akiva. Et</b> le verset <b>déclare :</b> "Quiconque maudit son Dieu <b>portera son péché"</b> (Lévitique 24:15), comme l'expliquera la Guemara. La Gemara demande : <b>Et est-il</b> un <b>principe établi</b> que <b>lorsqu'il est écrit <i>karet</i> à propos</b> d'une mitsva, celui qui la viole involontairement <b>apporte une offrande ? Mais il</b> est le cas de la mitzva de l'offrande de <b>Paschal, et</b> de la mitzva de la <b>circoncision, car</b> la punition de <b><i>karet</i> est écrite</b> pour ne pas les accomplir, et</b> pourtant <b>on n'apporte pas d'offrande</b> pour ne pas accomplir ces mitzvot involontairement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -85,7 +85,7 @@
 <b>et personne ne les effraiera</b> c'est-à-dire que personne n'effraiera les volailles des carcasses.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -172,4 +172,4 @@
 <b>et personne ne les effraiera</b> c'est-à-dire que personne n'effraiera les volailles des carcasses.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

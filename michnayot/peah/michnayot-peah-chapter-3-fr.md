@@ -24,4 +24,4 @@ Si un homme mourant écrit ses biens [à un autre] : s'il laisse un peu de terre
 Si quelqu'un cède ses biens à son esclave, il sort en tant qu'homme libre. S'il laisse un peu de terre [pour lui-même], il ne sort pas en tant qu'homme libre. Rabbi Shimon dit : Il est dans tous les cas un homme libre, sauf s'il dit : "En effet, tous mes biens sont donnés à untel, mon esclave, à l'exception d'un seul parmi une multitude qui se trouve parmi eux [c'est-à-dire une portion non spécifiée, bien qu'infime]."
 
 >Crédit : Torat Emet 357
->License : CC-BY-SA 
+>License : CC BY-NC-SA 

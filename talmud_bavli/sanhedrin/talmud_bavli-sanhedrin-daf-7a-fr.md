@@ -57,4 +57,4 @@ La Guemara revient à l'analyse de la <i>Tosefta</i>. <b>D'où peut-on</b> dédu
 <b>Et Rabbi Shmuel bar Naḥmani dit</b> que <b>Rabbi Yonatan dit : Un juge doit toujours se regarder</b> [<i>yireh</i>] <b>comme si une épée était placée entre ses cuisses,</b> de sorte que s'il se penche à droite ou à gauche, il sera blessé, <b>et</b> comme si <b>la géhenne s'ouvrait sous lui,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

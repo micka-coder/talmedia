@@ -66,4 +66,4 @@ La Gemara répond : Le <i>baraita</i> fait référence <b>à</b> un cas où <b>u
 La Guemara demande : <b>Dans quel but</b> Shmuel a t-il dit à Rav Yehuda de faire cela ? <b>Si</b> il voulait que Rav Yehuda <b>finalise l'<b>acquisition</b> pour que Lévi bar Simon ne puisse pas se rétracter, <b>laissons-le</b> le faire <b>par le biais</b> d'une acquisition au moyen d'un <b>tissu.</b> Il n'est pas nécessaire qu'il tape sur le pigeonnier. <b>Si</b> cet incident se produisait la veille d'une Fête, et que Rav Yehuda venait demander quelle action entreprendre pour rendre les oiseaux autorisés à l'abattage lors de la <b>Fête,</b> alors frapper sur le pigeonnier ne devrait pas être nécessaire,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

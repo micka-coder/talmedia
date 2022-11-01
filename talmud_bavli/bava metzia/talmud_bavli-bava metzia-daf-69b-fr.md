@@ -45,4 +45,4 @@ La Gemara pose une question rhétorique : <b>Et il n'en a pas fait</b> une quest
 <b>Rav Pappa a dit :</b> En fait, la <b><i>halakha</i></b> est que dans le cas d'un <b>navire</b> il est permis de percevoir le <b>loyer et</b> le paiement des <b>dommages.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

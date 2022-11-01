@@ -69,4 +69,4 @@ Le verset suivant indique ce que la fille de Pharaon a dit à Jochebed : <b>"Et 
 Ailleurs, le verset dit à propos de Miriam : <b>"Et Myriam la prophétesse, sœur d'Aaron, prit</b> un tambourin dans sa main ; et toutes les femmes sortirent après elle avec des tambours et des danses" (Exode 15:20). La Gemara demande : Pourquoi Miriam est-elle désignée comme <b>"la sœur d'Aaron", et non comme la sœur de Moïse ? Rav Amram dit</b> que <b>Rav dit, et certains disent</b> que <b>Rav Naḥman dit</b> que <b>Rav dit :</b> Ceci <b>enseigne que</b> Miriam a déjà <b>prophétisé alors qu'elle était</b> encore <b>la sœur de</b> seulement <b>Aaron,</b> c'est-à-dire avant la naissance de Moïse.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

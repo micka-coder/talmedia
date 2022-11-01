@@ -42,4 +42,4 @@ Par conséquent, le raisonnement suivant devrait s'appliquer : <b>De même</b> e
 § La mishna a enseigné qu'un acte de divorce peut être écrit <b>sur une feuille d'olivier,</b> sur la corne d'une vache, ou sur la main d'une esclave, à condition que le mari lui donne ensuite l'esclave ou la vache. La Gemara demande : <b>Accordé,</b> en ce qui concerne <b>la main d'un esclave,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

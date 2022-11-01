@@ -75,4 +75,4 @@ Une autre explication : Je suis prêt à observer le commandement des rois des n
 <b>Et même si un sage déclare.</b> Qu'il la comprend, il n'en sera pas capable, car Moshé notre maître ne pouvait pas comprendre cette question,</sup>41</sup><i class="footnote">Même un sage est incapable de sonder les voies de Dieu. (Metsudas David) </i> lorsqu'il a dit : " fais-moi connaître Ta voie. "<sup>42</sup><i class="footnote">Shemos 33:13. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

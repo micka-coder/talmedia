@@ -33,4 +33,4 @@ La Gemara note : <b>Nous apprenons</b> dans cette mishna <b>ce que les Sages ont
 La Guemara demande : <b>Qu'est-ce que</b> la <i>baraita</i> <b>dit ?</b> Elle affirme d'abord que l'offrande est valable quel que soit l'endroit de l'autel où son sang est aspergé, puis elle précise que le sang doit être placé spécifiquement en dessous de la ligne rouge. La Guemara répond : <b>Voici</b> ce que dit le <i>baraita</i> <b>:</b> Si <b>il a pincé sa</b> nuque <b>à n'importe quel endroit de l'autel,</b> elle est <b>valide.</b> Si <b>il a pressé son sang à n'importe quel endroit de l'autel,</b> elle est <b>valide,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

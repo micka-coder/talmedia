@@ -45,4 +45,4 @@
 <b>Pour...seront fermées</b> Heb.  יסכר, seront fermées, comme (Gen. 8:2). "Les sources du grand abîme...furent fermées (ויסכרו-)."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

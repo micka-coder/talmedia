@@ -72,4 +72,4 @@ La Gemara explique : <b>Ce vêtement</b>, le pantalon porté par les prêtres, �
 <b>Abaye dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

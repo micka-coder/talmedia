@@ -17,5 +17,5 @@ Tout document portant la signature d'un Samaritain n'est pas valable, à l'excep
 ### michna 6
 Si un homme dit : "Donnez ce get à ma femme ou cet acte d'émancipation à mon esclave", s'il le souhaite, il peut changer d'avis sur l'un ou l'autre document, ce sont les paroles de Rabbi Meir. Les Sages disent : il peut changer d'avis dans le cas du get mais pas dans le cas de l'acte d'émancipation, car un avantage peut être conféré à une personne en dehors de sa présence mais un handicap ne peut lui être imposé qu'en sa présence ; car s'il ne veut pas entretenir son esclave, il lui est permis, mais s'il ne veut pas entretenir sa femme, il ne lui est pas permis. Rabbi Meir leur a dit : voici qu'il disqualifie son esclave de manger de la teroumah [en l'émancipant] de la même manière qu'il disqualifie sa femme [en la divorçant] ? Ils lui répondent : [l'esclave est disqualifié] car il est la propriété du prêtre". Si un homme dit : "Donne ce get à ma femme ou cet acte d'émancipation à mon esclave", et qu'il meurt [avant qu'ils ne soient donnés], on ne donne pas [les documents] après sa mort. S'il a dit : " Donne un maneh à untel et untel " et qu'il est mort, l'argent doit être donné après sa mort.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

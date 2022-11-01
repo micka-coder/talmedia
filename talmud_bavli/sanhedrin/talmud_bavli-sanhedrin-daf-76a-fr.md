@@ -81,4 +81,4 @@ Cette dérivation est <b>telle qu'elle est enseignée</b> dans un <i>baraita</i>
 <b>Abaye dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

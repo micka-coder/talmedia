@@ -54,4 +54,4 @@ La Guemara conteste cette affirmation : Serait-il plus facile de racheter la ser
 La Gemara demande : <b>Et</b> est-ce que <b>Abaye</b> soutient qu'on <b>ne peut pas</b> émanciper une esclave même <b>en raison d'un interdit</b> qui est violé ? <b>Le Rav Ḥanina bar Rav Ketina n'a-t-il pas dit</b> que <b>Rav Yitzḥak dit :</b> Il y avait <b>un incident impliquant une femme</b> qui était <b>une femme mi-servante mi-libre,</b> car elle avait appartenu à deux maîtres et avait été émancipée par l'un d'eux,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

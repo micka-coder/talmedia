@@ -39,4 +39,4 @@ La Gemara répond : <b>Mais plutôt, que</b> faut-il dire ; <b>que</b> l'express
 La mishna déclare : <b>Et les rabbins disent : Il a voulu</b> inclure dans cette expression <b>seulement celui dont la nature est de naître.</b> La Guemara demande : <b>Qu'est-ce que</b> ce terme <b>exclut ?</b> La Gemara répond : Il sert à <b>exclure les poissons et les oiseaux,</b> qui ne naissent pas mais sont issus d'œufs, alors que le mot <i>noladim</i> désigne ceux qui naissent du ventre de leur mère.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara répond : <b>Comme l'a dit Rabbi Yoḥanan</b> dans un contexte diff�
 <b>Ravina soulève une objection</b> basée sur ce que nous avons appris dans une autre mishna : Dans le cas de <b>une personne qui est rituellement impure</b> avec l'impureté communiquée par <b>un cadavre qui a pressé des olives ou des raisins</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Parmi la liste des éléments de la mishna à l'égard desquels les disciples de
 La Gemara demande plus loin : <b>Encore,</b> la question n'est pas claire, car le décret des mains a été <b>émis</b> par le roi <b>Solomon. Comme l'a dit Rav Yehuda</b> que <b>Shmuel a dit : Au moment où Salomon institua</b> les ordonnances de <b><i>eirouv</i> et</b> de <b>lavage des mains</b> pour les purifier de leur impureté, <b>une Voix Divine émergea et dit</b> à sa louange : <b>"Mon fils, si ton cœur est sage, mon cœur sera heureux, même le mien"</b> (Proverbes 23:15), et ainsi : <b>Mon fils, sois sage et réjouis mon cœur, afin que je puisse répondre à ceux qui me raillent"</b> (Proverbes 27 : 11). La Guemara répond : <b>C'est arrivé</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

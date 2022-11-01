@@ -81,4 +81,4 @@ Le <i>tanna</i> <b>lui dit :</b> Êtes-vous en train de dire que cette déclarat
 <strong>MISHNA :</strong> Dans le cas de <b>celui qui accomplit la <i>ḥalitza</i> avec sa <i>yevama</i>,</b> par décret rabbinique, c'est comme si elle avait été mariée avec lui et qu'il avait ensuite divorcé. Par conséquent, <b>il lui est interdit</b> d'avoir des relations <b>avec ses proches et elle est interdite</b> d'avoir des relations <b>avec ses proches.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -87,4 +87,4 @@ Cette derniere <i>halakha</i> comporte de nombreuses mises en garde : <b>Et nous
 De maniere tangentielle au sujet des reins, la Guemara cite ce que <b>les Sages ont enseigne</b> dans une <i>baraita</i> en ce qui concerne les roles des differents organes : <b>Les reins conseillent, le cœur comprend, la langue faconne</b> les sons qui sortent de la bouche, la <b>bouche acheve</b> la mise en forme de la voix, l'<b>oesophage absorbe et laisse sortir toutes sortes d'aliments,</b> la <b>trachee produit la voix,</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -52,4 +52,4 @@
 <b>Nous leur dirons que nous avons été miséricordieux avec eux.</b> Nous avons été miséricordieux avec eux parce qu'ils ne savaient pas quoi faire, car nous ne pouvions pas fournir à chacun de ces hommes une femme au moment de la guerre avec Yoveish Gilod, sauf pour quatre cents d'entre eux. Et si c'est votre serment qui vous perturbe, il n'y a ici rien de pécheur de votre part, puisque ce n'est pas vous qui leur avez fourni vos filles, de sorte que vous seriez maintenant blâmables. Salutations paisibles, n'ayez aucune crainte !
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

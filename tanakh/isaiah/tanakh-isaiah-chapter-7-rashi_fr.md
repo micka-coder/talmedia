@@ -112,7 +112,7 @@
 <b>Et ce sera pour le pâturage des bœufs</b> Là, leurs bêtes paîtront sur de gras pâturages.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et il arriva aux jours d'Achaz</b> Que voyait l'Écriture pour retracer sa lignée ? Mais, puisque la fin du verset dit : "Et il ne put lui faire la guerre", cela vous apprend que le mérite de ses aïeux lui tenait lieu de succès. Les anges tutélaires dirent devant le Saint, béni soit-il : Malheur ! Qui est ce méchant homme qui est devenu roi ? Il leur répondit : Il est le fils de Jotham, il est le fils d'Ozias. Ses ancêtres étaient justes. Je ne veux donc pas lui faire de mal. C'est le sens des mots "et il ne pouvait pas lui faire la guerre", à cause du mérite de ses ancêtres. (Ceci se trouve dans Gen. Rabbah 63:1).
 
@@ -226,4 +226,4 @@
 <b>Et ce sera pour le pâturage des bœufs</b> Là, leurs bêtes paîtront sur de gras pâturages.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

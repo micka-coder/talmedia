@@ -75,4 +75,4 @@ La Guemara répond : <b>Le Miséricordieux limite</b> l'extension de l'interdict
 Ceci est <b>tel qu'il est enseigné</b> dans un <i>baraita</i> : <b>Les dédicaces, tant qu'elles sont en possession de leur propriétaire, sont comme des biens consacrés</b> <b>à tous égards, comme il est dit : "Tout objet consacré est très saint pour le Seigneur"</b> (Lévitique 27:28). Une fois que le propriétaire les a <b>donnés au prêtre, ils sont comme des biens non consacrés à tous égards, comme il est dit : "Tout objet consacré en Israël sera pour Toi"</b> (Nombres 18:14). Rava poursuit : En conséquence, concernant la phrase <b>"Il ne faut pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara cite un defi supplementaire : <b>Venez entendre</b> une contradiction 
 Nous avons appris dans la mishna : Celui qui <b>construit une nouvelle maison ou achete de nouveaux recipients</b> recite : Beni"¦ Celui qui nous a donne la vie, nous a soutenus et nous a amenes jusqu'a ce moment. A propos de cette benediction, <b>Rav Huna a dit : Ils ont seulement enseigne</b> que l'on recite : Qui nous a donne la vie, lors de l'achat d'un nouveau recipient lorsque <b>il ne</b> possede pas deja <b>un objet similaire,</b> c'est-a-dire dont il a herite. <b>Cependant, s'il</b> possede deja <b>quelque chose de semblable, il n'a pas besoin de reciter une benediction,</b> car ce n'est pas nouveau pour lui. <b>Rabbi Yohanan a dit : Meme</b> si <b>quelqu'un</b> possede deja <b>un objet similaire</b> dont il a herite, <b>il doit reciter une benediction</b> car il n'a jamais auparavant achete un recipient de ce genre.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

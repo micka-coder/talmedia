@@ -51,4 +51,4 @@ Sur une note similaire, <b>Rabbi Zeira dit</b> que <b>Rav dit : Quiconque enseig
 § La mishna enseigne que <b>celui qui entre en partenariat avec</b> un prêtre ou un gentil <b>doit marquer</b> l'animal. La Gemara demande : <b>Et</b> on est obligé de marquer l'animal <b>même</b> s'il entre en partenariat <b>avec un Gentil ? Et</b> la Gemara <b>souleve une contradiction</b> d'une <i>baraïta</i> : <b>Celui qui s'associe à un prêtre doit marquer</b> l'animal, <b>mais celui qui s'associe à un Gentil et</b> celui qui abat des animaux consacrés <b>disqualifiés</b> <b>n'a pas besoin de marquer</b> l'animal.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

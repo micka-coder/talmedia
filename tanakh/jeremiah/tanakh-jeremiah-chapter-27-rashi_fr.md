@@ -58,7 +58,7 @@
 <b>Jusqu'au jour où je me souviendrai d'eux</b> A l'époque de Cyrus, comme l'explique le livre d'Esdras (1:7 11).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Au début du règne de Jehoïakim</b> Trois ans avant la montée sur le trône de Nabuchodonosor, il a prophétisé à son sujet qu'il régnerait.
 
@@ -118,4 +118,4 @@
 <b>Jusqu'au jour où je me souviendrai d'eux</b> A l'époque de Cyrus, comme l'explique le livre d'Esdras (1:7 11).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

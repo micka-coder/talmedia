@@ -63,4 +63,4 @@ La Guemara demande : <b>Dans</b> un cas où l'offrande <b>est devenue impure, qu
 La Guemara demande : <b>En ce qui concerne</b> une offrande impliquant <b>le public, quelle est la raison</b> pour laquelle Rabbi Yosei accepte l'opinion de Rabbi Eliezer ? C'est <b>parce que l'impureté rituelle est permise dans</b> les cas impliquant <b>le public.</b> Cette explication peut être rejetée pour deux raisons. <b>Une</b> raison est <b>que vous avez entendu que Rabbi Yosei a dit</b> que <b>l'impureté rituelle est</b> simplement <b>dépassée dans</b> les cas impliquant <b>le public ; </b> elle n'est pas totalement autorisée. <b>Et en outre, si</b> Rabbi Yosei se référait <b>à</b> l'offrande du <b>public,</b> est-ce seulement <b>Rabbi Eliezer</b> qui valide l'offrande, <b>et non Rabbi Yehoshua ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

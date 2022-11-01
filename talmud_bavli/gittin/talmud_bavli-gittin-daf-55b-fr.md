@@ -54,4 +54,4 @@ La Gemara explique : <b>Jérusalem a été détruite à cause de Kamtza et de ba
 L'homme qui accueillait le festin <b>arrivait et trouvait</b> bar Kamtza <b>assis</b> au festin. L'hôte <b>dit à</b> bar Kamtza. <b>Cet homme est l'ennemi [<i>ba'al devava</i>] de cet homme,</b> c'est-à-dire que tu es mon ennemi. <b>Que</b> alors <b>vous voulez ici ? Lève-toi</b> et <b>pars.</b> Bar Kamtza <b>lui a dit : Puisque je suis</b> déjà <b>venu, laisse-moi rester et je te donnerai de l'argent</b> pour <b>tout ce que je mangerai et boirai.</b> Seulement, ne me fais pas honte en me renvoyant.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

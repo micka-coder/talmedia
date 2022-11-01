@@ -39,4 +39,4 @@ La Guemara explique : Cette déclaration de Rav Pappa sert <b>à exclure</b> l'a
 Le <i>baraita</i> soulève une difficulté : Pourquoi un verset est-il nécessaire pour enseigner que l'obligation de s'approcher s'applique à l'offrande de repas d'un pécheur ? <b>Mais</b> cette <i>halakha</i> <b>est</b> susceptible d'être dérivée par <b>inférence logique.</b> Le <i>baraita</i> développe : La procédure d'apporter une offrande de repas <b>est énoncée ici,</b> dans le contexte de l'offrande de repas d'un pécheur,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

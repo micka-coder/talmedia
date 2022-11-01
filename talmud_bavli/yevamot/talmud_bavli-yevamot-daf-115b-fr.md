@@ -33,4 +33,4 @@ En réponse à cette affirmation, <b>Ravina dit à Rav Ashi : Et ne sommes-nous 
 <b>Rava dit : D'où tire-t-on</b> mon raisonnement selon lequel on ne se préoccupe pas de deux personnes ayant un nom identique ? <b>Comme il y avait deux</b> billets à ordre produits à Meḥoza, et</b> ces noms des créanciers étaient <b>inscrits dessus : Ḥavai bar Nanai et Nanai bar Ḥavai, et Rava bar Avuh a collecté des dinars</b> pour eux <b>avec ces billets à ordre</b>, sans se préoccuper de la possibilité qu'ils puissent se référer à d'autres personnes. <b>Et</b> les noms <b>Ḥavai bar Nanai et Nanai bar Ḥavai sont très courants à Meḥoza,</b> c'est-à-dire qu'il existe certainement d'autres personnes portant ces noms, et pourtant il ne s'est pas inquiété de cette question. La Guemara demande : <b>Et Abaye,</b> comment répond-il à cette preuve ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

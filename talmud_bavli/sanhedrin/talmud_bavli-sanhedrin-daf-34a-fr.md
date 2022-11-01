@@ -54,4 +54,4 @@ La Guemara remet en question cet exemple : <b>Mais là,</b> Rabbi Yehoshua et Ra
 <b>Au contraire, Rav Pappa dit :</b> Un exemple d'une explication à partir de deux versets différents est <b>tel qu'il est enseigné</b> dans une <i>baraita</i> : <Rabbi Yosei HaGelili dit : Du fait qu'il est indiqué :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

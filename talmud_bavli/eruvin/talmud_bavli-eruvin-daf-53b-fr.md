@@ -75,4 +75,4 @@ Après avoir discuté de la parole sage et de la sagesse des femmes juives, la G
 La Guemara relate davantage la sagesse de Berurya : <b>Berurya est tombé sur un certain étudiant qui murmurait ses études</b> plutôt que d'élever la voix.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

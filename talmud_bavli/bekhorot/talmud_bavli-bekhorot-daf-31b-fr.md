@@ -60,4 +60,4 @@ Rava explique : <b>Quand</b> une offrande de la dîme animale <b>se rend</b> con
 Rava poursuit : Ce n'est qu'en ce qui concerne <b>un élément qui est évalué lorsque</b> l'animal est <b>vivant,</b> c'est-à-dire sa viande, qui donne à l'animal sa valeur première, que <b>les Sages ont décrété</b> qu'il ne peut être vendu même <b>après</b> son <b>abattage, en raison</b> de la crainte que l'on puisse vendre l'animal <b>avant</b> son <b>abattage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

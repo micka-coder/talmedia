@@ -30,4 +30,4 @@ La Gemara aborde une question similaire. <b>Rabba a dit :</b> Si <b>Reuven a ven
 La Gemara note plus loin : <b>Et</b> même si Shimon a vendu à Lévi <b>une terre de qualité intermédiaire, nous avons dit</b> que le créancier peut reprendre possession de la terre de Lévi <b>uniquement</b> dans un cas <b>où</b> Lévi <b>n'a pas laissé</b> Shimon avec <b>une terre équivalente de qualité intermédiaire.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

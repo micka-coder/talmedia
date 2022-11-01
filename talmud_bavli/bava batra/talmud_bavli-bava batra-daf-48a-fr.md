@@ -30,4 +30,4 @@ La Gemara demande : <b>Et selon Rav Beivai, qui conclut cette</b> déclaration d
 <b>Rava dit :</b> La <b><i>halakha</i></b> est que si quelqu'un a été <b>suspendu</b> et ainsi contraint de vendre un certain objet, <b>et qu'il l'a vendu</b>, <b>sa vente est valable. Et nous avons dit</b> que c'est la <i>halakha</i> <b>seule</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ Le premier-né prend une double part de la succession du père, mais il ne prend
 ### michna 10
 Les éléments suivants ne reviennent pas [à leurs propriétaires] l'année du Jubilé : La part du premier-né, [L'héritage de] celui qui hérite du [bien] de sa femme [Et de] celui qui fait yibbum avec sa belle-sœur Et un présent, les paroles de Rabbi Meir. Mais les sages disent : un cadeau est comme une vente. Rabbi Elazar dit : tout cela revient au Jubilé. R. Johanan ben Berokah dit : si quelqu'un hérite des biens de sa femme, il les rend aux membres de la famille et il déduit du prix d'achat.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

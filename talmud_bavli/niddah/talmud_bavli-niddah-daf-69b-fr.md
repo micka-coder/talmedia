@@ -63,4 +63,4 @@ La deuxième question se référait à la <b>fille</b> d'une femme qui avait ét
 Rabbi Yehoshua <b>leur a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

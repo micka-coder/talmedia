@@ -21,4 +21,4 @@ Cela signifie <b>comme un homme</b> joint et <b>attaché à son <i>livaya</i>,</
 § La mishna a enseigné que le Grand Prêtre <b>prenait le sang</b> du taureau <b>de celui <b>qui l'agitait</b> pour qu'il ne coagule pas, <b>et il entrait</b> et l'aspergeait comme celui qui fouette. La Gemara demande : <b>Quel est</b> le sens de : <b>Comme quelqu'un qui fouette ? Rav Yehuda a démontré</b> l'action avec sa main,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

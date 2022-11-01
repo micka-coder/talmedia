@@ -24,4 +24,4 @@ La Guemara explique : <b>Quel est le raisonnement de Rabbi Meir ? Il tire</b> ce
 La Guemara demande : <b>Et quel est le raisonnement</b> de <b>Rabbi Shimon ?</b> C'est <b>comme il est enseigné</b> dans une <i>baraita</i> que du verset : <b>"Tu ne mangeras pas de carcasse d'animal non abattu ; tu peux la donner à l'étranger résident [<i>la'ger</i>] qui se trouve dans tes portes,</b> pour qu'il la mange" (Deutéronome 14 : 21), on en déduit qu'en ce qui concerne les carcasses d'animaux, <b>tout ce qui est propre à être consommé par un <i>ger</i> <i>toshav</i> <b>est appelé carcasse non abattue</b> et est interdit,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

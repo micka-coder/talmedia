@@ -48,4 +48,4 @@ La Gemara demande : <b>Cela</b> fonctionne <b>bien selon celui qui a dit</b> que
 <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yoḥanan</b> que <b>le verset dit : "Tu prépareras pour toi la fête de <i>Sukkot</i>"</b> (Deutéronome 16:13). L'expression "fête de <i>Sukkot</i>" <b>conduit <i>sukka</i> à la Fête du sacrifice de paix</b> [<b><i>ḥagiga</i>]. De même que l'offrande de paix de la Fête est un objet non susceptible d'impureté rituelle et que sa croissance provient du sol,</b> comme les animaux se nourrissent de la végétation, <b>de même,</b> la couverture de <b>la <i>sukka</i></b> doit être <b>une substance non susceptible d'impureté rituelle et sa croissance provient du sol.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

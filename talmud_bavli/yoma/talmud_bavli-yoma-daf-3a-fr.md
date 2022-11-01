@@ -18,4 +18,4 @@ La Guemara rejette cette solution : <b>Même</b> si <b>vous dites</b> que c'est 
 La Gemara demande : <b>Et dire</b> que l'exigence dérivée est de séquestrer le prêtre avant <b>Rosh HaShana, car</b> là aussi, <b>c'est une séquestration de sept</b> jours <b>pour un jour.</b> Les jours précédant Rosh HaShana sont des jours de semaine, et comme lors de l'inauguration, on sacrifie un taureau et un bélier. <b>Rabbi Abbahou dit</b> que cela aussi est rejeté : <b>On déduit un taureau et un bélier</b> que le Grand Prêtre apporte <b>de sa propre propriété</b> à Yom Kippour <b>d'un taureau et d'un bélier</b> qu'Aaron apportait <b>de sa propre propriété</b> à l'inauguration. Ceci est <b>à l'exclusion de <i>Shavouot</i> et de Roch HaShana,</b> lorsque le taureau et le bélier sacrifiés sont <b>de la propriété de la communauté</b> et n'appartiennent pas au prêtre. La Gemara demande : <b>Cela</b> fonctionne <b>bien</b> selon celui qui a dit</b> que chaque fois que la Torah utilise la phrase : <b>Prenez vous,</b> cela signifie <b>de votre propre</b> propriété,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ Nous avons appris dans la mishna parmi les personnes responsables d'accomplir de
 <b>Et</b> nous avons appris dans la mishna, parmi les personnes responsables d'effectuer des catégories primaires de travail : <b>Un qui vanne, et un qui sélectionne, et un qui broie, et un qui tamise.</b> La Gemara demande : Le travail interdit de <b>vannage est le même que</b> le travail interdit de <b>sélection,</b> qui <b>est le même que</b> le travail interdit de <b>criblage.</b> Ils sont tous identiques dans la manière dont ils sont effectués et ont le même objectif : Séparer les aliments des déchets qui les accompagnent. Pourquoi était-il nécessaire de les énumérer toutes ? Une réponse a été apportée par <b>Abaye et Rava, qui ont tous deux dit</b> et établi un principe : <b>Toute manière</b> de travail <b>qui était</b> accomplie <b>dans le Tabernacle,</b> pour les besoins du Tabernacle,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

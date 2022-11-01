@@ -36,4 +36,4 @@ La Gemara dit : <b>Nous avons trouvé</b> une source pour l'opinion de Rabbi Shi
 La Gemara répond : Il en découle juste <b>comme le dit Rabbi Ḥama, fils de Rabbi Ḥanina,</b> en explication de l'avis de Rabbi Meir (10a) : Le fait qu'en ce qui concerne la chèvre des Fêtes, les versets qui mentionnent les chèvres auraient pu simplement dire : <b>Une chèvre,</b> mais au lieu de cela, ils disent : <b>"Et un bouc"</b> enseigne que les boucs des Fêtes effectuent une expiation similaire à celle du bouc de la Nouvelle Lune qui est mentionné au début de ce passage. <b>Ici aussi,</b> le fait que le verset aurait pu simplement dire : <b>Un bouc,</b> mais indique au contraire : <b>"Et un bouc"</b> enseigne que les boucs des Fêtes effectuent une expiation similaire à celle du bouc de la Nouvelle Lune, qui est mentionné au début de ce passage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

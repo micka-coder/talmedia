@@ -60,4 +60,4 @@ La Guemara relate un incident similaire : <b>L'hôte de Rav Pappa, et certains d
 <b>Quand</b> cet homme <b>vint</b> revenir <b>le lendemain,</b> Rav Pappa <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

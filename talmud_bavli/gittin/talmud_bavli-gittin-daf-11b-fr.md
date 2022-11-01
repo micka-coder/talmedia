@@ -45,4 +45,4 @@ Le rabbin Yirmeya élabore : La raison de la décision de la mishna est que <b>t
 <b>Ameimar a dit, et certains disent</b> que c'est en fait <b>Rav Pappa</b> qui a dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara présente plusieurs résolutions de cette difficulté. <b>Rava dit : 
 Si un agneau pascal <b>a été mélangé avec des animaux premiers-nés</b>, <b>Rabbi Shimon dit : Si</b> ceux dont les offrandes se sont mélangées étaient des <b>groupes de prêtres, ils peuvent manger</b> tous les animaux la nuit de Pessah. En effet, les prêtres sont autorisés à manger la viande d'un animal premier-né, et l'abattage et les autres services pour un animal premier-né sont les mêmes que pour un agneau pascal. Les prêtres présents doivent déclarer qu'ils ont l'intention de sacrifier comme agneau pascal l'animal qui sera l'agneau pascal et de sacrifier comme animal premier-né l'animal qui sera le premier-né.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

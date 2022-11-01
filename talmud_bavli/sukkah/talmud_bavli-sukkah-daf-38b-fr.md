@@ -24,4 +24,4 @@ La Gemara demande : <b>Et peut-être qu'après que Shaphan les ait lues, Josias 
 A propos du <i>hallel</i>, la Guemara cite des <i>halakhot</i> supplémentaires. <b>Rava a dit : Qu'une personne ne récite pas : "Bienheureux celui qui vient", et ensuite,</b> après une pause, réciter : <b>Au nom du Seigneur.</b> Qu'il récite plutôt, sans pause : <b>Bienheureux celui qui vient au nom du Seigneur.</b> Rav Safra dit à</b> Rava :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

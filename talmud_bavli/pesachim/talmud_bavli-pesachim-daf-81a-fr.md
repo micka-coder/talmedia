@@ -45,4 +45,4 @@ La Guemara répond : Un cas de <i>zava</i> à part entière se trouve <b>dans</b
 <b>Rabba a dit :</b> Ce dilemme peut être résolu par une <b><i>a fortiori</i> inférence : De même que dans un lieu où l'impureté rituelle connue ne lui est pas permise,</b> par ex, en ce qui concerne l'agneau pascal, pour lequel l'impureté connue disqualifie l'offrande et il faudrait observer la seconde <i>Pesaḥ</i>, néanmoins <b>l'impureté de la profondeur lui est permise,</b> d'autant plus <b>dans un lieu</b> où <b>l'impureté rituelle connue lui est permise,</b> en ce qui concerne les offrandes communautaires, car ces offrandes peuvent être sacrifiées même dans un état d'impureté connu s'il n'y a aucun moyen de sacrifier l'offrande dans un état de pureté,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

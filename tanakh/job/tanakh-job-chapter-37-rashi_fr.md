@@ -93,4 +93,4 @@
 <b>C'est pourquoi les hommes Le craignent</b> pour débattre avec Lui. (car) <b>Il ne regarde pas les sages de cœur</b> qui veulent traiter sagement avec Lui, car leur sagesse n'est rien à Ses yeux. Nos Sages (Rosh Hashanah 17a) ont expliqué cela en se référant à Job. Elihu lui dit : "Parce que tu as voulu imposer une peur excessive à ta génération, tu n'as pas mérité que des fils au cœur sage te restent en vie."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

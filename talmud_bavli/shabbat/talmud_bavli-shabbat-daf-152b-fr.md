@@ -39,4 +39,4 @@ Rav Naḥman a de nouveau interrogé Rav Aḥai sur la conservation de la chair,
 <b>Un certain apostat</b> a un jour <b>dit à Rabbi Abbahou : Tu dis</b> que <b>les âmes des justes sont stockées sous le Trône de Gloire,</b> mais si c'est le cas, <b>comment la femme oracle a-t-elle ressuscité Samuel en utilisant la nécromancie</b> si son âme n'était plus dans ce monde ? Rabbi Abbahou <b>lui répondit : Là, c'était dans les douze mois</b> de sa mort, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : Pendant <b>douze mois entiers</b>, une personne décédée'son <b>corps reste et son âme monte et descend,</b> de sorte qu'elle est parfois dans ce monde avec son corps. <b>Après douze mois, le corps cesse</b> d'exister.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

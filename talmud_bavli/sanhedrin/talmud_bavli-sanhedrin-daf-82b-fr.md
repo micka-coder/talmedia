@@ -57,4 +57,4 @@ Rav Aḥa bar Huna <b>souleve une objection à</b> l'opinion de Rav Sheshet selo
 <b>Et on n'est pas responsable de leur</b> exécution,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

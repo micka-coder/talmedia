@@ -24,7 +24,7 @@ La Guemara demande : <b>Et pourquoi ai-je</b> besoin de la déclaration <b>que R
 La Guemara demande : Comment Rav Yossef peut-il expliquer que le litige dans la mishna concerne les dommages causés par des circonstances indépendantes de sa volonté ? <b>Mais la mishna n'enseigne-t-elle pas</b> : </b> Donc, si l'argent <b>est perdu ?</b> Le désaccord entre Rabbi Tarfon et Rabbi Akiva porte sur un cas de dommage dû à une perte, et non sur un cas de dommage causé par des circonstances indépendantes de sa volonté.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>seulement</b> dans un cas <b>où</b> le trouveur <b>a utilisé</b> l'argent. <b>Mais</b> dans un cas où le trouveur <b>n'a pas utilisé</b> l'argent, tout le monde est d'accord que <b>si</b> l'argent <b>est perdu,</b> le trouveur est <b>exempté</b> de payer la restitution de sa perte.
 
@@ -50,4 +50,4 @@ La Guemara demande : <b>Et pourquoi ai-je</b> besoin de la déclaration <b>que R
 La Guemara demande : Comment Rav Yossef peut-il expliquer que le litige dans la mishna concerne les dommages causés par des circonstances indépendantes de sa volonté ? <b>Mais la mishna n'enseigne-t-elle pas</b> : </b> Donc, si l'argent <b>est perdu ?</b> Le désaccord entre Rabbi Tarfon et Rabbi Akiva porte sur un cas de dommage dû à une perte, et non sur un cas de dommage causé par des circonstances indépendantes de sa volonté.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

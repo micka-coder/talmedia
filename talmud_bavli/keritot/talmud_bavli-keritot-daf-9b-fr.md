@@ -72,4 +72,4 @@ La Guemara demande : Pourquoi était-il nécessaire de préciser qu'en analysant
 § <b>Un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

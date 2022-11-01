@@ -63,4 +63,4 @@ Le Grand Prêtre asperge le sang de deux offrandes, le taureau et le bouc. Il as
 <b>Mais selon celui qui dit</b> que cela aussi <b>est</b> considéré comme <b>une juxtaposition, que peut-on dire ? </b> Comment ces <i>halakhot</i> peuvent-elles être dérivées ? La Guemara répond : <b>Ce sont</b> les <b>lieux</b> où le sang est aspergé <b>qui sont dérivés les uns des autres</b> dans la deuxième juxtaposition. La première juxtaposition enseigne une <i>halakha</i>, à savoir que le sang du taureau et le sang de la chèvre doivent être comparés l'un à l'autre. La seconde juxtaposition n'enseigne pas une <i>halakha</i> en ce qui concerne le sang du taureau et le sang du bouc en soi ; elle enseigne plutôt une comparaison entre l'aspersion effectuée dans le Saint des Saints et l'aspersion effectuée dans le Sanctuaire. Il s'agit de deux juxtapositions sans lien entre elles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

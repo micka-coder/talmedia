@@ -66,4 +66,4 @@ A propos d'une déclaration que Rabbi Elazar a dit que Rabbi Ḥanina a dit, la 
 Haman dit : <b>"Pourtant, tout cela ne me sert à rien"</b> (Esther 5:13). <b>Rabbi Elazar a dit</b> que <b>Rabbi Ḥanina a dit : Lorsque Haman vit Mardochée assis à la porte du roi, il dit : Pourtant, tout cela ne me sert à rien.</b> Cela peut être compris <b>comme</b> a été suggéré <b>par Rav Ḥisda, car Rav Ḥisda a dit : Celui-ci,</b> Mardochée, <b>est venu comme</b> celui qui a l'héritage d'un <b>homme riche [<i>perozebuli</i>],</b> alors que <b>celui-là,</b> Haman, <b>est venu</b>...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

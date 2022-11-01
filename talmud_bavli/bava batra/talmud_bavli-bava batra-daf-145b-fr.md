@@ -36,4 +36,4 @@ La Gemara cite d'autres interprétations de ce verset. <b>Rabbi Ḥanina dit : "
 <b>Rabbi Yoḥanan dit : "Tous les jours des pauvres sont terribles" ; ceci</b> fait référence à <b>une personne empathique,</b> car elle est constamment affectée par la souffrance dans le monde. <b>"Et pour ceux qui ont bon cœur, c'est toujours la fête" ; ceci</b> fait référence à <b>une personne cruelle,</b> qui n'est pas peinée par la souffrance des autres. <b>Et Rabbi Yehoshua ben Levi dit : "Tous les jours des pauvres sont terribles" ; ceci</b> fait référence à une personne <b>de tempérament impatient. "Et pour ceux qui ont bon cœur, c'est toujours une fête" ; ceci</b> fait référence à une personne <b>de tempérament patient.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

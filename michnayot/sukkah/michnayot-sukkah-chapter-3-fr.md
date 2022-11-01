@@ -44,5 +44,5 @@ Rabbi Yose dit : si le premier jour de la fête tombait le Chabbat, et qu'il a o
 ### michna 15
 Une femme peut recevoir [un lulav] de son fils ou de son mari et le remettre dans l'eau le jour de Chabbat. Rabbi Juda dit : le Chabbat, ils peuvent être remis [dans l'eau dans laquelle ils étaient précédemment conservés], le jour de la fête [l'eau] peut être ajoutée, et les jours intermédiaires [de la fête, l'eau] peut également être changée. Un mineur qui sait secouer [le lulav] est obligé [de prendre] le lulav.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Gemara considère un nouveau cas : En ce qui concerne <b>un <i>karpef</i></b>
 <b>Rav Abba, père du Rav, fils du Rav Mesharshiya, a dit : Nous disons au nom de Rava ce qui suit : L'eau est</b> considérée <b>comme des arbres plantés</b>, de sorte qu'il est <b>permis</b> de la transporter. Une cour remplie d'eau est toujours adaptée à l'habitation, car l'eau profite aux résidents de la cour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

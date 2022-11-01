@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais n'est-il pas écrit : "Seek the Lord while He may be
 <strong>GEMARA:</strong> La Gemara demande : <b>Et</b> s'ils sortent pour le mois d'Av à cause du jeûne, <b>qu'ils sortent aussi</b> dans les mois de <b>Tammouz et Tevet,</b> car ils contiennent aussi des jours de jeûne public.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

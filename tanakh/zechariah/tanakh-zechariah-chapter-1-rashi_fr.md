@@ -51,4 +51,4 @@
 <b>et un fil à plomb sera tendu</b> pour mesurer son mur, sa longueur et sa largeur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

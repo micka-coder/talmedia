@@ -11,5 +11,5 @@ Si un homme a acheté [du grain d'un am haaretz] pour l'utiliser comme semence o
 ### michna 4
 Le demai peut être utilisé pour faire un érouv, et pour faire un partenariat [de ruelle], et on récite une bénédiction sur lui, et on fait une invitation [à réciter Birkat Hamazon] sur lui, et on peut en séparer [les dîmes] même si on est nu, ou quand c'est le crépuscule [la veille de Chabbat]. Et s'il en a prélevé la deuxième dîme avant la première dîme, cela n'a pas d'importance. L'huile avec laquelle le tisserand se graisse les doigts est soumise [aux règles du] demai, mais [l'huile] que le lainier met sur la laine est exempte [des règles du] demai.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

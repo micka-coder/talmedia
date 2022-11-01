@@ -57,4 +57,4 @@ Les deux faces de ce dilemme sont les suivantes : <b>Puisque le Maître a dit</b
 La Guemara tente de répondre à la question : <b>Venez</b> et <b>entendez</b> la preuve d'un incident qui a transpiré, <b>comme</b> il y avait <b>un certain</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

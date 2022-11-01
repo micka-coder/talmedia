@@ -36,4 +36,4 @@ La Gemara demande : Si c'est le cas, <b>laissons</b> simplement <b>dire</b> que 
 La Guemara demande : <b>A propos de quel</b> principe ces <i>tanna'im</i> <b>sont-ils en désaccord ? Un Sage,</b> Rabbi Yehuda, <b>soutient</b> que <b>à Rosh HaShana, plus une personne plie son esprit</b> et s'humilie en se courbant dans la prière, <b>mieux c'est.</b> Par conséquent, un <i>shofar</i> courbé est sonné comme une allusion à nos esprits et nos corps courbés. <b>Mais à Yom Kippour, plus une personne redresse son esprit</b> et prie avec simplicité, <b>mieux c'est.</b> Par conséquent, un <i>shofar</i> droit est sonné. <b>L'autre Sage,</b> le <i>tanna</i> anonyme de la mishna, <b>soutient</b> le contraire : <b>A Rosh HaShana, plus une personne redresse son esprit</b> et évite toute torsion, <b>mieux c'est. Lors des jeûnes,</b> en revanche, <b>plus une personne plie son esprit</b> et s'humilie, <b>plus c'est bon.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

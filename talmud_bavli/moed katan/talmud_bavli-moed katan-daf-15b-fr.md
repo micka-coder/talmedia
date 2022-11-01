@@ -54,4 +54,4 @@ La Guemara demande avec étonnement : Est-ce <b>moins grave ? Mais certainement 
 La Guemara demande : <b>Quel est</b> la <i>halakha</i> en ce qui concerne <b>un lépreux qui envoie ses offrandes</b> au Temple ? La Gemara répond : <b>Venez</b> et <b>entendez</b> une preuve, <b>comme il est enseigné</b> dans une <i>baraita</i> à propos d'un prêtre devenu rituellement impur : "Et après qu'il se soit purifié, on comptera pour lui sept jours" (Ezéchiel 44:26). Le verset doit être compris comme suit : <b>"Et après qu'il se soit purifié" ; après qu'il se soit séparé de</b> son <b>parent décédé</b>. <b>"Ils compteront pour lui sept jours" ; ce sont les sept jours de son décompte</b> avant qu'il puisse se purifier. <b>"Et le jour où il entrera dans le sanctuaire, dans le parvis intérieur, pour faire le service dans le sanctuaire, il sacrifiera son sacrifice pour le péché</b>, dit le Seigneur Dieu" (Ezéchiel 44:27) ;
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

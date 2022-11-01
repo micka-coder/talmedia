@@ -42,4 +42,4 @@ La Guemara clarifie : <b>Grâce, selon celui qui dit</b> que le sang est versé 
 <b>Mais selon celui qui dit</b> que le sang est versé sur la <b>base sud</b> de l'autel, <b>quelle en est la raison ? Rabbi Asi a dit : Ce <i>tanna</i> soutient</b> que <b>l'ensemble</b> externe de l'<b>autel se trouve au nord</b> de la cour du Temple. Par conséquent, la base sud se trouve au centre de la cour, en face de l'entrée du Sanctuaire. C'est à cela que le verset fait référence lorsqu'il dit : "A l'entrée de la Tente de la Rencontre" (Lévitique 4:7). La Guemara présente <b>une autre formulation</b> de l'explication de Rabbi Asi : <b>L'entrée entière</b> du Sanctuaire <b>se trouve au sud</b> de l'autel. En conséquence, lorsque le prêtre sort du Sanctuaire, le socle sud est le premier qu'il rencontre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

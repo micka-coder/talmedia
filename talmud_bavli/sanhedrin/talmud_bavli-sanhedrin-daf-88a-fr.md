@@ -57,4 +57,4 @@ Si l'ancien rebelle <b>dit : Ceci est</b> la compréhension correcte <b>à mes y
 <b>Venez</b> et <b>entendez</b> la preuve de ce <b>que Rabbi Yoshiya dit :</b> Il y a <b>trois sujets</b> que <b>Zeira,</b> un <b>des résidents de Jérusalem, m'a dit : </b> La première est que dans le cas d'un <b>mari qui,</b> après avoir averti sa femme de ne pas entrer en réclusion avec un certain homme, <b>rétracte son avertissement, son avertissement est rétracté,</b> et si elle entre en réclusion avec cet homme, elle n'est pas rendue interdite à son mari.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

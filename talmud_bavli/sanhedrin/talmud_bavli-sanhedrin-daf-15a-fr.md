@@ -45,4 +45,4 @@ La Gemara répond : <b>Comme il est écrit : "Quiconque couche avec un animal se
 § La mishna enseigne que <b>un bœuf qui doit</b> être <b>poinçonné</b> est jugé <b>par vingt-trois</b> juges, <b>comme il est dit : "Le bœuf sera lapidé et aussi son propriétaire sera mis à mort"</b> (Exode 21:29). De ce verset, on déduit que tout <b>comme</b> la manière de <b>mettre à mort le propriétaire, il en est de même</b> de la manière de <b>mettre à mort le bœuf.</b> Par conséquent, il s'ensuit que vingt-trois juges sont nécessaires pour statuer sur le cas du bœuf qui doit être lapidé. <b>Abaye dit à Rava : D'où</b> savons-nous <b>que cette phrase</b> : <b>"Et aussi son propriétaire sera mis à mort", vient</b> enseigner <b>que</b> tout <b>comme</b> la manière de <b>mettre à mort le propriétaire, ainsi est</b> la manière de <b>mettre à mort le bœuf ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

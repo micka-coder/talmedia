@@ -17,5 +17,5 @@ S'il a pincé [l'oiseau sacrifié] avec sa main gauche ou la nuit ; s'il a abatt
 ### michna 6
 Si quelqu'un a effectué une melikah, et qu'il a trouvé qu'il [l'oiseau] était un terefah : Rabbi Meir a dit : il ne se souille pas dans le gosier ; Rabbi Juda a dit : il se souille dans le gosier. Rabbi Meir a dit : si, en ce qui concerne une bête, lorsqu'elle est une charogne (une nevelah), elle souille par contact ou par transport, mais que l'abattage purifie son terefah de l'impureté, lorsqu'il s'agit de la charogne (nevelah) d'un oiseau qui ne souille pas par contact ou par transport, n'est-il pas logique que l'abattage purifie son terefah ? Or, de même que nous avons constaté que l'abattage, qui le rend [un oiseau de charogne] propre à la consommation, purifie sa téréfah de son impureté, de même la melikah (pincement), qui le rend [un sacrifice d'oiseau] propre à la consommation, purifie sa téréfah. Rabbi Yose dit : il suffit qu'il soit comme la nevelah d'une bête, qui est purifiée par l'abattage, mais pas par la melikah (pincement).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

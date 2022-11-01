@@ -45,4 +45,4 @@ La Gemara demande : <b>Qu'est-ce</b> que cela nous <b>enseigne ? </b> Est-ce un 
 La Guemara répond : La mishna <b>ici,</b> dans <i>Shevuot</i>, est la <b>principale</b> référence à cette <i>halakha</i>, car elle traite des <i>halakhot</i> de serments, alors que la mishna <b>là, </b> dans le tractate <i>Kiddushin</i>, <b>le cite incidemment,</b> dans le contexte d'une étude plus large de la différence entre ces deux types de propriété.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

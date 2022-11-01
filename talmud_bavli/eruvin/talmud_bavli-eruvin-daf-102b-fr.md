@@ -57,4 +57,4 @@ La Guemara soulève une difficulté : <b>Si</b> en fait la mishna est en accord 
 La Guemara demande : <b>Et Rabbi Yehouda, conformément à l'avis de qui</b> a-t-il exprimé son opinion ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

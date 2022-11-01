@@ -75,4 +75,4 @@ La Guemara poursuit sa discussion en ce qui concerne les méthodes d'étude de l
 <b>Rabbi Eliezer dit</b> que nous apprenons cette même idée <b>de là : "Dis à la sagesse : tu es ma sœur, et appelle l'intelligence, ta parente [<i>moda</i>]"</b> (Proverbes 7:4), ce qui signifie : <b>Établis des signes [<i>moda'im</i>]</b> qui transmettent la connaissance de <b>la Torah. Rava dit</b> à propos de ce verset : <b>Définir des temps déterminés [<i>mo'adim</i>] pour l'étude de la Torah</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

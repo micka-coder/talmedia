@@ -45,4 +45,4 @@ En ce qui concerne le verset : <b>"Et vois les fils de tes fils ; que la paix so
 § La Guemara revient à la mishna : <b>Cette exposition a été exposée</b> par <b>Rabbi Elazar</b> ben Azarya <b>avant les Sages</b> dans le vignoble de Yavne : De même que les fils n'héritent qu'après la mort du père, de même, les filles ne sont soutenues par ses biens qu'après la mort de leur père.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

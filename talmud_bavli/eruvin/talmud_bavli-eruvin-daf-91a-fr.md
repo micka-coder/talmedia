@@ -39,4 +39,4 @@ La Gemara répond : A cet égard, <b>Rabbi Shimon</b> se conforme <b>à son</b> 
 <b>Cependant, si l'on dit</b> qu'il fait référence à un cas <b>où l'on n'a pas établi de <i>eirouv</i>,</b> dans <b>quelle</b> circonstance peut-on trouver le cas des <b>vases de la maison dans la cour</b> ? Cela pose une difficulté pour le Rav. Rav Sheshet <b>souleve l'objection, et il la résout :</b> Il fait référence <b>au</b> cas d'un <b>chapeau ou d'un châle,</b> que l'on a porté dans la maison et que l'on a ensuite sorti dans la cour pour l'y déposer. De cette manière, il est possible que des objets pris dans la maison se retrouvent dans la cour, même si un <i>eiruv</i> n'a pas été établi.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

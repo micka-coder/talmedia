@@ -62,7 +62,7 @@
 <b>Et ils se battront contre toi</b> Ils se disputeront et se battront contre toi pour réfuter les paroles de ta prophétie.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Les paroles de Jérémie fils de Hilkija</b> Que le fils de la femme corrompue, dont les actes sont corrects Jérémie descendait de Rahab la prostituée et qu'il réprimande le fils de la femme juste dont les actes sont corrompus voilà Israël qui a corrompu ses actes qui descend de la semence légitime.
 
@@ -126,4 +126,4 @@
 <b>Et ils se battront contre toi</b> Ils se disputeront et se battront contre toi pour réfuter les paroles de ta prophétie.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

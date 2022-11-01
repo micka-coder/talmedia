@@ -54,4 +54,4 @@ La Guemara soulève une objection. <b>Nous avons appris</b> dans la mishna qu'un
 La Gemara répond : <b>Il est</b> sujet à une dispute entre <b><i>tanna'im</i></b> à ce sujet, <b>comme cela a été enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

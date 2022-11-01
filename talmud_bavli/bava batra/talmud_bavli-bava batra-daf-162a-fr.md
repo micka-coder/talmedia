@@ -9,4 +9,4 @@
 Le Rav Amram analyse le <i>baraita</i> : <b>Qu'est-ce qui est différent</b> dans le cas de <b>deux</b> <b>lignes vierges</b> que le document n'est pas valide ? Si vous dites que <b>peut-être</b> le détenteur du document va profiter de ces deux lignes vierges, et <b>forger</b> des informations non vérifiées <b>et les écrire</b> dans ces lignes, alors dans le cas de <b>une ligne</b> laissée vierge <b>aussi,</b> il peut <b>forger</b> des informations <b>et les écrire</b> dans cette ligne. <b>Au contraire,</b> faut-il <b>ne pas conclure de</b> la <i>baraita</i> qu'on <b>ne peut pas apprendre</b> de nouveaux détails <b>à partir</b> de la <b>dernière ligne</b> d'un document ? Ce n'est donc que lorsque deux lignes sont laissées vides que l'on craint que de fausses informations soient ajoutées à l'avant-dernière ligne. La Guemara affirme : <b>Conclure de</b> cette <i>baraïta</i> qu'il en est ainsi .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

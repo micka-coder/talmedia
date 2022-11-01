@@ -21,4 +21,4 @@ La Gemara demande : <b>Et que</b> Rav Sheshet <b>établisse</b> la <i>baraita</i
 <b>Et Rabbi Yehuda</b> aurait pu <b>vous dire</b> que, en ce qui concerne le second <i>Pesaḥ</i>, <b>le verset dit : "Selon tout le statut de l'offrande pascale, ils la garderont"</b> (Nombres 9:12), ce qui indique qu'elle doit <b>même</b> être apportée <b>en</b> état d'impureté <b>rituelle,</b> contrairement au premier <i>Pesaḥ</i>. Quant à l'affirmation de la première <i>tanna</i>, selon laquelle toute la raison de la seconde <i>Pesaḥ</i> est due à l'impureté rituelle, Rabbi Yehuda pourrait répondre : <b>La Torah a cherché</b> une opportunité <b>pour</b> celui qui était impur au moment du premier <i>Pesaḥ</i> <b>de l'accomplir dans</b> un état de <b>pureté rituelle;</b> si <b>il n'a pas mérité</b> de l'accomplir dans la pureté, <b>il doit</b> néanmoins <b>l'accomplir</b> même <b>dans</b> un état d'impureté <b>rituelle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

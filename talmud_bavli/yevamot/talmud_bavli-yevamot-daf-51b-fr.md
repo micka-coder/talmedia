@@ -24,4 +24,4 @@ Cette source de l'opinion de <b>ben Azzai</b> est <b>comme il est enseigné</b> 
 § La mishna déclare : <b>Comment ? </b> S'il <b>a effectué des fiançailles léviriennes</b> avec sa <i>yevama</i> et lui a donné un acte de divorce, <b>etc.</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

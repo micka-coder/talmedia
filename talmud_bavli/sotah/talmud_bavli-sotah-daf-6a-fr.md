@@ -57,4 +57,4 @@ La Guemara répond : Est-ce que <b>vous dites</b> ceci <b>selon</b> l'avis de <b
 <b>Rav soulève une objection</b> à partir de la dernière clause de la mishna là (22a), qui enseigne : <b>Et ce sont</b> les femmes <i>sota</i> <b>dont les offrandes de repas sont brûlées</b> et non offertes sur l'autel :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

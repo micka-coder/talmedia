@@ -39,4 +39,4 @@ La Gemara commente : Selon cette réponse, le langage des deux <i>mishnayot</i> 
 La Guemara répond que cela fait référence à un cas où il s'est rendu <b>dans une zone dans laquelle il existe une incertitude quant à l'emplacement d'une tombe ou d'un cadavre [<i>mais haperas</i>],</b> dans laquelle il est interdit <b>par la loi rabbinique</b> à un prêtre de pénétrer. <b>Comme le dit Rav Yehuda</b> ce <b>Rav dit : Une personne</b> qui passe par <b>une <i>haperas</i> peut souffler</b> sur la poussière avant de faire chaque pas, ce qui exposerait tout os sous la poussière, <b>et marcher.</b> Un prêtre peut se fier à cette méthode d'examen et entrer dans le champ.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais</b> si c'est le cas, <b>à quel aliment</b> cela fai
 <b>Et si</b> le <i>baraita</i> se réfère <b>à la consommation du</b> second <b>tithe,</b> cela aussi est difficile.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

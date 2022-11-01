@@ -9,4 +9,4 @@ Pour <b>celui qui dit à sa femme : Ton artisanat est <i>konam</i> sur moi,</b> 
 Si le mari dit : De ce <b>que tu prépares, je ne mangerai pas jusqu'à Pessah,</b> ou, avec ce <b>que tu prépares, je ne me couvrirai pas jusqu'à Pessah,</b> alors, si elle l'a <b>préparé</b> <b>avant Pessah,</b> il <b>est permis</b> à lui de <b>manger ou de se couvrir</b> avec eux <b>après Pessah.</b> Si, toutefois, il a dit : De ce <b>que tu prépares jusqu'à Pessah, je ne mangerai pas, ou</b> de ce <b>que tu prépares jusqu'à Pessah, je ne me couvrirai pas,</b> alors, si elle <b>l'a préparé</b> <b>avant Pessah,</b> il <b>est interdit</b> à lui <b>d'en manger ou de s'en couvrir</b> <b>après Pessah.</b> S'il lui dit : <b>Bénéfice de moi jusqu'à Pessah si tu vas chez ton père</b> à partir de maintenant <b>jusqu'à ce que la fête</b> de <i>Sukkot</i> te soit interdite, et que <b>elle soit allée</b> chez lui <b>avant Pessah,</b> il <b>est interdit</b> qu'elle tire <b>bénéfice</b> de <b>lui jusqu'à Pessah.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

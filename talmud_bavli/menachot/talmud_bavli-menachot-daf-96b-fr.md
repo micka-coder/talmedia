@@ -39,4 +39,4 @@ On peut déduire de la mishna que si on <b>laisse</b> une partie de la surface d
 <b>Et si vous disiez</b> le cas de la Table des pains de messe est différent, car <b>ici,</b> en ce qui concerne la table recouverte de marbre, la mishna fait référence <b>à une couverture permanente</b> qui est fixée à la table avec des clous, alors que <b>là,</b> dans le cas de la table de pain de mie, la discussion fait référence <b>à une couverture qui n'est pas permanente,</b> puisque l'or n'était pas fixé à la table de pain de mie avec des clous, cette explication est difficile. <b>Mais Reish Lakish n'a-t-il pas soulevé un dilemme à Rabbi Yoḥanan :</b> La mishna qui discute de la table recouverte de marbre se réfère-t-elle uniquement <b>à un recouvrement permanent, ou</b> même <b>à un recouvrement qui n'est pas permanent ?</b> Se réfère-t-elle uniquement à un cas <b>où l'on <b>recouvre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

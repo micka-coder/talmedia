@@ -12,4 +12,4 @@
 <b>Au contraire, si ce</b> cas <b>de Rabbi Abba est comparable</b> à un cas comme celui-ci, il est comparable <b>à</b> un cas où il y a <b>un seul témoin et</b> il témoigne <b>du fait que quelqu'un a profité de la terre pendant <b>deux ans, et</b> la comparaison se fait en termes de paiement <b>pour</b> le <b>produit</b> qu'il a consommé. En ce qui concerne la consommation du produit, deux témoins auraient rendu le possesseur redevable, car la consommation du produit pendant seulement deux ans n'établit pas la présomption de propriété. Par conséquent, un seul témoin l'oblige à prêter serment. Puisqu'il a lui-même affirmé avoir profité de la terre comme le témoin l'a déclaré, il ne peut prêter serment pour contester le témoignage. Par conséquent, il devra payer pour le produit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

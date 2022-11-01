@@ -48,4 +48,4 @@ Lorsque Rabbi Avin s'est présenté devant Rabbi Abbahou et lui a posé cette qu
 La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre eux ? Rabbi Yirmeya dit : La différence pratique entre eux est</b> en ce qui concerne <b>un agneau pascal qui est apporté</b> lorsque la majorité de la nation est <b>en état d'impureté <b>rituelle.</b> Selon <b>celui qui dit</b> que l'interdiction de briser un os ne s'applique qu'à <b>un agneau pascal valide</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

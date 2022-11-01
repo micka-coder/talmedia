@@ -39,4 +39,4 @@ Nous avons appris dans la mishna que <b>Rabbi Yehuda a dit : Nous avons trouvé<
 L'accent mis sur l'expression " de l'un " enseigne que pour qu'une personne soit responsable, il suffit qu'elle effectue une partie seulement du travail interdit. Cependant, <b>si</b> cela découle de l'utilisation de l'expression <b>"d'un seul",</b> j'aurais <b>pu</b> penser qu'on est responsable <b>même si on n'a écrit qu'une seule lettre, ou</b> même si <b>on n'a tissé qu'un seul fil, ou</b> même si <b>on n'a façonné qu'un seul œil du tamis,</b> c'est-à-dire, en disposant les roseaux pour créer une chaîne, puis en entrelaçant un seul roseau comme trame ;
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

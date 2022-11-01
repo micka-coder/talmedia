@@ -113,5 +113,5 @@
 <b>Viens te reposer, Hachem.</b> Menachem interprète cela comme un terme signifiant le repos. De même, "avec le repos et le calme, tu seras sauvé". 
 <b>[Parmi] les myriades et les milliers d'Israël.</b> Cela nous informe que la Présence divine ne se repose pas parmi les Israélites lorsqu'ils sont moins de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>vingt-deux mille.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

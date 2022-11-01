@@ -78,4 +78,4 @@ La Gemara commente : <b>Disons</b> que <b>Rava et Rabbi Zeira contestent le</b> 
 La Guemara explique les deux avis : <b>Rav a dit : Il est permis de transporter dans toute</b> la véranda fermée, car <b>on dit</b> que <b>le bord du toit descend</b> jusqu'au sol <b>et ferme</b> la véranda fermée de tous les côtés ; par conséquent, elle est considérée comme un domaine privé séparé. <b>Et Shmuel a dit : On ne peut porter que</b> une distance de <b>quatre coudées,</b> car <b>on ne dit pas</b> que <b>le bord du toit descend et ferme</b> la véranda fermée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

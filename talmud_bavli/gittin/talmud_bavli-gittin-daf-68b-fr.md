@@ -69,4 +69,4 @@ La Gemara ajoute : <b>Et même ainsi,</b> bien qu'Ashmedai ait fui, Salomon <b>a
 Comme remède <b>à la migraine, qu'il apporte un coq sauvage et l'égorge en utilisant un dinar d'argent,</b> afin que le sang coule <b>sur le côté</b> de sa tête <b>qui lui fait mal. Et il devra faire attention à son sang</b> pour <b>ne pas s'aveugler l'œil. Et il devra l'accrocher au montant de la porte</b> de sa maison, <b>de sorte que lorsqu'il entre, il s'y frotte et lorsqu'il sort, il s'y frotte.</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

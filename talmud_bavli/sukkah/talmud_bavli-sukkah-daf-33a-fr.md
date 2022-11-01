@@ -51,4 +51,4 @@ Sur une note connexe, la Gemara demande : <b>Qui</b> est la <i>tanna</i> qui <b>
 Rava <b>dit à</b> Rav Ḥisda :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

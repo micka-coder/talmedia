@@ -33,4 +33,4 @@ La Guemara répond : La prémisse de ce dilemme <b>de Rami bar Ḥama est certai
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve à partir d'un verset écrit sur la plaque frontale : "Et elle sera sur le front d'Aaron, <b>et Aaron portera le péché commis avec les objets sacrés</b> que les enfants d'Israël consacreront, même tous leurs dons sacrés ; et elle sera toujours sur son front, afin qu'ils soient acceptés devant Dieu" (Exode 28:38). <b>Et</b> les Sages ont expliqué : <b>Quel péché Aaron <b>porte-t-il ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

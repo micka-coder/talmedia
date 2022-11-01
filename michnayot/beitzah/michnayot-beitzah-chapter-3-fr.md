@@ -23,5 +23,5 @@ Il est interdit d'aiguiser un couteau pendant une fête, mais on peut le tirer s
 ### michna 8
 Un homme peut dire [à Yom Tov] à son compagnon : "Remplis-moi ce récipient", mais pas dans une mesure spécifique. Rabbi Judah dit : s'il s'agit d'un récipient mesuré, il ne peut pas le remplir. Il est arrivé que Abba Shaul ben Batnit avait l'habitude de remplir ses mesures la veille de Yom Tov et de les donner à ses clients le jour de Yom Tov. Abba Shaul dit : il avait l'habitude de le faire même pendant hol hamoed (les jours intermédiaires de la fête), en raison de la clarification des mesures. Mais les sages disent : il avait également l'habitude de le faire un jour ordinaire afin de vider les mesures. Un homme peut se rendre chez un commerçant chez qui il va généralement et lui dire : "Donne-moi [tant] d'œufs et de noix", car c'est la façon dont un maître de maison fait ses comptes dans sa propre maison.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

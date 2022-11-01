@@ -48,7 +48,7 @@ La Gemara commente : <b>Et</b> ces Sages <b>ne sont pas en désaccord</b> en ce 
 <b>Les Sages ont enseigné :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 A l'inverse, si deux personnes se sont engagées dans <b>deux joint-ventures et</b> ont enregistré les deux dans <b>un seul document,</b> cela se fera au <b>désavantage de l'emprunteur.</b> Ils calculent les bénéfices et les pertes des deux transactions ensemble, et donc tant que les bénéfices d'une joint-venture sont supérieurs aux pertes de l'autre, l'investisseur n'aura pas à subir de perte.
 
@@ -98,4 +98,4 @@ La Gemara commente : <b>Et</b> ces Sages <b>ne sont pas en désaccord</b> en ce 
 <b>Les Sages ont enseigné :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

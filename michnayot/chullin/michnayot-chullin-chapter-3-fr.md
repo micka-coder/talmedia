@@ -20,5 +20,5 @@ Les caractéristiques du bétail et des animaux sauvages sont indiquées dans la
 ### michna 7
 De sauterelles : tout ce qui a quatre pattes, quatre ailes, des pattes qui sautent, et des ailes qui couvrent la plus grande partie du corps, [est propre] Rabbi Yose dit : son nom doit être sauterelle. Des poissons : tout ce qui a des nageoires et des écailles [est pur]. Rabbi Juda dit : il doit y avoir [au moins] deux écailles et une nageoire. Les écailles sont celles qui sont immobiles, les nageoires sont les [ailes] grâce auxquelles il nage.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

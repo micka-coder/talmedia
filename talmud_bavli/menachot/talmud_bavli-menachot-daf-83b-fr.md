@@ -24,4 +24,4 @@ La <i>baraita</i> se poursuit : <b>Lorsque</b> le verset <b>déclare : "Si</b> i
 <b>Et si</b> la Torah <b>nous avait enseigné</b> seulement qu'un reste d'offrande pascale <b>dont le temps est passé mais dont l'année n'est pas passée</b> est sacrifié comme offrande de paix, on pourrait penser que c'est <b>parce que</b> l'offrande pascale <b>a été rejetée dès la première <i>Pesaḥ</i> ; mais</b> dans un cas <b>où ni son temps</b> de sacrifice <b>ni sa</b> première <b>année ne sont passés,</b> dans <b>lequel</b> cas il est encore <b>apte à</b> être sacrifié comme <b>offrande pascale</b> la veille de la Pâque, <b>je dirais</b> qu'il n'est <b>pas</b> sacrifié comme offrande de paix. Par conséquent, les trois versets <b>sont nécessaires.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

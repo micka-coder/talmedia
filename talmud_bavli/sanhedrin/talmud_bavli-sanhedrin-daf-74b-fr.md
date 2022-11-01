@@ -30,4 +30,4 @@ La Guemara commente : <b>Et Rava suit sa</b> propre ligne de <b>raisonnement, ca
 La Gemara demande : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <b>à propos</b> de cette question ? <b>Rav Adda bar Ahava dit</b> que <b>on dit</b> dans <b>l'école du Rav : Il est écrit</b> que Naaman, commandant de l'armée du roi d'Aram, dit au prophète Elisha : <b>"Pour cette affaire, que le Seigneur pardonne à ton serviteur, que lorsque mon maître entre dans la maison de Rimmon pour s'y prosterner et qu'il s'appuie sur ma main, je me prosterne</b> dans la maison de Rimmon" (II Rois 5:18). C'est-à-dire qu'il a été forcé de se prosterner devant une idole par crainte de son maître, le roi d'Aram. <b>Et il est écrit</b> dans le verset suivant : <b>"Et il lui dit : Va en paix"</b>, ce qui indique qu'Elisée ne lui a pas reproché d'agir de la sorte.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

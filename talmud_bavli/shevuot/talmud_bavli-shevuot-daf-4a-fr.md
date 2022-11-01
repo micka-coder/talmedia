@@ -42,4 +42,4 @@ Rav Kahana poursuit : <b>Au contraire, Rabbi</b> Yehuda HaNasi <b>explique son p
 Le <i>baraita</i> continue : <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Cette preuve <b>n'est pas nécessaire,</b> car <b>il est dit</b> dans le verset :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

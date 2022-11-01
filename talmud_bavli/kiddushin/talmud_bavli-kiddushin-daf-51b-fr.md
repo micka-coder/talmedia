@@ -51,4 +51,4 @@ La Guemara suggère en outre : <b>Venez</b> et <b>entendez</b> une preuve de la 
 La Gemara demande : <b>Si c'est le cas, quel</b> est le but <b>d'énoncer</b> ceci ; quel nouveau <i>halakha</i> enseigne-t-il ? La Guemara répond : <b>Il était nécessaire</b> d'enseigner <b>la dernière clause</b> de cette mishna : Si chaque homme <b>mort</b> avant de divorcer, <b>et que celui-ci <b>avait un frère et que celui-là</b> <b>avait un frère,</b> alors <b>cette</b> frère <b>accompagne <i>ḥalitza</i> les deux, et ce</b> frère <b>accompagne <i>ḥalitza</i> les deux. </b> Aucun des deux hommes ne peut accomplir un mariage lévirat, de peur qu'il n'accomplisse un mariage lévirat avec la sœur de son <i>yevama</i>. Si <b>ceci</b> un <b>avait un</b> frère <b>et que</b> un <b>avait deux</b> frères,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

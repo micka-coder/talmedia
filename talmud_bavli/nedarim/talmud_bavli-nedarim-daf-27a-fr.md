@@ -27,4 +27,4 @@ La Guemara explique deux possibilités : <b>Si</b> on dit que c'est en accord <b
 La Gemara demande : <b>Et selon Rava,</b> en <b>quelle</b> manière <b>c'est</b> différent de</b> ce <b>que nous avons appris</b> dans une mishna (<i>Gittin</i> 76b) : Si un homme dit à sa femme : <b>Voici ton acte de divorce à partir de maintenant si je n'arrive pas à partir de maintenant jusqu'à</b> la conclusion de <b>douze mois, et qu'il est mort au cours</b> de ces <b>douze mois, ce</b> document <b>est</b> un <b>acte de divorce</b> valable à partir de sa déclaration. <b>Pourquoi ? Mais il a été victime de circonstances indépendantes</b> de son <b>contrôle,</b> car la mort en est l'exemple ultime ? La Gemara répond : <b>Disons</b> que <b>peut-être</b> c'est <b>différent là-bas,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

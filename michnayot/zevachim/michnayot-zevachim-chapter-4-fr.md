@@ -17,5 +17,5 @@ Les sacrifices des non-juifs : on n'est pas responsable à leur égard pour le p
 ### michna 6
 Le sacrifice est égorgé pour six choses : pour le sacrifice, pour le sacrifiant, pour le Nom [divin], pour les offrandes de feu, pour le parfum, pour le plaisir ; et un hatat et un asham pour le péché. Rabbi Yose a dit : même si l'on n'avait aucun de ces objectifs dans son cœur, cela est valide, car il s'agit d'un règlement du tribunal. Puisque l'intention n'est déterminée que par l'adorateur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

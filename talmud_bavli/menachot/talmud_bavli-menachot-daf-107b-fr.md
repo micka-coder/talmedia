@@ -57,7 +57,7 @@ La Guemara répond : <b>Oui, la première clause et la dernière clause</b> sont
 <b>Et bar Padda dit :</b> Les six cornes de collecte <b>correspondent</b> aux six types d'animaux dont on peut apporter des offrandes de péché et des offrandes de culpabilité. Si un animal désigné pour une offrande de culpabilité ou une offrande de péché communale a été perdu, un autre animal a été consacré à sa place, puis le premier animal a été retrouvé, la valeur de cet animal est placée dans l'une de ces cornes de collecte, et une offrande communale est apportée avec elle. L'une d'elles était destinée à la valeur des <b>taureaux</b> apportés comme offrandes communales pour le péché. <b>Et</b> une était pour la valeur des <b>béliers</b> apportés comme offrandes de culpabilité pour vol ou pour mauvais usage de biens consacrés,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Ajoute une colombe et un pigeon</b> à la liste précédente.
 
@@ -116,7 +116,7 @@ La Guemara répond : <b>Oui, la première clause et la dernière clause</b> sont
 <b>Et bar Padda dit :</b> Les six cornes de collecte <b>correspondent</b> aux six types d'animaux dont on peut apporter des offrandes de péché et des offrandes de culpabilité. Si un animal désigné pour une offrande de culpabilité ou une offrande de péché communale a été perdu, un autre animal a été consacré à sa place, puis le premier animal a été retrouvé, la valeur de cet animal est placée dans l'une de ces cornes de collecte, et une offrande communale est apportée avec elle. L'une d'elles était destinée à la valeur des <b>taureaux</b> apportés comme offrandes communales pour le péché. <b>Et</b> une était pour la valeur des <b>béliers</b> apportés comme offrandes de culpabilité pour vol ou pour mauvais usage de biens consacrés,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Ajoute une colombe et un pigeon</b> à la liste précédente.
 
@@ -175,4 +175,4 @@ La Guemara répond : <b>Oui, la première clause et la dernière clause</b> sont
 <b>Et bar Padda dit :</b> Les six cornes de collecte <b>correspondent</b> aux six types d'animaux dont on peut apporter des offrandes de péché et des offrandes de culpabilité. Si un animal désigné pour une offrande de culpabilité ou une offrande de péché communale a été perdu, un autre animal a été consacré à sa place, puis le premier animal a été retrouvé, la valeur de cet animal est placée dans l'une de ces cornes de collecte, et une offrande communale est apportée avec elle. L'une d'elles était destinée à la valeur des <b>taureaux</b> apportés comme offrandes communales pour le péché. <b>Et</b> une était pour la valeur des <b>béliers</b> apportés comme offrandes de culpabilité pour vol ou pour mauvais usage de biens consacrés,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

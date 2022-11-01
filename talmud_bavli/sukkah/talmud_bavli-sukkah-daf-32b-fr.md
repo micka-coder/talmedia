@@ -66,4 +66,4 @@ La Gemara s'interroge : <b>Cette question elle-même est difficile,</b> car il y
 <b>Abaye a dit : Tu peux le trouver</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

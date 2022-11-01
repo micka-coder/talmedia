@@ -75,4 +75,4 @@ De meme, <b>apres que Rabbi Zeira ait conclu ses prieres, il a dit la priere sup
 <b>Apres sa priere, Rav Safra a dit ce qui suit :</b> <br><b>Que ce soit Ta volonte, Seigneur notre Dieu, que Tu etablisse la paix</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

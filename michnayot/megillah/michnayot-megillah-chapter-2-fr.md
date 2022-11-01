@@ -17,5 +17,5 @@ Toute la journée est un temps valide pour lire la Meguila, réciter le Hallel, 
 ### michna 6
 La nuit entière est valable pour la récolte du Omer et pour brûler la graisse et les membres [sur l'autel]. C'est le principe général : toute chose dont le commandement est pendant la journée, est valable toute la journée et toute chose dont le commandement est la nuit est valable toute la nuit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

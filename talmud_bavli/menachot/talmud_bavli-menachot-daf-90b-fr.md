@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> selon l'avis de <b>Rabbi Yonatan, pourquoi ai-je</
 La Guemara répond : Malgré son principe, un verset indépendant <b>était nécessaire</b> pour enseigner cela, car il pourrait <b>entrer dans votre esprit de dire :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

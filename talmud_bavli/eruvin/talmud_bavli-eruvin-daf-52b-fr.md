@@ -42,4 +42,4 @@ La Guemara soulève une autre difficulté. <b>Mais n'a-t-on pas enseigné</b> da
 <strong>GEMARA:</strong> En ce qui concerne la déclaration de la mishna' : En raison de ceux qui errent, il est <b>enseigné</b> dans une <i>baraita</i> : <b>Du fait de ceux qui se trompent dans leur mesure.</b> En d'autres termes, parce que les arpenteurs craignent de s'être trompés dans leurs mesures, ils sont rigoureux et ne positionnent pas la marque au bord de la limite, mais la déplacent de plusieurs coudées à l'intérieur de la limite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

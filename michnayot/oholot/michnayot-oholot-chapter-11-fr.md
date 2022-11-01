@@ -26,5 +26,5 @@ Une cave dans une maison où se trouve un chandelier dont le calice fait saillie
 ### michna 9
 Les récipients [qui se trouvent] entre les bords du panier à olives et les bords de la cave, même jusqu'au fond, restent purs. S'il y a une impureté dans le cellier, la maison devient impure. S'il y a une impureté dans la maison, les récipients qui se trouvent dans les parois de la cave restent purs, si l'endroit où ils se trouvent a un contenu d'un tefah [paume] cube ; sinon, ils deviennent impurs. Si les murs de la cave sont plus larges que ceux de la maison, dans les deux cas, les récipients restent purs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

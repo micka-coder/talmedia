@@ -81,4 +81,4 @@ Les autres sages <b>ont dit à</b> Rabbi Yehuda : Apportez-vous <b>une preuve de
 En ce qui concerne un cas où <b>il y avait deux</b> personnes dans cette situation, positionnées de telle sorte que <b>une partie</b> des <b>quatre <b>cubits</b> de l'une était subsumée dans les</b> quatre <b>cubits de l'autre, elles peuvent</b> chacune <b>apporter</b> de la nourriture <b>et manger</b> ensemble dans l'espace partagé <b>au milieu,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,4 +42,4 @@ Cette interprétation n'est pas tenable, car à propos de la même question <b>L
 <b>Rabbi Yoḥanan soulève une objection à</b> l'avis de <b>Reish Lakish :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

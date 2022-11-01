@@ -45,4 +45,4 @@ Si <b>un autre est venu attiser</b> la flamme, et qu'en conséquence le feu s'es
 <b>Et Rabbi Yoḥanan dit : Même</b> si <b>il lui a transmis une torche,</b> il est <b>exempté. Quelle en est la raison ? </b> Ce sont les <b>tongs du sourd-muet qui ont causé</b> le dommage, car les torches ne provoquent pas d'incendie par elles-mêmes. <b>Et</b> celui qui donne des objets dangereux à un sourd-muet n'est <b>pas rendu responsable</b> du dommage causé, <b>sauf s'il lui transmet des branches [<i>gavza</i>]</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

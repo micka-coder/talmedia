@@ -45,4 +45,4 @@ Et <b>Rabbi Yoḥanan</b> aussi <b>interprète</b> le <i>baraita</i> <b>selon sa
 <b>Rav Ḥiyya bar Ashi a dit</b> que <b>Rav a dit : Selon la loi de la Torah, on n'est responsable que pour avoir piétiné</b> les <b>olives et les raisins,</b> et toutes les autres interdictions liées au pressage ou au jus sont des décrets rabbiniques et des mesures de protection. <b>Et de même, il a été enseigné</b> dans <b>l'école de Ménashe : Par la loi de la Torah, on n'est responsable que pour avoir piétiné des olives et des raisins.</b> Et il a été enseigné dans l'école de Menashe : <b>Et</b> le témoignage d'un <b>témoin</b> basé uniquement sur ce qu'il a appris <b>de la bouche</b> d'un autre <b>témoin,</b> c'est-à-dire un témoignage par ouï-dire, <b>est valable</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara note : Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b>
 <strong>GEMARA :</strong> <b>Rabbi Ḥiyya enseigne :</b> Cette masse de sang figé <b>ne confère pas</b> d'<b>impureté rituelle, ni par</b> contact physique, ni par le fait de la porter</b>. La Gemara demande : <b>Mais puisqu'il ne communique pas d'impureté, ni par contact ni par le fait de le porter,</b> ce qui indique qu'il n'est pas considéré comme un fœtus, <b>pourquoi</b> doit-il être <b>inhumé ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

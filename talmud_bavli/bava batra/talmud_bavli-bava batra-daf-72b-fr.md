@@ -39,4 +39,4 @@ Et <b>cela a le statut d'un tas, comme nous l'avons appris</b> dans une mishna (
 § <b>Rabba bar bar Ḥana dit</b> que <b>Reish Lakish dit : </b> En ce qui concerne la question de savoir si <b>un caroubier greffé et un tronc de sycomore</b> sont consacrés avec un champ que l'on a consacré, <b>nous sommes arrivés au différend entre Rabbi Menaḥem bar Yosei et les rabbins,</b> car Rabbi Menaḥem bar Yosei juge qu'ils ne sont pas consacrés, alors que les rabbins jugent qu'ils le sont.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

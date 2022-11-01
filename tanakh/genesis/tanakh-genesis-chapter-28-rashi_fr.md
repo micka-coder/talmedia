@@ -79,5 +79,5 @@
 <b>[Puis] cette pierre.</b> C'est ainsi qu'il faut expliquer cette lettre וָיו de וְהָאֶבֶן : "Si Tu veux bien faire ces choses, moi aussi je ferai ce qui suit : 
 <b>"Cette pierre que j'ai érigée en monument", etc.</b> Comme il est traduit par Onkelos : "Je servirai Dieu sur elle." Et c'est effectivement ce qu'il fit à son retour de Padan Aram lorsqu'Il [Dieu] lui dit : "Lève-toi et monte à Beis Eil." Que dit-on alors ? "Yaakov a dressé un monument - il y a versé une libation". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

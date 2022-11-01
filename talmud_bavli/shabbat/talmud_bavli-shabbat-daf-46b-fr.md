@@ -30,4 +30,4 @@ La Guemara répond qu'il y a une distinction entre les cas : Dans <b>chaque</b> 
 <b>Rava a plutôt dit</b> une explication différente pour l'interdiction de Rabbi Shimon dans le cas d'une lampe à huile :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

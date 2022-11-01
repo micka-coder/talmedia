@@ -18,4 +18,4 @@ La Gemara demande : <b>La parure d'une personne, qu'est-ce que c'est ?</b> La Ge
 L'esclave <b>se présenta devant Rav Pappa bar Shmuel,</b> qui <b>l'acheta. Un jour</b> Rav Pappa <b>dit à</b> l'esclave : <b>Donne-moi de l'eau à boire.</b> L'esclave <b>y alla et</b> retira la teinture et <b>blanchit</b> les cheveux de <b>sa tête et sa barbe.</b> L'esclave <b>dit à</b> Rav Pappa : <b>Voir que je suis plus âgé que ton père,</b> et que je suis inapte à te servir. Rav Pappa <b>Lit sur lui-même : Le juste est délivré du trouble, et un autre vient à sa place</b> (voir Proverbes 11, 8). Rav Pappa a appliqué ce verset à l'incident de l'esclave. La personne juste, Rava, a été épargnée du problème de l'esclave, tandis qu'un autre, Rav Pappa bar Shmuel, est venu à sa place.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

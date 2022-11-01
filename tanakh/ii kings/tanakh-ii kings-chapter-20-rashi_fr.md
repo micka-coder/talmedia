@@ -61,7 +61,7 @@
 <b>Et comment il fit le bassin, etc.</b> Dans Divrei Hayamim.<sup>24</sup><i class="footnote">Voir II Divrei Hayamim 32:3-4 et 30. Lorsque Sancheiriv a commencé sa marche sur Jérusalem, Chizkiyahu a fermé toutes les sources et les ruisseaux à l'extérieur de Jérusalem comme stratégie défensive.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>En ces jours-là.</b> [Cela s'est produit] trois jours avant la chute de Sancheiriv.<sup>1</sup><i class="footnote">Alternativement, l'épisode entier est énoncé dans l'ordre chronologique, et il s'est produit après la chute de Sancheiriv. L'assurance demandée par Chizkiyahu qu'il sera sauvé d'Ashur, mentionnée ici, fait référence aux attaques futures. Bien qu'Ashur ait été solidement vaincu, les successeurs de Sancheiriv pourraient bientôt tenter à nouveau d'attaquer.-Ralbag</i>
 <b>Chizkiyahu tomba ... malade.</b> Le troisième jour, lorsqu'il monta au Beis [Hamikdosh] de A, fut le jour de la chute de Sancheiriv, et c'était le jour de la fête de Pessah.<sup>2</sup><i class="footnote">Pour commémorer cet événement, la référence à la chute de Sancheiriv est mentionnée dans la Hagaddah des deux nuits du Seder. Lors de la première nuit du Seder, il est mentionné dans ובכן ויהי בחצי הלילה, et lors de la seconde nuit du Seder, il est mentionné dans ובכן ואמרתם זבח פסח.</i>
@@ -124,4 +124,4 @@
 <b>Et comment il fit le bassin, etc.</b> Dans Divrei Hayamim.<sup>24</sup><i class="footnote">Voir II Divrei Hayamim 32:3-4 et 30. Lorsque Sancheiriv a commencé sa marche sur Jérusalem, Chizkiyahu a fermé toutes les sources et les ruisseaux à l'extérieur de Jérusalem comme stratégie défensive.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

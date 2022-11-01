@@ -12,4 +12,4 @@
 <b>Abaye a dit :</b> Dans un cas <b>où Reuven a vendu un champ à Shimon sans garantie, et il est apparu</b> que <b>il avait</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ A propos de ce qui a ete dit que <b>il le prend dans ses deux mains, Rabbi Hinna
 Quant a ce qui a ete dit apres qu'il l'ait pris dans ses deux mains : <b>Et il le place dans sa main droite</b>, <b>Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit : Les premiers</b> Sages ont <b>demande : Quelle est</b> la regle, peut <b>la main gauche</b> <b>assister la droite</b> en prenant la coupe ? <b>Rav Ashi a dit : Puisque les premiers</b> Sages ont <b>souleve ce dilemme et qu'il n'a pas ete resolu pour eux,</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ Si quelqu'un a pris des morceaux de bois de cet arbre [l'arbre d'asherah], il es
 ### michna 10
 Comment annule-t-on [une asherah] ? Si [un païen] l'a élaguée ou taillée, en enlevant un bâton, une brindille ou même une feuille, voici qu'elle est annulée. S'il l'a aplani pour son propre intérêt, il est interdit ; mais s'il ne l'a pas fait pour son propre intérêt, il est permis.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

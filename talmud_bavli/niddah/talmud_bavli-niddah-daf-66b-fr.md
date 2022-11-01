@@ -33,4 +33,4 @@ La Guemara demande : <b>Quelle</b> est la différence pratique <b>entre</b> ces 
 <b>Rav Shmuel bar Rav Yitzḥak dit : Une femme ne doit pas s'immerger</b> elle-même.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

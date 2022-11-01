@@ -15,4 +15,4 @@ La Guemara relate que <b>Rav Huna bar Ḥinnana avait l'intention d'enseigner</b
 § <b>Un dilemme a été soulevé devant</b> les savants : Est-ce que <b>les rabbins sont en désaccord avec Rabbi Eliezer ben Ya'akov</b> dans la mishna <b>ou pas ? Et si l'on dit</b> qu'ils sont <b>en désaccord</b> avec lui, est-ce que <b>la <i>halakha</i> est conforme à son</b> avis <b>ou pas ? </b> La Guemara propose une preuve : <b>Venez</b> et <b>entendez, comme nous l'avons appris</b> dans une mishna (63b) : <b>Quelqu'un qui dit à un autre :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara répond : <b>Que signifie <b>mauvais</b> ? Elle est mauvaise</b> dans
 La Guemara note : Le langage de la mishna <b>est également précis</b> lorsqu'il est compris de cette manière, <b>comme il l'enseigne : Rabbi Yehuda concède</b> que <b>les deux sont coupables d'abus de biens consacrés</b> dans le cas suivant : L'agent n'a acheté qu'une partie de ce que l'employeur a demandé <b>dans</b> le cas des <b>légumes,</b> qui sont vendus à un prix fixe en toutes circonstances,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

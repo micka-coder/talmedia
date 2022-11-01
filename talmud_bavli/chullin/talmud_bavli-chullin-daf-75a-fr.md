@@ -51,4 +51,4 @@ Rabbi Shimon ben Lakish explique l'objection : <b>Accordé, selon mon</b> avis q
 <b>Rav Ḥisda a dit :</b> En ce qui concerne <b>celui qui a abattu une <i>téreifa</i> et a trouvé à l'intérieur un fœtus vivant de neuf</b> mois</b> ans,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

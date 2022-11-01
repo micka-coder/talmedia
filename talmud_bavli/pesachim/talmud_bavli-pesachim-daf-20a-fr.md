@@ -39,4 +39,4 @@ La Guemara demande : <b>Au contraire, coupez</b> les <b>liquides de cette derni�
 <b>Il lui dit : Cette</b> suggestion <b>ne peut pas entrer dans ton esprit, car elle a été enseignée</b> dans une <i>baraita</i> : j'ai <b>pu penser</b> que <b>tous les récipients</b> trouvés dans un four en faïence <b>deviennent impurs à partir de l'espace aérien d'un <b>récipient en faïence impur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

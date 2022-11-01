@@ -45,4 +45,4 @@ La Guemara clarifie : <b>Où</b> se trouve le mur auquel la mishna fait référe
 <b>Rava dit : En ce qui concerne</b> un individu présentant des symptômes de lèpre et qui est encore <b>rituellement pur,</b> c'est-à-dire qui n'a pas encore été examiné par un prêtre, <b>tout le monde est d'accord pour que</b> le prêtre <b>ne l'examine pas,</b> car son état ne peut que s'aggraver du fait de l'examen. <b>En ce qui concerne</b> un lépreux présumé qui en est à sa <b>première</b> semaine de <b>quarantaine, tout le monde est d'accord pour que</b> le prêtre <b>l'examine,</b> car le prêtre peut le déclarer pur si ses symptômes ont diminué, et même si ses symptômes restaient tels quels, il sera simplement mis en quarantaine pour une autre semaine. <b>Quand ils ne sont pas d'accord</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

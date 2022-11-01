@@ -45,4 +45,4 @@ La Guemara rejette cette interprétation possible de la <i>baraita</i> : <b>Mais
 <b>Et</b> Rabbi Yehuda et Rabbi Shimon <b>suivent leurs</b> lignes de <b>raisonnement, comme cela a été enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

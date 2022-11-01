@@ -21,4 +21,4 @@ La Guemara soulève une difficulté avec cette réponse. <b>Mais</b> dans ce cas
 La Gemara répond : <b>Rav Asi</b> aurait pu <b>vous dire</b> que <b>cette <i>tanna</i> soutient</b> qu'une <b>interdiction prend effet</b> même lorsqu'une autre <b>interdiction</b> existe déjà. Il soutient que l'interdiction de manger une carcasse d'animal prend effet même en ce qui concerne la chair d'un animal non cachère, qui est déjà interdite, et pour cette raison, les deux demi-bulles d'olive se rejoignent, car la même interdiction de manger une carcasse d'animal s'applique aux deux. En revanche, le Rav Asi lui-même soutient qu'une interdiction ne prend pas effet là où une autre interdiction existe déjà, et donc cette <i>baraita</i> ne pose pas de difficulté à son opinion selon laquelle les deux ne se réunissent pas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

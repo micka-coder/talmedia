@@ -33,4 +33,4 @@ La Guemara note que <b>cela est également enseigné</b> dans une <i>baraita</i>
 <b>Et</b> à propos des déclarations de Rav citées par Ravin, la Gemara cite une déclaration supplémentaire selon laquelle <b>Ravin a dit</b> que <b>Ravin a dit : Quand</b> il y a <b>des pluies en Occident,</b> Eretz Yisrael, <b>un grand témoin</b> de ces pluies <b>est le fleuve Euphrate,</b> car en définitive, ces eaux de pluie augmentent le débit d'eau dans le fleuve Euphrate. <b>Et</b> cette déclaration du Rav <b>est en désaccord</b> avec une déclaration <b>de Shmuel, car Shmuel a dit : Un fleuve est béni à partir de ses berges,</b> c'est-à-dire que l'augmentation de son débit est imputable à ses affluents et non à la pluie. La Gemara commente : <b>Et</b> cette affirmation <b>de Shmuel est en désaccord</b> avec une autre affirmation <b>de Shmuel, car Shmuel a dit : L'eau se purifie en coulant</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

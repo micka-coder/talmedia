@@ -51,4 +51,4 @@ La Guemara conclut : <b>Et</b> la <b><i>halakha</i></b> est : <b>On ne peut pas 
 <strong>MISHNA :</strong> Bien que les graisses animales et le sang soient similaires en ce sens qu'ils sont tous deux interdits par la loi de la Torah et passibles de <i>karet</i>, il existe des éléments plus <b>stricts dans</b> l'interdiction de la <b>graisse que dans</b> celle du <b>sang, et</b> de même il existe des éléments plus <b>stricts dans</b> l'interdiction du <b>sang que dans</b> celle de la <b>graisse. </b> Les éléments plus <b>stricts dans</b> l'interdiction de la <b>graisse sont</b> les suivants : Le premier est <b>que</b> en ce qui concerne la <b>graisse</b> d'une offrande,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

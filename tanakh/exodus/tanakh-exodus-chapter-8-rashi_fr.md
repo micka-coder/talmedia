@@ -82,5 +82,5 @@
 ### passuk 28
 <b>Encore cette fois.</b> [Encore une fois,] bien qu'il ait dit : "Je vous enverrai", il n'a pas tenu sa promesse. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

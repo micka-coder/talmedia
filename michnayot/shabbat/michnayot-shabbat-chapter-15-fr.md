@@ -9,4 +9,4 @@ On a des nœuds pour lesquels on n'est pas tenu d'apporter une offrande de péch
 On peut plier les vêtements après les avoir enlevés même quatre ou cinq fois, et on peut faire les lits à partir de Chabbat soir en préparation du jour de Chabbat, mais pas à partir de Chabbat en préparation de la conclusion de Chabbat, car on ne peut pas effectuer une action à Chabbat qui est une préparation pour un jour de semaine. Rabbi Yishmael dit : On peut plier les vêtements et faire les lits de Yom Kippour en préparation de Chabbat si Yom Kippour a lieu le vendredi. Et les graisses des offrandes qui ont été sacrifiées le Chabbat sont offertes le Chabbat Kippour, mais pas celles de Yom Kippour le Chabbat, car la sainteté du Chabbat est plus grande que la sainteté de Yom Kippour. Rabbi Akiva dit : Les graisses des offrandes sacrifiées le Chabbat ne sont pas offertes à Yom Kippour, et celles de Yom Kippour ne sont pas offertes à Chabbat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

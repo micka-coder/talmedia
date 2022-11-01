@@ -42,4 +42,4 @@ La Guemara cite <b>une autre version</b> de cette réponse. Rav Yosef a dit à A
 § La mishna enseigne en outre : <b>Et l'eau puisée n'invalide le bain rituel que</b> selon le calcul. La Gemara demande : <b>Qui est le <i>tanna</i></b> dont l'opinion est reflétée dans cette décision ? <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : C'est Rabbi Eliezer ben Ya'akov, comme nous l'avons appris</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Mikvaot</i> 4 : 3) que <b>Rabbi Eliezer ben Ya'akov dit :</b> Si <b>un bain rituel contient vingt et un <i>se'a</i> d'eau de pluie,</b> la majorité d'un bain rituel valide de quarante <i>se'a</i>, que peut-on faire pour le rendre valide ? <b>On remplit</b> de l'eau puisée <b>dans</b> un seau porté sur <b>l'épaule</b> à hauteur de <b>dix-neuf <i>se'a</i>,</b> et on remplit avec elle une fosse adjacente au bain rituel, <b>et</b> on <b>laisse</b> l'eau <b>couler [<i>ufotekan</i>]</b> par un passage de la fosse <b>au bain rituel,</b> <b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

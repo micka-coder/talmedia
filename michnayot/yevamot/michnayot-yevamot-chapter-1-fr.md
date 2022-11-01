@@ -11,5 +11,5 @@ Il y a six parents qui sont plus restreints que ceux-ci, en ce sens qu'ils ne pe
 ### michna 4
 Beth Shammai autorise les épouses rivales aux frères survivants, et Beth Hillel les interdit. Si elles accomplissent la halitzah, Beth Shammai les disqualifie pour épouser un prêtre, et Beth Hillel les rend éligibles. S'ils ont accompli le yibbum, Beth Shammai les rend éligibles [pour épouser un prêtre], et Beth Hillel les disqualifie. Bien que ces derniers interdisent et que ces derniers autorisent, que ces derniers disqualifient et que ces derniers rendent éligibles, Beth Shammai ne s'est pas abstenu d'épouser des femmes de [la famille de] Beth Hillel, et Beth Hillel ne s'est pas non plus [abstenu d'épouser des femmes] de [la famille de] Beth Shammai. En ce qui concerne la pureté et l'impureté, que ceux-ci déclarent pures et que les autres déclarent impures, aucun d'eux ne s'est abstenu d'utiliser les ustensiles des autres pour la préparation d'aliments rituellement purs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

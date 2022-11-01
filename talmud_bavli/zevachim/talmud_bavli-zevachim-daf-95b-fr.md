@@ -42,4 +42,4 @@ Le <i>baraita</i> poursuit : <b>De même,</b> on ne peut <b>pas barbouiller [<i>
 La Gemara suggère : <b>Et effectuons</b> également <b>l'allumage</b> de la marmite <b>de l'intérieur,</b> afin de nettoyer ce qui a été absorbé. La Guemara répond : Cette solution n'est pas envisageable ; les propriétaires de ces pots pourraient être <b>inquiets pour eux, car ils</b> sont susceptibles de <b>se briser</b> si la chaleur devient trop importante. Par conséquent, les propriétaires n'appliqueront pas une chaleur suffisante pour garantir que la saveur absorbée sera complètement nettoyée. La Guemara conclut : <b>C'est pourquoi,</b> en ce qui concerne <b>ce carreau de faïence [<i>kuvya</i>],</b> qui est utilisé sur le feu comme moule de cuisson et <b>son allumage vient de l'extérieur,</b> il devient <b>interdit</b> pour une utilisation ultérieure par les saveurs absorbées à l'intérieur, qui ne peuvent être nettoyées.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

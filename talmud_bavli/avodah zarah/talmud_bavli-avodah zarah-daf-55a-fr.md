@@ -36,4 +36,4 @@ Rav Yehuda <b>a dit à</b> Rava bar Rav Yitzḥak : <b>Maintenant, si j'étais m
 On <b>peut fouler</b> les raisins ensemble <b>avec le Gentil dans le pressoir,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

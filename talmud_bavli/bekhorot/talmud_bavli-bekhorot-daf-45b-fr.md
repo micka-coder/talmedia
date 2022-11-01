@@ -57,4 +57,4 @@ La Guemara demande : <b>Cela marche bien selon celui qui dit</b> on <b>doit dél
 La Guemara persiste : <b>Cela marche bien selon celui qui dit</b> que <b>un vœu qui a été prononcé en public n'a pas</b> d'option de <b>annulation</b> par une autorité halakhique, <b>mais selon celui qui dit qu'il a</b> l'option de <b>nullification, que peut-on dire ?</b> La Gemara répond <b>que l'on administre le vœu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

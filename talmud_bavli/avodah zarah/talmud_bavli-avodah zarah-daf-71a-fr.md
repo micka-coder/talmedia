@@ -21,4 +21,4 @@ Un des Sages <b>a soulevé une objection</b> d'une <i>baraita</i> : <b>Une perso
 <b>Rav Ashi a dit : D'où est-ce que je dis que</b> l'acquisition par tirage ne s'applique pas aux gentils ? C'est <b>à partir</b> de cela <b>que le Rav a dit à certains commerçants de vin : Lorsque vous mesurez du vin pour des Gentils, prenez</b> les <b>dinars de ces derniers et mesurez</b> ensuite le vin <b>pour eux. Et s'ils n'ont pas de dinars avec eux</b> facilement disponibles, <b>prêtez-leur</b> des dinars <b>et reprenez</b> ensuite ces dinars <b>de leur part, de sorte que ce sera un prêt</b> accordé <b>à eux</b> qu'ils remboursent. <b>Comme si vous ne le faites pas, lorsqu'il devient du vin</b> utilisé pour <b>une libation, il devient</b> ainsi <b>en votre possession, et lorsque vous prenez</b> l'argent, ce sera <b>un paiement pour le vin</b> utilisé pour <b>une libation</b> que <b>vous prenez.</b> Rav Ashi conclut la preuve de son opinion : <b>Et s'il te vient à l'esprit</b> que le fait de <b>tirer</b> un objet <b>acquiert</b> celui-ci <b>dans</b> une transaction impliquant <b>un Gentil,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

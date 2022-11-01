@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais</b> si tel est le cas, <b>pour quelle raison le <i>t
 La Gemara soulève une objection : <b>Au contraire ; le feu</b> est plus <b>sévère</b> que la lapidation, <b>comme il est infligé à la fille d'un prêtre qui a commis l'adultère</b> (voir Lévitique 21:9). <b>Et</b> pour <b>quelle raison</b> la <b>sévérité</b> de cette transgression est-elle considérée comme plus grande que les autres ? <b>Parce que</b> par son péché <b>elle profane</b> non seulement elle-même mais aussi <b>son père</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

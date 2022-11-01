@@ -103,7 +103,7 @@
 <b>Je suis aujourd'hui faible [comme un roturier]</b> Et je suis, en ce jour, un roturier et un jeune roi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -208,4 +208,4 @@
 <b>Je suis aujourd'hui faible [comme un roturier]</b> Et je suis, en ce jour, un roturier et un jeune roi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

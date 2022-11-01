@@ -36,7 +36,7 @@ La Gemara relate : <b>Rabbi Ami a trouvé des oisillons abattus entre Tibériade
 <strong>MISHNA:</strong> <b>Et</b> pour <b>ces objets</b> trouvés, on est <b>obligé de proclamer</b> sa trouvaille : Si <b>On a trouvé des produits à l'intérieur d'un récipient, ou d'un récipient tout seul ; des pièces de monnaie à l'intérieur d'une poche, ou d'une poche tout seul ; des tas de produits ; des tas de pièces de monnaie,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Et si vous voulez, dites</b> plutôt que <b>en fait</b> la mishna est conforme à l'opinion des <b>rabbins. Est-il enseigné</b> dans la mishna que les objets <b>sont les siens ? Il est enseigné</b> qu'il <b>n'est pas obligé de proclamer</b> sa trouvaille. Il ne peut pas les garder, <b>mais il placera</b> les objets en sa possession <b>et un juif viendra fournir un signe distinctif</b> pour décrire les objets <b>et les prendre</b>.
 
@@ -74,4 +74,4 @@ La Gemara relate : <b>Rabbi Ami a trouvé des oisillons abattus entre Tibériade
 <strong>MISHNA:</strong> <b>Et</b> pour <b>ces objets</b> trouvés, on est <b>obligé de proclamer</b> sa trouvaille : Si <b>On a trouvé des produits à l'intérieur d'un récipient, ou d'un récipient tout seul ; des pièces de monnaie à l'intérieur d'une poche, ou d'une poche tout seul ; des tas de produits ; des tas de pièces de monnaie,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

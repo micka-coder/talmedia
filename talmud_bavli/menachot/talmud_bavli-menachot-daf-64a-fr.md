@@ -60,4 +60,4 @@ La Guemara explique pourquoi tout le monde serait d'accord pour dire que l'on es
 La Guemara répond : Il est <b>évident</b> que <b>on apporte</b> les <b>trois</b> figues,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

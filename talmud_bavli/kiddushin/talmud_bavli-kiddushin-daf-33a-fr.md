@@ -57,4 +57,4 @@ La Guemara cite un autre incident impliquant l'honneur que l'on démontre envers
 <b>Rabbi Aivu dit</b> que <b>Rabbi Yannai dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

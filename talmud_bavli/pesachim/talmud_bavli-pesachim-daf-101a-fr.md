@@ -30,4 +30,4 @@ La Guemara répond : <b>Il agirait conformément aux rigueurs de Rav,</b> mais <
 <b>Et Rabbi Yoḥanan dit :</b> Non seulement ceux qui récitent le <i>kiddouch</i> à la synagogue accomplissent la mitzva du <i>kiddouch</i>, <b>ils remplissent même</b> leur obligation de réciter une bénédiction <b>sur</b> le <b>vin</b> qu'ils boiront pendant leur repas à la maison. Puisqu'ils ont l'intention de manger le repas de Chabbat et de boire du vin à la maison, ils ne détournent pas leur attention de la bénédiction et n'ont pas besoin d'en réciter une autre. <b>Et Rabbi Yoḥanan suit sa</b> ligne régulière de <b>raisonnement, comme Rabbi Ḥanin bar Abaye a dit</b> que <b>Rabbi Pedat a dit</b> que <b>Rabbi Yoḥanan a dit : Les deux</b> dans un cas de <b>changement de vin</b> pendant un repas pour un nouveau type,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ En ce qui concerne le sang découvert sur une robe, <b>les Sages</b> ont enseign
 Il <b>est enseigné</b> dans <b>un autre</b> <i>baraita</i> : Si une femme <b>examine sa robe</b> et ne trouve pas de tache, <b>et</b> ensuite <b>la prête à une autre</b> femme, après quoi une tache est découverte sur la robe, quelle est la <i>halakha</i> ? <b>Elle,</b> la femme qui a prêté la robe, <b>est pure, et l'autre</b> femme, celle qui a emprunté la robe, <b>peut attribuer</b> la tache <b>à</b> la femme qui lui a prêté la robe, c'est-à-dire qu'elle peut dire qu'elle ne se fie pas à l'examen du prêteur. <b>Rav Sheshet dit</b> en explication de cette <i>baraita</i> : <b>Et nous apprenons</b> cette décision que l'emprunteuse peut dire qu'elle ne se fie pas au prêteur seulement <b>en ce qui concerne la question de</b> un <b>jugement</b> monétaire pour savoir laquelle des femmes doit payer pour le blanchiment de la robe. <b>Mais en ce qui concerne l'impureté rituelle, elle, </b> la prêteuse, <b>est pure, et l'autre</b> femme, l'emprunteuse, <b>est impure.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

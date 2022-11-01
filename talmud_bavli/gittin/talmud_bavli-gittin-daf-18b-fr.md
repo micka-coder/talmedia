@@ -21,4 +21,4 @@ La Guemara ajoute un autre point de litige : Selon Rabbi Yoḥanan, qui considè
 Il est raconté : Il y avait <b>une certaine personne qui dit à dix</b> hommes : <b>Écrivez un acte de divorce pour ma femme. Deux d'entre eux signèrent le jour même et les autres</b> signèrent après un délai <b>de maintenant à dix jours</b> plus tard. <b>Il se présenta devant Rabbi Yehoshua ben Levi</b> pour demander quelle est la <i>halakha</i> par rapport à un tel acte de divorce. Rabbi Yehoshua ben Levi <b>lui a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

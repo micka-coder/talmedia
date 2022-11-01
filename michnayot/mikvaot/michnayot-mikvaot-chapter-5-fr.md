@@ -17,5 +17,5 @@ L'eau qui coule est considérée comme une source tandis que l'eau qui ruisselle
 ### michna 6
 Si une vague s'est séparée [de la mer] et était de quarante seahs, et qu'elle tombe sur un homme ou sur des ustensiles, ils deviennent purs. Tout endroit contenant quarante seahs est valable pour s'immerger soi-même et pour immerger d'autres choses. On peut s'immerger dans des tranchées ou dans des fossés ou même dans un chemin d'âne dont l'eau est reliée dans une vallée. Bet Shammai disent : on peut s'immerger dans un torrent de pluie. Mais Bet Hillel disent : on ne peut pas s'immerger. Ils sont d'accord pour dire qu'on peut bloquer son débit avec des récipients et s'y immerger, mais les récipients avec lesquels le débit est bloqué ne sont pas ainsi [eux même considéré comme étant] immergés.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara développe : <b>Selon</b> l'avis <b>de Rabbi Yoḥanan, ne soulève p
 <b>Lorsque vous soulevez un dilemme,</b> c'est <b>selon</b> l'avis <b>de bar Padda,</b> qui considère qu'il s'agit d'un cas d'incertitude,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Les choses proscrites pour [l'usage] des prêtres ne peuvent être rachetées ma
 ### michna 7
 Un homme peut proscrire ses choses saintes, qu'il s'agisse de choses très saintes ou de choses moins saintes. S'il s'agit d'une chose consacrée par un vœu, il doit en donner la valeur, s'il s'agit d'une offrande volontaire, il doit donner ce qu'elle vaut pour lui. S'il a dit :] "Que ce bœuf soit une olah", on estime combien un homme paierait pour le bœuf afin de l'offrir comme olah, ce qu'il n'était pas obligé [d'offrir]. Un premier-né, qu'il soit sans tache ou avec tache, peut être proscrit. Comment le racheter ? On estime ce qu'un homme donnerait pour ce premier-né afin de le donner au fils de sa fille ou au fils de sa sœur. Rabbi Ishmael dit : un verset dit : [Tous les premiers-nés mâles] vous les sanctifierez," (Deutéronome 15:19) et un autre verset dit : (Deutéronome 15:19) et un autre verset dit : [Les premiers-nés des bêtes] aucun homme ne les sanctifiera" (Lévitique 27:26). Il est impossible de dire : "Tu sanctifieras", puisqu'il a déjà été dit : "Aucun homme ne sanctifiera", et il est impossible de dire : "Aucun homme ne sanctifiera", puisqu'il est également dit : "Tu sanctifieras"? Résolvez donc [ainsi] : vous pouvez le sanctifier en consacrant sa valeur [au propriétaire], mais vous ne pouvez pas le sanctifier en le consacrant à l'autel.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

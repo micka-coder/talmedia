@@ -29,5 +29,5 @@ Si l'on a placé des jarres à vin dans une citerne et qu'elles se remplissent d
 ### michna 10
 Un mikvé qui contient quarante seahs d'eau et de boue [combinées] : Rabbi Eliezer dit : on peut immerger des objets dans l'eau mais on ne peut pas les immerger dans la boue. Mais Rabbi Joshua dit : dans l'eau et aussi dans la boue. Dans quelle sorte de boue peut-on immerger les objets ? La boue sur laquelle l'eau flotte. Si l'eau n'était que d'un seul côté, Rabbi Joshua est d'accord pour dire que les objets peuvent être immergés dans l'eau mais pas dans la boue. De quelle boue [en terme de viscosité] a-t-on parlé ? De la boue dans laquelle un roseau s'enfonce de lui-même, ce sont les paroles de Rabbi Meir. Rabbi Judah dit : [la boue] dans laquelle un bâton de mesure ne pourrait pas tenir droit. Abba Elazar ben Dulai dit : [de la boue] dans laquelle un plumet s'enfonce. Rabbi Eliezer dit : [une boue capable de s'écouler] par l'ouverture d'une jarre. Rabbi Shimon dit : [une boue capable de s'écouler] par l'ouverture d'une outre. Rabbi Elazar bar Zadok dit : [une boue capable] d'être mesuré à l'aide d'un [outil dédié à la mesure d'un volume liquide appelé] log.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

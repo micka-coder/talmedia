@@ -60,4 +60,4 @@ La Guemara demande : <b>Où sont écrits Manger et Piétiner</b> dans la Torah q
 <b>"Et il a consommé", c'est</b> une référence à <b>la catégorie primaire de <b>Manger, et de même il est dit :</b> "Et je balaierai complètement la maison de Jéroboam, <b>comme on consomme avec</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

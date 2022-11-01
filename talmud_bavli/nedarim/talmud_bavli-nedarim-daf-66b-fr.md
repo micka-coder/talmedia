@@ -24,4 +24,4 @@ La Guemara cite un autre incident : Il y avait <b>un certain Babylonien qui mont
 En colère, <b>il lui dit : Va et casse-les sur la tête du <i>bava</i>,</b> en voulant dire la porte, car <i>bava</i> signifie une porte dans le dialecte araméen parlé en Babylonie. Elle n'a pas reconnu ce mot. A cette époque, le Sage <b>Bava ben Buta était assis comme juge à la porte. Elle alla les briser sur sa tête,</b> car son nom était Bava. <b>Il lui dit : Qu'est-ce que tu as fait ? Elle lui répondit : C'est ce que mon mari m'a ordonné</b> de faire. <b>Il dit : Tu as accompli le désir de ton mari, que l'Omniprésent fasse naître de toi deux fils,</b> correspondant aux deux bougies, <b>comme Bava ben Buta.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

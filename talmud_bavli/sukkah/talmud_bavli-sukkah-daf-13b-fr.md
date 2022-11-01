@@ -36,4 +36,4 @@ La Gemara note : <b>Selon</b> l'opinion de <b>Rabbi Abba,</b> qui dit que les gr
 La Gemara demande : <b>S'il les a coupés pour la nourriture, quelle est la justification</b> de l'opinion <b>des sages</b> selon laquelle le grain n'a pas de poignées ? En règle générale, le grain a des poignées. <b>Et si vous dites</b> que <b>les sages soutiennent</b> que <b>une fois qu'il a reconsidéré</b> son plan <b>pour eux</b> et a décidé de les utiliser <b>pour la toiture, son</b> intention initiale a été annulée</b> et leur statut légal est comme n'importe quelle autre toiture non comestible, et ils n'ont par conséquent pas de poignées, la Guemara demande : <b>Et son</b> <b>intention initiale a été niée de cette</b> manière ? <b>N'avons-nous pas appris</b> dans une mishna : <b>Tous les ustensiles</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -32,5 +32,5 @@ Si deux hommes produisent des documents de dette l'un contre l'autre, Admon dit 
 ### michna 11
 Chacun peut obliger [son conjoint] à monter en terre d'Israël, mais personne ne peut obliger [son conjoint] à en sortir. Chacun peut obliger [son conjoint] à monter à Jérusalem, mais personne ne peut obliger [son conjoint] à en sortir. Il en est de même pour les hommes, les femmes et les esclaves. Si un homme a épousé une femme en terre d'Israël et a divorcé en terre d'Israël, il doit lui payer [sa kétouba] dans la monnaie de la terre d'Israël. S'il a épousé une femme en terre d'Israël et a divorcé d'elle en Cappadoce, il doit lui payer [sa kétouba] dans la monnaie de la terre d'Israël. S'il a épousé une femme en Cappadoce et a divorcé d'elle en terre d'Israël, il doit payer [sa kétouba] dans la monnaie de la terre d'Israël. Rabbi Shimon ben Gamaliel dit qu'il doit payer [sa ketubah] dans la monnaie de Cappadoce.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

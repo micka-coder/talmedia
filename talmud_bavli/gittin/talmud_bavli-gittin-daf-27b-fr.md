@@ -36,4 +36,4 @@ La Gemara ajoute : <b>Et même</b> s'il y a eu <b>un retard et</b> l'acte de div
 Dans le cas où l'on a trouvé un acte de divorce <b>attaché</b> en haut <b>dans une poche</b> ou <b>dans une bourse [<i>arnaki</i>], ou</b> entouré <b>d'un anneau,</b> et qu'il reconnaît le document,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

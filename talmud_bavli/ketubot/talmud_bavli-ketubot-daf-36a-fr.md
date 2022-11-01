@@ -30,4 +30,4 @@ La Guemara répond : Il a cité cette <i>baraïta</i> <b>en raison du fait qu'il
 § Le <i>baraita</i> a déclaré : <b>Une femme adulte n'a pas de revendication concernant la virginité</b> en raison des changements qui se produisent lorsque son corps mûrit, son hymen n'est plus complètement intact. La Gemara demande : <b>Mais Rav n'a-t-il pas dit :</b> Les Sages <b>donnent à une femme adulte</b> qui a eu des relations la nuit de son mariage, <b>la</b> totalité de la <b>première nuit,</b> pendant laquelle elle peut avoir des relations avec son mari plusieurs fois ? Tout sang vu pendant cette nuit est attribué au sang de son hymen, qui est rituellement pur, et non au sang menstruel. Apparemment, même une femme adulte a son hymen intact.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

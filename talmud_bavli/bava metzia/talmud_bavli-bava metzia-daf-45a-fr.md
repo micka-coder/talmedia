@@ -42,4 +42,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve de la décision 
 <b>Au contraire,</b> la Gemara abandonne sa précédente explication du litige et affirme <b>que tout le monde est d'accord</b> que puisqu'il est écrit : <b>"L'argent"</b> et que cette deuxième mention de <b>l'argent</b> dans ce verset est superflue, le terme <b>"l'argent"</b> sert à <b>inclure même le deuxième argent. Plutôt, si</b> la dispute <b>entre Rabbi Yoḥanan et Rabbi Shimon ben Lakish a été énoncée, elle a été énoncée comme ceci : On a dit :</b> Le <b>dispute</b> entre Beit Shammai et Beit Hillel est <b>en ce qui concerne</b> l'échange de pièces d'argent <b><i>sela</i> contre</b> des <b>dinars d'or. Comme le disent les Beit Shammai : Nous émettons un décret</b> rendant interdit de le faire,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

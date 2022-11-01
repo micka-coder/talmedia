@@ -75,4 +75,4 @@ En ce qui concerne la recitation du <i>Shema</i> sans phylacteres, <b>Ulla a dit
 <b>Et Rabbi Yohanan dit : Celui qui cherche a accepter sur lui le joug complet du royaume des Cieux</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

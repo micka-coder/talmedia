@@ -69,4 +69,4 @@ Pourquoi Rabbi Yehouda a-t-il jugé qu'un aveugle était exempté de faire parti
 La Guemara présente une autre déclaration de Rabbi Yehuda : Il <b>est enseigné</b> dans <b>un autre</b> <i>baraita</i> que <b>Rabbi Yehuda dit : Un aveugle n'a pas d'humiliation,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

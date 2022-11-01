@@ -48,4 +48,4 @@ Le <i>baraita</i> conclut : "Ceci sera pour vous l'un des objets les plus sacré
 § <b>Rav Huna a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

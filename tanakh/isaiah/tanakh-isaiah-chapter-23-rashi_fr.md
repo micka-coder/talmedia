@@ -79,7 +79,7 @@
 <b>et pour des vêtements majestueux</b> (וְלִמְכַסֶּה עָתִיק) pour de beaux vêtements signifie louable, comme (Psaumes 94:4) : "Ils parlent avec hauteur (עָתָק)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Gémissez, navires de Tarsis</b> qui se sont enrichis grâce aux marchands de Tyr, car les navires de Tarsis apportaient des marchandises à Tyr. Tarsis est le nom de la mer.
 <b>Parce qu'il a été pillé de l'intérieur</b> Car il a été pillé de l'intérieur, le lieu où vous aviez l'habitude de vous loger, de ne plus venir au milieu de lui, et vous n'aurez plus de place à Tyr pour vous y loger.
@@ -160,4 +160,4 @@
 <b>et pour des vêtements majestueux</b> (וְלִמְכַסֶּה עָתִיק) pour de beaux vêtements signifie louable, comme (Psaumes 94:4) : "Ils parlent avec hauteur (עָתָק)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -87,4 +87,4 @@ La Gemara répond : On peut expliquer que cette mishna considère que les cheveu
 <b>Et il y a</b> ceux <b>qui enseignent</b> une autre version de cette dispute entre Rabbi Yoḥanan et Reish Lakish,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Nous avons appris dans la mishna : <b>Et voici</b> le sens de ce <b>qui</b> les 
 <b>Rav Naḥman dit :</b> Ce <b>dispute</b> entre Rabbi Meir et Rabbi Yehuda est <b>en ce qui concerne</b> un cas où la personne a dit : Ma résidence est dans <b>ma</b> <b>localisation actuelle. Comme le soutient Rabbi Meir : La principale</b> ordonnance et l'établissement <b>de <i>l'eirouv</i></b> est <b>avec du pain.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Cependant, la question a ete soulevee : En termes de <b>conclusion, par quoi con
 <b>Rav Nahman bar Yitzhak s'oppose fermement : Ils,</b> en Eretz Yisrael, <b>mangent et nous,</b> en Babylonie, <b>recitent une benediction ?</b> Comment pouvons-nous, residents de Babylonie, reciter une benediction pour les fruits d'Eretz Yisrael tout en mangeant les fruits de Babylonie ? <b>Par contre, inversez</b> les opinions : <b>Rav Hisda a dit : Pour la terre et pour les fruits, et Rabbi Yohanan a dit : Pour la terre et pour ses fruits.</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

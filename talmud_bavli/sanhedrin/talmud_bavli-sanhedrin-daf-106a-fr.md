@@ -51,4 +51,4 @@ A propos de l'interprétation homilétique des noms de lieux, la Gemara demande 
 Il est dit : <b>"Et Balaam, fils de Beor, le devin,</b> les enfants d'Israël le tuèrent par l'épée parmi le reste de leurs morts" (Josué 13:22). La Gemara demande : Etait-il <b>un devin ? Il est un prophète. Rabbi Yoḥanan dit : Initialement</b> il était <b>un prophète, mais finalement,</b> il a perdu sa capacité de prophétie et est resté simplement <b>un devin. Rav Pappa dit</b> que <b>ceci</b> est en accord avec l'adage <b>qu'on dit : </b> Cette femme <b>était</b> descendante <b>de princes et de dirigeants,</b> et <b>était licencieuse avec des charpentiers.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

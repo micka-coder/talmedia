@@ -33,4 +33,4 @@ Une <i>tanna</i> <b>enseigne</b> dans la <i>Tosefta</i> : Si <b>quelqu'un a éma
 Un <i>tanna</i> <b>a enseigné :</b> Si <b>on avait l'intention d'écrire une lettre</b> le Chabbat...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

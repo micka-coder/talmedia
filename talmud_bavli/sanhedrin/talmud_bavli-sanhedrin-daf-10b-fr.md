@@ -36,4 +36,4 @@ De même, <b>Rav Yosef a enseigné</b> une <i>baraita</i> : <b>Ces nombres</b> :
 § La Guemara présente <b>un dispositif mnémotechnique</b> pour plusieurs autres sources citées à propos de l'intercalation de l'année : <b><i>Zeman</i>, <i>Nasi</i>, <i>tzarikh</i>, <i>gedi</i>. Les Sages enseignaient</b> dans une <i>baraita</i> : <b>L'année</b> peut être <b>intercalée uniquement</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

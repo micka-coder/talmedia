@@ -63,4 +63,4 @@ La Gemara répond : Même selon Abaye, les deux cas <b>sont nécessaires,</b> af
 § La mishna enseigne : Dans le cas d'une <b>galette saine qui a atteint</b> une <b>galette</b> impropre ou d'un morceau de viande sacrificielle qui a touché un morceau de viande sacrificielle impropre, ni toutes les galettes ni tous les morceaux ne sont interdits. Aucune partie n'est interdite autre que celle qui se trouve à l'endroit où l'objet a absorbé le goût des galettes ou des morceaux impropres. Par rapport à cette <i>halakha</i>, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne l'offrande pour le péché, le verset dit : <b>"Tout ce qui touchera</b> sa chair sera sacré" (Lévitique 6:20). On <b>pourrait</b> penser que cela s'applique à tout contact, <b>même</b> si l'autre morceau <b>n'a absorbé</b> aucune saveur de la viande de l'offrande pour le péché. Pour contrer cela, <b>le</b> même <b>verset précise : "Avec sa chair [<i>bivsarah</i>]"</b> qui peut aussi être traduit : Dans sa chair.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

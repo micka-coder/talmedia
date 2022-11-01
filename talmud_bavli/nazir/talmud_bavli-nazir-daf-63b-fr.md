@@ -39,4 +39,4 @@ Le <i>baraita</i> conclut : <b>Et</b> les Sages ont <b>dit</b> que l'indulgence 
 § La mishna a enseigné : <b>Comment</b> fait-on la différence entre une impureté connue et une impureté inconnue ? Si un nazirite <b>descend</b> pour s'immerger dans une grotte, et qu'on trouve un cadavre flottant à l'embouchure de la grotte, il est impur. La Guemara commente : <b>Une impureté flottante</b> <b>ne rend pas</b> une personne ou un objet <b>impur dans le cas</b> d'une carcasse d'un <b>animal rampant. Comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Teharot</i> 5:6) : En ce qui concerne le cas d'une <b>impureté incertaine,</b> où un objet a pu toucher quelque chose d'impur qui était <b>en flottaison, soit</b> dans l'eau <b>d'un récipient ou</b> dans l'eau <b>du sol,</b> par exemple un puits, l'objet est <b>pur. Rabbi Shimon dit:</b> Si l'impureté flottait dans l'eau qui se trouvait <b>dans un récipient,</b> l'article est <b>impur;</b> si l'impureté se trouvait dans l'eau <b>dans le sol,</b> il est <b>pur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

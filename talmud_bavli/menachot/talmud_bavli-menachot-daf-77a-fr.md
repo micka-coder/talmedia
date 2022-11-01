@@ -36,4 +36,4 @@ La Guemara analyse ces déclarations . Lorsque Shmuel a dit : Ils ne peuvent pas
 <b>Ravina a dit : La mishna est aussi précisément</b> formulée de manière à refléter le fait que l'augmentation d'un sixième est calculée de l'extérieur, <b>comme elle l'enseigne :</b> La farine pour les pains accompagnant <b>l'offrande de remerciement proviendrait</b> d'une mesure de <b>cinq Jérusalem <i>se'a</i></b> de farine, <b>qui sont</b> équivalentes à <b>six désertes</b> <i>se'a</i>. On peut en déduire que les <i>se'a</i> ne pouvaient être augmentées que d'un sixième depuis l'extérieur. La Guemara affirme : En effet, <b>concluez-en</b> que c'est la <i>halakha</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

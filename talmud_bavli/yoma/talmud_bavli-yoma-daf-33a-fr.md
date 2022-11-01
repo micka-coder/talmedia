@@ -36,4 +36,4 @@ Abaye poursuit : <b>La mise en place des deux log précède le retrait des cendr
 Abaye poursuit : <b>Et le retrait des cendres</b> de <b>l'autel intérieur précède le retrait des cendres de cinq</b> des sept <b>lampes</b> du candélabre. <b>Quelle est la raison</b> de cette pratique ? <b>Abaye a dit : J'ai appris</b> ceci <b>par la tradition;</b> cependant, <b>je ne connais pas le raisonnement</b> qui le sous-tend. <b>Et Rava a dit :</b> La raison est <b>conforme</b> à la déclaration de <b>Reish Lakish, comme Reish Lakish a dit : On ne peut renoncer</b> à l'accomplissement <b>de</b> l'une des <b>mitsvot</b> afin d'accomplir une autre mitsva.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -119,7 +119,7 @@
 <b>"Malheur à moi..."</b> Voici ce qu'elle dit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Si tu reviens, ô Israël</b> avec ce repentir, vers Moi, tu retrouveras ta gloire et ta grandeur originelles.
 <b>Et si tu retires tes choses détestables de Ma Présence</b> Alors tu ne erreras pas pour partir en exil.
@@ -240,4 +240,4 @@
 <b>"Malheur à moi..."</b> Voici ce qu'elle dit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

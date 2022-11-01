@@ -42,7 +42,7 @@ Rav Huna explique : La raison est <b>que</b> la viande reste <b>telle quelle, et
 Rava poursuit : <b>Quelle est la raison</b> pour laquelle Rabbi Ḥiyya a divergé du texte standard de la mishna et <b>n'a pas enseigné : Ou une botte d'olives ?</b> N'est-ce pas <b>pas</b> parce que sa mishna discute d'un cas <b>où</b> le <b>reste</b> plus tard <b>devient manquant et</b> sa mesure <b>s'élève à une botte d'olives ? Et</b> par conséquent, Rabbi Ḥiyya n'a pas inclus la clause : Ou une botte d'olives, <b>puisque</b> plus loin dans la mishna, <b>en ce qui concerne</b> le <b>placement</b> de la poignée <b>dans un récipient,</b> et <b>en ce qui concerne</b> le <b>convoyage</b> du récipient vers l'autel, <b>et en ce qui concerne</b> le <b>brûlage</b> de la poignée, <b>il</b> ne pouvait <b>pas enseigner</b> la phrase :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 l'offrande est <b><i>piggul</i>, et on est susceptible</b> de recevoir <b><i>karet</i> pour</b> avoir participé au reste de cette offrande de repas.
 
@@ -86,4 +86,4 @@ Rav Huna explique : La raison est <b>que</b> la viande reste <b>telle quelle, et
 Rava poursuit : <b>Quelle est la raison</b> pour laquelle Rabbi Ḥiyya a divergé du texte standard de la mishna et <b>n'a pas enseigné : Ou une botte d'olives ?</b> N'est-ce pas <b>pas</b> parce que sa mishna discute d'un cas <b>où</b> le <b>reste</b> plus tard <b>devient manquant et</b> sa mesure <b>s'élève à une botte d'olives ? Et</b> par conséquent, Rabbi Ḥiyya n'a pas inclus la clause : Ou une botte d'olives, <b>puisque</b> plus loin dans la mishna, <b>en ce qui concerne</b> le <b>placement</b> de la poignée <b>dans un récipient,</b> et <b>en ce qui concerne</b> le <b>convoyage</b> du récipient vers l'autel, <b>et en ce qui concerne</b> le <b>brûlage</b> de la poignée, <b>il</b> ne pouvait <b>pas enseigner</b> la phrase :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

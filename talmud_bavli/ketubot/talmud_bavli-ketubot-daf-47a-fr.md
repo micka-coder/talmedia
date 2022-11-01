@@ -33,4 +33,4 @@ La mishna enseigne en outre : <b>Et il accepte son acte de divorce</b> en son no
 La Guemara suggère : <b>Disons que la dispute</b> de ces <i>tanna'im</i> <b>est</b> parallèle à <b>la dispute</b> entre <b>Rabbi Elazar ben Azarya et les rabbins. Comme nous l'avons appris</b> dans une mishna (54b) : Si une femme <b>était veuve ou divorcée, que ce soit par mariage ou par fiançailles, elle perçoit</b> la <b>entière</b> somme spécifiée dans son contrat de mariage, y compris tout montant supplémentaire que son mari a ajouté à la somme standard requise par les Sages. <b>Rabbi Elazar ben Azarya dit :</b> Si elle était veuve ou divorcée <b>depuis le mariage, elle perçoit</b> la <b>entière</b> somme. <b>Mais</b> si elle était veuve ou divorcée <b>de fiançailles,</b> elle n'a le droit de percevoir que la somme minimale standard exigée par les Sages : Si elle était fiancée en tant que <b>vierge, elle perçoit deux cents</b> dinars, <b>et</b> si elle était <b>veuve</b> elle a droit à <b>cent dinars.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

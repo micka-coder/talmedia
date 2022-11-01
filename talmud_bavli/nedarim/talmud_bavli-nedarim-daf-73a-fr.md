@@ -21,4 +21,4 @@ La Gemara rejette également cette conclusion : <b>Ici aussi,</b> c'est un cas <
 <b>Rabbi Yehuda dit : Ce n'est pas pour</b> cette <b>raison [<i>lo min hashem hu zeh</i>], mais parce qu'il est dit : "Et il la fera boire"</b> (Nombres 5:27), ce qui indique <b>elle par elle-même.</b> De même, les mots "lui interdit" (Nombres 30:9) doivent être lus comme se référant spécifiquement à une femme seule, indiquant qu'un homme ne peut pas annuler les vœux de deux épouses simultanément.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

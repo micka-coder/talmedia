@@ -75,4 +75,4 @@ La Guemara demande : <b>Et</b> comment <b>Rabbi Akiva</b> répondrait-il à cela
 § En ce qui concerne la dispute dans la mishna sur la question de savoir si le fait de ne pas sacrifier les deux moutons en offrande de paix empêche l'apport des deux pains ou vice versa, <b>Rabbi Yoḥanan dit : Tout le monde concède</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

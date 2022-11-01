@@ -27,4 +27,4 @@ Un Sage <b>enseigne</b> dans une <i>baraïta</i> : <b>Si</b> le champ vendu <b>�
 <strong>MISHNA:</strong> Si le vendeur dit à l'acheteur : <b>Je te vends</b> un terrain d'une certaine taille <b>mesurée</b> précisément <b>avec une corde plus ou moins,</b> joignant ainsi à la vente deux stipulations contradictoires ; dans ce cas, les mots : <b>Plus ou moins, annulent</b> les mots : <b>Mesuré</b> précisément <b>avec une corde.</b> En conséquence, si le surplus n'a pas dépassé un quart-<i>kav</i> par <i>se'a</i>, la vente est valable telle quelle. De même, si le vendeur dit à l'acheteur : Je te vends un terrain d'une certaine taille <b>plus ou moins mesuré</b> précisément <b>avec une corde,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

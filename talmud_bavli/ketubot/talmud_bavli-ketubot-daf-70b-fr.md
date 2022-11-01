@@ -51,4 +51,4 @@ La Guemara réfute cette affirmation : Le <i>tanna</i> <b>parle</b> en utilisant
 Si les deux <b>se promenaient sur le chemin, et</b> celui à qui on a interdit de profiter de l'autre <b>n'a pas</b> quelque chose <b>avec lui pour manger, </b> celui qui a fait le vœu peut <b>donner</b> de la nourriture <b>à une autre</b> personne <b>en cadeau, et celle-ci</b> <b>le prend</b> <b>et mange, et</b> cet arrangement est <b>permis,</b> car il ne lui a pas donné la nourriture directement. <b>Et s'il n'y a pas d'autre</b> personne <b>ici</b> en dehors de ces deux-là, il doit <b>placer</b> les objets <b>sur un rocher ou sur une barrière et dire : Ils sont</b> par la présente déclarés <b>sans propriétaire pour quiconque en veut</b>, <b>et celui-ci</b> <b>prend</b> les denrées <b>et les mange</b>, <b>et</b> cela aussi est <b>permis. Mais Rabbi Yosei interdit</b> cette pratique. <b>Rava dit : Quelle est la raison</b> de cette décision <b>de Rabbi Yosei ?</b> C'est un <b>décret rabbinique dû à</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara propose une autre affirmation de Rabbi Yehuda : <b>Par contre,</b> el
 La Gemara demande : <b>Et</b> en ce qui concerne <b>ce qui est enseigné</b> dans une autre <i>baraita</i> : Si <b>elle a donné naissance à un mâle et une femelle, il</b> ne reçoit <b>que cent dinars, comment trouver ces</b> circonstances ? <b>Ravina a dit :</b> Ceci fait référence <b>à</b> celui qui a dit : Je donnerai une certaine somme à celui qui <b>me renseignera.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

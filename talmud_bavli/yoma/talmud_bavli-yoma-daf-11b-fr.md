@@ -45,4 +45,4 @@ La Gemara répond : Cette question n'est <b>pas difficile,</b> car elle fait l'o
 <b>Et si tu veux, dis</b> au contraire encore une autre résolution de la contradiction entre les <i>baraitot</i> : Tant <b>cette</b> <i>baraita</i> <b>que cette</b> <i>baraita</i> se réfèrent à des synagogues <b>dans lesquelles il n'y a pas de lieu de résidence,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

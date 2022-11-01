@@ -27,4 +27,4 @@ Rav Ashi répond : <b>En fait,</b> cela suit l'opinion de <b>Rabbi Eliezer ben Y
 <b>Venez</b> et <b>entendez</b> une autre preuve : <b>En outre</b> au point de la mishna, <b>Rabbi Eliezer ben Ya'akov a dit :</b> Dans le cas de <b>celui qui dit à son ami : Bénéficier de toi est <i>konam</i> pour moi si tu ne loges pas avec moi, et si tu manges du pain chaud avec moi, et si tu bois une tasse</b> d'eau <b>chaude</b> <b>avec moi, et que l'autre s'irrite contre lui</b> parce qu'il le forçait à le faire, <b>ce sont aussi des vœux d'exhortation. Mais les rabbins ne lui ont pas concédé</b> sur cette question, car l'opposition de l'ami implique que le vœu doit être un vœu valide et non un vœu d'exhortation. La Guemara clarifie : <b>Quoi</b> est le sens de : <b>Les rabbins ne lui ont pas concédé ? N'est-ce pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

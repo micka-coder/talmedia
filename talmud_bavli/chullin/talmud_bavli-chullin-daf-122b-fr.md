@@ -66,4 +66,4 @@ La mishna indique que la peau doit être foulée pendant la période requise pou
 En ce qui concerne cette déclaration de Reish Lakish, <b>Rav Naḥman bar Yitzḥak dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

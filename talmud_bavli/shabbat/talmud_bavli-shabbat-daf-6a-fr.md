@@ -48,4 +48,4 @@ Un exemple du quatrième domaine énuméré dans le <i>baraita,</i> le domaine e
 Il a été enseigné dans la <i>Tosefta</i> à propos de la définition d'un domaine privé que <b>le Maître a dit,</b> avec un accent supplémentaire : <b>C'est le domaine privé.</b> La Guemara demande : <b>Qu'est-ce</b> cette emphase ajoutée <b>pour exclure ?</b> La Gemara répond : <b>Pour exclure cette</b> <i>halakha</i> de <b>Rabbi Yehuda, telle qu'elle a été enseignée</b> dans une <i>baraita</i> : <b>De plus, Rabbi Yehuda a dit : Celui qui a deux maisons</b> en face l'une de l'autre <b>sur deux côtés du domaine public,</b> s'il le choisit, <b>il peut</b> se créer un domaine privé dans le domaine public. Il peut <b>placer</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

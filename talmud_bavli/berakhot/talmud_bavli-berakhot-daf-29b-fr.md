@@ -54,4 +54,4 @@ La Gemara demande : <b>Quelle est</b> la formule de <b>la priere du voyageur ?</
 <b>Abaye a dit : En tout temps</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

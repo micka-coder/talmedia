@@ -39,4 +39,4 @@ La Gemara répond : <b>Cette</b> interdiction <b>dérive</b> du verset "Mais si 
 La Guemara rejette cette réponse : <b>Si</b> l'interdiction faite à la fille d'un prêtre qui épouse un non-prêtre de prendre part à la <i>teruma</i> avait été dérivée uniquement <b>de ce</b> dernier verset, <b>j'aurais dit</b> qu'il s'agit d'une interdiction qui découle d'une mitzva positive, puisqu'elle est énoncée sous forme positive, et selon le principe qu' <b>une interdiction qui découle d'une mitzva positive est une mitzva positive,</b> elle ne serait pas susceptible de recevoir une punition imposée par le tribunal. <b>Le Miséricordieux</b> écrit donc ce</b> premier verset, <b>pour</b> établir une <b>interdiction explicite.</b> La Gemara réplique : L'<b>interdiction</b> à la femme d'un non-prêtre de prendre part au <i>teruma</i> <b>est dérivée</b> d'un autre verset : <b>"Aucun homme du peuple ne peut manger du sacré"</b> (Lévitique 22:10).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

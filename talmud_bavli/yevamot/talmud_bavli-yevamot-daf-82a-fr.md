@@ -42,4 +42,4 @@ La Guemara soulève une question par rapport à l'avis de Rabbi Yoḥanan : <b>E
 La Guemara répond que Rabbi Yoḥanan peut dire : Conformément à l'avis de <b>qui</b> <b>cette <i>baraïta</i> est enseignée ? <b>C'est</b> conformément à l'opinion des <b>rabbins,</b> qui soutiennent que la <i>teruma</i> de nos jours n'est en vigueur que par la loi rabbinique.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

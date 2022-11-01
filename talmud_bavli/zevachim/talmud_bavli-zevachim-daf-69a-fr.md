@@ -69,4 +69,4 @@ La Gemara répond : Le <b><i>tanna</i></b> de ce <i>baraita</i> <b>se fonde sur<
 <strong>MISHNA :</strong> Si le prêtre a <b>épinglé</b> correctement la nuque de l'oiseau <b>et</b> alors <b>on a constaté</b> qu'il s'agissait d'un <b>tereifa</i>,</b> et qu'il était donc disqualifié pour être sacrifié et interdit de consommation par un prêtre, <b>Rabbi Meir dit : </b> Une olive-bulk de sa viande <b>ne rend pas</b> celui qui l'avale <b>rituellement impur</b> lorsqu'elle est <b>dans la gorge,</b> car le pincement l'empêche de prendre le statut de carcasse.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

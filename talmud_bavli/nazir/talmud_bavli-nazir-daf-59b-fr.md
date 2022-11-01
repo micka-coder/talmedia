@@ -33,4 +33,4 @@
 La mishna note : La raison pour laquelle il ne peut pas se raser pour sa lèpre après sept jours et effectuer le second rasage d'un lépreux sept jours plus tard est <b>parce que le rasage de la lèpre passe outre</b> l'interdiction de <b>le rasage d'un nazirite</b> uniquement <b>lorsque son</b> statut de <b>lépreux</b> est <b>défini. En revanche, lorsque son</b> statut de <b>lépreux</b> est <b>incertain,</b> le rasage <b>n'annule pas</b> sa naziréité, et il doit donc attendre trente jours avant chacun de ses rasages pour la lèpre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

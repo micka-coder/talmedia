@@ -27,4 +27,4 @@ La Gemara demande : <b>Et est-il dissous dans un cas comme celui-ci,</b> où le 
 <strong>GEMARA:</strong> En ce qui concerne la proposition de Rabbi Eliezer ben Ya'akov, la Guemara demande : <b>Et puisqu'il a dit : Tout vœu que je ferai à l'avenir devra être nul,</b> celui qui est invité <b>ne l'écoutera pas et ne viendra pas</b> manger <b>avec lui,</b> puisqu'il sait déjà que le vœu n'est pas valable. Dans ce cas, pourquoi le premier individu aurait-il fait un vœu ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

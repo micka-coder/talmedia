@@ -14,5 +14,5 @@ Un caillou dans un pain ou un gros globule de sel, ou un lupin, ou une croûte b
 ### michna 5
 Orge ou épeautre non décortiqué, racine de patte d'oie, asafoetida, silphium--Rabbi Judah dit : même les haricots noirs restent propres même [au contact] d'un " père de l'impureté", et il n'est pas nécessaire de dire [s'il est touché] par un tevul yom, paroles de Rabbi Meir. Mais les sages disent : ils sont purs s'ils sont touchés par un tevul yom, mais impurs [s'ils sont touchés] par d'autres sources d'impureté. De l'orge ou de l'épeautre décortiqué, ou du blé décortiqué ou non, ou du cumin noir, ou du sésame ou du poivre Rabbi Juda dit : aussi les haricots blancs deviennent impurs même s'ils sont touchés par un tevul yom, et il n'y a pas besoin de dire [quand ils sont entrés en contact] avec d'autres sources d'impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

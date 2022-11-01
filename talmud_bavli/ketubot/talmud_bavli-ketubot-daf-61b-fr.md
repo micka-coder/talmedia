@@ -51,4 +51,4 @@ La Guemara répond : <b>Il</b> est <b>nécessaire</b> de citer le différend dan
 § La mishna a dit que les <b>étudiants peuvent quitter</b> leurs maisons et voyager jusqu'à trente jours afin <b>d'apprendre la Torah,</b> sans la permission de leurs épouses. La Gemara demande : S'ils sont partis <b>avec la permission,</b> pendant <b>combien de temps</b> peuvent-ils partir ? La Guemara exprime son étonnement face à cette question : S'ils sont allés avec la permission de leurs épouses, ils peuvent y aller pendant <b>aussi longtemps qu'ils le veulent.</b> Si le mari et l'épouse sont d'accord sur ce point, pourquoi le tribunal aurait-il une raison d'intervenir ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Selon la loi de la Torah, d'où dérive-t-on</b> <b>qu'un
 Le <i>baraita</i> poursuit et demande : <b>Ou</b> peut-être le verset se réfère-t-il <b>seulement</b> à un cas où il n'y avait pas <b>même un</b> témoin de l'acte sexuel, comme l'usage singulier du mot <i>ed</i> semble l'indiquer ? Le <i>baraita</i> prouve maintenant qu'ailleurs le mot <i>ed</i> est utilisé pour indiquer deux témoins, comme <b>le verset le précise : "Un seul témoin [<i>ed</i>] ne s'élèvera pas contre un homme</b> pour une iniquité ou un péché qu'il commet ; par la bouche de deux témoins ou par la bouche de trois témoins, une affaire sera établie" (Deutéronome 19:15).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

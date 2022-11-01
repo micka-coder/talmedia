@@ -54,4 +54,4 @@ La Guemara procède à l'explication de la dispute entre Abaye et Rava : <b>Abay
 <b>Rava,</b> cependant, <b>s'en tient conformément</b> à l'avis de <b>Rav, qui a dit :</b> La <b><i>halakha</i> est</b> décidée <b>conformément</b> à l'avis de <b>Rabbi Elazar</b> selon lequel le mariage de ceux dont le statut est certain avec ceux dont le statut est incertain est interdit. Par conséquent, Rava <b>établit que</b> l'avis <b>de Rabbi Eliezer ben Ya'akov</b> est <b>conforme</b> à cette <b><i>halakha</i>, afin qu'il n'y ait pas de contradiction</b> entre...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

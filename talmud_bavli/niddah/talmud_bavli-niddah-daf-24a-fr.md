@@ -57,4 +57,4 @@ La Guemara répond : <b>Rav explique</b> la <i>baraita</i> <b>selon son</b> rais
 <b>Dans quel</b> cas <b>cette déclaration est-elle dite ?</b> Dans un cas <b>où</b> l'animal <b>a émergé dans l'espace aérien du monde ; mais</b> s'il a été trouvé <b>dans le ventre de sa mère</b> après que celle-ci ait été abattue, <b>il est permis de</b> consommer. Ceci <b>exclut</b> le cas d'un fœtus <b>qui a deux dos et deux épines, car même</b> s'il est trouvé <b>dans le ventre de sa mère, il est interdit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

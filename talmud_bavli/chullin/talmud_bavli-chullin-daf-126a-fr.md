@@ -39,4 +39,4 @@ La Guemara analyse la déclaration de Rabbi Yosei selon laquelle si le chien se 
 §Précédemment, la Guemara a établi que Rabbi Yosei considère qu'en ce qui concerne les <i>halakhot</i> d'impureté, le surplomb est désigné comme le toucher, car la transmission de l'impureté par contact et par surplomb est considérée comme une seule catégorie. Mais la mishna (<i>Oholot</i> 3:1) citée plus haut (125b) indique que dans le cas de celui qui touche la moitié d'une olive de chair d'un cadavre, si une tente le recouvre simultanément et une autre moitié d'olive de chair, il reste pur. De toute évidence, il existe un <i>tanna</i> qui n'est pas d'accord avec Rabbi Yosei et qui soutient que ces deux méthodes de transmission de l'impureté ne sont pas de la même catégorie. La Guemara demande : <b>Qui est le <i>tanna</i> qui n'est pas d'accord avec</b> Rabbi Yosei ? La Guemara répond : <b>C'est Rabbi Shimon, comme il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

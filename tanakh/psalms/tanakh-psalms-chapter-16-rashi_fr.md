@@ -40,4 +40,4 @@
 <b>en Ta présence</b> Des joies qui sont devant Toi, dans une compagnie qui est près de Toi.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

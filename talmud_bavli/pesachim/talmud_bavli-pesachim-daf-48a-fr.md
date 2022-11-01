@@ -54,4 +54,4 @@ La Guemara demande : <b>N'a-t-on pas</b> enseigné</b> dans une autre <i>baraita
 <b>Rav a dit : Un <i>kav</i></b> du lieu <b>Melogna</b> est la quantité qui peut être utilisée pour préparer la pâte <b>pour Pessah. Et de même, en ce qui concerne la <i>ḥalla</i>,</b> c'est la quantité minimale de pâte dont on doit séparer la <i>ḥalla</i>. La Gemara demande : <b>Ne l'a-t-on pas</b> <b>enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

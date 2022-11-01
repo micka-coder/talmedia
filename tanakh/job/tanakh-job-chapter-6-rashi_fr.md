@@ -112,4 +112,4 @@
 <b>Ou mon palais ne comprendra-t-il pas la méchanceté ?</b> Ne comprendra-t-il pas quand je prononce des paroles de méchanceté ?
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

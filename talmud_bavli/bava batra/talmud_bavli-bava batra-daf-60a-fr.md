@@ -39,4 +39,4 @@ L'homme lui <b>dit : Mais</b> le <b>Maître a aussi</b> une projection similaire
 La Gemara relate : <b>Rabbi Yannai avait un arbre qui penchait dans le domaine public.</b> Il y avait <b>un certain homme qui avait aussi un arbre qui penchait dans le domaine public,</b> et le <b>grand public l'empêchait</b> de le laisser là, insistant pour qu'il le coupe, comme l'exige la mishna (27b). Il <b>se présenta devant Rabbi Yannai,</b> qui <b>lui dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Le verset dit : <b>"Et après cette affaire, Jéroboam ne revint pas de sa mauva
 § La Gemara relate : <b>Rabbi Abbahou avait l'habitude de sermonner</b> longuement <b>sur les trois rois</b> énumérés dans la mishna, qui n'ont aucune part dans le Monde-à-Venir. <b>Il tomba malade, et il s'engagea à ne pas faire de conférence</b> sur ces rois. <b>Une fois</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

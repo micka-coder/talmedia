@@ -39,7 +39,7 @@ Rav Sheshet lui <b>dit : Non,</b> il n'y a pas de preuve de là, car on pourrait
 La Gemara explique : <b>Quelles sont les circonstances</b> dans lesquelles il existe une différence pratique entre ces possibilités ? C'est dans un cas <b>où il</b> déclare faussement <b>l'affirmation</b> qu'un <b>voleur</b> a volé le dépôt <b>et fait un serment</b> à cet effet, <b>puis se rétracte et</b> déclare faussement <b>l'affirmation</b> qu'il <b>a été perdu et fait un serment</b> à cet effet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il faut refuser une partie</b> de la demande <b>et admettre une partie</b> de la demande pour être obligé de prêter serment lorsque quelqu'un prétend lui avoir donné un objet en dépôt, <b>et ce sont eux : Un dépositaire non payé, et un emprunteur, un dépositaire payé, et un locataire.</b>
 
@@ -80,7 +80,7 @@ Rav Sheshet lui <b>dit : Non,</b> il n'y a pas de preuve de là, car on pourrait
 La Gemara explique : <b>Quelles sont les circonstances</b> dans lesquelles il existe une différence pratique entre ces possibilités ? C'est dans un cas <b>où il</b> déclare faussement <b>l'affirmation</b> qu'un <b>voleur</b> a volé le dépôt <b>et fait un serment</b> à cet effet, <b>puis se rétracte et</b> déclare faussement <b>l'affirmation</b> qu'il <b>a été perdu et fait un serment</b> à cet effet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il faut refuser une partie</b> de la demande <b>et admettre une partie</b> de la demande pour être obligé de prêter serment lorsque quelqu'un prétend lui avoir donné un objet en dépôt, <b>et ce sont eux : Un dépositaire non payé, et un emprunteur, un dépositaire payé, et un locataire.</b>
 
@@ -121,4 +121,4 @@ Rav Sheshet lui <b>dit : Non,</b> il n'y a pas de preuve de là, car on pourrait
 La Gemara explique : <b>Quelles sont les circonstances</b> dans lesquelles il existe une différence pratique entre ces possibilités ? C'est dans un cas <b>où il</b> déclare faussement <b>l'affirmation</b> qu'un <b>voleur</b> a volé le dépôt <b>et fait un serment</b> à cet effet, <b>puis se rétracte et</b> déclare faussement <b>l'affirmation</b> qu'il <b>a été perdu et fait un serment</b> à cet effet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

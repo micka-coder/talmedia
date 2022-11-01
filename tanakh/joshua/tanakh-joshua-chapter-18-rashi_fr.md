@@ -79,4 +79,4 @@
 <b>Tzeila, Eleph et Yevusi qui est <i>Yerushalayim</i>.</b> Chacune d'entre elles sont des villes individuelles. De même, Givas et Kiryas [sont des villes individuelles]. Ainsi, cinq villes sont mentionnées dans ce verset .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

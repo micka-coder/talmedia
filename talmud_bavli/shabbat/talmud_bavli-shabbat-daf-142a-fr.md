@@ -60,4 +60,4 @@ La Guemara rejette cette comparaison : <b>Et de quoi</b> cette conclusion décou
 La Guemara demande : <b>Et est-ce que</b> Rabbi Yehuda <b>se conforme</b> à l'avis de Rabbi Shimon ben Elazar ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

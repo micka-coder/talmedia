@@ -42,4 +42,4 @@ Le <i>baraita</i> poursuit : <b>Et voici les signes des</b> <b>œufs d'oiseaux :
 La Gemara demande : <b>Mais selon</b> l'avis de <b>Rabbi Dostai de Biri, qui</b> a accepté l'idée que les poissons non casher ne pondent pas d'œufs et <b>dit : Supprimez d'ici</b> la phrase : <b>Leurs œufs,</b> il est difficile.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

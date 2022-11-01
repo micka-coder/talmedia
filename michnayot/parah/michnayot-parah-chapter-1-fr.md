@@ -11,5 +11,5 @@ Les agneaux n'ont pas plus d'un an, et les béliers pas plus de deux ans. Et tou
 ### michna 4
 Les sacrifices pour le péché de l'assemblée et leurs holocaustes, le sacrifice pour le péché d'un individu, le sacrifice de culpabilité d'un nazir et le sacrifice de culpabilité d'un metzora sont valables à partir du trentième jour, et aussi le trentième jour. Si elles ont été offertes le huitième jour, elles sont valables. Les offrandes de vœux et les offrandes volontaires, les premiers-nés et la dîme du bétail ainsi que le pesach sont valables à partir du huitième jour, ainsi que le huitième jour.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

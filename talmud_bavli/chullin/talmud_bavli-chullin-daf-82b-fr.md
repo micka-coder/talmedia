@@ -57,4 +57,4 @@ La Guemara répond : <b>Non, en fait</b> le cas est celui où il a mangé des de
 <b>Comme</b> cet autre <i>tanna</i> <b>dit</b> que Rabbi Yehuda tient : <b>Un avertissement incertain est considéré comme un avertissement, comme il est enseigné</b> dans une <i>baraita</i> : Le verset dit à propos de l'offrande pascale : "Et <b>tu n'en laisseras rien jusqu'au matin ; mais ce qui en restera jusqu'au matin, tu le brûleras au feu"</b> (Exode 12:10).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Si l'on a accompli l'un des rites sacrificiels avec l'intention <b>de manger un 
 La Gemara demande : <b>Accordé,</b> la mishna est compréhensible <b>selon Ilfa, puisque la première clause</b> de la mishna : Si l'on a abattu l'animal en silence sans intention spécifique et recueilli...au-delà de son temps désigné, etc. fait référence à différentes intentions tenues <b>dans</b> le cours de <b>deux</b> <b>rites sacrificiels,</b> on peut supposer que <b>la dernière clause</b> fait référence <b>à deux rites également. Mais selon Rabbi Yoḥanan,</b> il se pourrait que <b>la première clause</b> se réfère <b>à deux rites, et que la dernière clause</b> se réfère <b>à</b> seulement <b>un rite ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

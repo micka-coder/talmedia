@@ -42,4 +42,4 @@ En revanche, les <b>os de l'agneau pascal, auxquels</b> l'interdiction de <b>cas
 <b>Rav Zevid a dit</b> que l'on peut répondre d'une manière différente : <b>A quoi avons-nous affaire ici ?</b> Nous avons affaire à un cas <b>tel que</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -145,4 +145,4 @@
 <b>Aux fils de Merari qui sont restés, de la tribu de Zabulon</b> c'est-à-dire ceux qui n'ont pas reçu ces douze villes que Ruben, Gad et Zabulon leur ont données, et c'est le sens de "qui sont restés de la tribu de Zabulon" : c'est-à-dire que de la part de Zabulon, ils [la tribu de Nephtali] ont donné aux fils de Merari qui sont restés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

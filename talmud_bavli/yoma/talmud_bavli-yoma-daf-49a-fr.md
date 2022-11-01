@@ -60,4 +60,4 @@ La Guemara rejette cette suggestion : <b>Non,</b> ce n'est pas nécessairement l
 La Guemara suggère également : <b>Venez</b> et <b>entendez</b> une résolution à ce dilemme de la part d'un <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

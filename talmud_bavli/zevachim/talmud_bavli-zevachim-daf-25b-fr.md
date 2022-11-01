@@ -60,4 +60,4 @@ La Gemara conteste ce point : <b>Mais existe-t-il un cas</b> où l'animal est da
 § <b>Rabbi Ami dit</b> que <b>Rabbi Elazar dit : </b> Dans le cas où l'animal se tient <b>à l'intérieur</b> de la cour du Temple <b>mais que ses pattes</b> sont plantées <b>à l'extérieur</b> de celle-ci, si l'on <b>séparait</b> ses pattes <b>et par la suite l'abattait</b>, l'offrande est <b>adéquate,</b> puisque tout le sang recueilli dans le bol provient de la partie de l'animal qui se tient dans la cour.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,7 +33,7 @@ Rabbi Yoḥanan poursuit son analyse : <b>Et selon</b> l'avis de <b>Rabbi Yosei<
 La Guemara propose une explication différente. <b>Rava dit : Cette</b> mishna <b>et cette</b> mishna sont toutes deux conformes à l'opinion de <b>Rabbi Akiva. Lorsque Rabbi Akiva dit qu'il <b>ne peut pas pardonner</b> la restitution d'un objet volé, il voulait dire spécifiquement pardonner l'obligation <b>à lui-même,</b> comme dans le cas du converti, <b>mais</b> il <b>peut pardonner</b> l'obligation <b>aux autres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La mishna poursuit : Si le père a déclaré dans son vœu que son fils ne pourra pas tirer profit de ses biens <b>de son vivant et à sa mort,</b> alors même <b>si</b> le père <b>mort</b> le fils <b>n'hérite pas</b> de <b>lui,</b> car l'interdiction est toujours en vigueur. <b>Et</b> au lieu de prendre son héritage, <b>il rend</b> sa part dans la succession <b>à ses fils ou à ses frères. Et s'il n'a pas</b> de fonds suffisants pour subsister sans son héritage, il <b>a emprunté</b> de l'argent à hauteur de la valeur de sa part dans l'héritage <b>et</b> les <b>créanciers viennent et sont remboursés</b> sur sa part.
 
@@ -68,4 +68,4 @@ Rabbi Yoḥanan poursuit son analyse : <b>Et selon</b> l'avis de <b>Rabbi Yosei<
 La Guemara propose une explication différente. <b>Rava dit : Cette</b> mishna <b>et cette</b> mishna sont toutes deux conformes à l'opinion de <b>Rabbi Akiva. Lorsque Rabbi Akiva dit qu'il <b>ne peut pas pardonner</b> la restitution d'un objet volé, il voulait dire spécifiquement pardonner l'obligation <b>à lui-même,</b> comme dans le cas du converti, <b>mais</b> il <b>peut pardonner</b> l'obligation <b>aux autres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

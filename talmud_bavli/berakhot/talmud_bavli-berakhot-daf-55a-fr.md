@@ -51,4 +51,4 @@ En ce qui concerne le verset : <b>Le prophete qui a un reve, qu'il raconte un re
 Sur une note similaire, <b>Rabbi Berekhya a dit : Meme si une partie d'un reve se realise, il ne se realise pas en totalite. D'ou tirons-nous</b> ceci ? <b>Du</b> recit du reve de <b>Josephs</b>, <b>comme il est ecrit :</b> "Et il dit : Voici, j'ai encore fait un reve : <b>et, voici, le soleil et la lune</b>.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

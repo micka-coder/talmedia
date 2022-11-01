@@ -54,4 +54,4 @@ La Gemara demande : <b>Et Reish Lakish parlerait-il avec Rabba bar bar Ḥana</b
 <b>Rav Pappa a dit : Jetez un homme entre eux,</b> et dites que l'incident n'a pas impliqué Reish Lakish et Rabba bar bar Ḥana. C'est <b>soit Reish Lakish</b> qui se baignait dans la rivière <b>et Ze'iri,</b> l'éminent Sage babylonien, qui lui a tendu la main, <b>soit</b> c'est <b>Rabba bar bar Ḥana</b> qui était dans la rivière <b>et Rabbi Elazar</b> lui a tendu la main. Quoi qu'il en soit, <b>lorsque</b> le Sage qui a entendu ce qu'a dit Reish Lakish <b>se présente devant Rabbi Yoḥanan</b> et le relate, Rabbi Yoḥanan <b>lui dit : Ce n'est pas la raison ; même s'ils étaient tous montés à l'époque d'Esdras, la Présence divine n'aurait pas reposé dans le Second Temple, comme il est écrit : "Dieu agrandira Japhet, et il habitera dans les tentes de Sem"</b> (Genèse 9:27).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

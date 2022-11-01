@@ -54,4 +54,4 @@ Puisque le <i>istema</i> a été mentionné dans la <i>baraita</i>, la Guemara d
 <b>Au nom de Rabbi Shimon, ils ont dit : Aussi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

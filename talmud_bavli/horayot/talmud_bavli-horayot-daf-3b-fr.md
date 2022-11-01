@@ -69,4 +69,4 @@ A propos de ce sujet, <b>il est enseigné</b> dans une <i>baraita</i> : Si un in
 <b>Rabbi Zeira dit :</b> Il existe <b>une analogie</b> pour illustrer l'opinion <b>de Rabbi Elazar. A quoi cette affaire est-elle comparable ? </b> Elle est comparable <b>à une personne qui a mangé</b> un morceau de graisse à l'égard duquel il y a <b>incertitude</b> s'il s'agit de <b>graisse interdite</b> et <b>incertitude</b> s'il s'agit de <b>graisse permise,</b> et il pensait manger de la graisse permise. <b>Et</b> il a ensuite <b>été conscient</b> qu'il y a une incertitude sur le fait qu'il ait mangé involontairement de la graisse pour laquelle on est susceptible de recevoir <i>karet</i> s'il l'a mangée intentionnellement, <b>car</b> dans ce cas il est susceptible d'<b>apporter</b> une <b>offrande de culpabilité provisoire. </b> Dans le cas dans le <i>baraita</i> également, lorsqu'il découvre par la suite que le tribunal est revenu sur sa décision, il est comme celui qui ne sait pas s'il a associé son action au tribunal ou associé son action à lui-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara répond par une autre question : <b>Quoi plutôt,</b> dira-t-on qu'il
 Il est indiqué dans la mishna : <b>Rabbi Eliezer dit</b> que <b>les parures des femmes sont aussi</b> interdites comme les aliments levés. La Guemara demande : <b>Pourrait-il te venir à l'esprit</b> de dire <b>que les parures</b> faites d'argent, d'or ou de matériaux tissés contiennent du levain ? <b>Dis plutôt</b> que cela signifie : <b>Même les cosmétiques féminins</b> ou autres articles utilisés par les femmes pour embellir leur peau sont interdits s'ils contiennent des ingrédients au levain. <b>Comme le dit le Rav Yehuda qui a dit : En ce qui concerne les femmes juives</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

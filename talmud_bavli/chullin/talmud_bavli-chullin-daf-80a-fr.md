@@ -63,4 +63,4 @@ A propos de ce sujet, <b>Rav Aḥa, fils de Rava, a dit à Rav Ashi, et certains
 § La mishna enseigne : <b>Comment ? Celui qui égorge</b> un animal lui-même et sa progéniture, etc. <b>Rabbi Oshaya dit : L'ensemble de la mishna n'est pas conforme</b> à l'opinion de <b>Rabbi Shimon. D'où</b> cela provient-il ? Il est dérivé <b>de ce</b> que la mishna <b>enseigne :</b> Si les deux animaux étaient des animaux <b>sacrificiels</b> abattus <b>en dehors</b> de la cour du Temple, <b>alors</b> pour avoir abattu <b>le premier</b> animal, <b>on est passible</b> de recevoir <b><i>karet</i>. Et les deux</b> animaux <b>sont disqualifiés</b> pour servir d'offrandes, <b>et</b> pour l'abattage de <b>les deux, on encourt quarante</b> coups de fouet. <b>Puisque nous avons entendu que Rabbi Shimon dit :</b> Un acte d'<b>abattage qui est impropre</b> à permettre la consommation de la viande <b>n'est pas considéré</b> comme ayant le statut halakhique d'un acte d'<b>abattage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

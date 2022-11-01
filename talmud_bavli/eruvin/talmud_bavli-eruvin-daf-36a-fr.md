@@ -54,4 +54,4 @@ Rav Naḥman <b>dit à</b> Rava en plaisantant : <b>Après avoir mangé un <i>ko
 La mishna poursuit : <b>Et s'il a dit : Etablis un <i>eirouv</i> pour moi avec</b> le contenu de <b>cette</b> fiole, <b>il n'a rien dit,</b> car le contenu de la fiole est encore <i>niveau</i>. <b>Rava a dit : C'est-à-dire</b> que <b>la fin de la journée</b> est le moment où <b>le <i>eirouv</i> acquiert</b> une résidence de Chabbat. Le moment critique par rapport à un <i>eirouv</i> est le dernier moment de la veille de Chabbat, plutôt que le premier moment de Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

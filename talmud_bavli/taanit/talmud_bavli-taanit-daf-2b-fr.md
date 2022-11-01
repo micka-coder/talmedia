@@ -51,4 +51,4 @@ Le <i>baraita</i> a déclaré que <b>Rabbi Akiva dit : Au sixième jour on</b> c
 La Gemara soulève une objection : Même si l'on admet que le verset fait référence à deux libations, on peut <b>dire</b> que <b>les deux</b> libations sont <b>de vin.</b> La Gemara répond : Rabbi Akiva <b>soutient conformément</b> à l'opinion de <b>Rabbi Yehuda ben Beteira, qui a dit</b> que les lettres superflues de ces versets <b>font allusion</b> à <b>l'eau [<i>mayim</i>].</b> Cela prouve que la libation supplémentaire du sixième jour doit être une libation d'eau.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ En outre, il y avait un récipient qui contenait un <b><i>log</i></b> pour mesur
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Il y avait sept récipients de mesure pour les liquides dans le Temple.</b> Classés par ordre croissant de taille, ils contenaient : <b>Un quart d'un <i>log</i> ; une moitié d'un <i>log</i> ; </b> un <b><i>log</i> ; un quart d'un <i>hin</i> ; un tiers d'un <i>hin</i> ; une moitié d'un <i>hin</i> ; et</b> un <b><i>hin</i>.</b> C'est <b>la déclaration de Rabbi Yehuda. Rabbi Meir dit</b> qu'il y avait ces sept récipients mais il les énumère par ordre décroissant : Un <b><i>hin</i> ; une moitié de <i>hin</i> ; un tiers de <i>hin</i> ; un quart de <i>hin</i>;</b> un <b><i>log</i> ; une moitié de <i>log</i> ; et un quart de <i>log</i>. Rabbi Shimon dit : Il n'y avait pas</b> de récipient <b>là-bas</b> dans le Temple qui contenait un <b><i>hin</i>, car à quoi</b> pourrait servir <b>un<b>hin</b> récipient d'un<b>hin</b> <b>servir ? </b> Ce volume de liquide n'a jamais été utilisé dans une offrande.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

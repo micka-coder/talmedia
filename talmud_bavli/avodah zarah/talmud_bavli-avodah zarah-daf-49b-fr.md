@@ -48,4 +48,4 @@ La Guemara rejette cette suggestion : <b>Non, tout le monde</b> s'accorde à dir
 <b>Et si tu le souhaites, dis</b> plutôt <b>que tout le monde</b> est d'accord pour dire que <b>les fragments de fragments sont autorisés, et qu'ici ils ne sont pas d'accord en ce qui concerne</b> les objets du <b>service des idoles</b> qui sont composés <b>de segments</b> qui se détachent <b>et qu'un profane peut réassembler. </b> Un <b>Sage,</b> Rav, <b>soutient</b> que <b>puisqu'un profane peut le réassembler,</b> son statut idolâtre n'est <b>pas annulé. Et</b> un <b>Sage,</b> Shmuel, <b>soutient</b> qu'un objet d'<b>adoration d'idole</b> doit voir son statut <b>révoqué uniquement</b> lorsqu'il se brise au cours de <b>son</b> <b>mode de croissance naturel, car c'est son</b> <b>mode typique. Ce</b> cas, où l'idole est désassemblée, <b>n'est pas</b> lié à <b>sa</b> <b>croissance naturelle et</b> donc il <b>ne nécessite aucun</b> acte supplémentaire <b>pour révoquer</b> son statut idolâtre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

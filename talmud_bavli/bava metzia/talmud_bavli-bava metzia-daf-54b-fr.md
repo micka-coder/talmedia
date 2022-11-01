@@ -33,4 +33,4 @@ La Guemara rapporte que <b>le <i>tanna</i></b> qui récitait les <i>mishnayot</i
 A propos de cette <i>baraita</i>, <b>Rav Ashi dit à Ravina :</b> Est-il vrai que <b>un animal non casher est</b> soumis <b>à une consécration initiale</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

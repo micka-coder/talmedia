@@ -24,4 +24,4 @@ La Guemara soulève une difficulté : <b>Mais</b> si Rami bar Ḥama a raison, <
 Après avoir fourni la réponse à une difficulté soulevée contre l'explication de Rami bar Ḥama, Rava présente un autre problème. <b>Rava dit : Est-ce que</b> la mishna <b>enseigne : Si elle s'est tenue d'elle-même ? </b> La mishna dit : Si elle se tient debout, et ne mentionne pas la condition de : De son propre chef. <b>Rava dit plutôt :</b> Le mishna fait référence à un cas <b>où il y avait une vache couchée devant lui, et il a dit : Il</b> incombe <b>à moi de l'apporter</b> comme une <b>offrande nazirite,</b> et de cette manière l'individu accepte la nazirite sur lui-même. La Gemara soulève une difficulté : <b>Accordé, une vache</b> peut <b>être une offrande, mais</b> <b>une porte peut-elle être une offrande ?</b> Comment son vœu qu'une porte soit une offrande peut-il être considéré comme une acceptation de la naziréité ? <b>Rava dit plutôt</b> que cela signifie ce qui suit : C'est un cas <b>où il y avait une vache couchée devant lui</b> refusant de se tenir debout,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

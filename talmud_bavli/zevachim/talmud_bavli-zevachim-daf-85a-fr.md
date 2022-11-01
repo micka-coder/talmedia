@@ -48,4 +48,4 @@ La Gemara répond : Plutôt, <b>Que devons-nous faire ? Devrions-nous les offrir
 La Guemara clarifie : <b>Voici ce que nous disons :</b> Puisque l'on retire les entrailles d'une offrande disqualifiée du haut de l'autel et qu'elles ne peuvent être rendues, <b>pourquoi ai-je</b> besoin de les <b>rincer ?</b> La Gemara répond : Le souci est <b>que si un autre prêtre tombe par hasard</b> sur ces entrailles <b>et ne sait pas</b> qu'elles sont disqualifiées pour l'autel, <b>il les sacrifiera</b> sur l'autel avec leurs excréments.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

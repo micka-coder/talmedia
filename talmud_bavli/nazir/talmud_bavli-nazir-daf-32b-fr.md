@@ -30,4 +30,4 @@ Si la personne qui s'approchait d'eux <b>retourne</b> de sorte que son identité
 <strong>GEMARA:</strong> La Gemara remet en question l'opinion de Beit Hillel : <b>Pourquoi celui dont la déclaration n'a pas été accomplie est-il un nazirite ? Rav Yehuda dit :</b> Il faut émender la formulation de la mishna pour qu'elle <b>dise :</b> Seul <b>celui dont la déclaration a été accomplie</b> devient un nazirite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

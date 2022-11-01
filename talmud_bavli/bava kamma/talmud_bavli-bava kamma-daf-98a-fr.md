@@ -33,4 +33,4 @@ Les Sages <b>Disent</b> en réponse : <b>Il en est de même que même celui qui 
 <b>Et Rabba</b> dit également : Celui qui brûle le billet à ordre</b> d'un autre est exempt, car</b> celui qui l'a brûlé peut lui <b>dire : J'ai brûlé</b> seulement <b>votre papier,</b> et il n'est pas tenu pour responsable du fait que le créancier ne pourra plus prouver qu'il avait accordé le prêt. <b>Rami bar Ḥama s'oppose à cela : Quelles sont les circonstances ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara soulève une autre question : Même si cela sert de preuve que ces de
 La Guemara rejette cet argument : <b>Il ne doit pas te venir à l'esprit</b> de dire cela, <b>car il est écrit</b> que Moïse a prononcé son oraison <b>après avoir tué Sihon"</b> (Deutéronome 1:4), <b>et quand Aaron est mort Sihon était encore en vie, comme il est écrit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

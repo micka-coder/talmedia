@@ -27,4 +27,4 @@ La Guemara demande : <b>Qu'est-ce que</b> Ulla nous apprend ? Si</b> il nous ens
 La Guemara soulève une difficulté : Mais <b>cette</b> <i>halakha</i> <b>aussi, Ulla</b> l'a déjà <b>dit</b> à <b>une autre occasion. Comme le dit Ulla :</b> La mishna <b>enseigne</b> que les objets qui sont descendus de l'autel ne doivent remonter <b>que là où le feu ne les a pas saisis, mais là où le feu les a</b> déjà <b>saisis, ils doivent remonter.</b> La Gemara explique : Malgré cela, il y a une nouveauté dans la décision de Ulla : <b>Au cas où vous diriez</b> que <b>cette affaire</b> ne s'applique que...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

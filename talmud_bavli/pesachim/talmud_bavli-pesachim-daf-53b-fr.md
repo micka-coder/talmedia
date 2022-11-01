@@ -42,4 +42,4 @@ Ulla n'ayant jamais transmis cette déclaration, il comprit que ce devait être 
 <b>Rav Yosef a lu</b> le verset suivant <b>à propos</b> de cet événement : <b>"Le conseil dans le coeur de l'homme est comme une eau profonde;</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

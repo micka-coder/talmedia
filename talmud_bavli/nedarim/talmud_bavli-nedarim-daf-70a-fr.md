@@ -24,4 +24,4 @@ La Guemara cite une mishna (<i>Nazir</i> 20b) pour résoudre cette dernière que
 La Guemara demande : <b>D'où dérive-t-on</b> que si <b>le mari est décédé</b> son <b>autorité revient au père ? Rabba répond : </b> On le déduit du fait <b>que le verset dit : "Et si elle est [<i>hayo tihyeh</i>] à un mari, et que ses vœux sont sur elle"</b> (Nombres 30:7). L'expression <i>hayo tihyeh</i> est un double emploi du verbe être. La Guemara comprend cela comme faisant référence à deux cas différents de fiançailles avec un homme, par exemple, le premier fiancé de la femme meurt et ensuite elle est fiancée à un autre homme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

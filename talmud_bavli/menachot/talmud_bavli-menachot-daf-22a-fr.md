@@ -27,4 +27,4 @@ Tangentiellement, la Gemara demande : <b>Quel</b> est le sens du terme <b><i>mor
 <b>Rabbi Yoḥanan dit : Et tous deux</b> le premier <i>tanna</i> et Rabbi Yehuda <b>dérivent</b> leurs opinions <b>d'un seul verset.</b> En ce qui concerne les rites sacrificiels accomplis par le Grand Prêtre à Yom Kippour, la Torah enseigne qu'après avoir aspergé le sang du taureau et du bouc séparément entre les douves de l'Arche et sur le Rideau, le sang des deux animaux est mélangé et présenté sur l'autel d'or à l'intérieur du Sanctuaire. Le verset indique : <b>"Il prendra du sang du taureau et du sang du bouc</b> et en mettra sur les coins de l'autel" (Lévitique 16:18). <b>On sait que le sang du taureau est supérieur au sang du bouc.</b> Pourquoi alors le sang du bouc n'est-il pas annulé ? Rabbi Yoḥanan explique : <b>Les rabbins,</b> c'est-à-dire le premier <i>tanna</i>, <b>tiennent :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ Le <i>baraita</i> poursuit son exposition des versets du Lévitique : Si <b>aucu
 Le <i>baraita</i> affirme en outre : <b>Non</b> seulement il sera vendu <b>à toi, </b> un Juif de naissance, <b>mais</b> il sera même vendu <b>à un étranger, comme il est dit :</b> "Et se vend <b>à un étranger [<i>ger</i>]"</b> (Lévitique 25:47). <b>Et</b> cette vente à un <i>ger</i> ne fait pas <b>référence</b> à une vente <b>à un converti juste [<i>ger tzedek</i>], mais</b> même <b>à un gentil qui réside en Eretz Yisraël et observe les sept mitzvot noahides [<i>ger toshav</i>], comme il est dit : </b> "Et se vend à <b>un étranger qui est un colon [<i>ger toshav</i>]"</b> (Lévitique 25:47). En ce qui concerne la suite du verset, "ou à un rejeton de la famille d'un étranger", la Gemara explique : <b>"La famille d'un étranger" ; il s'agit d'un Gentil,</b> c'est-à-dire qu'il atteindra un état où il n'aura pas d'autre choix que de se vendre à un Gentil. <b>Quand il est dit : "A un rejeton</b> de la famille d'un étranger,"
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

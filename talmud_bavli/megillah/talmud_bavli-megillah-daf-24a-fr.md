@@ -51,4 +51,4 @@ La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre eux ?</b
 La Guemara rejette cet argument : <b>Au contraire, quelle</b> est la raison ; est-ce <b>du à l'honneur ? Un mineur a-t-il un honneur</b> qui est lésé lorsqu'il lit la <i>haftara</i> et qui doit donc être assouvi ? <b>Au contraire,</b> selon le Rav Pappa <b>c'est</b> une manifestation d'<b>honneur</b> à <b>son père et à son professeur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

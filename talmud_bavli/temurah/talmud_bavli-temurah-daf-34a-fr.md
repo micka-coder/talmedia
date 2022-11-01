@@ -60,4 +60,4 @@ Avant de résumer la question, la Guemara explique pourquoi la <i>baraita</i> en
 <b>Comme il est enseigné</b> dans un <i>baraita</i> en ce qui concerne l'enlèvement des cendres : Le verset stipule : "Et il enlèvera les cendres auxquelles le feu a consumé l'holocauste sur l'autel, et il les mettra à côté de l'autel" (Lévitique 6:3). L'expression <b>"et il les mettra"</b> indique qu'il les déposera <b>gentiment,</b> plutôt que de les jeter. En outre, l'accent mis sur "eux" dans le terme <b>"et il les mettra"</b> enseigne qu'il les mettra <b>tous.</b> Enfin, il découle du "et" superflu dans le terme <b>"et il les mettra" qu'il ne dispersera pas</b> les cendres. La décision de la <i>baraita</i> selon laquelle toutes les cendres doivent être placées dans le sol indique que même après que l'objet consacré a été brûlé, les cendres restent sanctifiées et sont interdites.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

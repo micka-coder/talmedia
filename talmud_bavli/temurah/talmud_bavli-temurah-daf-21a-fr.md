@@ -66,4 +66,4 @@ La Gemara répond : <b>En fait, il soutient</b> que la <b>consécration initiale
 <b>Puisque si le sang est</b> encore <b>là</b> et n'avait pas encore été aspergé sur l'autel, il n'est <b>pas soumis à l'aspersion,</b> puisque le Temple a été détruit, et par conséquent <b>la viande</b> de l'offrande du premier-né ne peut être mangée. Cette <i>halakha</i> <b>vient</b> et est <b>dérivée de</b> la <i>halakha</i> du <b>sang,</b> sur la base de la juxtaposition du verset suivant : "Tu aspergeras leur sang contre l'autel... et leur chair sera à toi" (Nombres 18, 17-18). Ceci enseigne que la viande ne peut être consommée que lorsque le sang est apte à être aspergé sur l'autel. En revanche, il n'y a pas une telle juxtaposition en ce qui concerne la seconde dîme, et par conséquent, Rabbi Yishmael n'est pas certain qu'elle puisse être consommée à l'heure actuelle à Jérusalem.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

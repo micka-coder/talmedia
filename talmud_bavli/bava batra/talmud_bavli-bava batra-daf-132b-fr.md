@@ -27,4 +27,4 @@ Rav Ḥisda <b>lui a dit : Dis que Shmuel a dit</b> sa déclaration qu'elle perd
 Il y avait <b>un certain</b> homme sur son lit de mort <b>qui dit à</b> ceux qui l'entouraient : Donne <b>un tiers</b> de mes biens <b>à</b> ma <b>fille, et un tiers à</b> mon autre <b>fille, et un tiers à</b> ma <b>femme. L'une de ses filles est morte</b> avant lui, et sa part est par conséquent revenue en sa possession. <b>Rav Pappi a pensé dire</b> que l'épouse <b>ne prend qu'un tiers.</b> Elle ne peut recevoir le paiement de son contrat de mariage sur les deux tiers légués aux filles, car en s'associant avec les filles dans la propriété des biens, elle a renoncé au paiement de son contrat de mariage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

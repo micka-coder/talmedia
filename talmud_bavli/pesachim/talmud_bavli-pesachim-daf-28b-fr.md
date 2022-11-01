@@ -39,4 +39,4 @@ La Guemara demande : <b>Et Rabbi Shimon, d'où tire-t-il</b> la nécessité <b>d
 Après avoir clarifié les opinions de Rabbi Yehuda, Rabbi Shimon, et Rabbi Yosei HaGelili, la Guemara demande : Conformément à <b>l'opinion de qui</b> <b>la mishna</b> est enseignée ? <b>Si</b> on suggère que c'est conformément à l'avis de <b>Rabbi Yehuda,</b> cela ne peut pas être, car Rabbi Yehuda <b>a dit du pain levé sans stipulation</b> que le pain levé appartienne à un Juif, indiquant qu'on ne peut <b>même</b> bénéficier du pain levé <b>d'un Gentil</b> sur lequel la Pâque s'est écoulée. Par conséquent, étant donné que cet avis contredit la déclaration faite dans la mishna discutée ici, on peut exclure Rabbi Yehuda comme son auteur. <b>Et si</b> elle est conforme à l'opinion de <b>Rabbi Shimon,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

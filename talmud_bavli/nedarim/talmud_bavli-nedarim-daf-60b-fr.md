@@ -33,4 +33,4 @@ La Guemara rejette cette preuve : Mais <b>dit la dernière clause</b> de la mish
 <b>Rav Ashi a dit : Venez</b> et <b>entendre</b> une résolution à cette question à partir de la mishna suivante (63a) : Si l'on a fait le vœu : <b>Le vin est <i>konam</i></b> pour moi, et pour cette raison <b>je</b> ne le <b>goûterai</b> <b>cette année, alors</b> si <b>l'année a été prolongée,</b> c'est-à-dire déclarée bissextile, il lui est <b>interdit</b> de boire du vin <b>dans celle-ci et son mois intercalaire</b>. La Guemara s'interroge : <b>Quelles sont les circonstances ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

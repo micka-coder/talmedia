@@ -24,4 +24,4 @@ La Gemara demande : On peut <b>dire qu'un seul témoin est jugé crédible en ce
 La Guemara répond : La préoccupation de Rabba n'est pas équivalente à un cas d'incertitude, car la <b>majorité</b> des juifs <b>sont experts</b> dans l'exigence qu'un acte de divorce doit être écrit pour le bien de la femme. <b>Et</b> il en est ainsi <b>même selon</b> l'opinion de <b>Rabbi Meir, qui est</b> généralement <b>soucieux d'une minorité</b> dans une affaire de relations sexuelles interdites. Dans ce cas, Rabbi Meir concède qu'il ne faut pas s'inquiéter pour la minorité, car les <b>scribes judiciaires ordinaires,</b> qui rédigent les actes de divorce, <b>sont instruits</b> dans cette <i>halakha</i>, et savent qu'un acte de divorce doit être rédigé pour le bien de la femme. <b>Et ce sont les Sages qui ont exigé</b> un témoignage à ce sujet, par précaution supplémentaire. <b>Et voici,</b> à propos de ce témoignage ,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

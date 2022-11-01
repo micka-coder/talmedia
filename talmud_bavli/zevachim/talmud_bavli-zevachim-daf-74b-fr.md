@@ -54,4 +54,4 @@ Enfin, Rabbi Yannai et Reish Lakish <b>ne disent pas</b> que l'explana-tion de l
 <b>Rav Yosef dit :</b> La <i>halakha</i> de la mishna est énoncée <b>par rapport à une offrande de femmes,</b> qui n'effectuent pas le placement des mains. La Gemara est perplexe face à cette suggestion : <b>Mais</b> cela indique que <b>en ce qui concerne une offrande d'hommes,</b> la <i>halakha</i> énoncée dans la mishna est <b>non</b> applicable, et donc il n'y a aucun moyen de rectifier un mélange d'animaux consacrés du même type d'offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

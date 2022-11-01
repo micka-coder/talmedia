@@ -33,4 +33,4 @@ La Guemara répond que cela n'est <b>pas difficile. Cette</b> mishna fait réfé
 <strong>MISHNA:</strong> <b>Cette</b> règle, selon laquelle les serments peuvent rendre des actions, qui n'ont pas de substance réelle, soit interdites, soit obligatoires, <b>est une rigueur des serments vis-à-vis des vœux,</b> qui ne prennent pas effet en ce qui concerne les questions qui n'ont pas de substance réelle. <b>Et</b> il y a aussi <b>une rigueur des vœux vis-à-vis des serments. Comment cela ? </b> A l'égard de celui qui <b>a dit : Faire une <i>sukka</i> est <i>konam</i> pour moi,</b> ou : <b>Prendre un <i>lulav</i> est</b> <i>konam</i> <b>pour moi,</b> ou : <b>Donner des phylactères est</b> <i>konam</i> <b>pour moi, dans</b> le cas de <b>vœux,</b> les articles sont rendus <b>interdits,</b> et il ne peut pas accomplir la mitsva jusqu'à ce que le vœu soit dissous. Cependant, <b>dans</b> le cas de <b>serments similaires,</b> ces éléments sont <b>permis, car on ne peut pas faire un serment pour transgresser les mitzvot.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

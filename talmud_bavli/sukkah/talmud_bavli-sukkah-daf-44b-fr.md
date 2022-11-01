@@ -30,4 +30,4 @@ Un <i>halakha</i> supplémentaire a été transmis de la même manière. <b>Aivu
 § La mishna poursuit : <b>Comment</b> s'accomplit <b>la mitzva de <i>lulav</i></b> dans le Temple lorsque le premier jour de la Fête survient le Chabbat ? La mishna explique ensuite comment les assistants disposent leurs <i>lulavim</i> sur le banc dans le Temple. Le <b><i>tanna</i></b> qui récitait les <i>mishnayot</i> dans la salle d'étude <b>enseignait</b> une version de la mishna <b>devant Rav Naḥman:</b> Le préposé les <b>arrange sur le toit</b> au-dessus du <b>banc</b> dans le Temple. Rav Naḥman <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

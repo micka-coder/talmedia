@@ -54,4 +54,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve par un <i>barait
 <b>Rav Huna bar Yehuda a dit à Rava : Dis</b> que la <i>baraita</i> signifie que l'offrande <b>expédie</b> la transgression de <b>la personne,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -242,4 +242,4 @@
 <b>Quand je te pardonne</b> Heb. בְּכַּפְרִי לָךְ [lit. dans mon expiation pour toi]. Quand je te pardonnerai ce que tu as fait, tu auras honte, et tu sauras que je ne t'ai pas avantagé à cause du bien que tu m'as accordé.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

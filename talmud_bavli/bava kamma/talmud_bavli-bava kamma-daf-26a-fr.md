@@ -69,4 +69,4 @@ La Gemara rejette également cette idée : <b>Qu'y a-t-il de notable</b> dans le
 <strong>GEMARA : </strong>La Gemara en déduit : Il <b>enseigne</b> dans la mishna : <b>Il a aveuglé l'œil d'un autre,</b> et on peut supposer que c'est <b>similaire</b> à l'autre exemple : <b>Il a brisé des récipientx. </b> On peut en déduire que <b>comme là,</b> dans le cas des vases cassés, <b>oui,</b> on doit payer pour le <b>dommagements</b> qu'on a causé mais on ne <b>pas</b> payer <b>les quatre types d'indemnités, de même, </b> dans le cas où <b>il aveugle un autre, oui,</b> il doit payer pour le <b>dommage</b> qu'il a causé, mais il ne <b>pas</b> payer <b>les quatre types d'indemnité,</b> puisqu'il a causé le dommage en dormant ou de manière non intentionnelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara interprète le cas de la mishna : <b>Quoi, n'est-ce pas qu'elle a vend
 <b>Rav Huna, fils de Rav Natan, a dit : Non,</b> la compréhension correcte de la mishna n'est pas qu'elle a vendu la terre pour son prix correct. Le mishna fait plutôt référence à une situation <b>où elle a réduit</b> son prix et a vendu le bien pour un prix inférieur à sa valeur, et où il y avait une erreur dans la vente elle-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

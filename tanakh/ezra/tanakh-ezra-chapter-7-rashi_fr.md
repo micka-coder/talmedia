@@ -97,4 +97,4 @@
 <b>Selon la main du Seigneur mon Dieu sur moi</b> comme l'aide du Saint, béni soit-il, était sur moi ; et j'ai rassemblé parmi les Israélites restés à Babylone les chefs des maisons paternelles et les grands hommes pour monter avec moi de Babylone.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

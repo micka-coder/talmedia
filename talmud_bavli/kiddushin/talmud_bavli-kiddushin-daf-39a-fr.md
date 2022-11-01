@@ -42,4 +42,4 @@ La Guemara relate : <b>Rav Yosef</b> était en train de <b>mélanger</b> diverse
 <b>Rav Yossef dit alors : La question que j'ai dite,</b> c'est-à-dire que diverses sortes de graines sont entièrement autorisées en dehors d'Eretz Yisrael, <b>n'est pas</b> telle. La preuve en est que <b>Rav a planté le jardin</b> autour de <b>la salle d'étude en rangées [<i>mesharei</i>]</b> d'espèces différentes. <b>Quelle est la raison</b> pour laquelle il a fait cela plutôt que de planter ensemble des espèces différentes ? N'est-ce pas <b>pas parce que</b> il était préoccupé par les <b>mélanges d'espèces diverses ? Abaye lui a répondu :</b> Ce n'est pas une preuve. <b>Grâce, s'il nous a enseigné</b> cette <i>halakha</i> par ses actions,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

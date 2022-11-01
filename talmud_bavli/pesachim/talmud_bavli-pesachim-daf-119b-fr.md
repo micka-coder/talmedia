@@ -39,4 +39,4 @@ La Guemara rejette cette affirmation : C'est une déduction incorrecte, car la m
 La Gemara propose : <b>Disons</b> que la <i>Tosefta</i> <b>soutient</b> la décision de Shmuel' : En ce qui concerne les <b>gâteaux de génoise sans levain, les gâteaux frits dans l'huile et le miel, et les gâteaux au miel, une personne</b> peut en <b>remplir son estomac</b> la nuit de Pessah, <b>à condition qu'elle mange une olive-bulk</b> de <b><i>matza</i> après</b> toute cette nourriture. La Guemara en déduit que s'il mange la <i>matza</i> <b>après</b> ces gâteaux, <b>oui,</b> cela est acceptable, car la <i>matza</i> se mange en dernier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

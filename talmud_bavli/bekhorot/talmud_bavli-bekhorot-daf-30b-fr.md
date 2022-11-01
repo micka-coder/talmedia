@@ -54,4 +54,4 @@ Les étudiants sont revenus et <b>sont venus dire à Rabbi Yehuda et Rabbi Yosei
 La <i>baraita</i> continue : <b>Rabbi Meir dit : Eux aussi doivent accepter</b> sur eux-mêmes un engagement à observer <b>les questions</b> associées au statut de <b><i>ḥaver</i> <i>ab initio</i>. Et de même, Rabbi Shimon ben Elazar illustrerait</b> ce point et <b>dira au nom de Rabbi Meir : </b> Il y eut <b>un incident impliquant une certaine femme qui épousa un <i>ḥaver</i> et attachait [<i>koma'at</i>] pour lui des phylactères à sa main,</b> et elle <b>se maria plus tard avec un collecteur d'impôts et attachait pour lui des sceaux fiscaux à sa main,</b> ce qui montre que son nouveau mari avait une grande influence sur son niveau de piété.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

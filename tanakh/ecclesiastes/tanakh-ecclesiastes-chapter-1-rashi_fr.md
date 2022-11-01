@@ -67,4 +67,4 @@
 <b>Je comprends</b> maintenant, que la sagesse aussi comporte une frustration, car dans la grande sagesse, une personne se fie à sa grande sagesse et ne se distancie pas de l'interdiction, et beaucoup de vexation vient au Saint, Béni soit-Il. J'ai dit : "Je prendrai beaucoup de chevaux, mais je ne ramènerai pas le peuple en Égypte", mais finalement, je suis revenu. J'ai dit : "Je prendrai beaucoup de femmes, mais elles ne détourneront pas mon cœur", mais il est écrit à mon sujet : "ses femmes ont fait vaciller son cœur"<sup>51</sup><i class="footnote">I Melachim 11:4. </i> Et de même, il est dit qu'il s'est appuyé sur sa grande sagesse et a fait beaucoup de choses, comme il est dit : "les paroles de cet homme à Isieil, parce que Dieu est avec moi, je pourrai."<sup>52</sup><i class="footnote">Mishlei 30:1.</i>. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

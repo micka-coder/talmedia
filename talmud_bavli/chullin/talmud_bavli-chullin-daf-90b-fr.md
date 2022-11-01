@@ -63,4 +63,4 @@ La Guemara explique comment cela résout le dilemme : <b>Accordé si l'on dit</b
 La Guemara répond : <b>Rav Ika bar Ḥanina a dit : En fait, je</b> pourrais <b>vous dire</b> qu'il est <b>évident</b> pour Rabbi Yehouda que le nerf sciatique de la cuisse droite seulement est interdit. Néanmoins, <b>Il s'agit ici</b> d'un cas <b>où les nerfs sciatiques <b>ont été identifiés</b> et retirés, <b>mais finalement</b> les nerfs sciatiques <b>se sont entremêlés</b> et on ne peut pas dire lequel provient de la cuisse droite et lequel provient de la cuisse gauche. Par conséquent, il faut les laisser tous les deux jusqu'au lendemain, puis les brûler.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

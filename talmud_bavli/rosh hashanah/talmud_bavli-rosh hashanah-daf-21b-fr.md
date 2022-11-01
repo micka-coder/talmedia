@@ -39,4 +39,4 @@ Le verset susmentionné indique : "Les paroles du Seigneur sont des paroles pure
 <b>Et</b> l'autre <b>personne a dit : Parmi les prophètes, il n'en est pas surgi un</b> comme Moïse, mais <b>parmi les rois, il en est surgi un,</b> Salomon, qui était aussi sage que Moïse. <b>Comment maintiens-je</b> les mots <b>"Kohelet a cherché à trouver des mots de plaisir" ? Kohelet,</b> le roi Salomon, <b>a cherché à émettre des jugements du cœur,</b> en se basant uniquement sur son intuition, <b>sans témoins et sans avertissement.</b> Mais <b>une Voix Divine a jailli et lui a dit : <b>Et ce qui a été écrit avec droiture, des paroles de vérité.</b> De quelles paroles s'agit-il ? <b>"Sur la bouche de deux témoins,</b> ou de trois témoins, celui qui mérite la mort sera mis à mort ; mais sur la bouche d'un seul témoin, il ne sera pas mis à mort" (Deutéronome 17:6). La punition ne peut être administrée que sur la base du témoignage de deux témoins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

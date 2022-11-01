@@ -54,4 +54,4 @@ Yonatan ben Harkinas se mit en colère et lui <b>dit : Tu es Akiva ben Yosef, do
 <b>Et Rabbi Yehouda le juge</b> <b>rituellement impur parce que ceux</b> des résidents de ce lieu <b>sont des convertis et sont dans l'erreur.</b> En d'autres termes, certains des habitants de Rekem se sont assimilés et n'observent plus les <i>halakhot</i> de la Torah, et il faut donc se méfier de peur que les taches ne proviennent en fait d'une femme juive ayant ses règles. Les taches qui proviennent <b>de chez les gentils,</b> en revanche, <b>sont rituellement pures. Et nous avons discuté</b> du problème suivant :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

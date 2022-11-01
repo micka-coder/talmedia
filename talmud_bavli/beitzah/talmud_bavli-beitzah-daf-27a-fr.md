@@ -45,4 +45,4 @@ A quel enseignement de Rabbi Meir la Guemara fait-elle référence ? C'est <b>co
 § La Gemara relate que <b>Ami de Vardina</b> était <b>l'examinateur des premiers-nés dans la maison du <i>Nasi</i>. Lors des fêtes, il n'examinait pas</b> les taches des premiers-nés. <b>Ils sont venus et ont raconté cela à Rabbi Ami</b>. <b>Il leur a dit : Il fait bien de ne pas les examiner</b>. La Guemara soulève une objection : <b>C'est vrai ? Mais Rabbi Ami n'a-t-il pas lui-même examiné</b> les premiers-nés pour détecter les défauts lors d'une fête ? La Guemara répond : <b>Lorsque Rabbi Ami examinait</b> les taches des premiers-nés, c'était <b>la veille</b> de la Fête qu'il les <b>examinait</b>, pour voir si les taches étaient permanentes ou temporaires.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

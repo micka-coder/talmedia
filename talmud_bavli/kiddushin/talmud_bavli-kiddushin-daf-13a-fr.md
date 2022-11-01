@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais</b> on peut <b>saisir</b> que cette punition n'est p
 La Gemara demande en outre : <b>Mais</b> on peut <b>saisir</b> que le fait de faire un faux <b>serment est distinct,</b> car il implique la profanation du nom de Dieu, <b>et ces</b> autres péchés <b>sont distincts,</b> c'est-à-dire qu'il s'agit d'offenses moins graves qui entraînent une punition moins importante. Il est donc possible que cette grande tragédie ne se produise que si on les accomplit tous.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

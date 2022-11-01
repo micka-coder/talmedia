@@ -81,5 +81,5 @@
 ### passuk 29
 <b>Après ma mort, que vous deviendrez dépravés.</b> Pourtant, durant tous les jours de Yehoshua, ils n'étaient pas dépravés, comme il est dit : " Le peuple adorait Hachem tous les jours de Yehoshua. " [On déduit] de là que le disciple d'un homme lui est aussi précieux que sa propre personne, car, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>tant que Yehoshua était vivant, il apparaissait, à Moshé, comme s'il était lui-même vivant. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

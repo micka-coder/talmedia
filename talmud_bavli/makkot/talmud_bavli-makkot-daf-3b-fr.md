@@ -51,4 +51,4 @@ Rav Mattana lui <b>répondit</b> que cela découle d'un verset, <b>comme il est 
 La Gemara s'interroge par rapport à la déclaration de Rav : <b>Mais Rabbi Ḥiyya n'a-t-il pas enseigné</b> que trois <i>log</i> d'eau dans laquelle est tombé un <i>kortov</i> de vin <b>réduisent le bain rituel</b> dans un état où il n'est plus valide ? <b>Rava dit</b> que cette <i>baraita</i> n'est <b>pas difficile,</b> car <b>cette</b> déclaration du Rav est conforme à l'opinion de <b>Rabbi Yoḥanan ben Nuri, </b> et <b>cette</b> <i>baraita</i> enseignée par Rabbi Ḥiyya est conforme à l'opinion des <b>rabbins,</b> qui ne sont pas d'accord avec Rabbi Yoḥanan ben Nuri. <b>Comme nous l'avons appris</b> dans une mishna (<i>Mikvaot</i> 7:5) : Dans un cas où il y a <b>trois <i>log</i></b> de <b>eau</b> tirée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

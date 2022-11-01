@@ -48,4 +48,4 @@ Rabbi Meir <b>s'est rendu et s'est habillé comme</b> un <b>chevalier romain,</b
 <b>Rabbi Meir s'est rendu auprès de son gardien,</b> et lui a <b>dit : Donne-la</b> à moi. Le garde lui <b>dit : Je crains</b> que si je le fais, je serai puni <b>par le gouvernement.</b> Rabbi Meir <b>lui dit : Prends</b> ce <b>vase</b> plein <b>de dinars ; donne la moitié</b> au gouvernement comme pot-de-vin, <b>et la moitié sera pour toi.</b> Le garde <b>lui dit : Mais quand</b> l'argent <b>est fini, que ferai-je ? </b> Rabbi Meir <b>lui dit : Dis : Dieu de Meir réponds-moi ! Et tu seras sauvé.</b> Le garde <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

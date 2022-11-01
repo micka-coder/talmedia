@@ -21,4 +21,4 @@ La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Les enfants ne
 La Gemara répond : <b>Et selon votre raisonnement, est-ce que</b> recevoir une <b>rémunération</b> pour enseigner la <b>punctuation est interdit le Chabbat ? Il s'agit</b> d'un cas d'<b>incorporation</b> du paiement pour l'enseignement le Chabbat dans le salaire hebdomadaire du professeur, <b>et l'incorporation est permise, comme cela est enseigné</b> dans une <i>baraita</i> : <b>Celui qui engage</b> un <b>travailleur journalier pour surveiller un enfant, pour surveiller une vache,</b> ou <b>pour garder des graines ne lui donne pas de paiement pour Shabbat. Par conséquent,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

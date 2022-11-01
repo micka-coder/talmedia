@@ -33,4 +33,4 @@ Si une personne entreprend de se rendre la veille de Chabbat dans une ville pour
 Celui qui, intentionnellement et non dans le but d'accomplir une mitzva, est sorti au-delà de sa limite de Chabbat, même si ce n'est que d'une coudée, ne peut pas y retourner. Rabbi Eliezer dit : S'il est sorti de deux coudées, il peut rentrer, mais s'il est sorti de trois coudées, il ne peut pas rentrer. En ce qui concerne celui pour qui la nuit est tombée alors qu'il voyageait en dehors de la limite du Chabbat de la ville où il se dirigeait, même s'il n'était qu'à une coudée de la limite, il ne peut pas entrer dans la ville. Rabbi Shimon dit : Même s'il se trouvait à quinze coudées au-delà de la limite, il peut entrer dans la ville, car les arpenteurs ne délimitent pas précisément les mesures ; ils marquent plutôt la limite de Chabbat dans les deux mille coudées, à cause de ceux qui se trompent.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

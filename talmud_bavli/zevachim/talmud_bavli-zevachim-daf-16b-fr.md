@@ -54,4 +54,4 @@ La Gemara conteste : Pourtant, on ne peut pas en déduire, car <b>Qu'est-ce qui 
 La Guemara fournit <b>un moyen mnémotechnique</b> pour se rappeler les rejets ci-dessus de Rava bar Ahilai : <b>Et ne doit pas être autorisé, et ne doit pas être autorisé, le deuil aigu, et l'impureté rituelle, l'impureté rituelle, individuelle, et individuelle, communale.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

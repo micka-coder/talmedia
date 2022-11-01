@@ -42,4 +42,4 @@ La Gemara demande : Peut-il <b>entrer dans votre esprit</b> que <b>ils</b> l'ont
 La Guemara demande : <b>Donné,</b> <i>teruma</i> ne peut être distribué à <b>un sourd-muet, un imbécile et un mineur,</b> car <b>ils ne sont pas compétents,</b> et il est inconvenant de leur donner <i>teruma</i> en public. Il est <b>également</b> inopportun de distribuer du <i>teruma</i> à <b>un <i>tumtum</i> et à un hermaphrodite,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

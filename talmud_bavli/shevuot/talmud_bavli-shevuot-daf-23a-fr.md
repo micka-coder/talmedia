@@ -54,4 +54,4 @@ La Gemara suggère : Si son intention était de s'assurer que son serment ne s'�
 La Gemara suggère : Si son intention était de s'assurer que son serment ne s'étend pas à d'autres aliments, <b>Il aurait pu</b> simplement <b>dire : Pain</b> fait de <b>blé, et d'orge, et d'épeautre,</b> limitant ainsi son serment aux types de pain.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

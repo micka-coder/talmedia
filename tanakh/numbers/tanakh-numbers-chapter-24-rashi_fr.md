@@ -98,5 +98,5 @@
 <b>Eux aussi seront perdus pour l'éternité.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De même, explique Doniel, "jusqu'à ce que l'animal soit tué, et son corps détruit." 
 <b>Vaisseaux de guerre.</b> De grands navires, comme il est écrit, וְצִי אַדִּיר, rendu par le Targum par "grands navires". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -96,4 +96,4 @@ Autre explication : <b>Le profit de la terre est désiré par tous.</b> La réco
 <b>Avec la joie de son coeur.</b> Qu'il était heureux lors de la fête.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

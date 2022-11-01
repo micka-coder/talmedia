@@ -63,4 +63,4 @@ La mishna enseigne : <b>Combien de temps</b> avant la naissance <b>la douleur es
 § En ce qui concerne la <i>halakha</i> selon laquelle une femme qui éprouve des douleurs de travail ne contracte pas l'impureté de <i>ziva</i>, <b>Rabbi Levi dit : La</b> naissance d'un <b>enfant rend</b> la mère <b>rituellement pure</b> de <i>ziva</i> <b>seulement</b> si elle a éprouvé des saignements pendant les onze <b>jours qui sont aptes</b> à ce qu'elle <b>devienne une <i>zava</i>.</b> Mais si elle a éprouvé des saignements dus aux douleurs de l'accouchement pendant les jours de menstruation qui précèdent ou suivent ces onze jours, elle est une femme qui a ses règles. <b>Et Rav dit : Même</b> si elle a continué à avoir des saignements <b>pendant</b> les <b>jours qui conviennent pour le décompte d'une <i>zava</i>,</b> c'est-à-dire pendant les sept jours qui suivent les onze jours de <i>ziva</i>, qui font également partie de ses jours de menstruation, elle reste pure. <b>Rav Adda bar Ahava dit : Et selon le raisonnement de Rav,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

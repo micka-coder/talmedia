@@ -53,4 +53,4 @@
 <b>Et les Israélites se révoltèrent contre la maison de David</b> - Héb. וַיִפְשְׁעוּ, une expression de rébellion. Les exemples sont (II Rois 1:1) : "Moab se révolta (וַיִפְשַׁע) contre Israël" ; (Prov. 18:19) : "Un frère rebelle (נִפְשַׁע)" ; (ci-dessous 27:19) : "alors Libna se rebella (תִּפְשַׁע)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

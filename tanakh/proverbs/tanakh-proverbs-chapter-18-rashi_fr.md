@@ -73,4 +73,4 @@
 <b>Un homme acquiert des amis avec qui s'associer</b> Un homme qui acquiert des amis pour lui-même [trouvera] que le jour arrivera où il aura besoin d'eux, et ils se lieront d'amitié avec lui. Or, si tu demandes : "Qu'en est-il ?", il y a un ami qui est plus proche qu'un frère, car il se liera d'amitié avec lui plus que sa parenté et ses frères.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

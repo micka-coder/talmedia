@@ -48,7 +48,7 @@ La Gemara répond : Son père reçoit le paiement de l'amende <b>une fois qu'ell
 En ce qui concerne <b>une vierge</b> qui est soit une <b>veuve,</b> une <b>divorcée, ou une <i>ḥalutza</i></b> qui a atteint ce statut <b>à partir</b> d'un état de <b>mariage,</b> pour toutes ces femmes <b>leur contrat de mariage est de cent dinars,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Nous aussi nous dirons : <i>Ailonit</i>,</b> une femme sexuellement sous-développée, est un terme qui signifie : Comme un <b>ram [<i>dukhranit</i>], car</b> comme un mouton mâle [<i>ayyil</i>] <b>elle ne porte pas d'enfants.</b>
 
@@ -98,4 +98,4 @@ La Gemara répond : Son père reçoit le paiement de l'amende <b>une fois qu'ell
 En ce qui concerne <b>une vierge</b> qui est soit une <b>veuve,</b> une <b>divorcée, ou une <i>ḥalutza</i></b> qui a atteint ce statut <b>à partir</b> d'un état de <b>mariage,</b> pour toutes ces femmes <b>leur contrat de mariage est de cent dinars,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

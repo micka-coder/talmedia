@@ -60,4 +60,4 @@ Le verset parle spécifiquement d'un <b>champ qui n'est pas apte</b> au moment d
 Le <i>baraita</i> continue : <b>Rabbi Meir</b> apprend une <i>halakha</i> différente de ce verset et <b>dit : D'où</b> est-il dérivé <b>que</b> dans le cas de <b>quelqu'un qui achète un champ à son père et que son père meurt, et</b> seulement <b>après avoir consacré</b> le champ, <b>d'où</b> est-il dérivé <b>que cela doit être</b> considéré <b>devant lui comme un champ ancestral ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara conteste : <b>Si</b> la référence est à un cas <b>où elle se tient
 § La Guemara reprend la discussion de la pratique des Sages de l'école de Rabbi Yannaï, qui empruntaient des produits aux pauvres pendant l'année sabbatique et les remboursaient après l'année sabbatique, et la décision de Rabbi Yoḥanan selon laquelle cela est permis, car ce n'est pas considéré comme un commerce avec des produits de l'année sabbatique. <b>Rav Sheshet soulève une objection</b> à cette décision à partir d'une <i>baraita</i> : <b>Une personne peut dire à ses conducteurs d'ânes ou à ses ouvriers : Allez manger avec ce dinar,</b> ou : <b>Allez boire avec ce dinar, et il n'a pas</b> besoin de <b>s'inquiéter</b> que ses ouvriers transgressent un interdit avec l'argent qu'il leur a donné,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara apporte des précisions : <b>Qui as-tu entendu qui dit</b> que l'omis
 La Gemara clarifie : <b>Quelles sont les circonstances</b> dans lesquelles il perçoit la <b>valeur majorée</b> des <b>produits ?</b> Il s'agit d'un cas <b>où</b> un <b>voleur</b> un autre</b> d'un champ, et</b> ensuite <b>le vend à un autre, et</b> l'acheteur <b>le majore, et il quitte maintenant la possession</b> de l'acheteur parce que la victime du vol a prouvé devant le tribunal que ce champ est le sien. <b>Lorsque</b> l'acheteur <b>récupère</b> auprès du voleur qui lui a vendu ce champ, afin de récupérer ce qu'il avait payé,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

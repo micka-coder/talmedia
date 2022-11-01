@@ -63,4 +63,4 @@ Le <i>baraita</i> poursuit : <b>Et celui qui pleure</b> la destruction de <b>Jé
 <b>Mais</b> concernant une situation telle que celle-ci, le principe suivant est appliqué : <b>Laissez les Juifs tranquilles</b> et n'imposez pas de décrets auxquels ils ne peuvent se conformer. <b>Il vaut mieux qu'ils soient des pécheurs involontaires</b>, qui ne savent pas que ce qu'ils font est inapproprié compte tenu des circonstances, <b>et non des fautifs intentionnels</b>, qui se marient et procréent en sachant qu'ils ne devraient pas le faire.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

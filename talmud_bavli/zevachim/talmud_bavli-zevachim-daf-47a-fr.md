@@ -30,4 +30,4 @@ La Guemara différencie encore les opinions de ces deux Sages eux-mêmes. <b>Rab
 Mais <b>Rabbi Eliezer ne</b> pas nécessairement <b>accepter</b> comme <i>halakha</i> la décision <b>de Rabbi Shimon ben Elazar : C'est peut-être</b> seulement <b>en ce qui concerne le culte des idoles que vous dites</b> que l'intention d'une personne est effective pour l'action d'une autre, car le culte des idoles est quelque peu <b>similaire</b> au service effectué <b>à l'intérieur</b> du Temple. Par conséquent, il est raisonnable que l'intention d'une personne soit effective pour l'action d'une autre dans le cas de l'idolâtrie, comme c'est le cas pour les offrandes. <b>Mais</b> en ce qui concerne le <b>Shabbat, la Torah n'a interdit</b> que le <b>travail planifié,</b> constructif, c'est-à-dire qu'on n'est responsable que d'une action qui comporte l'intention créatrice de celui qui la fait, et ici celui qui a sorti l'objet n'avait pas l'intention d'accomplir un travail.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

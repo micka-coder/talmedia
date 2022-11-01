@@ -42,4 +42,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces d
 La Guemara demande : <b>Mais</b> pourquoi ne pas l'observer</b> <b>aussi le quatorze,</b> car <b>peut-être</b> le mois de <b>Av et</b> le mois de <b>Elul ont été écourtés ?</b> Dans ce cas, le jour qui est considéré comme le quatorze de Tishrei dans la Diaspora serait en fait le quinze de Tishrei, et donc il devrait aussi être observé comme <i>Sukkot</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

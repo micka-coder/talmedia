@@ -48,4 +48,4 @@ La Guemara demande : <b>Et qui sont</b> les <b>morts qu'Ezéchiel a fait revivre
 <b>Rabbi Yoḥanan dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

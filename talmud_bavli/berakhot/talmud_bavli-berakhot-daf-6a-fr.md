@@ -75,4 +75,4 @@ Rav Ashi <b>lui dit :</b> Dans ces trois compartiments, il est ecrit : <b>Car qu
 Rav Aha, fils de Rava, souleve une objection : <b>Si</b> tous ces versets sont inclus dans les phylacteres de Dieu de la tete, <b>il y a trop de compartiments</b> car plus de quatre versets de louange ont ete enumeres. <b>Au contraire,</b> les portions dans les phylacteres de Dieu doivent etre disposees comme suit : Les versets <b>Pour qui est une grande nation" et "Et qui est une grande nation"</b> sont inclus <b>dans un seul compartiment,</b> car ils sont similaires. <b>"Heureux es-tu, Israel" et "Qui est comme ton peuple, Israel" sont dans un seul compartiment. A "Ou Dieu a-t-il tenteA" est dans un compartiment et A "Et pour t'eleverA" est</b> dans un <b>compartiment</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

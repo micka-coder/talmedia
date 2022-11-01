@@ -81,4 +81,4 @@
 <b>Vers le col de Michmos.</b> Les Philistins campaient à Michmos, et Michmos était sur une montagne. Israël était dans une ville nommée Geva, et Geva était aussi au sommet d'une montagne, et ces deux montagnes étaient opposées l'une à l'autre. La vallée se trouvait entre elles, comme il est dit dans cet épisode, "et la garnison de Phillistine sortit vers le col de Michmos", qui est du côté de Geva, vers la vallée qui les sépare.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

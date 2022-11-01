@@ -33,4 +33,4 @@ La Guemara explique le raisonnement de chacun : <b>Rav Naḥman dit</b> que <b>i
 La Guemara tente d'apporter une preuve que l'on doit détailler le vœu : <b>Nous avons appris</b> dans une mishna (<i>Bekhorot</i> 45b) : Un prêtre <b>qui épouse des femmes en transgression</b> d'un interdit est <b>disqualifié</b> de participer au service du Temple <b>jusqu'à ce qu'il fasse le vœu</b> de ne pas tirer de <b>bénéfice</b> de ses femmes, ce qui l'oblige à divorcer d'elles. <b>Et il est enseigné à ce sujet : Il fait un vœu et</b> immédiatement <b>serve</b> dans le Temple. <b>Il</b> ensuite <b>descend</b> du service <b>et divorce</b> de ses femmes. <b>Et si vous dites</b> que <b>il n'a pas besoin de détailler le vœu,</b> alors <b>soucions-nous de la crainte qu'il ne se rende auprès d'une autorité halakhique et</b> que l'autorité halakhique <b>dissolve</b> le vœu <b>pour lui.</b> Il resterait alors marié aux femmes qui lui sont interdites, et servirait dans le Temple malgré sa disqualification.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

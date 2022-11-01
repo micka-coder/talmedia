@@ -148,4 +148,4 @@
 <b>Il est bon pour moi de réciter</b> Il est bon pour moi de raconter.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

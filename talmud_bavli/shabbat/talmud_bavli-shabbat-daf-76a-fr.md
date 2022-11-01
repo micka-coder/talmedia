@@ -27,4 +27,4 @@ La Guemara remet en question ce principe : <b>Et des objets</b> <b>qui ne sont p
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

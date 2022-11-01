@@ -84,4 +84,4 @@ La Guemara relate que les Sages <b>demandèrent aux <i>tanna'im</i>,</b> c'est-�
 <b>Un petit garçon,</b> même celui qui a <b>un jour, devient impur avec</b> l'impureté de la <b><i>ziva</i> ; et devient impur avec</b> l'impureté des <b>marques lépreuses ; et devient impur avec l'impureté</b> communiquée par <b>un cadavre ; et il crée</b> un lien lévirat exigeant de la veuve de son frère sans enfant <b>de</b> contracter un <b>mariage lévirat</b> avec lui ; <b>et il exempte</b> sa mère veuve <b>de l'obligation</b> du <b>mariage lévirat,</b> la libérant d'épouser qui elle veut ; <b>Et il permet</b> à sa mère, une femme israélite qui n'est plus mariée à son père, un prêtre, de continuer <b>à participer au <i>teruma</i> ; et il disqualifie</b> sa mère, la fille d'un prêtre qui n'est plus mariée à son père, un homme israélite, <b>de</b> continuer à participer au <b>teruma</i>,</b> car l'enfant est inapte à participer au <i>teruma</i> ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,7 +48,7 @@ La Gemara raconte : Il y eut un incident concernant <b>cette</b> homme divorcé,
 La Gemara demande : <b>Et</b> peut-on <b>ne pas</b> enseigner la Torah à son esclave ? <b>Mais n'est-elle pas enseignée</b> dans une <i>baraita</i> : Un esclave <b>dont le maître lui a emprunté, ou dont le maître l'a fait</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et s'il était prêtre, elle ne peut pas vivre avec lui</b> même <b>dans</b> une seule <b>allée</b> qui donne sur plusieurs cours, même si elle ne s'est pas remariée, car elle lui est interdite à jamais. Quelle est la règle <b>si c'était un petit village ?</b> Peut-elle vivre avec son ex-mari dans le même village ? La Guemara relate que <b>cette</b> affaire de sa divorcée et d'un petit village <b>était un incident</b> qui a transpiré <b>et</b> les Sages <b>ont dit : Un petit village est jugé comme</b> sa <b>proximité immédiate.</b>
 
@@ -98,4 +98,4 @@ La Gemara raconte : Il y eut un incident concernant <b>cette</b> homme divorcé,
 La Gemara demande : <b>Et</b> peut-on <b>ne pas</b> enseigner la Torah à son esclave ? <b>Mais n'est-elle pas enseignée</b> dans une <i>baraita</i> : Un esclave <b>dont le maître lui a emprunté, ou dont le maître l'a fait</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

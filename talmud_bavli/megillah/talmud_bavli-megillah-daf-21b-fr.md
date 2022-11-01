@@ -54,4 +54,4 @@ Nous avons appris dans la mishna : <b>Les</b> jours de la <b>Nouvelle Lune et le
 Si vous dites que <b>les</b> premiers <b>deux</b> lecteurs <b>doivent lire trois versets chacun, il ne restera</b> que <b>deux</b> autres <b>versets</b> jusqu'à la fin du paragraphe, et <b>on ne peut laisser moins de trois versets</b> avant la fin d'un <b>paragraphe</b> à la fin d'une lecture. Si l'on dit que les deux premiers lecteurs <b>doivent lire quatre</b> versets <b>chacun</b> et compléter le premier paragraphe, alors <b>sept</b> versets <b>seront laissés</b> jusqu'à la fin de la portion entière ; le deuxième paragraphe de <b>"Et le jour du Shabbat"</b> (Nombres 28 : 9) <b>est de deux</b> versets, et le troisième paragraphe de <b>"Et aux débuts de vos mois"</b> (Nombres 28 : 11) <b>est de cinq</b> versets. <b>Que devons-nous faire</b> avec eux ? Si le troisième lecteur <b>lit</b> les <b>deux</b> versets <b>de ce</b> paragraphe <b>et un de ces</b> versets dans le paragraphe suivant, cela est impropre en raison du principe suivant .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

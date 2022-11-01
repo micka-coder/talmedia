@@ -86,4 +86,4 @@
 <b>Et il est comme la pourriture qui se décompose</b> Le corps que tu poursuis se décomposera comme la pourriture, et il est indigne de toi de le poursuivre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

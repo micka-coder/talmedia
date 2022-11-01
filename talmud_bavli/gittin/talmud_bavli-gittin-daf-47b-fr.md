@@ -45,4 +45,4 @@ La Guemara répond : <b>C'est la même chose</b> dans ce cas, <b>que même si el
 La Gemara commente : <b>Et</b> Rabbi Yoḥanan et Reish Lakish <b>suivent leur</b> ligne standard de <b>raisonnement</b> en ce qui concerne la question de l'acquisition du produit d'un champ. <b>Comme il a été dit</b> qu'ils avaient un différend dans le cas suivant également : <b>Quelqu'un qui vend son champ</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

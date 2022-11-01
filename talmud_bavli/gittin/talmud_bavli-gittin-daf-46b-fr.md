@@ -54,4 +54,4 @@ La Gemara relate : Il y avait des <b>habitants de Bei Mikhsi qui avaient emprunt
 La Gemara relate : <b>Un certain homme s'est vendu à des gladiateurs [<i>luda'ei</i>]. Il se présenta devant Rabbi Ami</b> et lui <b>dit : </b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

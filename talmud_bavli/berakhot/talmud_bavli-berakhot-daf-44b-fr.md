@@ -75,4 +75,4 @@ Au sujet des aliments, la Guemara cite ce que <b>les Sages ont enseigne</b> dans
 Nous avons appris dans la mishna que les <i>tannaim</i> etaient en desaccord a propos de celui qui <b>buve de l'eau</b> pour etancher <b>sa soif.</b> La Gemara demande : <b>Qu'est-ce que</b> cet accent sur sa soif vient <b>exclure ? Rav Idi bar Avin repond :</b> Il vient <b>d'exclure un</b>.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

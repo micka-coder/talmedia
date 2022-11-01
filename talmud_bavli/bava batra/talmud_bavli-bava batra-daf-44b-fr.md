@@ -33,4 +33,4 @@ La Guemara revient sur la déclaration de Rav Pappa et commente : <b>Mais</b> co
 § La Gemara revient sur la déclaration de Shmuel, afin d'examiner <b>la</b> question <b>même. Ravin bar Shmuel dit au nom de Shmuel : Celui qui vend un champ à un autre</b> même <b>sans garantie</b> que si le champ sera repris, le vendeur indemnisera l'acheteur pour sa perte <b>ne peut pas témoigner en ce qui concerne</b> la propriété de ce champ <b>au nom</b> de l'acheteur, <b>parce que</b> il <b>établit</b> le champ <b>devant son créancier.</b> La Gemara demande : <b>Quelles sont les circonstances</b> de cette <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

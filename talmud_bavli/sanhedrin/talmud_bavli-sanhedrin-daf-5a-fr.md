@@ -39,4 +39,4 @@ Cet incident soulève plusieurs questions, que la Guemara pose successivement . 
 <b>Et si vous voulez, dites</b> plutôt qu'il l'a appelé : Le fils de ma sœur, pour une raison différente :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

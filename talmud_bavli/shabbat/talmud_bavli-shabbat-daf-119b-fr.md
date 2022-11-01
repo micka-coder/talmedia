@@ -33,4 +33,4 @@ La Guemara suggère des raisons supplémentaires pour la destruction de Jérusal
 <b>Et Rava a dit : Jérusalem a été détruite uniquement parce qu'il n'y avait plus de personnes dignes de confiance, comme il est dit : " Parcourez les rues de Jérusalem et voyez, fouillez ses places, si vous pouvez trouver une personne, qui agit avec justice, qui recherche l'intégrité, que je lui pardonne"</b> (Jérémie 5:1). La Gemara demande : <b>C'est vrai ? Rav Ketina n'a-t-il pas dit : Même au moment de la défaillance de Jérusalem, les personnes dignes de confiance n'y ont pas cessé, comme il est dit : "Car un homme saisira son frère de la maison de son père et dira : Tu as un vêtement. Viens te faire chef sur nous</b> et que cette ruine soit sous tes soins" (Isaïe 3:6) ? <b>Les choses que les gens utilisent pour se couvrir comme un vêtement,</b> les secrets, <b>sont entre tes mains</b> et tu les connais. Par conséquent, tu dois être un leader de la communauté. Et ce qui est énoncé : <b>"Et que cette ruine soit sous ta garde,</b> ce qui signifie :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

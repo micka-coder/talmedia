@@ -78,4 +78,4 @@ La Guemara répond : <b>Il était nécessaire</b> de l'énoncer à nouveau ici <
 Il a été enseigné dans la mishna que si les épouses sont interdites au <i>yavam</i> en raison d'une <b>interdiction</b> résultant d'une <b>mitsva</b> ou d'une sainteté, elles doivent accomplir <i>ḥalitza</i> et ne peuvent pas contracter un mariage lévirat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

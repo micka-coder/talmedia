@@ -45,4 +45,4 @@ Remettant en cause la réponse initiale de Rav Yehuda à Rav Hoshaya, <b>Abaye d
 La Gemara développe : Lorsqu'on <b>fait dépendre de sa propre décision,</b> Rabbi Yehouda <b>n'accepte pas</b> le principe de la <b>clarification rétroactive, comme il est enseigné</b> dans la <i>Tosefta</i> (<i>Demai</i> 8:7) : Dans le cas de <b>celui qui achète du vin chez les Samaritains,</b> au sujet desquels on suppose qu'ils ne séparaient pas <i>teruma</i> et dîmes, et qu'il n'est pas en mesure de séparer maintenant <i>teruma</i>, il agit comme suit : S'il y a, par exemple, cent <i>log</i> de vin dans les tonneaux, il <b>dit : Deux <i>log</i> que je séparerai à l'avenir sont des <i>teruma</i>,</b> car la mesure moyenne mandatée de <i>teruma</i> est d'un cinquantième ; <b>dix</b> <i>log</i> sont la <b>première dîme;</b> et un dixième du reste, soit environ <b>neuf</b> <i>log</i>, sont la <b>seconde dîme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

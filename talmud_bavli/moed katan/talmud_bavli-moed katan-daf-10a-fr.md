@@ -48,4 +48,4 @@ La Gemara relate que <b>Rav Huna</b> a un jour <b>entendu un certain homme taill
 <b>Rav Ḥama a enseigné</b> comme suit : <b>On peut tailler</b> des rainures dans les <b>pierres à moudre le</b> jour intermédiaire d'une <b>fête. Au nom de Rabbi Meir, il a dit : Même</b> en ce qui concerne <b>le cheval sur lequel</b> on <b>monte et l'âne qu'on monte, il est permis de tailler</b> leurs <b>pieds</b> les jours intermédiaires d'une Fête afin qu'ils ne souffrent pas lorsqu'ils marchent.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

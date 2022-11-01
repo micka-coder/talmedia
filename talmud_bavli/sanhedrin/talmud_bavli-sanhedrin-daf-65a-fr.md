@@ -72,4 +72,4 @@ La Gemara demande : <b>Et</b> quant à <b>Rabbi Yoḥanan,</b> qui soutient que 
 <b>Rava dit :</b> Le cas d'un <b>blasphémateur est différent, car</b> cette transgression <b>se situe également dans le cœur</b>. Le péché de blasphème ne s'applique pas à la parole seule, car l'intention du blasphémateur est au centre de la transgression ; s'il a parlé sans intention, il n'est pas considéré comme un blasphémateur. Par conséquent, on n'est pas obligé d'apporter une offrande pour un tel acte, car il s'agit essentiellement d'un péché du cœur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

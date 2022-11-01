@@ -33,4 +33,4 @@ La Guemara répond que <b>Rav Naḥman</b> aurait pu <b>vous dire</b> en répons
 La Guemara conclut : Cette mishna non attribuée dans le traité <i>Shabbat</i> est conforme à l'opinion de Rabbi Shimon. Pour cette raison, Rav Naḥman <b>établit</b> que la dispute entre Beit Hillel et Beit Shammai doit être comprise comme signifiant <b>que Beit Hillel</b> tient <b>conformément</b> à l'avis de <b>Rabbi Shimon,</b> que le <i>halakha</i> suit apparemment, car il existe un principe selon lequel le <i>halakha</i> est toujours conforme à l'avis de Beit Hillel'. <b>Cependant,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara demande : <b>Et disons</b> que le principe du <b><i>lavud</i></b> s'a
 La Gemara demande : <b>Et disons</b> que le principe de <b><i>lavud</i></b> s'applique <b>depuis une direction,</b> alors le portage <b>serait autorisé</b> même dans la petite cour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

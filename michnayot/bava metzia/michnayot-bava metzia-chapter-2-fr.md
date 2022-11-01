@@ -32,5 +32,5 @@ S'il a trouvé un [animal] dans une étable, il n'en est pas responsable [même 
 ### michna 11
 Si un homme a retrouvé son propre bien perdu et celui de son père, le sien est prioritaire. Si le sien et celui de son maître, le sien est prioritaire. S"il a retrouvé celui de son père et celui de son maître, celui de son maître a la priorité car son père l"a fait entrer dans ce monde, mais son maître qui lui a enseigné la sagesse le fait entrer dans le monde à venir. Si son père était un Sage, celui de son père est prioritaire. Si son père et son professeur portaient chacun une charge, il doit d'abord soulager son professeur et ensuite soulager son père. Si son père et son maître étaient tous deux prisonniers, il devait d'abord demander une rançon à son maître, puis à son père. Mais si son père était un Sage, il doit d'abord demander une rançon à son père et ensuite à son professeur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

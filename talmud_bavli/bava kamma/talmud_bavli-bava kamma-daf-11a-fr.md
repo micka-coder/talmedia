@@ -57,4 +57,4 @@ La Gemara demande : <b>Qu'est-ce que</b> Ulla <b>nous apprend</b> à travers cet
 La Guemara explique : <b>Si</b> je ne le savais que <b>par la mishna, je dirais</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

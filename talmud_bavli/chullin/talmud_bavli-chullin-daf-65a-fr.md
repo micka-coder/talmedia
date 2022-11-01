@@ -30,4 +30,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> cette dernière affirmation ? Pe
 <b>L'école de Rabbi Yishmael a enseigné : Ces</b> apparitions de l'expression "selon ses espèces" dans le verset <b>sont des généralisations, et ces</b> espèces mentionnées explicitement <b>sont des détails.</b> Le verset doit être compris à la lumière du verset précédent, qui offre des signes généraux d'une sauterelle cachère. Les deux versets réunis sont une généralisation, et un détail, et une généralisation, de la manière suivante : Le premier verset est une généralisation, <b><i>arbeh</i> est</b> un détail se référant à l'espèce <b><i>govai</i>,</b> et la phrase <b>"selon ses espèces"</b> est une autre généralisation. Selon les principes herméneutiques de Rabbi Yishmael, la deuxième généralisation sert à inclure un cas similaire au détail. Dans ce cas, l'expression "selon ses genres" sert <b>à inclure</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

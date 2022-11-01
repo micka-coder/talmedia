@@ -24,4 +24,4 @@ La Gemara répond : <b>Mais de cela,</b> c'est-à-dire du fait que le verset n'e
 <b>Au contraire, n'est-ce pas</b> le cas que le fiancé ne peut pas annuler les vœux de lui-même, et sa capacité à le faire n'est que <b>en raison de son partenariat avec le père ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

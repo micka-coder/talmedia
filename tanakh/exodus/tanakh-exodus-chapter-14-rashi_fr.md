@@ -115,5 +115,5 @@ Tous les סוס <b>cheval(s) de Pharaon.</b> N'y avait-il qu'un seul cheval ? ! 
 ### passuk 31
 <b>La grande main.</b> [Signification :] la grande puissance qui a été effectuée par la main de Dieu. Il y a plusieurs significations qui correspondent au terme יָד , et elles signifient toutes la <i>main</i> actuelle et celui qui l'explique doit s'adapter au sens selon le contexte. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

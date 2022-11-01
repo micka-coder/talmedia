@@ -51,4 +51,4 @@ Le cas du <b>lépreux, quel est-il ? </b> Il est <b>comme il a été enseigné</
 Le cas d'un <b><i>beit haperas</i>,</b> dans lequel les Sages n'ont pas maintenu leur décret, est <b>comme cela a été enseigné</b> dans une mishna : <b>Et Beit Shammai et Beit Hillel sont d'accord</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

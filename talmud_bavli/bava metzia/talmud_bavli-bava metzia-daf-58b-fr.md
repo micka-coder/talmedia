@@ -42,4 +42,4 @@ La Guemara demande : <b>Est-il entré dans votre esprit</b> que <b>tout le monde
 <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

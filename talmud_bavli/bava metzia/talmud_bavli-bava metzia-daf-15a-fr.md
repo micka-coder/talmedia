@@ -72,7 +72,7 @@ La Gemara suggère deux réponses : <b>Si vous le souhaitez, dites</b> que la <i
 <b>Si vous le souhaitez, dites</b> plutôt qu'il s'agit de se référer <b>à un créancier, mais</b> néanmoins <b>cela</b> n'est <b>pas difficile</b> selon l'avis de Shmuel. <b>Ici,</b> dans le <i>baraita</i>, la référence est <b>à la mise en valeur</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Les <b>gentils voyous</b> ont pris</b> le champ du voleur par la force en raison de transactions antérieures entre eux. Dans ce cas, lorsque la <b>victime du vol vient percevoir</b> le <b>principal, elle le perçoit</b> <b>sur des biens grevés de privilèges,</b> et lorsque la <b>victime du vol vient percevoir</b> le paiement de la <b>production,</b> elle ne peut <b>percevoir</b> que <b>sur des biens invendus.</b>
 
@@ -146,4 +146,4 @@ La Gemara suggère deux réponses : <b>Si vous le souhaitez, dites</b> que la <i
 <b>Si vous le souhaitez, dites</b> plutôt qu'il s'agit de se référer <b>à un créancier, mais</b> néanmoins <b>cela</b> n'est <b>pas difficile</b> selon l'avis de Shmuel. <b>Ici,</b> dans le <i>baraita</i>, la référence est <b>à la mise en valeur</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

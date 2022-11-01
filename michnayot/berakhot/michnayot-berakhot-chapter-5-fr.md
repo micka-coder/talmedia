@@ -15,4 +15,4 @@ Celui qui dirige les prières ne doit pas répondre après [la bénédiction des
 Celui qui est en train de prier et qui fait une erreur, c'est un mauvais présage pour lui ; et s'il était délégué de la congrégation, c'est un mauvais présage pour ses délégués [la congrégation], car le messager d'une personne est [considéré] comme lui-même. On disait de lui, de Rabbi Chanina ben Dosa : Quand il priait pour les malades, il disait : Celui-ci va vivre et celui-là va mourir. Ils lui disaient : Comment le sais-tu ? Il leur répondit : Si la prière est fluide dans ma bouche, je sais qu'elle a été acceptée ; et si elle ne l'est pas, alors je sais qu'elle a été déchirée.
 
 >Crédit : Torat Emet 357
->License : CC-BY-SA 
+>License : CC BY-NC-SA 

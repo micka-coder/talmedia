@@ -39,4 +39,4 @@
 <b>Désolation</b> Et cela a provoqué le jeûne (et le deuil), mais maintenant [je suis jaloux de Sion, etc...].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

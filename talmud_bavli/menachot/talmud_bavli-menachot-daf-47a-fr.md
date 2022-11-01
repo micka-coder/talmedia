@@ -48,4 +48,4 @@ La Guemara répond : <b>Au contraire,</b> il faut dire que la question a été p
 <b>Mais</b> ils sont en désaccord sur ce qui suit : <b>Rabbi Eliezer</b> se conforme <b>à sa</b> ligne de <b>raisonnement, car</b> Rabbi Eliezer <b>dit</b> que <b>l'aspersion</b> du sang <b>n'est pas efficace en ce qui concerne</b> les offrandes qui ont <b>sorti</b> de la cour du Temple. Puisque les pains ont quitté la cour avant l'aspersion du sang, l'intention du prêtre lors de l'aspersion du sang que l'offrande soit consommée en dehors de son temps désigné ne rend pas les pains <i>piggul</i>. <b>Et Rabbi Akiva</b> se conforme <b>à sa</b> ligne de <b>raisonnement, car Rabbi Akiva dit</b> que l'<b>aspersion</b> du sang <b>est effective en ce qui concerne</b> les offrandes qui ont <b>sorti</b> de la cour du Temple. Par conséquent, l'intention du prêtre, lors de l'aspersion du sang, que l'offrande soit consommée en dehors du temps prévu, rend les pains <i>piggul</i>, même s'ils ont quitté la cour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

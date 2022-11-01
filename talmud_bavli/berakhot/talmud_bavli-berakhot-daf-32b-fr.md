@@ -93,4 +93,4 @@ La Guemara repond : Ceci n'est <b>pas difficile.</b> Plutot, <b>cette</b> qui en
 L'homme pieux lui <b>dit : Attends-moi jusqu'a ce que je t'apaise par</b> mes <b>mots.</b> <br><b>Il lui dit : Si tu te trouvais devant un roi en chair et en os et que ton ami venait te saluer,</b> est-ce que <b>tu</b><br><b>tournerais son</b> salut ?
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

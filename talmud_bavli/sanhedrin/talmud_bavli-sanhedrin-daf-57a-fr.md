@@ -72,4 +72,4 @@ La Guemara clarifie davantage : <b>Quelle est</b> l'action qui est <b>similaire<
 La Gemara commente : Le <i>baraita</i> <b>n'enseigne pas</b> qu'un descendant de Noé est responsable d'actions <b>similaires à des effusions de sang. Abaye dit : Si tu trouves</b> un <i>baraita</i> <b>qui enseigne</b> ceci, <b>il est</b> conforme à l'opinion de <b>Rabbi Yonatan ben Shaul. Comme il est enseigné</b> dans un <i>baraita</i> que <b>Rabbi Yonatan ben Shaul dit :</b> Si une personne <b>poursuit une autre pour la tuer, et</b> celui qui est poursuivi <b>peut se sauver en</b> blessant <b>un des membres du</b> poursuivant, <b>mais il ne se sauve pas</b> de cette manière et tue au contraire le poursuivant,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

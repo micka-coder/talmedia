@@ -48,4 +48,4 @@ La Guemara explique : <b>A propos de quel</b> principe <b>ils sont en désaccord
 <b>Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit</b> que <b>Rav a dit : </b> En ce qui concerne <b>deux cours</b> qui ont <b>trois maisons entre elles,</b> et un résident de <b>cette</b> cour <b>traverse cette</b> maison qui donne sur sa cour <b>et place son <i>eiruv</i> dans cette</b> maison intermédiaire, <b>et</b> un résident de <b>cette</b> autre cour <b>traverse cette</b> maison qui s'ouvre sur sa cour <b>et place son <i>eiruv</i> dans cette</b> maison intermédiaire,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

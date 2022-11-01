@@ -151,7 +151,7 @@
 <b>brûler</b> (בֹּעֲרָה) équivalent à בּוֹעֶרֶת.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>rebelles</b> (סוֹרְרִים) qui se détournent de la voie de Dieu.
 <b>et à désigner un chef</b> (וְלִנְסֹךְ מַסֵּכָה) à désigner un chef pour régner sur eux, sans que ni mon esprit ni ma volonté ne soient en cause, et que désigne-t-on ? C'est Pharaon.
@@ -304,4 +304,4 @@
 <b>brûler</b> (בֹּעֲרָה) équivalent à בּוֹעֶרֶת.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

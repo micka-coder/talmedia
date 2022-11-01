@@ -30,4 +30,4 @@ La Gemara demande : <b>Quel est le verset</b> duquel découle le principe selon 
 <b>Et les rabbins disent : Toute</b> offrande <b>que le public</b> pouvait <b>sacrifier dans la Tente de la Rencontre dans le désert</b> pouvait aussi être <b>sacrifiée dans la Tente de la Rencontre à Gilgal, et ici,</b> dans le Tabernacle à Gilgal, <b>et là,</b> sur des autels privés, <b>seulement des holocaustes et des offrandes de paix étaient sacrifiés</b> pour <b>un individu. Rabbi Shimon dit : Même</b> le <b>public</b> ne sacrifiait pas tous les types d'offrandes dans la Tente de la Rencontre à Gilgal ; ils <b>sacrifiaient uniquement des offrandes pascales</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -130,5 +130,5 @@
 ### passuk 50
 <b>Mille trois cent soixante cinq.</b> C'est la somme totale, [à] cinq <i>shekolim</i> par tête. Pour deux cents premiers-nés : mille <i>shekolim.</i> Pour soixante-dix premiers-nés - trois cent cinquante <i>shekolim.</i> Pour trois premiers-nés - quinze <i>shekolim.</i> Il (Moshé) dit : "Comment vais-je faire ? Tout premier-né à qui je dirai de payer cinq <i>shekolim</i> dira : "Je suis de ceux qui ont été rachetés par les Lévites" !". Qu'a-t-il fait ? Il a apporté <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>vingt-deux mille feuillets et a écrit "Lévite" dessus, et deux cent soixante-treize feuillets et a écrit "cinq <i>shekolim</i>" dessus. Il les mélangea et les plaça dans un récipient. [Puis] il leur dit : "Venez, choisissez vos feuillets par tirage au sort". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

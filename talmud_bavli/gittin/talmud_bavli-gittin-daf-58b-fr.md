@@ -48,4 +48,4 @@ La Gemara <b>souleve une objection</b> à partir de ce qui est enseigné dans un
 <b>Rav Ashi a dit : Lorsque cette</b> <i>baraita</i> <b>est enseignée,</b> elle fait référence au quart du montant total <b>après que l'argent soit parvenu</b> à la <b>possession du propriétaire antérieur.</b> En d'autres termes, elle ne fait pas référence au quart de l'argent que l'acheteur a payé au Sicarius, mais au quart de la valeur réelle du champ, soit un tiers de ce que l'acheteur a payé au Sicarius. <b>Rav dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

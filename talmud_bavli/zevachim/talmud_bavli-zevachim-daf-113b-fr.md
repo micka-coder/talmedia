@@ -69,4 +69,4 @@ La Guemara répond : Ceci n'est <b>pas difficile. Ici,</b> la <i>baraita</i> qui
 La Gemara demande : <b>Et</b> en ce qui concerne <b>cela aussi, dérivez de</b> la première partie de ce verset : <b>"A l'entrée de la Tente de la Rencontre"</b> que, comme dans le cas de la génisse rouge et du bouc émissaire, si un animal n'est pas apte à être amené à l'entrée de la Tente de la Rencontre, on n'est pas tenu de l'abattre à l'extérieur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

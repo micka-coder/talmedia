@@ -18,4 +18,4 @@ La Gemara demande : <b>Et pour quelle</b> raison est-ce une source d'inquiétude
 La Gemara demande : <b>Et pour quelle</b> matière cette affirmation est-elle dirigée ? <b>Si c'est pour qu'elle lui soit interdite,</b> alors <b>en Judée pourquoi</b> la revendication n'est <b>pas</b> crédible ? S'il est certain qu'il n'a pas eu de rapport sexuel avec elle, et qu'il constate qu'elle n'est pas vierge, apparemment elle a commis un adultère et cette revendication doit la rendre interdite. <b>N'est-ce pas plutôt</b> qu'il cherche <b>à lui faire perdre son contrat de mariage</b> dans un cas <b>où il fait une réclamation ?</b> Et <b>Quoi, n'est-ce pas</b> faire référence à un cas <b>où il fait la réclamation :</b> j'ai rencontré <b>un orifice non obstrué,</b> et apparemment on lui accorde une crédibilité ? La Gemara rejette cette preuve : <b>Non,</b> on peut expliquer que c'est un cas <b>où il fait la réclamation</b> qu'il n'y avait pas de <b>sang.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

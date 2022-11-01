@@ -45,4 +45,4 @@ La Gemara répond : <b>Au contraire,</b> le verset est <b>actuellement</b> la so
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui reçoit</b> des animaux dans le cadre d'un <b>investissement garanti d'un Gentil,</b> c'est-à-dire que le Juif reçoit les animaux pour les élever et s'engage à payer un prix fixe à une date ultérieure même s'ils meurent ou si leur valeur diminue, et la progéniture née dans l'intervalle est divisée entre le Gentil et le Juif,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Rava <b>dit à</b> Abaye : Il y a une différence entre <i>ḥalla</i> et les do
 <b>Et</b> le deuxième cas est une incertitude par rapport à l'obligation de séparer <b><i>ḥalla</i></b> de sa pâte, ce qui implique également une interdiction, comme expliqué ci-dessus. <b>Et</b> le troisième cas est une incertitude par rapport à un <b>premier-né mâle non casher,</b> c'est-à-dire un âne premier-né, où l'on ne sait pas s'il est né avant ou après la conversion du propriétaire, ce qui implique l'interdiction d'en tirer un bénéfice avant son rachat. <b>Et</b> le quatrième cas d'une incertitude concerne un <b>premier-né mâle d'un animal casher,</b> où l'on ne sait pas s'il est né avant ou après la conversion du propriétaire, où l'on peut être susceptible de recevoir du <i>karet</i> pour l'avoir abattu en dehors de la cour du Temple. Dans ces quatre cas, la <i>halakha</i> est <b>que</b> il y a <b>une obligation.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

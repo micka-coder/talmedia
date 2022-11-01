@@ -51,4 +51,4 @@ La Gemara répond : La contradiction apparente entre une déclaration sur la <b>
 La <i>baraita</i> ci-dessus enseigne que si un animal a été nourri de <i>tia</i>, il est cachère. La Guemara demande : <b>Qu'est-ce que le <i>tia</i> ? Rav Yehuda répond :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

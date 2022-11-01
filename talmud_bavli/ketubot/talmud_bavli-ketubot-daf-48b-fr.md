@@ -48,4 +48,4 @@ En réponse à cette question, <b>Rava dit :</b> Le verset ne peut pas exclure c
 La Gemara analyse cette déclaration : <b>Quel est</b> le sens de ce terme : <b>Une femme mariée,</b> dans ce contexte ? <b>Si l'on dit</b> qu'elle est <b>vraiment mariée</b> et qu'elle a déjà eu des rapports sexuels avec son mari, <b>cette</b> décision <b>est</b> la même que la précédente, à savoir qu'elle doit être <b>vierge et non non vierge. Ne s'agit-il pas plutôt</b> qu'il est question d'une femme <b>qui est entrée dans le dais nuptial mais qui n'a pas eu de rapports sexuels,</b> or si elle a commis l'adultère à ce stade, elle est condamnée à la strangulation, comme celle qui a eu des rapports avec son mari ? Par conséquent, l'autre verset, cité par Rabbi Ami bar Ḥama, ne peut faire référence à ce cas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

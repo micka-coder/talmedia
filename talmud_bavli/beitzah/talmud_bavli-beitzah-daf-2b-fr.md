@@ -45,4 +45,4 @@ La Guemara procède à l'explication d'autres interprétations de la mishna. <b>
 <b>Abaye dit à</b> Rav Yosef : En ce qui concerne les <b>fruits qui tombent, quelle</b> est en fait la <b>raison</b> pour laquelle les Sages les ont interdits ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

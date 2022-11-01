@@ -45,4 +45,4 @@ Selon cette version de la discussion, la Gemara <b>souleve une objection:</b> Il
 <b>Rav Naḥman bar Yitzḥak dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

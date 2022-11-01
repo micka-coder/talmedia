@@ -21,4 +21,4 @@ La Gemara demande : <b>Quelles sont,</b> exactement, <b>les circonstances ? Si</
 Nous avons appris dans la mishna : <b>Si l'on a placé</b> le <i>eirouv</i> <b>dans une fosse, même</b> si <b>elle est profonde de cent coudées,</b> son <i>eirouv</i> est un <i>eirouv</i> valide. La Gemara demande : <b>Cette fosse, où est-elle située ? Si vous répondez qu'elle est située dans le domaine privé,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

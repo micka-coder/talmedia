@@ -81,4 +81,4 @@ Cependant, le principe general est le suivant : <b>La ou</b> les Sages ont <b>di
 <b>Rabbi Yaâkov a dit au nom de Rabbi Oshaya:</b> La benediction se concentre sur le verset :
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

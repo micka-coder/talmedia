@@ -160,5 +160,5 @@
 <b>Et il ramassa ses pieds.</b> [Signification :] il ramena ses pieds. 
 <b>Il expira et fut recueilli.</b> Mais la "mort" n'est pas mentionnée concernant Yaakov, ce qui a conduit nos Sages à déclarer : Notre père Yaakov n'est pas mort. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

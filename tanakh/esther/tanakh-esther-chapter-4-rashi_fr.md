@@ -45,4 +45,4 @@
 <b>Mordékhaï a passé.</b> [C'est-à-dire qu'il a transgressé] la loi<sup>9</sup><i class="footnote">Au contraire, ויעבר מרדכי est apparemment superflu car le texte précise en outre qu'il a appliqué toutes ses instructions. Alternativement, Mordekhaï a effectivement traversé (=ויעבר) un pont. (Masehet Megillah 15a) </i> en jeûnant le premier jour de fête de Pessah, car il a jeûné le quatorze, le quinze<sup>10</sup><i class="footnote">C'est-à-dire Pessah. Bien que la fête soit obligatoire, Mordekhaï a contourné l'obligation et a ordonné le jeûne, utilisant l'autorité spéciale du Sanhédrin pour suspendre de telles obligations en cas d'extrême nécessité. (Masehet Megillah 15a) </i>,<sup>11</sup><i class="footnote">Midrash Esther Rabbah (8:7) est d'avis que le jeûne de trois jours était le treizième, quatorzième et quinzième jour de Nisan. </i> et le seizième, car les lettres ont été écrites le treizième jour. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

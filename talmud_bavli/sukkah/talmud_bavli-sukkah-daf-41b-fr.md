@@ -42,4 +42,4 @@ La Guemara demande : <b>Qu'est-ce que</b> la <i>baraita</i> <b>nous apprend</b> 
 § La mishna poursuit : <b>Rabbi Yosei dit</b> que si le premier <b>jour</b> de la <b>Fête</b> survient le Chabbat, et qu'on a oublié et porté le <i>lulav</i> dans le domaine public, on est exempté de l'obligation d'apporter un sacrifice pour le péché. <b>Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

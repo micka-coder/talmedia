@@ -21,4 +21,4 @@ En outre, <b>si vous dites</b> que <b>puisque, si elle se remarie, elle n'a pas<
 <b>Et il y a</b> ceux qui disent <b>que</b> Rabbi Yirmeya <b>souleve les dilemmes en sens inverse,</b> c'est-à-dire dans l'ordre inverse : <b>Qu'est</b> la <i>halakha</i> par rapport à une dette envers <b>un créancier ?</b> Est-ce qu'elle <b>réduit</b> la valeur de <b>la succession ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

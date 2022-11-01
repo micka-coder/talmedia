@@ -51,4 +51,4 @@ En revanche, <b>Rabbi Shimon dit</b> que <b>même pendant</b> cet <b>âge,</b> e
 Le <i>baraita</i> enseigne en outre : <b>Et une femme est jugée crédible</b> pour témoigner <b>d'être rigoureuse</b> à l'égard de la fille qu'elle a examinée <b>mais pas d'être indulgente.</b> La Gemara demande : <b>Qui a enseigné cette</b> <i>halakha</i> ? La Guemara répond : <b>Si tu veux, dis</b> qu'elle est conforme à l'avis de <b>Rabbi Yehuda, et</b> elle fait référence à <b>pendant</b> l'<b>âge</b> entre onze ans et un jour et douze ans et un jour.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

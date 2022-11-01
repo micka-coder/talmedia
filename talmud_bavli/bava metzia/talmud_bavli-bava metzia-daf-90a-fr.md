@@ -48,4 +48,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue de la <i>b
 La Gemara suggère : <b>Venez</b> et <b>entendez, car ils ont envoyé au père de Shmuel</b> une enquête halakhique concernant <b>ces bœufs</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

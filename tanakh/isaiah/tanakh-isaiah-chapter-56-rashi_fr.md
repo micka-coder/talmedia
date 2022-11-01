@@ -41,7 +41,7 @@
 <b>et demain sera ainsi</b> avec festins et beuveries.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -84,4 +84,4 @@
 <b>et demain sera ainsi</b> avec festins et beuveries.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

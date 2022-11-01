@@ -54,4 +54,4 @@ La Guemara <b>souleve une objection à</b> l'avis de Rava en se basant sur ce qu
 En ce qui concerne la question d'<b>aligner les</b> membres d'un <b>enfant</b> le Chabbat lorsqu'il est nécessaire de le faire, <b>Rav Naḥman interdit</b> de le faire le Chabbat, en raison de la préoccupation que cela soit similaire au travail interdit d'achever le processus de production d'un récipient, <b>et Rav Sheshet permet</b> de le faire. <b>Rav Naḥman dit : D'où est-ce que je dis</b> que c'est la <i>halakha</i> ? <b>Comme nous l'avons appris dans une mishna : On ne peut pas faire</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

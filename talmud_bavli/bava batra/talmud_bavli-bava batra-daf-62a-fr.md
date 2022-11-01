@@ -18,4 +18,4 @@ La Guemara poursuit : Si le champ à vendre est <b>limité par</b> les champs de
 <b>Un dilemme a été soulevé devant</b> les Sages : <b>Si</b> le vendeur <b>définit pour</b> l'acheteur uniquement <b>les coins</b> du champ vendu, <b>qu'est-ce que</b> la <i>halakha</i> ? Cela signifie-t-il qu'il ne lui vend que les coins du champ ou l'ensemble du champ marqué par ces coins ? Un deuxième dilemme a également été soulevé : S'il définit les limites du champ dans une forme <b>ressemblant</b> à la lettre grecque <b>gamma [<i>gam</i>],</b> ou à la lettre anglaise L, en notant les limites sur deux côtés adjacents qui se rejoignent à angle droit, <b>qu'est-ce que</b> le <i>halakha</i> ? Cela signifie-t-il qu'il lui vend tout le champ, ou seulement la parcelle triangulaire marquée par ces limites et la ligne diagonale allant de l'extrémité de l'une à l'extrémité de l'autre ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

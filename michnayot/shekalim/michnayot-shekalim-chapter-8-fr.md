@@ -23,5 +23,5 @@ Rabbi Eliezer dit : [La viande sacrificielle] qui a été souillée par une impu
 ### michna 8
 Les membres de l'holocauste quotidien étaient placés sur la moitié de la rampe [de l'autel] vers le bas, du côté ouest. Ceux de l'offrande supplémentaire (musaf) étaient placés sur la moitié de la rampe vers le bas, du côté de l'est. Les offrandes de la nouvelle lune étaient placées au sommet du bord de l'autel. Les lois concernant les sicles et les prémices ne sont en vigueur que lorsque le Temple est debout, mais les lois concernant la dîme des céréales, la dîme du bétail et des premiers-nés sont en vigueur aussi bien lorsque le Temple existe que lorsqu'il n'existe pas. Celui qui dédie des shekels ou des prémices [lorsque le Temple n'existe pas], ceux-ci sont saints. Rabbi Shimon dit : celui qui dit "que les prémices soient saintes", elles ne sont pas saintes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

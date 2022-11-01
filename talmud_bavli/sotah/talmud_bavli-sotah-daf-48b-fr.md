@@ -60,4 +60,4 @@ La mishna a enseigné : <b>Et</b> la <b>douceur du rayon de miel [<i>nofet tzufi
 <b>Et voici ce que dit Rabbi Elazar : Quel est</b> le sens de ce <b>qui est écrit : "Car qui pille le jour des petites choses"</b> (Zacharie 4:10) ? <b>Qu'est-ce qui a fait que la table,</b> c'est-à-dire la récompense, <b>des justes a été pillée,</b> c'est-à-dire gaspillée, <b>dans le futur ? </b> C'est <b>la</b> petitesse d'esprit <b>qu'ils possédaient.</b> Et quelle est cette petitesse d'esprit ? <b>C'est qu'ils ne croyaient pas au Saint, Béni soit-Il,</b> avec une foi totale. <b>Rava a dit :</b> Qui pille le jour des petites choses ? <b>Ce sont les petits enfants des méchants du peuple juif,</b> qui meurent jeunes,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

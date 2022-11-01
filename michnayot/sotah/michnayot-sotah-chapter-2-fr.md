@@ -17,5 +17,5 @@ A quoi répond-elle "Amen, amen" ? "Amen" sur la malédiction et "amen" sur le s
 ### michna 6
 Tous sont d'accord pour dire qu'il ne peut pas faire de stipulation avec elle en ce qui concerne la période avant ses fiançailles ou après son divorce. Si elle s'est retirée [avec l'homme dont elle a été avertie, mais après avoir divorcé] et a été souillée, et que par la suite [son mari] l'a reprise, il ne peut pas faire de stipulation avec elle [à ce sujet]. C'est la règle générale : toute personne avec laquelle elle a des rapports sexuels et qui ne lui était pas interdite [à ce moment-là], le mari ne peut pas faire de stipulation à ce sujet.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

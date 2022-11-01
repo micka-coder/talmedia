@@ -30,4 +30,4 @@ Après avoir évoqué les pièces de monnaie de Jérusalem, la Gemara note : <b>
 Rava a contesté : <b>Mais</b> en augmentant le poids de cette pièce, le <b>produit a diminué de prix,</b> et comme on peut acheter plus de produits avec cette pièce, la donner au créancier en remboursement est une forme d'intérêt. <b>Rav Ashi a dit : Nous examinons</b> la situation : <b>Si</b> le produit <b>a diminué de prix en raison</b> du changement du poids de <b>la pièce,</b> la dette <b>est réduite pour</b> le débiteur et le créancier est remboursé avec des pièces qui égalent la valeur antérieure du prêt.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

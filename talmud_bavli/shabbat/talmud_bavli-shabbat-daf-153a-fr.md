@@ -27,4 +27,4 @@ De même, <b>Rabban Yoḥanan ben Zakkai a dit</b> l'histoire suivante comme <b>
 <b>Alternativement,</b> le verset cité ci-dessus peut être interprété de la manière suivante : <b>"En tout temps, que tes vêtements soient blancs" ; il s'agit ici des vêtements qui contiennent des <b>franges rituelles [<i>tzitzit</i>],</b> qui sont blanches. <b>"Et l'huile ne manquera pas sur ta tête" ; ces</b> mots font allusion aux <b>phylactères,</b> qui sont portés sur la tête.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

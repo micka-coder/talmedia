@@ -39,4 +39,4 @@ La Guemara répond : <b>De quoi s'agit-il ici ?</b> C'est <b>avec</b> un cas où
 <b>Ceci est également enseigné</b> dans une <i>baraita</i> qui stipule : <b>Une personne</b> ne peut <b>pas dire à une autre</b> sur un Festival : <b>Je suis par la présente</b> en partenariat <b>avec toi</b> pour cet animal que tu vas abattre <b>pour la valeur d'une <i>sela</i>,</b> ou : <b>Je suis par la présente</b> en partenariat <b>avec vous pour deux</b> <i>sela</i>. <b>Cependant, il</b> peut <b>dire à ce dernier : Je suis par la présente</b> en partenariat <b>avec toi pour la moitié</b> de l'animal, ou <b>pour un tiers ou un quart,</b> sans stipuler la valeur de cette part, et après le Festival, ils peuvent déterminer la valeur de chaque part.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

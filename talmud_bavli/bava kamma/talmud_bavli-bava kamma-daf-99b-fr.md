@@ -75,4 +75,4 @@ La Gemara relate : Il y avait <b>une certaine femme qui présenta un dinar à Ra
 La Gemara demande : <b>Mais qu'est-ce qui est différent</b> pour <b>Dankhu et Issur, qui sont exemptés en raison</b> du fait <b>qu'ils n'ont pas besoin d'apprendre</b> à évaluer la monnaie ? <b>Rabbi Ḥiyya aussi n'avait pas besoin d'apprendre,</b> car il était aussi un expert. La Guemara répond : <b>Rabbi Ḥiyya</b> n'était pas réellement tenu de rendre un dinar à cette femme, mais lorsqu'il l'a fait <b>il a agi au-delà de la lettre de la loi.</b> C'est <b>comme ce</b> que <b>Rav Yosef a enseigné</b> concernant le verset : "Et tu leur montreras le chemin dans lequel ils doivent marcher, et le travail qu'ils doivent faire" (Exode 18:20) : <b>"Et tu leur montreras" ; ceci</b> fait référence à...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

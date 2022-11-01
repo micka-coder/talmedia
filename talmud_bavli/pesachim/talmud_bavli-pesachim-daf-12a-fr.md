@@ -36,4 +36,4 @@ La Guemara explique <b>que l'on donne</b> une marge de manœuvre à la première
 <b>Et selon Rabbi Yehouda, on donne</b> aux témoins une marge d'erreur <b>du début de la première heure jusqu'à la fin de la sixième</b> heure. <b>Et de droit on devrait leur donner encore plus</b> de marge <b>au début,</b> car selon lui on se trompe de trois heures moins un peu, et donc la marge d'erreur devrait être plus grande.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

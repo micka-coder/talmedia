@@ -30,4 +30,4 @@ Les jeunes garçons peuvent sortir le Chabbat avec des nœuds comme remède popu
 Il est permis de sortir le Chabbat avec un œuf de criquet, une dent de renard et un clou de crucifié, dans le but de guérir ; telle est la déclaration de Rabbi Meir. Les sages interdisent d'utiliser ces remèdes même pendant la semaine, en raison de l'interdiction de suivre les voies des Amorites. Il s'agit de croyances superstitieuses et de coutumes de gentils dont il faut s'éloigner.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : Puisqu'il y a un différend sur le fait de savoir si couper 
 La Guemara rapporte que les rabbins <b>ont dit cette</b> dispute entre les <i>amora'im</i> concernant la raison de l'avis de Rabbi Elazar, fils de Rabbi Shimon, <b>devant Rabbi Yirmeya.</b> Rabbi Yirmeya <b>a dit : N'ont-ils pas entendu ce que Rabbi Shimon ben Elyakim a dit au nom de Rabbi Elazar ben Pedat, au nom de Rabbi Elazar ben Shammua : Rabbi Elazar, fils de Rabbi Shimon, avait l'habitude de dire : J'ai entendu dire qu'on peut</b> complètement <b>séparer</b> la tête d'un <b>oiseau offrant le péché</b> de son corps. <b>Et quel est le sens du verset qui dit : "Mais <b>ne la séparera pas"</b> (Lévitique 5:8) ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

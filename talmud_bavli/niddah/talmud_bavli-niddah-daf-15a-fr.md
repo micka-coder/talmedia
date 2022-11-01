@@ -69,4 +69,4 @@ En revanche, <b>Rabba bar Ḥana dit : Même</b> si <b>le</b> moment projeté de
 <b>Rav Ashi enseigne</b> les opinions de Rav Huna et de Rabba bar Ḥana <b>comme ceci : Rav Huna dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Et quel est le raisonnement</b> de l'opinion des <b>sages
 <b>Et</b> comment <b>les sages</b> contrent-ils cette affirmation ? Ils disent : En effet, <b>c'est un signal</b> pour rassembler le peuple ; cependant, <b>Le Miséricordieux en a fait une mitzva.</b> On peut donc en déduire qu'un seul souffle de <i>tekia</i> est une mitzva distincte. La Guemara demande : <b>Selon l'avis de qui</b> cette déclaration du Rav Kahana : Il n'y a pas</b> de pause <b>entre une <i>tekia</i> et une <i>terua</i> du tout</b> et elles sont sonnées en une seule explosion continue ? <b>Selon l'opinion de qui</b> ? C'est <b>conformément</b> à l'opinion de <b>Rabbi Yehuda.</b> La Gemara demande : <b>Si</b> la déclaration de Rav Kahana est conforme à l'opinion de <b>Rabbi Yehuda;</b> c'est <b>évident.</b> Pourquoi était-il nécessaire pour la Gemara de soulever cette question ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

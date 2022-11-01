@@ -48,4 +48,4 @@ La Guemara présente <b>une version alternative</b> du point précédent : <b>Ma
 Rav Naḥman répond : <b>Non ; en fait</b> la mishna fait référence à la <i>halakha</i> <b>au présent.</b> Je ne suis pas d'accord avec la déduction ci-dessus. <b>Est-ce que</b> la mishna enseigne explicitement : On peut vendre une offrande de premier-né sans tache</b> tant qu'il est <b>vivant, oui,</b> mais une fois qu'il a été <b>abattu, non ?</b> La mishna ne veut pas exclure la vente d'un animal abattu ; elle vient plutôt nous enseigner la</b> question elle-même, <b>que même dans le présent, on peut le vendre sans tache</b> tant qu'il est <b>vivant.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

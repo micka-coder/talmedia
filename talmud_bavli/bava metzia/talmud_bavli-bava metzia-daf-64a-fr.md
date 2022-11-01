@@ -33,4 +33,4 @@ La Guemara répond qu'il y a une différence entre les deux cas : <b>Là,</b> en
 § <b>Abaye a dit : Il est permis à une personne de dire à une autre : Prends</b> ces <b>quatre dinars pour</b> la livraison future d'un <b>tonneau de vin ; s'il tourne,</b> il est <b>en ta possession</b> et tu es responsable, mais <b>s'il s'apprécie ou se déprécie</b> en valeur, il est <b>en ma possession,</b> car j'accepte toute perte qui résulte d'un changement de prix. <b>Rav Sherevya a dit à Abaye :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara cherche à clarifier : <b>Selon l'opinion de qui</b> cette mishna ? E
 La Gemara rejette cette idée : <b>Même</b> si <b>on dit</b> que la mishna est en accord avec l'opinion de <b>Rabbi Elazar, fils de Rabbi Shimon,</b> qui n'est pas d'accord avec Rabbi Yehuda HaNasi et soutient que les deux facteurs de permission doivent être accomplis afin de conférer la sainteté aux libations, la mishna peut encore être expliquée comme suit : <b>Il s'agit ici</b> d'un cas <b>où le prêtre <b>collecte son sang dans la coupe</b> dans le but de l'asperger sur l'autel, <b>mais</b> le sang <b>se répandait</b> hors de la coupe et ne pouvait être aspergé. Néanmoins, les libations étaient sanctifiées, car le sang était propre à être aspergé sur l'autel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

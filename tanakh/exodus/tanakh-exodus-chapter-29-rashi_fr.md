@@ -171,5 +171,5 @@
 ### passuk 46
 <b>Pour habiter parmi eux.</b> C'est-à-dire avec la stipulation que j'habite parmi eux. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

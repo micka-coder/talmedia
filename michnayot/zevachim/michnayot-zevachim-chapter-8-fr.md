@@ -35,5 +35,5 @@ Si [le sang] qui doit être aspergé à l'intérieur [du Sanctuaire] a été mé
 ### michna 12
 Si le sang d'une hatat a été reçu dans deux gobelets et que l'un d'eux est sorti [de la cour du Temple], celui qui est à l'intérieur est conforme. Si l'un d'eux est entré à l'intérieur [du Sanctuaire] : Rabbi Yose le Galiléen déclare que le gobelet extérieur est conforme. Les sages le disqualifient. Rabbi Yose de Galilée : si l'endroit où une intention [dirigée vers elle] disqualifie, c'est-à-dire à l'extérieur, vous ne traitez pas ce qui reste [à l'intérieur] comme ce qui est sorti ; alors l'endroit où une intention [dirigée vers elle] ne disqualifie pas, c'est-à-dire à l'intérieur, n'est-il pas logique que nous ne traitions pas ce qui reste [à l'extérieur] comme ce qui est entré à l'intérieur ? Si elle est entrée à l'intérieur pour faire l'expiation, même s'il [le prêtre] n'a pas fait l'expiation, elle est impropre, ce sont les paroles de Rabbi Eliezer. Rabbi Shimon a dit : [elle n'est pas impropre] à moins qu'il ne fasse l'expiation. Rabbi Juda a dit : s'il l'a introduit sans le vouloir, il est conforme. Pour tout le sang impur qui a été mis sur l'autel, la plaque de tête [du grand prêtre] ne fait pas propitiation, sauf pour l'impur, car la plaque de tête fait propitiation pour ce qui est impur, mais ne fait pas propitiation pour ce qui sort.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

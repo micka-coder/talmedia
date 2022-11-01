@@ -57,4 +57,4 @@ La Gemara explique : <b>Là,</b> dans le cas du tonneau, il y a <b>deux</b> rais
 La Guemara suggère : <b>Disons</b> qu'il est <b>parallèle</b> à une dispute entre <b><i>tanna'im</i> :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

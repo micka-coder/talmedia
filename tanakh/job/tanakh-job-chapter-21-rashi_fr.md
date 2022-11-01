@@ -114,4 +114,4 @@
 <b>Comment me réconfortez-vous avec la futilité</b> Puisqu'il ne reste de vos réponses que la trahison, les réponses de sagesse sont oubliées et perdues de vous, et de vos réponses, [celles] qui restent entre vos mains ne sont que des réponses de trahison. <b>Trahison</b> Ce mot (מעל) est un nom, c'est pourquoi il est voyellé avec un <i>kamatz</i>, et l'accent est sur la première syllabe.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

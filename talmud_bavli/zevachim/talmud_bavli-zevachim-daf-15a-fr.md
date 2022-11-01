@@ -54,4 +54,4 @@ Si <b>un prêtre l'a convoyé</b> à l'autel, <b>et</b> l'a ensuite <b>retourné
 <b>Rava dit : Même selon la déclaration de celui qui juge</b> l'offrande <b>infructueuse</b> dans un cas où un non-prêtre l'a transmise la première fois, elle est <b>infructueuse</b> dans ce cas aussi, où un prêtre l'a transmise la première fois et un non-prêtre la transmet la deuxième fois. <b>Quelle en est la raison ? Parce que</b> après le retour du sang à son emplacement initial, <b>il est nécessaire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

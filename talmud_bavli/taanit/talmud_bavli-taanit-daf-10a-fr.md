@@ -57,7 +57,7 @@ La Gemara demande : <b>Qu'est-ce que</b> Rav Huna <b>nous apprend ? Nous</b> avo
 La Guemara répond : Le commentaire de Rav Huna' est nécessaire, <b>pour éviter que l'on dise</b> que <b>cela ne s'applique</b> qu'à <b>une communauté, mais</b> que dans le cas d'un <b>individu, non,</b> la série de trois jeûnes n'a pas à commencer un lundi. <b>Cette</b> opinion <b>est également enseignée</b> dans une <i>baraita</i> à l'égard de ceux mentionnés dans la mishna : <b>Lorsque les individus commencent à jeûner, ils jeûnent un lundi, un jeudi et un lundi. Et</b> si l'un des jours de jeûne survient un jour avec des observances spéciales, <b>ils interrompent</b> la séquence <b>pour les Nouvelles Lunes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Ce verset traite de la création du monde, alors que toutes les eaux étaient contenues dans les profondeurs.
 
@@ -116,4 +116,4 @@ La Gemara demande : <b>Qu'est-ce que</b> Rav Huna <b>nous apprend ? Nous</b> avo
 La Guemara répond : Le commentaire de Rav Huna' est nécessaire, <b>pour éviter que l'on dise</b> que <b>cela ne s'applique</b> qu'à <b>une communauté, mais</b> que dans le cas d'un <b>individu, non,</b> la série de trois jeûnes n'a pas à commencer un lundi. <b>Cette</b> opinion <b>est également enseignée</b> dans une <i>baraita</i> à l'égard de ceux mentionnés dans la mishna : <b>Lorsque les individus commencent à jeûner, ils jeûnent un lundi, un jeudi et un lundi. Et</b> si l'un des jours de jeûne survient un jour avec des observances spéciales, <b>ils interrompent</b> la séquence <b>pour les Nouvelles Lunes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

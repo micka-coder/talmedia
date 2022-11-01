@@ -33,4 +33,4 @@ Puisqu'il y a deux dérivations également logiques, un verset est nécessaire p
 <b>Et il est nécessaire d'écrire "de sur l'autel" et il est nécessaire d'écrire "de devant Dieu" car si le Miséricordieux avait écrit</b> seulement <b>"de sur l'autel", j'aurais dit : A quel autel</b> le verset fait-il référence ? Le <b>Autel intérieur.</b> Par conséquent, le Miséricordieux écrit "de devant Dieu". Et si le Miséricordieux avait écrit</b> seulement <b>"de devant Dieu", j'aurais dit</b> que cela signifie <b>spécifiquement de</b> la partie de l'autel qui se trouve <b>devant Dieu,</b> c'est-à-dire de l'angle nord-ouest, qui est directement parallèle à l'entrée du Sanctuaire ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

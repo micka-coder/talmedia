@@ -54,4 +54,4 @@ La Guemara conclut : <b>Et la <i>halakha</i> est</b> que si l'on <b>vendait</b> 
 <strong>GEMARA:</strong> La Gemara développe : <b>Accordé,</b> une veuve <b>de mariage</b> peut vendre lorsqu'elle n'est pas au tribunal <b>en raison</b> du fait que <b>sa subsistance</b> est une préoccupation urgente, on ne la fait donc pas attendre jusqu'à ce qu'elle trouve un tribunal qui supervisera sa vente.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

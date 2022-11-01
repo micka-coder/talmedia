@@ -51,4 +51,4 @@ De même, <b>les Sages ont enseigné :</b> Si un homme a connu une émission qui
 La Guemara s'interroge sur la phrase : <b>Ni aucun</b> aliment <b>qui pourrait</b> l'amener à l'impureté ; qu'est-ce que cela</b> vient <b>inclure ? Il</b> vient <b>inclure ce que les Sages ont enseigné : Cinq</b> <b>éléments alimentaires amènent</b> un <b>homme à</b> un état d'<b>impureté</b> dû à l'émission. <b>Ce sont : L'ail,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

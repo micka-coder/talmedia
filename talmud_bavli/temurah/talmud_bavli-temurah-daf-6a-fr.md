@@ -45,4 +45,4 @@ La Guemara explique que <b>Abaye</b> pouvait <b>s'adresser à vous : C'est diff�
 Rav Ashi répond : <b>Ils sont en désaccord en ce qui concerne les intérêts fixes [<i>ketzutza</i>], et</b> leur différend est <b>comme</b> celui <b>de Rabbi Elazar</b> et Rabbi Yoḥanan. <b>Comme l'a dit Rabbi Elazar :</b> Si un débiteur a payé des <b>intérêts fixes</b> et qu'il demande au tribunal qu'ils lui soient restitués, puisque la Torah interdit la perception d'intérêts, ils <b>sont repris</b> au créancier <b>par</b> les <b>juges</b> du tribunal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

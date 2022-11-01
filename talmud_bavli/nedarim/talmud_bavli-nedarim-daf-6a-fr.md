@@ -24,4 +24,4 @@ La Guemara demande : <b>Mais devons-nous dire</b> que de même qu'Abaye s'est r�
 La Guemara répond : <b>Rava</b> aurait pu vous <b>dire : Je dis</b> ma déclaration <b>même selon</b> l'avis des <b>Rabbins. Les rabbins disent que nous n'exigeons pas d'intimations évidentes uniquement en ce qui concerne l'acte de divorce, car un homme ne divorce pas de la femme de son compagnon,</b> il est donc évident qu'il écrit l'acte de divorce à sa femme. <b>Cependant, en général, nous exigeons des intimations évidentes.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

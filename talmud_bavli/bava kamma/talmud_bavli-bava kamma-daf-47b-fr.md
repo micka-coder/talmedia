@@ -63,4 +63,4 @@ En réponse, <b>ils ont dit</b> que cette interprétation doit être rejetée : 
 La Gemara demande : <b>Mais si</b> il est question du <b>propriétaire du boeuf,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

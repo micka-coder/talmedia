@@ -21,4 +21,4 @@ La Gemara demande : <b>Qu'y a-t-il de différent que</b> il dise d'effectuer l'a
 <b>Et</b> la Guemara <b>souleve une contradiction</b> d'une mishna dans le traité <i>Middot</i> : <b>Quatre chambres étaient</b> ouvertes <b>sur la salle du foyer comme de petites</b> <b>salles semi-ouvertes [<i>kitoniyyot</i>] qui s'ouvrent sur une</b> <b>salle centrale [<i>teraklin</i>]. Deux</b> de ces chambres étaient situées dans la zone <b>sacrée</b>, dans la cour du Temple, <b>et deux</b> de ces chambres <b>étaient</b> situées <b>dans la zone non sacrée</b> du Mont du Temple. <b>Et les sommets des</b> <b>piquets [<i>pispasin</i>]</b> en bois dans la Salle du Foyer <b>séparée entre la zone sacrée</b> et la zone <b>non sacrée</b> pour informer les gens des deux zones de leur emplacement et de la conduite à tenir. <b>Et à quoi</b> servaient ces chambres ? </b> La chambre <b>sud-ouest</b> <b>était la Chambre des Agneaux Sacrificiels;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

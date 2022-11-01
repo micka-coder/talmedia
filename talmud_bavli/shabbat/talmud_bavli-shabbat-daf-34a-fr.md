@@ -33,4 +33,4 @@ La Gemara s'étonne de cette situation : <b>Quelle que soit la façon</b> dont <
 Et Rava dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

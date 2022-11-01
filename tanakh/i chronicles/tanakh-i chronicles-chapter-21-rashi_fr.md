@@ -79,4 +79,4 @@
 <b>parce qu'il était effrayé par l'épée de l'ange du Seigneur</b> et David alla selon les paroles du Seigneur et bâtit un autel, et le Seigneur lui répondit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

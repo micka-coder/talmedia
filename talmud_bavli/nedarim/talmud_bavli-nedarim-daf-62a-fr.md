@@ -36,4 +36,4 @@ A propos de l'histoire de Rabbi Tarfon qui regrette d'avoir tiré un bénéfice 
 <b>Rava dit</b> en outre : <b>Il est permis à un érudit de la Torah de dire : Je suis un érudit de la Torah,</b> alors <b>résolvez d'abord mon cas, comme il est écrit : "Et les fils de David étaient des prêtres"</b> (II Samuel 8:18). Les fils de David n'auraient pas pu être de véritables prêtres, car David n'était pas un prêtre. Le verset indique plutôt que <b>tout comme un prêtre prend</b> sa part <b>en premier, de même, un érudit de la Torah prend</b> sa part <b>en premier. Et un prêtre, d'où déduit-on</b> qu'il prend sa part en premier ? <b>Comme il est écrit : "Et tu le sanctifieras, car il offre le pain de ton Dieu"</b> (Lévitique 21, 8). <b>Et l'école de Rabbi Yishmael a enseigné :</b> L'expression <b>"et tu le sanctifieras"</b> s'applique à l'égard de <b>tout ce qui relève de la sainteté :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

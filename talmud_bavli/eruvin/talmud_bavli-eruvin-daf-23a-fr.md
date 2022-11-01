@@ -48,4 +48,4 @@ La Guemara répond : Ce n'est pas la même chose ; <b>là, ils ont interrompu</b
 Nous avons appris dans la mishna : <b>Rabbi Akiva a dit : Même</b> si la cour <b>ne possède aucun de ces</b> éléments qui indiquent l'habitation stipulés par les autres sages, <b>on peut porter à l'intérieur,</b> à condition qu'elle ne mesure pas plus de soixante-dix coudées et un reste par soixante-dix coudées et un reste.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

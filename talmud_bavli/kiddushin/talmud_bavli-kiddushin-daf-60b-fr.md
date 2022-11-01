@@ -66,4 +66,4 @@ La Gemara demande : <b>Pourquoi ai-je</b> besoin de cette mishna <b>pour enseign
 La Gemara commente : <b>En ce qui concerne les biens consacrés</b>, <b>on a appris</b> dans une mishna (<i>Arakhin</i> 25a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

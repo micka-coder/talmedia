@@ -33,4 +33,4 @@ La Gemara analyse ceci : <b>Et quand ces couvertures servent-elles</b> de <b>pro
 <b>Rav Shimi de Neharde'a s'oppose fermement à cela : Les sages sont-ils en désaccord avec Rabbi Yosei en ce qui concerne</b> les fruits <b>de tous les autres arbres</b> en dehors du raisin, que même au tout premier stade de maturation, ils sont considérés comme des fruits ? <b>N'avons-nous pas appris</b> dans une mishna : <b>À partir de quand ne peut-on plus</b> <b>abattre les arbres pendant l'année sabbatique</b>, car il endommage ainsi les fruits ? <b>Beit Shammai disent :</b> Dans le cas de <b>tous les arbres, à partir du moment où</b> les fleurs tombent et que le <b>fruit</b> commence à <b>émerger</b> à son stade le plus précoce. <b>Et Beit Hillel disent :</b> Il y a une distinction entre les différents types d'arbres. <b>Les caroubiers</b> ne peuvent être abattus <b>à partir du moment où ils</b> forment des <b>chaînes</b> de caroubiers ; <b>et les vignes,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

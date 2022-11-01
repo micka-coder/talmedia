@@ -45,4 +45,4 @@ La Gemara demande : <b>Et Shmuel soutient-il</b> que <b>on ne dit pas : Leur cou
 La Guemara demande : Si l'on se réfère à un cas où <b>il coupe</b> les brins <b>et après les attache</b>, <b>quelle nécessité</b> d'indiquer</b> que les franges rituelles sont adaptées ? C'est la manière prescrite de préparer les franges rituelles. La Guemara répond : <b>Tu dis</b> qu'en plus de nouer les franges séparément...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

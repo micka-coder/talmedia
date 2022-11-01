@@ -57,4 +57,4 @@ La Guemara explique l'objection : <b>En tout cas,</b> le <i>baraita</i> <b>ensei
 La Guemara <b>souleve une objection</b> à la déclaration du Rav : Lorsque <b>Miriam</b> est devenue lépreuse (voir Nombres 12:10), <b>qui</b> l'a diagnostiquée et <b>quarantinée ? Si vous dites</b> que <b>Moses l'a mise en quarantaine,</b> c'est difficile, car <b>Moses</b> était <b>un non-prêtre,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i> 
 <b>Rav Ḥananel dit</b> que <b>Rav dit :</b> Si <b>on a échangé ses passages,</b> c'est-à-dire qu'on les a placés dans un ordre différent à l'intérieur du compartiment, les phylactères <b>sont impropres. Abaye a dit : Nous n'avons pas dit</b> ceci
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

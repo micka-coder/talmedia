@@ -69,4 +69,4 @@ Pourquoi les grands savants sont-ils désignés comme des artisans [<i>ḥarash<
 <b>Ulla dit</b> que Dieu a fait la charité au peuple d'Israël <b>en avançant</b> leur exil <b>de deux ans</b> par rapport à la valeur numérique du mot <b><i>venoshantem</i></b> qui figure dans le verset. Bien que la valeur numérique du mot soit de 852, Dieu a exilé le peuple juif du pays après seulement 850 ans, afin que la punition mentionnée par la suite, c'est-à-dire l'anéantissement total, ne soit pas non plus accomplie.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara développe chaque critère de la mishna. <b>Tout ce qui est alimentai
 <b>Les Sages ont enseigné : Initialement, on désignait les</b> produits du <b>corner</b> du champ <b>des navets et des choux. Rabbi Yosei dit :</b> Ils le faisaient <b>même à partir des poireaux [<i>kaflot</i>]. Et il a été enseigné dans une autre</b> <i>baraita</i> : <b>Ils désignaient les</b> produits dans le <b>corner</b> du champ <b>à partir de navets et de poireaux. Rabbi Shimon dit :</b> Ils le feraient <b>même à partir des choux.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

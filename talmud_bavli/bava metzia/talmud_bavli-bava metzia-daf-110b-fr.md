@@ -51,7 +51,7 @@ La Gemara demande : <b>A partir de ce</b> point, quel</b> est le <i>halakha</i> 
 <b>Les Sages ont enseigné :</b> Concernant celui <b>qui dit à un autre : Sors</b> et <b>engage des ouvriers pour moi, tous deux ne violent pas l'interdiction de retarder</b> le paiement du salaire s'ils ne paient pas immédiatement. <b>Celui-ci</b>, l'employeur, est exempté <b>parce qu'il ne les a pas embauchés</b> lui-même, et à proprement parler ce ne sont pas ses ouvriers engagés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Rabbi Ḥanina pensa dire</b> que la <b>terre reste en possession des orphelins,</b> car ils en ont actuellement le contrôle, <b>et</b> donc la responsabilité incombe <b>au créancier d'apporter des preuves. Un certain ancien leur dit : Voici</b> ce que dit <b>Rabbi Yoḥanan:</b> La responsabilité incombe <b>aux orphelins d'apporter la preuve. Quelle est la raison</b> pour cela ? <b>Puisque</b> ce <b>terrain se tient</b> prêt <b>à être perçu,</b> il est <b>considéré comme s'il avait</b> déjà <b>été perçu</b> et est en possession du créancier. Par conséquent, la responsabilité incombe <b>aux orphelins d'apporter la preuve.</b>
 
@@ -104,4 +104,4 @@ La Gemara demande : <b>A partir de ce</b> point, quel</b> est le <i>halakha</i> 
 <b>Les Sages ont enseigné :</b> Concernant celui <b>qui dit à un autre : Sors</b> et <b>engage des ouvriers pour moi, tous deux ne violent pas l'interdiction de retarder</b> le paiement du salaire s'ils ne paient pas immédiatement. <b>Celui-ci</b>, l'employeur, est exempté <b>parce qu'il ne les a pas embauchés</b> lui-même, et à proprement parler ce ne sont pas ses ouvriers engagés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

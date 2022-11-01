@@ -54,4 +54,4 @@ Comment cela ? Selon <b>Rabban Shimon ben Gamliel,</b> qui a <b>dit</b> que si l
 La Guemara soulève une difficulté : <b>Mais</b> si l'entrée ouvre <b>sur un domaine public, quel</b> est son statut juridique "" le portage serait-il <b>permis ?</b> Si c'est le cas, la <i>halakha</i> d'un <i>karmelit</i> est plus sévère que celle d'un domaine public. Encore une fois, on peut comparer cette situation à celle où <b>un résident permanent</b> est en bas <b>sur le sol, alors qu'un étranger</b> est élevé <b>au plus haut des cieux.</b> La Gemara répond : <b>Oui,</b> en effet, c'est la règle, mais il ne faut pas être perplexe, comme nous l'avons expliqué : <b>elle a trouvé son propre type et a été éveillée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

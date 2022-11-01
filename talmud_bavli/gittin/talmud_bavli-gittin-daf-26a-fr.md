@@ -51,4 +51,4 @@ La mishna enseigne que Rabbi Elazar invalide les actes de divorce lorsque la par
 La Gemara répond : <b>Disons plutôt</b> que Rabbi Elazar invalide les actes de divorce lorsque la partie standard de l'acte de divorce est écrite à l'avance <b>parce qu'il est précisé</b> en ce qui concerne la partie essentielle de l'acte de divorce : <b>"Et il écrit pour elle"</b> qui enseigne qu'il doit être écrit <b>pour son bien.</b> En d'autres termes, Rabbi Elazar décrète que même la partie standard du document doit être écrite pour son bien, en raison du fait que la Torah délimite cette exigence en ce qui concerne la partie essentielle de l'acte de divorce.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

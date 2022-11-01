@@ -33,4 +33,4 @@ La Gemara demande : <b>D'où vient cette conclusion</b> ? <b>Peut-être</b> la r
 <b>Et si vous ne le dites pas,</b> alors selon <b>Rabbi Meir, qui</b> malgré l'existence d'une majorité <b>prend en considération la minorité</b> et ne suit pas la majorité, est-il <b>en effet</b> vrai <b>qu'on ne mange pas de viande</b> à cause du souci d'avoir une perforation à l'endroit où il a abattu l'animal ? <b>Et si vous disiez, en effet,</b> selon Rabbi Meir, il est interdit de manger de la viande,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

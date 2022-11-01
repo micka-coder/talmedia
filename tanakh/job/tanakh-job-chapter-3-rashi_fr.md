@@ -96,4 +96,4 @@ Ce que je redoutais... Voici !
 <b>Je n'étais pas tranquille</b> de ce souci, et voici que le trouble est venu.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

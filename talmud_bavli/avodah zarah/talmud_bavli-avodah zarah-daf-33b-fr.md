@@ -39,4 +39,4 @@ La Guemara demande : En <b>quelle</b> manière <b>ce cas est-il</b> différent d
 La Guemara qualifie davantage la question : <b>Lorsqu'ils présentent des fissures, ne soulève pas le dilemme, car ils absorbent certainement</b> ce qui a été placé en eux <b>et sont</b> donc <b>interdits.</b> Au contraire, <b>laisse le dilemme se poser là où ils sont</b> parfaitement <b>lisses : Quelle</b> est la <i>halakha</i> dans un tel cas ? Mareimar <b>a dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

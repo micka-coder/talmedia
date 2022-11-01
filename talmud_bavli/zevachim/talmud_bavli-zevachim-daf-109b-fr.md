@@ -57,4 +57,4 @@ La Guemara explique la déduction de Rava : <b>Mais</b> le <i>baraita</i> stipul
 <b>Au contraire, Rava dit</b> pour résoudre la difficulté de Rabbi Zeira : Rabbi Eliezer et les rabbins sont d'accord en ce qui concerne l'encens du sanctuaire, à savoir que la Torah ne spécifie pas une quantité à brûler, et que la communauté remplit son obligation même si on ne brûle qu'une botte d'olives, comme cela est enseigné dans la <i>baraita</i>. Lorsqu'ils sont en désaccord dans la mishna, c'est dans un cas <b>où, par exemple, on a désigné deux portions d'encens d'une demi-<i>péras</i></b>, conformément à l'exigence rabbinique de brûler un <i>péras</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

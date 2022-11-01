@@ -75,4 +75,4 @@ La Gemara demande : <b>Est-ce à dire</b> que la <b>circoncision est</b> consid�
 La Gemara rejette cette idée : <b>Qu'est-ce qui</b> est notable <b>à propos de</b> l'interdiction de <b>diverses sortes ?</b> Il est notable <b>en ce que</b> l'interdiction <b>générale</b> de porter un vêtement cousu à partir de diverses sortes <b>était permise dans</b> le cas d'une personne ordinaire en ce qui concerne les franges rituelles,</b> car une corde de laine bleu ciel doit être placée sur un vêtement à quatre coins, même si ce vêtement est fait de lin. La Gemara demande : <b>Est-ce à dire</b> que les <b>franges rituelles</b> sont considérées comme <b>une exigence d'une personne ordinaire,</b> dont l'exécution a été exemptée de l'interdiction générale concernant les divers types en ce qui concerne ses besoins privés ? Placer des franges rituelles sur un vêtement <b>est une mitzva. Au contraire,</b> l'affirmation de Rav Adda bar Abba peut être réfutée comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

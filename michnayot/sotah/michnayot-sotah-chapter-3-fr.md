@@ -23,5 +23,5 @@ On brûlera l'offrande de la fille d'un Israélite mariée à un prêtre. Mais l
 ### michna 8
 Quelles sont [les différences de droit] entre un homme et une femme ? Un homme [qui a la lèpre] déchire ses vêtements et détache ses cheveux, mais une femme ne déchire pas ses vêtements et ne détache pas ses cheveux. Un homme peut faire le vœu que son fils devienne un naziréen, mais une femme ne peut pas faire le vœu que son fils devienne un naziréen. Un homme peut se raser [avec les offrandes mises de côté pour] le naziréat de son père, mais une femme ne peut pas se raser [avec les offrandes mises de côté pour] le naziréat de son père. Un homme peut vendre sa fille, mais une femme ne peut pas vendre sa fille. Un homme peut donner sa fille en fiançailles, mais une femme ne peut pas donner sa fille en fiançailles. Un homme est lapidé nu, mais une femme n'est pas lapidée nue. Un homme est pendu [après avoir été mis à mort], mais une femme n'est pas pendue. Un homme est vendu pour [réparer son] vol, mais une femme n'est pas vendue [pour réparer] son vol.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

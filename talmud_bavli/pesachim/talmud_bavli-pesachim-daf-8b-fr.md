@@ -51,4 +51,4 @@ Nous avons en outre appris dans la mishna que <b>Beit Hillel disent :</b> Il suf
 <b>Et Shmuel dit</b> la mishna fait référence à <b>la rangée avant la plus haute</b> <b>et la</b> suivante <b>qui est vers l'intérieur</b> de la cave. <b>Quelle est la raison</b> de l'opinion de <b>Shmuel ? Il déduit</b> du terme : <b>rangées supérieures</b>, qu'il faut fouiller les deux premières rangées du niveau supérieur des tonneaux. La Guemara soulève une difficulté : <b>Mais est-ce que</b> la mishna n'enseigne pas aussi <b>la : Rangée extérieure</b> ? La Guemara répond que ce mot vient <b>exclure la plus intérieure des rangées intérieures</b>. On ne doit chercher que dans les deux rangées les plus extérieures. La Guemara commente : <b>Rabbi Ḥiyya enseigne</b> une <i>baraita</i> <b>conformément</b> à l'avis du <b>Rav, et tous</b> les autres <b><i>tanna'im</i>,</b> qui récitent les <i>mishnayot</i> et les <i>baraitot</i> par cœur, <b>enseignent conformément</b> à l'avis <b>de Shmuel. </b> La Gemara conclut : <b>Et la <i>halakha</i> est conforme</b> à l'avis de <b>Shmuel.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

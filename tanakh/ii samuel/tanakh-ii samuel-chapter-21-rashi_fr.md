@@ -71,7 +71,7 @@
 <b>Nombre de six chacun etc.</b> Nos rabbins ont expliqué dans le Traité Béchoros<sup>32</sup><i class="note de bas de page"></i> que le verset devait nous dire "vingt-quatre"<sup>33</sup><i class="note de bas de page">malgré le fait que vu que ses deux mains et ses deux pieds avaient chacun six extrémités digitales, ce qui totalise évidemment vingt-quatre. </i> afin que vous ne disiez pas que les doigts de ses deux mains n'étaient que six au total et que les orteils de ses [deux] pieds n'étaient que six au total, c'est pourquoi il est écrit "vingt-quatre". S'il avait été écrit dans notre verset seulement "vingt-quatre" et qu'il n'avait pas été dit "six chacun", j'aurais dit [par erreur] qu'il y en avait sept sur une [main ou un pied] et cinq sur l'autre. Et qu'est-ce que le verset essaie d'indiquer par le mot "nombre" ? Que toutes ces extrémités digitales pouvaient être comptées dans la disposition normale des doigts d'une main.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>A cause de Shaoul.</b> A cause du péché concernant Shaoul qui a été enterré immédiatement et secrètement car les hommes de Yovish Gilod ont volé son corps et l'ont enterré. [Par conséquent] il n'a pas fait l'objet d'un éloge avec le respect qui lui est dû.
 <b>Et sa Maison sanglante.</b> Parce qu'il a tué hors Nov, la ville des Kohanim.
@@ -144,4 +144,4 @@
 <b>Nombre de six chacun etc.</b> Nos rabbins ont expliqué dans le Traité Béchoros<sup>32</sup><i class="note de bas de page"></i> que le verset devait nous dire "vingt-quatre"<sup>33</sup><i class="note de bas de page">malgré le fait que vu que ses deux mains et ses deux pieds avaient chacun six extrémités digitales, ce qui totalise évidemment vingt-quatre. </i> afin que vous ne disiez pas que les doigts de ses deux mains n'étaient que six au total et que les orteils de ses [deux] pieds n'étaient que six au total, c'est pourquoi il est écrit "vingt-quatre". S'il avait été écrit dans notre verset seulement "vingt-quatre" et qu'il n'avait pas été dit "six chacun", j'aurais dit [par erreur] qu'il y en avait sept sur une [main ou un pied] et cinq sur l'autre. Et qu'est-ce que le verset essaie d'indiquer par le mot "nombre" ? Que toutes ces extrémités digitales pouvaient être comptées dans la disposition normale des doigts d'une main.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

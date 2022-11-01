@@ -30,4 +30,4 @@ En outre, ils ont eu un différend dans un cas où quelqu'un <b>a dit à des té
 <b>On peut conclure que c'est Rabbi Natan qui a dit</b> que la <b><i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Elazar ben Azarya, car nous avons entendu que Rabbi Natan suit</b> le principe de <b>l'évaluation</b> de l'intention. Même si l'on n'a pas fait de déclaration explicite, le tribunal évalue quelle devait être son intention et décide de la <i>halakha</i> en fonction de cette évaluation. Il est clair qu'il suit ce principe, <b>car Rabbi Natan a dit</b> que la <b><i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Shimon Shezuri dans</b> le cas d'une personne malade <b>en danger.</b> Si cette personne dit : Rédige un acte de divorce pour ma femme, cela se comprend comme : Rédigez-le et donnez-le-lui, car son intention est de l'absoudre de l'obligation de lévirat par le biais de l'acte de divorce. Bien qu'il ne l'ait pas dit explicitement, Rabbi Natan considère que dans une telle situation, le tribunal évalue que telle était l'intention du mari et la suit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

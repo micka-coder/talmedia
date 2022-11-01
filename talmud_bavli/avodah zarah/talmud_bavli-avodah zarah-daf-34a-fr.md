@@ -24,4 +24,4 @@ Rabbi Akiva <b>vint</b> et <b>posa</b> ces questions dans la <b>salle d'étude. 
 <b>Rav Zevid dit :</b> En ce qui concerne <b>ces levures</b> produites à partir du <b>vin des Araméens, après douze mois</b> de <b>l'année, elles sont autorisées. Rav Ḥaviva, fils de Rava, dit :</b> En ce qui concerne <b>ces cruches</b> qui appartiennent aux Gentils, <b>après douze mois</b> de <b>l'année, elles sont permises. Le Rav Ḥaviva dit:</b> En ce qui concerne <b>ces pichets</b> qui appartiennent aux Gentils.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

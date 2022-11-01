@@ -21,4 +21,4 @@ La Gemara demande : <b>Dans quel</b> cas avez-vous établi</b> la <i>baraita</i>
 Cette conclusion contredit une autre déclaration de Rava. En ce qui concerne celui qui ignore à la fois l'essence du Shabbat et les travaux interdits individuels, <b>Rava a soulevé un dilemme devant Rav Naḥman uniquement pour savoir s'il faut le juger responsable de</b> apporter <b>une ou de le juger responsable de</b> apporter <b>deux</b> offrandes de péché. <b>Cependant,</b> la possibilité <b>de l'exempter complètement</b> n'est <b>pas</b> entrée dans l'esprit de Rava'. Cette explication de la <i>baraita</i> est incompatible avec l'opinion de Rava'.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

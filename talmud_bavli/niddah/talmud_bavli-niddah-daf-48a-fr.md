@@ -27,4 +27,4 @@ La Gemara demande : <b>Et</b> comment répondrait <b>l'autre</b> <i>amora</i>, R
 La Guemara raconte que <b>lorsque Rabbi Zeira finit par <b>monter</b> en Eretz Yisrael <b>il</b> a effectivement <b>trouvé Rabbi Elazar</b> et lui <b>dit : As-tu dit</b> que la <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Yosei ben Keifar ?</b> Rabbi Elazar <b>lui a répondu : J'ai dit</b> qu'il <b>s'impose de raisonner</b> que la <i>halakha</i> est conforme à son avis. Il a développé : <b>D'après</b> le fait <b>que</b> tout au long de <b>l'ensemble du chapitre</b> la Mishna <b>enseigne : </b> Et <b>un jour, mais ici,</b> dans la dernière mishna, <b>elle n'enseigne pas</b> cette phrase, on peut <b>en conclure</b> qu'il <b>s'impose de raisonner</b> qu'il y a une raison à cette divergence, <b>conformément à l'opinion de</b> Rabbi Yosei ben Keifar.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

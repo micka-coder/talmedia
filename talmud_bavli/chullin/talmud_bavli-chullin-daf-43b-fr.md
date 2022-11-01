@@ -45,4 +45,4 @@ La Guemara relate que <b>la question a circulé,</b> et <b>elle est arrivée dev
 <b>Mar, fils de Ravina, a dit : Je propose une réfutation concluante aux ennemis de Rava,</b> un euphémisme pour Rava lui-même, à partir d'un <i>baraita</i> : <b>La <i>halakha</i></b> est <b>toujours en accord avec la déclaration de Beit Hillel, mais celui qui souhaite agir en accord avec la déclaration de Beit Shammai peut le faire,</b> et celui qui souhaite agir <b>en accord avec la déclaration de Beit Hillel peut le faire. </b> Mais si quelqu'un souhaite adopter à la fois <b>les indulgences de Beit Shammai et</b> également <b>les indulgences de Beit Hillel, il est une personne méchante.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ En ce qui concerne deux cours, dont l'une est à l'intérieur de l'autre, et don
 Si un habitant de la cour extérieure a oublié et n'a pas contribué à l'érouv, il est permis de porter dans la cour intérieure et interdit de porter dans la cour extérieure. Si un résident de la cour intérieure a oublié et n'a pas contribué à l'érouv, les deux sont interdits, car le droit de passage dont jouissent les membres de la cour intérieure à travers la cour extérieure rend la cour extérieure également interdite. Si les habitants des deux cours mettent leur érouv en un seul endroit, et qu'une personne, qu'elle soit de la cour intérieure ou de la cour extérieure, a oublié et n'a pas contribué à l'érouv, ils sont tous deux interdits de portage à l'intérieur, car les deux cours sont traitées comme une seule. Et si les cours appartenaient à des particuliers, c'est-à-dire si une seule personne vivait dans chaque cour, ils ne sont pas tenus d'établir un eirouv, car cette exigence ne s'applique qu'à une cour occupée par plusieurs résidents.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

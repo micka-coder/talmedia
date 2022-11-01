@@ -36,4 +36,4 @@ C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Orla</i> 3:9) : Les f
 <b>Mais selon votre</b> opinion, que ni <i>orla</i> ni diverses sortes ne sont interdites par la loi de la Torah,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ Cette contestation est rejetée : <b>Comment pouvez-vous comparer ? Là, effecti
 <b>Rav Ashi a dit :</b> Cela provient d'une source différente. Dans les versets qui parlent des Fêtes, par opposition au terme <b>Shabbat,</b> le terme <b><i>shabbaton</i></b> (Lévitique 23:24) apparaît.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara répond que <b>ceci</b> est ce que Rabbi Yehuda HaNasi <b>dit : La d�
 <b>Abaye lui dit : Mais</b> considérez <b>ce qui est enseigné</b> dans la suite des <i>baraita</i> : Si quelqu'un les <b>consacre</b> alors qu'ils étaient <b>pleins</b> et qu'il en tire ensuite un bénéfice <b>de ces biens ou de leur contenu,</b> il est responsable d'un <b>abus</b> de biens consacrés. <b>Et Rabbi Elazar, fils de Rabbi Shimon, revient</b> sur sa décision précédente dans ce cas et estime que si les objets étaient consacrés lorsqu'ils étaient pleins, leur contenu n'est pas soumis à l'interdiction d'abus de biens consacrés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Gemara explique la dispute : <b>Au contraire, Beit Shammai tiennent conformé
 <b>Et Beit Hillel tiennent conformément</b> à l'opinion de <b>Rabbi Shimon, comme nous l'avons appris</b> dans une mishna (<i>Menaḥot</i> 103a) : Si l'on fait le vœu d'apporter une offrande d'orge, car les offrandes volontaires ne sont apportées que de blé, les rabbins disent : Il doit apporter une offrande de blé, <b>et Rabbi Chimon l'exempte</b> entièrement, <b>car il n'a pas fait de don de la manière</b> typique <b>des donateurs.</b> Puisqu'il a fait don d'une offrande qui ne peut être sacrifiée, son vœu n'a pas de sens. Ici aussi, puisqu'il a fait vœu de naziréat en déclarant qu'il s'abstiendra donc de figues sèches plutôt que de vin, sa déclaration est dépourvue de sens.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

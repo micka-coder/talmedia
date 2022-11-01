@@ -27,4 +27,4 @@ La Gemara demande : <b>N'etait-ce pas</b> deja <b>souleve comme un dilemme</b> p
 Afin de resoudre ce dilemme, <b>venez</b> et <b>entendez</b> le dernier cas de la mishna : Une femme <b>qui a engage des relations conjugales</b> avec son mari <b>et</b> par la suite <b>a vu du sang menstruel necessite une immersion. Et Rabbi Yehuda les exempte</b> d'immersion. <b>La</b> femme <b>qui a eu des relations conjugales</b> avec son mari <b>et</b> a ensuite <b>vu du sang menstruel n'est-elle pas comme celle qui a connu une emission seminale,</b> qui a ensuite <b>vu un ecoulement</b> qui l'a rendu <b><i>zav</i>,</b> car dans les deux cas il y a une impurete rituelle moins grave suivie d'une impurete plus grave ; <b>et</b> neanmoins, <b>Rabbi Yehuda exempte. Concluez de ceci</b> que Rabbi Yehuda ne fait pas de distinction entre les cas. Et en effet, <b>Rabbi Hiyya a explicitement enseigne : Celui qui a subi une emission seminale</b> qui a ensuite <b>vu une decharge</b> qui l'a rendu <b><i>zav</i> necessite une immersion, et Rabbi Yehuda l'en dispense.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La <i>Tosefta</i> a enseigné que <b>celui qui parle mais n'entend pas</b> et <b
 <b>Cette</b> opinion <b>est également enseignée</b> dans une <i>baraita</i> : <b>Tous sont obligés dans</b> la mitzva de la <b>apparition et dans la réjouissance, à l'exception d'un sourd</b> <b>qui parle mais n'entend pas</b> et de <b>une personne qui entend mais ne parle pas, car ils sont exemptés de</b> la mitzva de la <b>apparition. Et même s'ils sont exemptés de</b> la mitzva de <b>apparition,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

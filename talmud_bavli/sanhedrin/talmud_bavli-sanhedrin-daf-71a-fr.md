@@ -69,4 +69,4 @@ Après avoir été amené devant les anciens de la ville, <b>il est admonesté d
 <strong>GEMARA:</strong> La Gemara tire une conclusion de la mishna : <b>Vous</b> pouvez <b>apprendre de</b> la mishna que <b>nous exigeons</b> qu'un <b>verset</b> soit accompli précisément <b>comme il est écrit,</b> en stricte conformité avec son sens littéral, et non de manière plus lâche ou plus expansive. La Gemara rejette cette suggestion : Il n'y a pas de preuve d'ici. <b>Ici c'est différent,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

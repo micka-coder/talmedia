@@ -24,4 +24,4 @@ La Guemara apporte des précisions supplémentaires : <b>Cet arbre, quelles sont
 <b>Ravina a dit : La première clause</b> fait référence à un cas <b>où</b> l'arbre <b>est de quatre</b> par quatre pouces de large. Le <i>eirouv</i> n'est pas valable s'il a été placé au-dessus de dix brins de main, car l'arbre à cette hauteur constitue un domaine privé, et le <i>eirouv</i> ne peut être porté sur le domaine public en dessous, où l'on souhaite établir sa résidence de Chabbat. <b>Cette dernière clause,</b> cependant, se réfère à un cas <b>où</b> l'arbre <b>n'a pas une largeur de quatre</b> sur quatre coudées, <b>et le panier complète</b> la largeur de l'arbre à cet endroit <b>à quatre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

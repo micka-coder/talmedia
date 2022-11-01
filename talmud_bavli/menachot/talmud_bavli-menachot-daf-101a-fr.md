@@ -51,7 +51,7 @@ La raison en est <b>que la Torah a déclaré</b> à propos d'un individu extrêm
 § La Guemara cite une autre déclaration selon laquelle <b>Rabbi Oshaya dit : J'ai entendu</b> que <b>selon Rabbi Shimon,</b> lorsqu'on <b>rend une offrande de repas <i>piggul</i></b> en la sacrifiant avec l'intention de la consommer au-delà du temps prévu, elle n'est pas susceptible <b>de l'impureté rituelle des aliments. Comme nous l'avons appris</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Okatzin</i> 3:12) : <b><i>Orla</i>, diverses sortes dans un vignoble,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 On ne peut pas tirer la conclusion que ces substances peuvent être rachetées, <b>puisque nous ne trouvons pas</b> un cas <b>où</b> un objet qui a été consacré dans <b>un vase de service est racheté.</b>
 
@@ -104,7 +104,7 @@ La raison en est <b>que la Torah a déclaré</b> à propos d'un individu extrêm
 § La Guemara cite une autre déclaration selon laquelle <b>Rabbi Oshaya dit : J'ai entendu</b> que <b>selon Rabbi Shimon,</b> lorsqu'on <b>rend une offrande de repas <i>piggul</i></b> en la sacrifiant avec l'intention de la consommer au-delà du temps prévu, elle n'est pas susceptible <b>de l'impureté rituelle des aliments. Comme nous l'avons appris</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Okatzin</i> 3:12) : <b><i>Orla</i>, diverses sortes dans un vignoble,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 On ne peut pas tirer la conclusion que ces substances peuvent être rachetées, <b>puisque nous ne trouvons pas</b> un cas <b>où</b> un objet qui a été consacré dans <b>un vase de service est racheté.</b>
 
@@ -157,4 +157,4 @@ La raison en est <b>que la Torah a déclaré</b> à propos d'un individu extrêm
 § La Guemara cite une autre déclaration selon laquelle <b>Rabbi Oshaya dit : J'ai entendu</b> que <b>selon Rabbi Shimon,</b> lorsqu'on <b>rend une offrande de repas <i>piggul</i></b> en la sacrifiant avec l'intention de la consommer au-delà du temps prévu, elle n'est pas susceptible <b>de l'impureté rituelle des aliments. Comme nous l'avons appris</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Okatzin</i> 3:12) : <b><i>Orla</i>, diverses sortes dans un vignoble,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

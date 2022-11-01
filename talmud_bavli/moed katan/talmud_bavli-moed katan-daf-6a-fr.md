@@ -48,4 +48,4 @@ La Gemara demande : <b>Qu'y a-t-il de différent dans les jours intermédiaires 
 Concernant la question de l'arrachage de diverses sortes, la Gemara demande : <b>Et quelle quantité</b> d'une autre espèce doit être mélangée à une culture pour être considérée comme des espèces diverses qui doivent être déracinées par ces ouvriers ? <b>Rav Shmuel bar Yitzḥak dit :</b> La quantité est <b>comme celle que nous avons apprise</b> dans la mishna (<i>Kilayim</i> 2:1) : <b>Toute <i>se'a</i></b> de graines <b>qui contient</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

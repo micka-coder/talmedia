@@ -45,7 +45,7 @@ La Guemara demande : <b>Et Rabbi Yosei soutient-il</b> que <b>un mineur a</b> la
 <b>Rava a plutôt énoncé</b> une explication alternative :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La <b>courtisane de quelqu'un est incluse</b> comme un moyen d'acquisition valable <b>du fait</b> qu'elle agit comme sa <b>main ; mais elle n'est pas moins</b> efficace <b>que l'agence. </b> Ainsi, <b>en ce qui concerne un acte de divorce, qui est</b> considéré comme <b>préjudiciable à</b> l'épouse, on ne peut le lui transférer en le plaçant dans sa cour en son absence, car <b>on ne peut agir contre les intérêts d'une personne que si</b> elle est <b>en sa présence. </b> En revanche, <b>en ce qui concerne le cadeau, qui est bénéfique pour</b> le bénéficiaire, on peut le lui donner en le plaçant dans sa cour en l'absence du bénéficiaire, car <b>on peut agir dans l'intérêt d'une personne en son absence.</b>
 
@@ -92,4 +92,4 @@ La Guemara demande : <b>Et Rabbi Yosei soutient-il</b> que <b>un mineur a</b> la
 <b>Rava a plutôt énoncé</b> une explication alternative :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

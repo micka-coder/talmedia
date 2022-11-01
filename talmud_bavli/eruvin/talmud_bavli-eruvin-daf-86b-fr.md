@@ -42,4 +42,4 @@ La Guemara exprime sa surprise quant à la formulation de ce récit : Ont-ils r�
 <b>Rabba a dit : Rabbi Yehouda et Rabbi Ḥananya ben Akavya ont dit la même chose.</b> Tous deux ont été très indulgents en ce qui concerne la <i>halakha</i> d'une partition sur l'eau. La décision de <b>Rabbi Yehuda est celle que nous</b> venons de <b>dire,</b> à savoir que le mur de la cour permet une citerne. La décision de <b>Rabbi Ḥananya ben Akavya est celle que nous avons apprise : Rabbi Ḥananya ben Akavya dit :</b> Dans le cas d'un <b>balcon qui contient quatre coudées par quatre coudées,</b> qui est suspendu au-dessus de l'eau,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

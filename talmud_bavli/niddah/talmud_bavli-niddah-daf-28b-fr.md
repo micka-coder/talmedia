@@ -57,4 +57,4 @@ La Guemara soulève une difficulté par rapport à la dérivation de Rav : <b>Et
 La Guemara explique cette difficulté : <b>La raison</b> pour laquelle un <i>tumtum</i> et un hermaphrodite sont exclus est <b>qu'il est écrit : "Le mâle...et si c'est une femelle,"</b> ce qui indique <b>que</b> si le verset avait écrit : <b>Mâle et femelle,</b> sans les mots superflus "le" et "si", il n'aurait <b>pas</b> été dérivé que le verset <b>exclut</b> un <i>tumtum</i> et un hermaphrodite. Ceci contredit apparemment l'opinion de Rav, qui exclut un <i>tumtum</i> et un hermaphrodite de l'interdiction d'entrer dans le Temple en état d'impureté du seul fait de la phrase : " Mâle et femelle " (Nombres 5:3). La Guemara répond : Dans <b>ce verset</b> en ce qui concerne les évaluations, les mots "mâle" et "femelle" sont eux-mêmes <b>nécessaires</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

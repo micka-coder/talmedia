@@ -30,4 +30,4 @@ La Gemara suggère en outre : <b>Venez</b> et <b>entendez</b> une autre preuve. 
 La Gemara soulève une difficulté : <b>Enfin,</b> la mitzva de la Torah de <b>manger</b> la <b>viande</b> de cette offrande <b>est déracinée, et il est écrit : "Et ils mangeront ces choses avec lesquelles l'expiation a été faite"</b> (Exode 29:33). Ce verset <b>enseigne que les prêtres mangent</b> l'offrande <b>et</b> le <b>propriétaire</b> obtient ainsi <b>l'expiation. Il lui dit :</b> Le cas de <b>s'asseoir et s'abstenir d'agir [<i>shev ve'al ta'aseh</i>] est différent.</b> En d'autres termes, les Sages peuvent déraciner une mitsva de la Torah en donnant l'instruction de s'asseoir et de <b>s'abstenir d'agir,</b> c'est-à-dire de rester passif et de ne rien faire. En revanche, ils ne peuvent pas déraciner une mitzva en lui disant d'accomplir une action.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

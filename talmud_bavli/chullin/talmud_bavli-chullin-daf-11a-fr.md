@@ -51,4 +51,4 @@ La Gemara demande : <b>D'où</b> est tirée cette conclusion ? <b>Peut-être</b>
 <b>Rav Aḥa bar Ya'akov a dit :</b> Le fait que l'on suive une majorité non quantifiable est <b>dérivé de</b> la <i>halakha</i> du <b>scapegoat,</b> à propos duquel le Miséricordieux dit : "Et il prendra les deux boucs...</b> un lot pour le Seigneur et un lot pour Azazel" (Lévitique 16:7-8). Du fait que le verset mentionne les deux boucs ensemble, les Sages ont déduit <b>que les deux</b> boucs <b>doivent être égaux. Mais</b> comment peut-on s'assurer qu'ils sont égaux ; <b>soucions-nous</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

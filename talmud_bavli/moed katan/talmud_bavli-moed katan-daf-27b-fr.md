@@ -57,4 +57,4 @@ La Guemara note que <b>Rav Huna</b> se conforme <b>à sa ligne standard de <b>ra
 § La mishna enseigne : <b>Et</b> les biers <b>des femmes</b> ne sont <b>jamais</b> déposés, <b>en raison</b> de leur <b>honneur.</b> Les Sages de <b>Neharde'a disent : Ils ont seulement enseigné</b> ceci
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

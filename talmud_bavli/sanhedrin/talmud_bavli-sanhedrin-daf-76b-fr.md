@@ -51,4 +51,4 @@ Il y avait <b>un certain homme qui a confiné l'animal d'un autre</b> dans un en
 La Guemara développe : <b>Ravina l'a jugé</b> <b>libre</b> de rétribuer le propriétaire, et il l'a dérivé au moyen d'une <b>déduction <i>a fortiori</i></b> : <b>Comme</b> en ce qui concerne <b>un meurtrier, où</b> la Torah <b>n'a pas rendu</b> le statut juridique de celui qui tue <b>involontairement,</b> qui est exilé, <b>comme</b> celui de celui qui tue <b>intentionnellement,</b> qui est exécuté, <b>et</b> n'a pas rendu le statut de celui qui tue <b>en raison de circonstances indépendantes de sa volonté, </b> qui est exempt de peine, <b>comme</b> celui de celui qui tue <b>intentionnellement,</b> qui est responsable, néanmoins la Torah a <b>rendu celui qui enferme</b> un autre dans un endroit où il ne peut survivre <b>faisable</b> d'être exécuté, même s'il n'a pas accompli une action ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

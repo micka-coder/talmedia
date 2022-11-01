@@ -18,4 +18,4 @@ La Gemara explique : <b>Nouveaux shekels, ce sont</b> les <b>shekels de chaque a
 La Gemara demande : <b>D'où déduisons-nous</b> que c'est bien l'avis de Rabbi Yehouda ? <b>Si nous disons</b> qu'il est dérivé <b>de ce que nous avons appris</b> dans la mishna suivante, il y a une difficulté. La mishna dit : En ce qui concerne <b>celui qui achète du vin chez les Samaritains,</b> qui ne prélèvent pas correctement la dîme de leurs produits, <b>la veille de Chabbat à la tombée de la nuit</b> et qui n'a pas le temps de séparer la dîme avant Chabbat et de placer les portions séparées dans des endroits distincts, il peut <b>se lever et dire : Deux <i>log</i></b> des cent <i>log</i> présents ici, <b>que je séparerai à l'avenir,</b> après Chabbat, <b>seront</b> le <b><i>teruma</i></b> <i>gedola</i> donné à un prêtre, car les Sages ont prescrit qu'un cinquantième de ses produits constitue une mesure moyenne de <i>teruma</i> ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

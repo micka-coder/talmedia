@@ -51,4 +51,4 @@ La Guemara intervient : <b>Quelle est</b> la différence <b>entre</b> ces deux v
 Le <i>baraita</i> poursuit : En ce qui concerne les <b>premières eaux, on peut se laver soit avec de l'eau chaude</b> <b>soit avec de l'eau froide</b>. Mais pour les <b>eaux finales</b>, <b>on ne peut se laver qu'avec de l'eau froide</b>, <b>car l'eau chaude</b> <b>adoucit les mains et n'enlève pas la saleté</b> de celles-ci. La Guemara analyse la déclaration selon laquelle pour les <b>premières eaux on peut se laver soit avec de l'eau chaude</b> <b>soit avec de l'eau froide</b> : <b>Rav Yitzḥak bar Yosef dit</b> que <b>Rabbi Yannai dit : Ils ont enseigné</b> cette <i>halakha</i> <b>uniquement</b> dans un cas <b>où la main ne</b> pas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

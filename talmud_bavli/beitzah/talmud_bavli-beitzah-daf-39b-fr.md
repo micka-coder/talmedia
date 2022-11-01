@@ -33,4 +33,4 @@ La Guemara se rétracte sur son explication précédente du désaccord entre Rav
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui avait des produits dans une autre ville</b> au-delà de la limite du Chabbat, <b>et les habitants de cette ville</b> où se trouvaient les produits ont rejoint les limites du Chabbat, ce qui leur permet d'atteindre la maison du propriétaire le jour de la Fête,</b> et ils souhaitent <b>lui apporter certains de ses produits, ils ne peuvent pas les</b> lui apporter. </b> Ses produits sont comme ses pieds ; puisqu'ils sont en dehors de sa limite de Chabbat, ils ne peuvent pas être pris de leur place. <b>Cependant, si</b> le propriétaire a <b>placé un <i>eirouv</i></b> pour permettre de se rendre dans cette ville, le statut juridique de <b>son produit est comme son</b> statut par rapport à la limite du Chabbat. Les personnes de cette ville qui ont également placé une <i>eirouv</i> peuvent lui apporter le produit, puisque lui-même peut marcher jusqu'au produit et le prendre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

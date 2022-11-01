@@ -94,5 +94,5 @@
 <b>Moshé a prononcé</b> cette <i>mitzvah</i>.
 <b>A Aharon et à ses fils et à tous les Bnei Israël -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour avertir la cour concernant les <i>kohanim</i>.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

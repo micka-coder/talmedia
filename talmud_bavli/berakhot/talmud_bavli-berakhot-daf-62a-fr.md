@@ -66,4 +66,4 @@ La Guemara discute de <b>la question elle-meme. Rav Yehuda dit</b> que <b>Rav a 
 La Gemara dit : <b>Et si quelqu'un oublie et s'assied puis touche, quel est son remede ? Quand</b> il <b>se met debout,</b> il doit <b>reciter l'incantation suivante</b> : <b>Pas pour moi, pas pour moi, ni <i>tahim</i> ni <i>tahtim</i>,</b> types de sorcellerie, <b>ni ceux-ci ni de ceux-ci, ni la sorcellerie d'un sorcier ni la sorcellerie d'une sorciere.</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Et</b> comment Rabbi Yosei</b> répond à la demande de R
 <b>Rabbi Yosei lui a répondu</b> <b>à son tour : Mais n'est-il pas déjà dit : "Et les rideaux du parvis, et le grillage pour</b> la porte de <b>la porte du parvis qui est près du Tabernacle et près de l'autel"</b> (Nombres 4:26) ? Ce verset juxtapose le Tabernacle et l'autel pour enseigner que <b>comme</b> le <b>Tabernacle</b> était <b>dix coudées</b> de hauteur, <b>de même,</b> l'<b>autel</b> était <b>dix coudées</b> de hauteur. <b>Et</b> un autre verset <b>déclare : "Les rideaux avaient quinze</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

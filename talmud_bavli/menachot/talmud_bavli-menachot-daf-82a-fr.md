@@ -42,4 +42,4 @@ La Gemara répond : <b>Vous soutenez</b> que cette <i>baraita</i> <b>est convenu
 <b>Rabbi Akiva présente alors une dérivation logique différente</b> pour rejeter la preuve de Rabbi Eliezer : On ne peut pas dériver la <i>halakha</i> en ce qui concerne l'offrande pascale des générations de celle de l'offrande pascale en Egypte, car <b>Qu'est-ce qui</b> est notable <b>dans l'offrande pascale</b> sacrifiée en <b>Egypte ? </b> Elle est remarquable en ce <b>qu'elle <b>n'exigeait pas</b> le <b>placement du sang</b> sur l'autel ni que les <b>parties sacrificielles</b> soient consommées <b>par l'autel.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

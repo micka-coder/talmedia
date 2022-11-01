@@ -48,4 +48,4 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Meir</b> explique-t-il la formula
 Rav Ashi a indiqué plus haut que le produit de toute pratique décrite dans la Torah comme abominable est interdit à la consommation. La Guemara demande : <b>Si c'est le cas,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

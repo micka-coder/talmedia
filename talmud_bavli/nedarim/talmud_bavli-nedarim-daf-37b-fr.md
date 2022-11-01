@@ -30,4 +30,4 @@ Les mots qui sont <b>lus mais non écrits</b> sont inclus dans le <i>halakha</i>
 <b>Et</b> il y a des mots qui sont <b>écrits mais pas lus.</b> Par exemple, le mot <b>"peut" qui</b> se trouve dans le verset "que Dieu <b>pardonne</b> ton serviteur" (II Rois 5:18) apparaît dans le texte de la Bible mais n'est pas vocalisé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara <b>souleve une objection</b> contre l'opinion de Rabba à partir de c
 Les Sages <b>Disent</b> en réponse à cela : <b>Mais est-ce que</b> la <i>baraita</i> <b>préférable à la mishna, que nous avons interprétée</b> comme faisant référence au cas <b>où il l'a blessée du vivant du converti, et que le converti</b> est alors <b>décédé ? Ici aussi,</b> il faut expliquer <b>qu'il l'a blessée du vivant du converti, et que le converti</b> est ensuite <b>décédé. Et si vous voulez, dites</b> plutôt qu'il l'a blessée même <b>après la mort du converti.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

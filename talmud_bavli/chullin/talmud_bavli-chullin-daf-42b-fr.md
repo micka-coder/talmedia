@@ -30,4 +30,4 @@ La Gemara répond : <b>Il y a huit</b> cas d'organes <b>perforés</b> mentionné
 La Gemara conteste : <b>Si oui,</b> puisque <b>il y a aussi deux</b> cas d'organes <b>coupés</b> dans la mishna, la moelle épinière et la trachée, que la <i>tanna</i> <b>compte ces organes comme un seul.</b> Le compte des <i>tereifot</i> tombe alors <b>à un moins</b> de dix-huit. <b>Et en outre,</b> si tous les cas d'organes perforés sont comptés comme un seul, alors on ne peut pas insérer le cas enseigné par <b>Rav Avira au nom de Rava,</b> c'est-à-dire celui d'une rate perforée, puisqu'il <b>est aussi</b> un cas d'<b>organe perforé</b>. Si c'est le cas, le compte tombe à deux moins de dix-huit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

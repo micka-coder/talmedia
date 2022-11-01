@@ -48,4 +48,4 @@ Les Sages <b>ont enseigné</b> en référence aux opinions de Rabbi Yehuda et Ra
 <b>Les Sages ont enseigné</b> (<i>Tosefta</i> 7:4) : Dans un cas où le mari a dit : Voici ton acte de divorce à partir de maintenant si je meurs de cette maladie, <b>pendant les jours d'intervalle,</b> avant qu'il ne meure, <b>son mari a droit</b> à tout ce qu'elle <b>trouve,</b> c'est-à-dire tout objet perdu qui ne peut être rendu à son propriétaire, conformément au principe rabbinique selon lequel tout objet perdu trouvé par une femme appartient à son mari. <b>Et</b> il a droit aux bénéfices de <b>ses gains, et</b> il a droit à <b>annuler ses vœux</b> (voir Nombres 30:7-9), <b>et il hérite</b> de <b>elle</b> si elle décède avant lui,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

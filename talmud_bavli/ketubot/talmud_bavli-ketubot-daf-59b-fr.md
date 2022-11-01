@@ -39,4 +39,4 @@ La Gemara demande : S'il en est ainsi, que le différend porte sur la question d
 La Gemara ci-dessus cite une <i>baraita</i> où il est enseigné que <b>si</b> le bébé l'a <b>reconnue,</b> son mari peut l'obliger à continuer à l'allaiter même après son divorce, mais il doit la payer pour l'allaiter.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

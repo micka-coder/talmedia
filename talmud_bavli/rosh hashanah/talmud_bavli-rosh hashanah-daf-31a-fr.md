@@ -57,4 +57,4 @@ La Guemara cite les sources de chacune de ces étapes : <b>Du couvercle de l'Arc
 <b>Et correspondant à</b> ces dix étapes, <b>le Sanhédrin fut exilé</b> en dix étapes à la fin de la période du Second Temple et après la destruction du Temple, et ceci est connu <b>par la tradition : De la Chambre de la pierre taillée,</b> son siège fixe dans le Temple, <b>jusqu'à <i>Ḥanut</i>,</b> littéralement, boutique, un endroit désigné sur le Mont du Temple à l'extérieur du Temple proprement dit ; <b>et de <i>Ḥanut</i> à Jérusalem ; et de Jérusalem à Yavne ;</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

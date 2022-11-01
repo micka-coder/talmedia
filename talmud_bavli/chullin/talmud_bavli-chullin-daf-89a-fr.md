@@ -48,4 +48,4 @@ Le Rav Reḥumi persiste : Il est enseigné dans une autre <i>baraita</i> qu'en 
 <b>Rav Ashi a dit</b> en réponse : <b>Comment peut-on</b> ces cas <b>être comparés</b> au cas de la couverture du sang ? <b>Là,</b> en ce qui concerne un shofar et un <i>lulav</i> d'adoration d'une idole, bien que l'utilisation de ces objets pour une mitzva ne constitue pas un bénéfice, on ne peut pas remplir son obligation avec eux, car....
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

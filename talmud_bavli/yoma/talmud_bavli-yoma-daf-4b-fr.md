@@ -42,4 +42,4 @@ Le verset dit : <b>"Et il appela Moïse, et</b> l'Eternel <b>lui parla</b> de l'
 La Guemara demande : <b>Quelle est</b> la différence halakhique pratique <b>entre</b> les avis de Rabbi Yoḥanan et de Rabbi Ḥanina ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

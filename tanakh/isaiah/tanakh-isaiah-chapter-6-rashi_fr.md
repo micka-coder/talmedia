@@ -56,7 +56,7 @@
 <b>Comme le térébinthe et comme le chêne</b> qui, au moment de leur coulée, lorsqu'ils perdent leurs feuilles à l'automne, coulée après coulée, jusqu'à ce qu'il n'en reste que le tronc, eux aussi, la semence sainte trouvée en son sein, adhérant à leur sainteté, ils seront pour Moi comme le tronc ; une autre explication de מַצַּבְתָּהּ est : sa plantation. Je ne les détruirai donc pas, car je les ai plantés comme une semence sainte. Certains expliquent qu'il y avait une porte Shallecheth à Jérusalem, comme il est dit dans Esdras (I Chron. 26:16, écrit par Esdras), et qu'on y plantait des térébinthes et des chênes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Dans l'année de la mort</b> c'est-à-dire lorsqu'il a été frappé de zaraath.
 <b>Et son extrémité inférieure</b> Héb. וְשׁוּלָיו, comp. (Exode 28:34) "Sur l'ourlet (שׁוּלֵי) de la robe", c'est-à-dire son extrémité inférieure. Je l'ai vu assis sur son trône dans le ciel, les pieds dans le Temple, son marchepied dans le Sanctuaire, pour juger Ozias, qui venait usurper la couronne du sacerdoce.
@@ -114,4 +114,4 @@
 <b>Comme le térébinthe et comme le chêne</b> qui, au moment de leur coulée, lorsqu'ils perdent leurs feuilles à l'automne, coulée après coulée, jusqu'à ce qu'il n'en reste plus que le tronc, eux aussi, la semence sainte trouvée en son sein, adhérant à leur sainteté, ils seront pour Moi comme le tronc ; Une autre explication de מַצַּבְתָּהּ est : sa plantation. Je ne les détruirai donc pas, car je les ai plantés comme une semence sainte. Certains expliquent qu'il y avait une porte Shallecheth à Jérusalem, comme il est dit dans Esdras (I Chron. 26:16, écrit par Esdras), et qu'on y plantait des térébinthes et des chênes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

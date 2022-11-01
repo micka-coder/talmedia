@@ -36,4 +36,4 @@ La Gemara répond : <b>Si tu veux, dis</b> que le mishna exprime l'opinion de <b
 La Gemara demande : Comment peut-on dire que la mishna enseigne des types <b>pour</b> lesquels il y a <b>exemption</b> de responsabilité ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

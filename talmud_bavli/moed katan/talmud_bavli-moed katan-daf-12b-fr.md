@@ -69,4 +69,4 @@ La mishna déclare : <b>Et il peut tirer son lin de la piscine de trempage</b> a
 Même <b>si vous pouvez dire</b> que .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

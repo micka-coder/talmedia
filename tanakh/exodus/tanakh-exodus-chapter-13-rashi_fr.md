@@ -81,5 +81,5 @@ Et pour <i>totafos</i> entre vos yeux . [וּלְטֹטָפֹת se réfère à] 
 ### passuk 22
 <b>Il n'a pas enlevé.</b> [C'est-à-dire que] Dieu [n'a pas enlevé] la colonne de nuée le jour [ni] la colonne de feu la nuit. Cela nous indique que la colonne de nuée a fait place à la colonne de feu et que la colonne de feu a fait place à la colonne de nuée, qu'avant que l'une ne parte, l'autre arrivait. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

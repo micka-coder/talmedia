@@ -75,4 +75,4 @@ La Guemara explique que <b>Rava</b> pourrait <b>s'adresser à vous : C'est diff�
 La Gemara objecte : <b>Mais il y a</b> le cas de celui qui <b>consacre des animaux sans tache</b> <b>pour l'entretien du Temple,</b> à propos duquel le Miséricordieux déclare :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

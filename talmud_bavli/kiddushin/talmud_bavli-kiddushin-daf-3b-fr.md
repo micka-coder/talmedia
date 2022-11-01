@@ -36,4 +36,4 @@ La Guemara remet en question cette explication : <b>Mais</b> en ce qui concerne 
 <b>Au contraire,</b> la <i>halakha</i> selon laquelle l'argent des fiançailles d'une jeune femme appartient à son père découle du verset : "Elle sortira alors pour rien, sans argent" (Exode 21:11), comme indiqué précédemment. Quant à la question de savoir pourquoi l'argent ne lui appartient pas, la Gemara répond que <b>il est raisonnable que lorsque</b> le verset <b>exclut</b> une autre situation et indique qu'il n'y a pas d'argent pour ce maître mais qu'il y en a pour un autre maître,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

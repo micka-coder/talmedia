@@ -42,4 +42,4 @@ La Guemara soulève une difficulté : <b>Si c'est le cas, pourquoi spécifiqueme
 § <b>Les Sages ont enseigné : <i>Teruma</i> est</b> donnée <b>à un prêtre, et</b> la <b>première dîme n'est</b> donnée qu'à <b>un Lévite;</b> telle est <b>la déclaration de Rabbi Akiva. Rabbi Elazar ben Azarya dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

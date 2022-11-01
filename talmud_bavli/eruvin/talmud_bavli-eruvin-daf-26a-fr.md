@@ -45,4 +45,4 @@ La Guemara soulève une objection : <b>N'avons-nous pas appris</b> dans une mish
 <b>Rav Huna, fils de Rav Yehoshua, a dit</b> que <b>Rav Sheshet a dit :</b> Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

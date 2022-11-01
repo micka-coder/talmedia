@@ -48,4 +48,4 @@ La Guemara clarifie le dilemme susmentionné : <b>Devons-nous dire</b> ce qui su
 Nous avons appris dans la mishna que si l'on a préparé les <b>pains d'une offrande de remerciement ou les galettes d'un nazirite' pour lui-même, il ne peut pas les utiliser pour remplir son obligation de manger de la <i>matza</i> à Pessah. La Guemara demande : <b>D'où viennent ces questions</b> ? <b>Rabba dit : Comme le dit le verset :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

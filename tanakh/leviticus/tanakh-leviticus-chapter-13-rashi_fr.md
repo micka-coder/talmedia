@@ -190,5 +190,5 @@
 <b>L'éruption disparaît d'eux,</b> si lorsqu'ils le lavent d'abord, par ordre du <i>Cohen,</i> l'éruption disparaît entièrement de lui. 
 <b>Il sera lavé une seconde fois.</b> Expression de l'immersion [dans un <i>mikveh</i>] ; l'expression targum[ic] de "lavage" dans cette section est une expression de blanchiment. "et il sera blanchi" - sauf dans ce [cas], où il [fait] référence non pas au blanchiment mais à l'immersion. C'est pourquoi le Targum dit "et il sera trempé". De même, toutes les lessives - qui [se réfèrent réellement à] l'immersion - sont traduites [en araméen] par "et il sera trempé". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

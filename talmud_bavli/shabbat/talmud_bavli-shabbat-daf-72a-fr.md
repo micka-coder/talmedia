@@ -12,4 +12,4 @@ celui qui <b>a eu des relations avec une servante désignée cinq fois n'est ten
 <b>Il a été dit</b> que les <i>amora'im</i> étaient en désaccord en ce qui concerne la <i>halakha</i> dans le cas suivant :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

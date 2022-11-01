@@ -33,4 +33,4 @@ En conséquence, <b>dans</b> le cas du <b>viol</b> on peut <b>trouver</b> ce sc�
 <b>Mais Rav Safra explique</b> que la possibilité qu'un frère ne soit autorisé qu'à une seule femme et qu'un autre frère ne soit de même autorisé qu'à une seule femme existe <b>même</b> dans le cas d'une <b>épouse d'un frère avec lequel il ne coexistait pas, et on</b> peut <b>trouver ce</b> scénario <b>dans</b> un cas impliquant <b>six frères, et</b> ceci est <b>conforme</b> à l'opinion <b>de Rabbi Shimon.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

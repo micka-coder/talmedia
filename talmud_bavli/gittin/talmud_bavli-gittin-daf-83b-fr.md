@@ -72,4 +72,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent</b> dans le cas où il a men
 <b>Après que</b> Rava ait <b>souligné le dilemme, il l'a ensuite</b> résolu de lui-même :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara restreint la portée de la dispute. Dans un cas <b>où il y a</b> à 
 <b>Certains disent</b> que le litige est légèrement différent : <b>Même</b> dans un cas <b>où il y a</b> à la fois des prêtres <b>rituellement purs et rituellement impurs</b> dans <b>cette famille patrilinéaire, Rav Naḥman n'est pas d'accord</b> avec Rav Sheshet <b>et dit</b> que les prêtres servent <b>même</b> lorsqu'ils sont <b>impurs,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

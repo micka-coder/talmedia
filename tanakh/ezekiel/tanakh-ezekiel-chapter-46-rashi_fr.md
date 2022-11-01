@@ -84,4 +84,4 @@
 <b>Les sacrifices du peuple</b> La poitrine et la cuisse du sacrifice de paix, qui ne deviennent pas impropres en sortant de la Cour des Israélites comme le font le sacrifice pour le péché et le sacrifice de culpabilité.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

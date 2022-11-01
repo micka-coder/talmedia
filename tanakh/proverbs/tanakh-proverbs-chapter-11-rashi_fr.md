@@ -101,4 +101,4 @@
 <b>Assurément un méchant et un pécheur</b> Assurément, le méchant sera finalement requit, soit de son vivant, soit après sa mort.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

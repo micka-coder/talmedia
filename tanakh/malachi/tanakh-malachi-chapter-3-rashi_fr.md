@@ -79,4 +79,4 @@
 <b>À travers les enfants</b> lit., sur. Il dira aux enfants avec affection et apaisement : "Allez parler à vos pères pour qu'ils adoptent les voies de l'Omniprésent." On explique donc : "et le cœur des enfants par leurs pères". J'ai entendu cela au nom de Rabbi Menahem, mais nos Sages l'ont expliqué dans le traité Eduyoth (8:7), qu'il viendra pour faire la paix dans le monde.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara suggère en outre : <b>Venez</b> et <b>entendez, comme il est enseign
 § La mishna a enseigné que l'on déclare : <b>Je suis par la présente un nazirite, et</b> si <b>un autre a entendu et dit : ma bouche est comme sa bouche, et mes cheveux sont comme ses cheveux,</b> il est un nazirite. La Guemara demande : Juste <b>parce qu'il a dit : Ma bouche est comme sa bouche et mes cheveux sont comme ses cheveux,</b> est-il un naziréen ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

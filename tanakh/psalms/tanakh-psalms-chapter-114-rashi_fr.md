@@ -21,4 +21,4 @@
 <b>Dans une fontaine d'eau</b> Heb.  למעינו-. Le "vav" est superflu, comme le "vav" dans (ci-dessus 104:11, 20) "les bêtes (חיתו-) de la forêt".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

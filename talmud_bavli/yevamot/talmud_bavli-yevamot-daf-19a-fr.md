@@ -60,4 +60,4 @@ La Guemara poursuit : <b>Il est enseigné</b> dans un <i>baraita</i> <b>conforme
 Si le second frère <b>a effectué des fiançailles léviriennes avec elle et qu'ensuite son frère est né, ou si son frère est né et qu'ensuite il a effectué les fiançailles léviriennes, puis qu'il est mort, le premier sort</b> et est libre de se remarier <b>en tant qu'épouse d'un frère avec lequel il n'a pas coexisté, et la seconde,</b> l'épouse du second frère, <b>doit effectuer <i>ḥalitza</i> et ne peut pas entrer dans le mariage lévirien. </b> Ceci est dû au fait qu'en raison des fiançailles léviriennes, elle est considérée par les rabbins comme l'épouse rivale de l'épouse d'un frère avec lequel il ne coexistait pas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

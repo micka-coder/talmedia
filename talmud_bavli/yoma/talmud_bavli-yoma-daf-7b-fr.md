@@ -18,4 +18,4 @@ La Guemara procède à l'analyse de la dispute tannaïtique entre Rabbi Shimon e
 La Guemara demande : <b>Et</b> selon <b>Rabbi Yehuda aussi, n'est-il pas écrit : "Toujours'</b> De toute évidence, cela ne signifie pas que la plaque frontale doit toujours être sur son front. La Guemara répond : <b>Ce terme</b> : <b>Toujours,</b> enseigne que le Grand Prêtre doit toujours être conscient que le plastron est sur sa tête, et <b>qu'il ne doit pas en être distrait.</b> Ceci est <b>conforme</b> à la déclaration <b>de Rabba bar Rav Huna, car Rabba bar Rav Huna a dit : Une personne doit toucher</b> les <b>phylactères</b> sur <b>sa</b> tête et sur son bras <b>chaque heure,</b> pour maintenir la conscience de leur présence. Ceci est dérivé au moyen d'une <b>inférence <i>a fortiori</i></b> <b>de la plaque frontale :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

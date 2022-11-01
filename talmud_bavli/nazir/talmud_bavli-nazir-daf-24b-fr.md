@@ -33,4 +33,4 @@ La Guemara répond : Dans la liste ci-dessus, le <i>tanna</i> <b>inclut</b> uniq
 § Il a été dit plus haut, à propos de celui qui a séparé de l'argent pour sa naziréité puis est décédé, que si <b>il avait des fonds non alloués, ils sont</b> tous <b>alloués pour</b> les offrandes de <b>cadeaux</b> communaux.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

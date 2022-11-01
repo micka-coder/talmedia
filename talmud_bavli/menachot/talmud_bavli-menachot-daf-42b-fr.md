@@ -48,4 +48,4 @@ La Guemara note que la <i>halakha</i> selon laquelle l'utilisation de la teintur
 La Guemara demande : <b>Et n'y a-t-il pas</b> de méthode pour <b>tester la laine bleu ciel ? Mais Rav Yitzḥak, fils de Rav Yehuda, ne l'a-t-il pas testée</b> pour s'assurer qu'elle était teinte avec du <i>tekhelet</i> ? La Guemara fournit <b>un moyen mnémotechnique</b> pour ce test, qui était effectué <b>avec</b> des articles dont le nom contient les lettres <b><i>gimmel</i>, <i>shin</i>,</b> ou <b><i>mem</i>. </b> Il <b>apportait de l'argile d'alun [<i>megavya gila</i>], et de l'eau de fenugrec [<i>shavlilta</i>], et de l'urine [<i>meimei raglayim</i>]</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

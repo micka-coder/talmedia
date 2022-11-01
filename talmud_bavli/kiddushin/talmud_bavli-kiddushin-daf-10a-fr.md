@@ -30,4 +30,4 @@ La mishna <b>enseigne</b> qu'un homme a des droits sur les fiançailles de sa fi
 <b>Rava dit : Venez</b> et <b>entendre</b> une résolution d'un <i>baraita</i> : Une fille âgée de <b>trois ans et un jour peut être fiancée par un rapport sexuel, et si</b> son <b><i>yavam</i> s'est engagé dans un rapport sexuel avec elle, il l'a acquise. Et</b> si elle est mariée, <b>on est responsable</b> s'il engage un rapport sexuel <b>avec elle, en raison</b> de son statut de <b>femme mariée. Et</b> si elle est impure en tant que femme menstruée, <b>elle rend celui qui a des rapports avec elle rituellement impur</b> pendant sept jours.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

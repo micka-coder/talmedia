@@ -81,4 +81,4 @@ C'est <b>comme</b> celui qui est responsable du dommage <b>est</b> légalement <
 La Gemara remet en cause cette compréhension : Le trésorier du Temple <b>ne doit pas</b> être traité mieux qu'un <b>créancier ordinaire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

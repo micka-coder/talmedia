@@ -48,4 +48,4 @@ Le <i>baraita</i> ajoute : <b>Et qu'une femme doit</b> d'abord <b>peigner</b> se
 Les Sages <b>disent</b> en réponse : <b>Par la loi de la Torah</b> on est tenu <b>d'inspecter</b> ses cheveux avant l'immersion, car <b>peut-être</b> certains cheveux sont <b>noués</b> ensemble, empêchant le contact avec l'eau à cet endroit, <b>ou</b> peut-être y a-t-il une substance <b>répulsive</b> dans ses cheveux. On doit effectuer cette inspection <b>parce que</b> ceux-ci constitueraient <b>une interposition.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

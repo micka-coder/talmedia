@@ -57,4 +57,4 @@ La Gemara conteste encore : La mishna enseigne qu'il faut éloigner <b>une charr
 La Gemara demande : <b>Est-ce à dire que les graines</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

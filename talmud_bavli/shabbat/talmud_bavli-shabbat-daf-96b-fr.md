@@ -60,4 +60,4 @@ Au sujet du ramasseur de bois, la Guemara cite ce que <b>les Sages ont enseigné
 <b>Rabbi Yehuda ben Beteira lui dit : Akiva, dans un cas comme dans l'autre, tu seras jugé dans le futur</b> pour cet enseignement. <b>Si</b> la vérité est <b>conforme à ton affirmation</b> que le ramasseur de bois était Zelophehad, <b>la Torah a caché</b> son identité, <b>et tu la révèles. Et si</b> elle la vérité n'est pas conforme à votre déclaration, <b>vous</b> êtes injustement <b>pénalisés par cet homme juste.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

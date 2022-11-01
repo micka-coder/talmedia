@@ -30,4 +30,4 @@ Si les deux mentions de la phrase "son propre" sont nécessaires pour enseigner 
 La Guemara répond : Deux confessions sont nécessaires, <b>une pour</b> le Grand Prêtre <b>même, et une pour sa maison,</b> c'est-à-dire, les prêtres, <b>comme l'a enseigné l'école de Rabbi Yishmael:</b> Le Grand Prêtre doit d'abord confesser ses propres transgressions et seulement ensuite celles des prêtres, car <b>c'est</b> ainsi que fonctionne <b>l'attribut de la justice:</b> Il est <b>meilleur que l'innocent vienne expier pour le coupable, que</b> que <b>le coupable vienne expier pour le coupable. </b> Lorsque le grand prêtre confesse les transgressions de ceux de sa maison, il vaut mieux qu'il soit déjà considéré comme innocent, ayant confessé et été absous de ses propres transgressions.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

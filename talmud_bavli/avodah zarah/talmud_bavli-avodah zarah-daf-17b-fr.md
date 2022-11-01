@@ -42,4 +42,4 @@ Les Romains ont demandé à Rabbi Elazar ben Perata : <b>Et quelle est la raison
 Les Romains <b>amenèrent Rabbi Ḥanina ben Teradyon</b> pour jugement, et ils lui <b>dirent : Pourquoi t'es-tu occupé de la Torah ? </b> Rabbi Ḥanina ben Teradyon <b>leur répondit,</b> en citant un verset : <b>"Comme le Seigneur mon Dieu me l'a ordonné"</b> (Deutéronome 4:5). <b>Ils le condamnèrent immédiatement à</b> la mort par <b>brûlure, et</b> ils condamnèrent <b>sa femme à l'exécution</b> par décapitation, <b>et sa fille</b> fut condamnée <b>à s'asseoir dans une maison close [<i>kubba shel zonot</i>].</b> La Gemara explique le décret divin selon lequel il devait recevoir cette punition : <b>Il</b> a été condamné <b>à</b> la mort par <b>brûlure, comme il le ferait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

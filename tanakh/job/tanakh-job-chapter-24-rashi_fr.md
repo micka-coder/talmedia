@@ -105,4 +105,4 @@ Ce [mot] ימיו, Ses jours, désigne la façon dont Il a agi en Son temps, com
 <b>Et faites que mes paroles ne soient rien</b> [C'est-à-dire mes paroles] avec lesquelles je le critique pour connaître ses normes, qu'il est lent à la colère avec les méchants, mais qu'il châtie ceux qui l'aiment comme moi, et qu'il ne les met pas à mort, comme il se plaint plus haut (23:17) : "Parce que je n'ai pas été retranché de devant les ténèbres", mais ceux qui enlèvent les repères et commettent tous ces [crimes] n'ont pas été frappés par la souffrance.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

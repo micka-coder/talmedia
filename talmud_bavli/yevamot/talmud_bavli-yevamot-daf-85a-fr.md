@@ -48,4 +48,4 @@ La Gemara soulève une difficulté : <b>Mais n'est-il pas enseigné</b> dans une
 <b>Rabbi Shimon ben Elazar a dit : Pour quelle</b> raison a-t-on <b>dit</b> que <b>une veuve</b> mariée <b>à un Grand Prêtre a un contrat de mariage ? Parce qu'il est disqualifié</b> du sacerdoce par son mariage avec elle, comme un prêtre qui épouse une femme qui lui est interdite est exclu du service du Temple jusqu'à ce qu'il divorce et accepte de ne pas se remarier avec elle, <b>et elle est</b> rendue <i>ḥalala</i> et <b>disqualifiée</b> du sacerdoce par ses rapports avec lui, <b>et en tout lieu où il est disqualifié et où elle est disqualifiée,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

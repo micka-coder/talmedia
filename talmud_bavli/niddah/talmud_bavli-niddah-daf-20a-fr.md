@@ -78,4 +78,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une <i>baraita</i> : <b>Lo
 § La Guemara raconte : <b>Lorsque des gens <b>se présentaient devant Rabba bar Avuh</b> pour examiner le sang qui est semblable à l'eau qui inonde la terre rouge, <b>il</b> leur <b>disait : Nous avons appris</b> que l'examen doit être effectué <b>à son endroit,</b> c'est-à-dire à l'endroit où la terre a été prélevée. Mais si la terre a été transportée ailleurs, l'examen n'est plus effectif. La Guemara relate en outre que <b>Rabbi Ḥanina</b> brisait une motte de terre et examinait avec elle,</b> sans la mélanger à de l'eau. <b>Rabbi Yishmael, fils de Rabbi Yosei,</b> condamnait</b> quiconque utilisait cette méthode à être puni <b>par la diphtérie.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

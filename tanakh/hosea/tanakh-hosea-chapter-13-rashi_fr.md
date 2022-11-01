@@ -62,4 +62,4 @@
 <b>Il pillera</b> Ce roi pillera les trésors de tous les récipientx convoités.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara en déduit : <b>En conséquence,</b> un rebord situé <b>entre</b> cec
 <b>Rav Naḥman a dit :</b> Aucune preuve ne peut être tirée de cet enseignement, car <b>il s'agit ici d'un mur de dix-neuf</b> coudées <b>qui a un rebord saillant. </b> Si le rebord fait saillie <b>en dessous de dix</b> mètres du sol, <b>pour cet</b> ensemble d'habitants, ceux de la cour, il peut être utilisé <b>comme entrée, et pour cet</b> ensemble d'habitants, ceux de l'étage, il ne peut être utilisé que <b>par abaissement. </b> Si le rebord fait saillie <b>au-dessus de dix</b> mètres carrés, <b>pour cet</b> ensemble de résidents, ceux du balcon, on peut y accéder <b>comme entrée, et pour cet</b> ensemble de résidents, ceux de la cour, on ne peut l'utiliser que <b>par projection.</b> Dans ce cas, il n'y a pas de zone intermédiaire entre les dix mètres carrés disponibles pour chaque ensemble de résidents. Par conséquent, ce cas ne peut servir de preuve en ce qui concerne le différend entre Rav et Shmuel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Afin <b>d'ouvrir</b> les ampoules pour en retirer le pus, <b>que son ami lui sou
 <b>Pour une infection bronchique [<i>levarsam</i>], qu'il apporte une quantité de la taille d'une noix</b> <b>d'ammoniaque [<i>nishdor</i>]</b> d'eau <b>et une</b> quantité de la taille d'une noix <b>de galbanum doux, et une grande cuillerée de miel blanc, un récipient de Meḥoza,</b> c'est-à-dire, celui qui contient un quart de<i>log</i> de liquide, <b>plein de vin clair [<i>nekida</i>], et qu'il les fasse bouillir ensemble. Et une fois l'ammoniaque cuite, tout aura cuit. Et si</b> il n'est <b>pas</b> capable de faire cela <b>qu'il apporte un quart-</b><i>log</i> <b>de lait d'une chèvre blanche,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

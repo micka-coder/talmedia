@@ -51,4 +51,4 @@ La <i>baraita</i> affirme que la phrase apparemment superflue <b>"Et une déduct
 Si <b>Un des prêtres a racheté</b> le champ <b>et</b> lorsque le Jubilé est arrivé <b>il</b> était <b>en sa possession, il ne peut pas dire : Puisqu'il est retiré</b> de la possession de celui qui l'a racheté et donné <b>aux prêtres pendant l'année jubilaire</b>, <b>et</b> puisque <b>il est</b> déjà <b>en ma possession, il est à moi. Au contraire,</b> le champ <b>est retiré de sa possession et est partagé entre tous ses frères, les prêtres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

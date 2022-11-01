@@ -27,4 +27,4 @@ La Guemara remet en question cette explication. <b>Mais il est écrit : "Les che
 <b>Rav Dimi bar Yosef dit</b> que <b>Rav Naḥman</b> dit : Le 15 Av était le <b>jour où ceux désignés pour périr dans le désert ont cessé</b> de mourir, car toute la génération qui avait quitté l'Égypte était morte à cause du péché des espions (Nombres 14:29-30). <b>Comme le dit le Maître : Tant que ceux désignés pour périr</b> dans le <b>sauvage n'avaient pas cessé</b> de mourir,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

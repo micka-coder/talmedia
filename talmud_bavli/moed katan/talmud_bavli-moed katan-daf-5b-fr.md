@@ -60,4 +60,4 @@ La Guemara soulève une question sur cette décision : <b>Mais craignons que peu
 La Guemara répond : C'est <b>comme Ulla a dit</b> ailleurs. Il s'agit d'un cas <b>où</b> les arbres <b>se tiennent le long des</b> <b>limites du champ,</b> à côté d'un domaine public, car la tombe n'est certainement pas à l'extérieur des arbres dans le domaine public, puisqu'on n'enterre pas un cadavre dans la voie publique. Au contraire, la tombe doit se trouver entre les arbres, et a donc été labourée. <b>Ici aussi</b>, il s'agit donc d'un cas <b>où</b> les arbres <b>se tiennent le long des frontières.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

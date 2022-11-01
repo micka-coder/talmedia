@@ -48,4 +48,4 @@ La Gemara objecte : <b>Maintenant</b> l'hypothèse est qu'il n'y a <b>pas de pla
 § La mishna déclare : <b>Et</b> un placenta trouvé à l'intérieur d'un animal abattu <b>ne peut devenir impur</b> avec l'impureté rituelle des aliments et ne transmet pas l'impureté rituelle des carcasses d'animaux. Dans une discussion connexe, <b>Rabbi Yitzḥak bar Nappaḥa soulève un dilemme : une peau d'âne que l'on a cuite</b> et qui s'est ramollie, <b>quel est</b> son statut halakhique ? La Gemara demande : <b>A l'égard de quelle</b> question a-t-il soulevé ce dilemme ? <b>Si</b> c'était <b>au regard de l'impureté rituelle des aliments, nous</b> avons déjà <b>appris</b> cette <i>halakha</i> dans une <i>baraita</i>,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

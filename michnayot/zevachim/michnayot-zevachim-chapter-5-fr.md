@@ -23,5 +23,5 @@ Le shelamim est un sacrifice de moindre sainteté. Il peut être égorgé dans n
 ### michna 8
 L'animal premier-né, la dîme et la pesah sont des sacrifices de moindre sainteté. Ils peuvent être abattus dans n'importe quelle partie de la cour du Temple, et leur sang doit être aspergé une seule fois, à condition qu'il soit appliqué contre la base [de l'autel]. Ils diffèrent dans les [règles régissant] leur consommation : L'animal premier-né est mangé par les prêtres [seulement], la dîme est mangée par tout le monde et ils peuvent être mangés dans n'importe quel endroit de la ville, préparés de n'importe quelle manière, pendant deux jours et une nuit. La pesah ne peut être mangée que la nuit, seulement jusqu'à minuit, et elle ne peut être mangée que par ceux qui sont enregistrés pour elle, et elle ne peut être mangée que lorsqu'elle est rôtie.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

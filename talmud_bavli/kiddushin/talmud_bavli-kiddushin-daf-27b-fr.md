@@ -33,4 +33,4 @@ La Guemara demande : Mais dans ce cas, <b>l'eau</b> qu'on lui donne à boire <b>
 La Gemara commente : <b>Nous avons trouvé</b> une source pour l'extension d'un serment dans le cas de <b>une <i>sota</i>, qui</b> est une <i>halakha</i> impliquant <b>une interdiction. D'où déduit-on</b> qu'un serment peut être étendu en ce qui concerne les <b>questions monétaires</b> également ? <b>L'école de Rabbi Yishmael a enseigné</b> que cela peut être déduit par une <b><i>a fortiori</i></b> inférence : <b>Et tout comme</b> dans le cas de <b>une <i>sota</i>,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

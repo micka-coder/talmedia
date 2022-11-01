@@ -35,7 +35,7 @@
 <b>Qui campera sur nous</b> qui campera sur nous. Comp. (II Rois 6, 9) "Car là campent les Araméens (נְחִתִּים)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -72,4 +72,4 @@
 <b>Qui campera sur nous</b> qui campera sur nous. Comp. (II Rois 6, 9) "Car là campent les Araméens (נְחִתִּים)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

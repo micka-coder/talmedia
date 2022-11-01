@@ -55,4 +55,4 @@
 <b>et il en voue et en sacrifie un qui est souillé</b> comme dans (Lév. 22:25), "leur corruption est en eux ; un souillure est en eux."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

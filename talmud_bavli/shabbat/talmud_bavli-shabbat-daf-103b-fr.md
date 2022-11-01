@@ -51,4 +51,4 @@ La Guemara répond : Rav Ḥisda <b>déclare</b> son avis <b>conforme</b> à l'a
 La Guemara rejette cette comparaison : <b>Est-elle similaire ?</b> Si <b>on a rendu une lettre ouverte</b> <b>fermée,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

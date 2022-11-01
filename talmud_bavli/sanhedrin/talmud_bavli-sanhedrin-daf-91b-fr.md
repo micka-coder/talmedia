@@ -54,4 +54,4 @@ La Gemara conteste : <b>Si c'est le cas,</b> alors dans le verset : <b>"Salomon 
 <b>Rav Yehuda dit</b> que <b>Rav dit :</b> A l'égard de <b>toute personne qui retient la <i>halakha</i> de</b> être étudiée par <b>la bouche d'un étudiant</b> qui cherche à étudier la Torah, <b>c'est comme si elle le dépouille de l'héritage de ses ancêtres, comme il est dit : "Moïse nous a commandé la Torah, un héritage de la congrégation de Jacob"</b> (Deutéronome 33, 4), indiquant que la Torah <b>est un héritage pour tout le peuple juif depuis les six jours de la Création. Rav Ḥana bar Bizna dit</b> que <b>Rabbi Shimon Ḥasida dit :</b> En ce qui concerne <b>celui qui retient la <i>halakha</i> d'être</b> étudiée par <b>la bouche d'un étudiant</b> qui cherche à étudier la Torah, <b>même les fœtus dans le ventre de leur mère le maudissent, comme il est dit : "Celui qui retient la <i>bar</i>,</b>".
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

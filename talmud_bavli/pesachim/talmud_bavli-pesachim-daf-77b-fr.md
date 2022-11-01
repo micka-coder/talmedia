@@ -63,4 +63,4 @@ La Guemara demande : Mais si c'est le cas, <b>selon qui</b> la mishna <b>enseign
 La Guemara rejette cette réponse pour deux raisons. <b>Une</b> raison de la rejeter est que le terme <b>disqualifié</b> indique que l'offrande est invalide même <b>après coup</b> et pas seulement <i>ab initio</i>. <b>Et en outre,</b> la déclaration de la mishna selon laquelle <b>cinq objets peuvent être apportés dans</b> un état d'impureté rituelle <b>indique</b> qu'ils peuvent être apportés même <b><i>ab initio</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

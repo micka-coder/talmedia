@@ -58,4 +58,4 @@
 <b>Il tomba dépouillé.</b> Le Targum Yonathan rend <span>וּנְפַל בִּרְשַׁן</span> 'et il tomba nu'. Et au nom de R. Menachem, qui a entendu d'un arabe, <span>בִּרְשָׁן</span> en arabe [signifie] fou.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

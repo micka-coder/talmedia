@@ -133,4 +133,4 @@
 <b>Des cornes [des coins] de l'autel.</b> Qui était à Givon.</sup>36</sup><i class="footnote">Alternativement, il s'est accroché aux coins de l'autel qui était à Yerushalayim.-Radak. A cette époque, il était permis de construire un autel et d'apporter certains sacrifices en dehors du Mishkan. </i> Il dit : "Ceux qui sont exécutés par le Beis Din sont enterrés dans les tombes du Beis Din. Je mourrai ici, et je serai enterré dans les tombes de mes ancêtres." C'est ainsi que Rabbi Tanchuma a expliqué.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

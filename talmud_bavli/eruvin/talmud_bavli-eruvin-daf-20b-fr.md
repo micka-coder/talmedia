@@ -66,4 +66,4 @@ La Guemara répond : <b>Etaient</b> ces deux <i>baraitot</i> <b>enseignées l'un
 <b>Rabbi Yitzḥak bar Adda a dit :</b> Les <b>tableaux verticaux entourant les puits n'étaient autorisés qu'aux pèlerins de la Fête.</b> La Guemara soulève une difficulté : <b>N'a-t-on pas enseigné</b> dans une <i>baraita</i> que les <b>planches entourant les puits n'étaient autorisées que pour le bétail ?</b> La Gemara répond : <b>Qu'est-ce que</b> le <b>bétail</b> mentionné ici ? Il s'agit du <b>bétail des pèlerins de la fête</b>. Cependant, une personne</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

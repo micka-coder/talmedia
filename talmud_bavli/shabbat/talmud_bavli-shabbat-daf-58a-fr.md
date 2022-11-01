@@ -57,4 +57,4 @@ Dans la <i>baraita</i> citée précédemment, il a été enseigné que <b>le Ma�
 La Guemara demande : <b>Et la clochette d'un animal ne devient-elle pas rituellement impure ?</b> La Guemara procède à <b>soulever une contradiction</b> de ce qui a été enseigné dans une autre <i>baraita</i> : <b>La cloche d'un animal</b> peut devenir <b>rituellement impure,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

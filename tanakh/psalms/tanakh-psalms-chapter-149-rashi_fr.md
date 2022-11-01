@@ -21,4 +21,4 @@
 <b>Un jugement écrit</b> (Ezek. 2:14) "Et je mettrai ma vengeance, etc." Si vous demandez [défi] qu'Ezekiel n'était pas encore né quand David a dit cela, [je répondrai que] David a prophétisé sur la fin de la rédemption, et quand la fin viendra, le jugement aura été écrit depuis longtemps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

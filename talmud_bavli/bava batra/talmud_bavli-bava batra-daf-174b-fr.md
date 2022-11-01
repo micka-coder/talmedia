@@ -60,4 +60,4 @@ La Guemara développe la question en discussion. C'est <b>comme il a été dit :
 <b>Rav Naḥman s'oppose à cette</b> décision : <b>Et une personne est-elle de connivence avec ses enfants ?</b> Bien sûr que non. Pourtant, <b>comme le disent Rav et Shmuel</b>, dans le cas d'une <b>personne sur son lit de mort qui dit : Untel a cent dinars en ma possession,</b> seulement si <b>il dit</b> explicitement : <b>Donnez</b> lui l'argent, les enfants <b>le donnent</b>, mais si <b>il n'a pas dit</b> explicitement : <b>Donnez</b> lui l'argent, les enfants ne le <b>donnent</b> pas. La personne sur son lit de mort n'est pas supposée dire la vérité sur le fait qu'elle doit l'argent, sauf si elle donne explicitement l'ordre de donner l'argent. <b>Apparemment,</b> on suppose donc qu'une <b>personne est encline</b> à faire de fausses déclarations afin de <b>ne pas faire paraître ses fils</b> <b>satisfaits,</b> c'est-à-dire riches. Une personne sur son lit de mort peut prétendre faussement qu'elle est endettée afin de dissiper l'idée que ses enfants sont de riches héritiers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

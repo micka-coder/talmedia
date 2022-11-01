@@ -54,4 +54,4 @@ La Gemara soulève une difficulté : <b>Mais peut-être que c'est différent ici
 La Guemara soulève une autre difficulté : <b>Est-ce le cas ? Mais Rava n'a-t-il pas dit : Jérusalem n'a pas été détruite avant que des hommes dignes de confiance aient cessé d'y exister, comme il est dit : "Courrez dans les rues de Jérusalem, voyez maintenant et sachez, et cherchez dans ses larges places, si vous pouvez trouver un homme, s'il y en a un qui agit avec justice, qui cherche la vérité, et je lui pardonnerai"</b> (Jérémie 5:1), ce qui implique qu'il n'y avait pas de personnes dignes de confiance à cette époque ? La Guemara répond : Ce n'est <b>pas difficile :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

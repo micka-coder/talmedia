@@ -57,4 +57,4 @@ mishna Les membres de la <b>génération du déluge n'ont aucune part dans le Mo
 <b>Rabbi Neḥemya dit :</b> Tant <b>ceux-là,</b> les gens de Sodome, <b>que ceux-là,</b> les membres de la génération du déluge, <b>ne se tiendront pas en jugement, comme il est dit : "C'est pourquoi les méchants ne tiendront pas</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

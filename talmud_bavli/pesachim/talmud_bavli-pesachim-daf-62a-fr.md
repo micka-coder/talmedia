@@ -42,4 +42,4 @@ Cependant, lorsqu'il s'agit de <b>l'agneau pascal,</b> si <b>les graisses sont d
 La Guemara demande : <b>Comment avez-vous établi</b> cette <i>baraita</i> ? Elle a été établie comme se référant à un cas d'<b>impureté de</b> la <b>viande.</b> Si c'est le cas, <b>dit la clause suivante</b> de cette même <i>baraita</i> comme suit : <b>On déduit une affaire,</b> c'est-à-dire la <i>halakha</i> à l'égard des incirconcis, <b>pour laquelle aucune allocation</b> n'est faite <b>de sa règle, d'une affaire,</b> c'est-à-dire l'intention impropre à l'égard du temps, <b>pour laquelle aucune allocation</b> n'est faite <b>de sa règle. Et</b> la <i>halakha</i> par rapport à l'<b>impureté rituelle ne doit pas</b> être utilisée pour <b>prouver</b> quoi que ce soit, <b>car il existe</b> des circonstances dans lesquelles <b>une tolérance</b> est faite <b>par rapport à sa règle,</b> puisqu'il est permis d'offrir l'agneau pascal en étant rituellement impur. La Guemara clarifie : <b>Quel</b> type d'impureté est discuté ici ? <b>Si vous dites</b> que c'est...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

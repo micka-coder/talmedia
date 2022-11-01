@@ -45,4 +45,4 @@ La Guemara explique la contestation de la décision du Rav Ḥisda' : <b>Mais ic
 La Guemara demande : <b>Mais selon Rabbi Ḥaga,</b> qui <b>dit</b> que <b>Rabbi Yoshiya a dit</b> qu'une personne riche qui apporte l'offrande qu'un pauvre est tenu d'apporter <b>accomplira</b> son obligation,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

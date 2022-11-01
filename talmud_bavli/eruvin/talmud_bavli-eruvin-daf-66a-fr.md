@@ -27,4 +27,4 @@ Dans un lieu <b>où ils se rendent</b> mutuellement <b>interdit</b> de porter <b
 La Guemara analyse plus en détail le cas : <b>Maintenant, si</b> elle fait référence à une situation <b>où le Gentil <b>arrivait la veille,</b> c'est-à-dire avant Shabbat, <b>il louait</b> la propriété du Gentil <b>la veille.</b> Avant Shabbat, les deux options étaient disponibles : Ils auraient pu soit établir un <i>eirouv</i>, soit un Juif aurait pu renoncer à ses droits en faveur de l'autre. Par conséquent, cela n'aurait pas été considéré comme une situation dans laquelle ils se rendent mutuellement interdits de port mais ne peuvent pas établir un <i>eirouv</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

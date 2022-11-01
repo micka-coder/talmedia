@@ -57,4 +57,4 @@ La Guemara soulève une autre difficulté : <b>Mais n'avez-vous pas dit</b> que 
 <b>Et</b> de même, <b>le peuple juif n'était pas apte à</b> agir comme il l'a fait dans <b>cet incident</b> du veau d'or, <b>comme il est écrit</b> à propos du peuple juif de cette époque : <b>"Qui donnerait qu'ils aient toujours un cœur tel que celui-ci, pour me craindre</b> et garder tous mes commandements, afin qu'il soit bon pour eux, et avec leurs enfants <b>à jamais"</b> (Deutéronome 5:25). <b>Au contraire, pourquoi ont-ils accompli</b> ces péchés ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

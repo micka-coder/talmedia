@@ -27,4 +27,4 @@ La Guemara commente : Il <b>est enseigné</b> dans la <i>Tosefta</i> (<i>Nazir</
 § La dernière clause de la mishna enseigne que si l'on dit : <b>Je sais qu'il est interdit à un naziréen de</b> boire du <b>vin</b> mais je pensais que les Sages me permettraient de boire, les rabbins disent que le vœu est nul, mais Rabbi Shimon n'est pas d'accord. La Guemara demande : <b>Mais n'avez-vous pas dit dans la clause précédente</b> de la mishna qu'en ce qui concerne celui qui dit : Mais je ne savais pas qu'un nazirite est interdit de vin, la première <i>tanna</i> soutient qu'il est <b>interdit et Rabbi Shimon le permet</b> ? Quelle est la différence entre ces deux cas ? La Guemara répond : Emendez le texte et <b>dire</b> dans la clause finale <b>aussi bien : Il est interdit, et Rabbi Shimon le permet</b>. <b>Et si vous le souhaitez, dites</b> à la place : <b>En fait, ne pas inverser</b> les avis, et laisser le texte tel qu'il est. Au contraire, distinguez les deux cas, comme <b>là</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

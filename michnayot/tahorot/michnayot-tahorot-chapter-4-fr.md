@@ -38,5 +38,5 @@ Rabbi Yose dit : une condition de doute dans le cas de liquides est considérée
 ### michna 13
 "Et une condition de doute concernant les sacrifices" si une femme a connu cinq cas de doute de fausse couche ou cinq décharges de zivah douteuse, elle n'apporte qu'un seul sacrifice et peut ensuite manger d'autres sacrifices, n'étant pas obligée d'apporter le reste.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

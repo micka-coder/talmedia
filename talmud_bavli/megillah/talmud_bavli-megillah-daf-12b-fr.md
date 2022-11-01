@@ -60,4 +60,4 @@ La Guemara souligne une contradiction : Mardochée <b>est désigné comme un " J
 <b>Rava a dit : La Congrégation d'Israël</b> à l'époque <b>a dit</b> ceci <b>d'un point de vue opposé,</b> non pas comme une vantardise, mais comme une plainte, en remarquant : <b>Voyez ce qu'un Judéen m'a fait et comment un Benjamite m'a remboursé. Ce qu'un Judéen m'a fait</b> fait référence à .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

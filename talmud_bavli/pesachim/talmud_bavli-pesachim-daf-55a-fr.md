@@ -48,4 +48,4 @@ La Guemara rejette cette réponse : <b>Non ; en fait</b> cela signifie que même
 <b>Venez</b> et <b>entendez</b> la résolution du dilemme d'une autre source d'une autre source. <b>Rabbi Meir dit :</b> En ce qui concerne <b>tout travail qui a pour but la Fête,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

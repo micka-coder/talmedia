@@ -42,4 +42,4 @@ En outre, s'il lui dit : <b>À condition que le soleil sorte de sa gaine,</b> al
 La Guemara explique : <b>Rav Pappa dit</b> qu'il s'agit <b>d'une <i>shoshiva</i>, et</b> en conséquence Yosei ben Yo'ezer et les autres rabbins <b>sont en désaccord par rapport à une sauterelle à longue tête</b> : Un <b>Sage,</b> les rabbins, <b>soutient</b> que <b>une sauterelle à longue tête</b> est <b>interdite, et</b> un <b>Sage,</b> Yosei ben Yo'ezer, <b>soutient</b> que <b>une sauterelle à longue tête</b> est <b>permise. Rav Ḥiyya bar Ami dit au nom de Ulla</b> que
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

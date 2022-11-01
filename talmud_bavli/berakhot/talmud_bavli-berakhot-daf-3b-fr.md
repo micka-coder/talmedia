@@ -96,4 +96,4 @@ Les Sages <b>demandent immediatement conseil a Ahitophel</b> pour determiner s'i
 Les individus nommes dans ce verset correspondent aux roles dans la <i>aggada</i> comme suit : <b>Ahitophel est le conseiller</b> dont ils ont demande l'avis en premier lieu en ce qui concerne l'entree en guerre, <b>ainsi est-il dit : <b>Or, le conseil d'Ahitophel, qu'il donnait en ces jours-la, etait comme un homme qui s'enquiert de la parole de Dieu ;</b> ainsi fut le conseil d'Ahitophel tant avec David qu'avec Absalom (II Samuel 16:23).
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

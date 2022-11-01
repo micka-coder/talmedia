@@ -39,4 +39,4 @@ A cause de la colonne de feu, ils ne purent s'approcher de Rabbi Ḥanina bar Pa
 <b>Rabbi Ḥanina a dit : Pour quelle raison n'y a-t-il pas de personnes affligées de <i>ra'atan</i> en Babylonie ? Parce que</b> les Babyloniens <b>mangent des betteraves [<i>teradin</i>] et boivent de la bière fabriquée à partir de la plante <i>hizmei</i></b>. <b>Rabbi Yoḥanan a dit : Pour quelle raison n'y a-t-il pas de lépreux en Babylonie ? Parce qu'ils mangent des betteraves, boivent de la bière et se baignent dans les eaux de l'Euphrate,</b> toutes choses qui sont bonnes pour le corps.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

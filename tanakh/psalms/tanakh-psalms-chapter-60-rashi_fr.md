@@ -57,4 +57,4 @@
 <b>foulera</b> [comme traduit.]
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

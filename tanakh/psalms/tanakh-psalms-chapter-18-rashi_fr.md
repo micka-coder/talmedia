@@ -157,4 +157,4 @@
 <b>A la place de moi</b> Héb.  תחתי, à ma place et à ma place, comme il est dit (dans Esaïe 43:4) : "et je donne des hommes à ta place (תחתיך), (verset 3), "J'ai donné l'Égypte comme rançon. [Cush et Seba à ta place (תחתיך)]."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara relate : <b>Abaye, Rava, Rabbi Zeira et Rabba bar Mattana étaient as
 <b>Un dilemme a été soulevé devant</b> les Sages : Entre <b>Rabbi Zeira et Rabba bar Rav Mattana, lequel des deux est préférable ? Rabbi Zeira est incisif et soulève</b> des <b>difficultés pertinentes, et Rabba bar Rav Mattana est modéré</b> et moins incisif, <b>mais</b> en définitive <b>il tire</b> les <b>conclusions appropriées. Quelle</b> est la conclusion ? Laquelle est préférable ? La Guemara conclut : Le dilemme ne sera pas résolu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

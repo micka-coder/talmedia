@@ -30,4 +30,4 @@ La Guemara conteste : <b>Et selon celui qui dit</b> que <b>même en ce qui conce
 La Guemara répond qu' <b>il l'interprète</b> comme faisant référence <b>à</b> la <b>descendance des animaux sacrifiés</b>, <b>car il soutient</b> que la <b>descendance des animaux sacrifiés</b> devient <b>sanctifiée lorsqu'elle</b> commence à <b>exister,</b> c'est-à-dire lorsqu'elle naît. Comme l'interdiction de la graisse interdite prend également effet à ce moment-là, <b>les deux,</b> c'est-à-dire les interdictions de la graisse interdite et de l'abus des biens consacrés, <b>entrent</b> en vigueur <b>simultanément.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

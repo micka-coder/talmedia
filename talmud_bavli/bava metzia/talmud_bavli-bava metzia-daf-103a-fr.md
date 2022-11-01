@@ -42,7 +42,7 @@ La Guemara demande : <b>Si c'est le cas, à quoi sert-il</b> d'énoncer</b> cett
 <b>Au contraire, lorsque Ravin est venu,</b> il a dit que <b>Reish Lakish a dit :</b> Le cas est <b>où il a dit : Je te loue une maison comme celle-ci.</b> La Gemara persiste : <b>Mais quand même, quel</b> est le but <b>d'énoncer</b> cette décision ; elle est évidente. La Guemara répond : <b>Non,</b> la décision est <b>nécessaire lorsque</b> la maison dont parlait le propriétaire <b>se trouvait sur la rive d'une rivière. De peur que vous ne disiez</b> que <b>ce que</b> le propriétaire voulait dire en disant : Une maison <b>comme celle-ci,</b> était qu'il fournirait au locataire une maison <b>qui se tient sur la rive d'un fleuve,</b> par conséquent, la mishna <b>nous enseigne</b> que s'il utilise une telle expression, elle est prise pour se référer aux dimensions et à la structure de la maison.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Si <b>un ouvrier engagé</b> réclame son salaire <b>au moment opportun,</b> le jour où son salaire est dû, et que l'employeur prétend l'avoir déjà payé, l'ouvrier <b>prête serment</b> qu'il n'a pas reçu son salaire <b>et prend</b> son salaire. De même, dans le cas du loyer, si le propriétaire exige le paiement, et que le locataire prétend avoir payé, le propriétaire devrait pouvoir prêter serment puis prendre le paiement.
 
@@ -86,4 +86,4 @@ La Guemara demande : <b>Si c'est le cas, à quoi sert-il</b> d'énoncer</b> cett
 <b>Au contraire, lorsque Ravin est venu,</b> il a dit que <b>Reish Lakish a dit :</b> Le cas est <b>où il a dit : Je te loue une maison comme celle-ci.</b> La Gemara persiste : <b>Mais quand même, quel</b> est le but <b>d'énoncer</b> cette décision ; elle est évidente. La Guemara répond : <b>Non,</b> la décision est <b>nécessaire lorsque</b> la maison dont parlait le propriétaire <b>se trouvait sur la rive d'une rivière. De peur que vous ne disiez</b> que <b>ce que</b> le propriétaire voulait dire en disant : Une maison <b>comme celle-ci,</b> était qu'il fournirait au locataire une maison <b>qui se tient sur la rive d'un fleuve,</b> par conséquent, la mishna <b>nous enseigne</b> que s'il utilise une telle expression, elle est prise pour se référer aux dimensions et à la structure de la maison.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

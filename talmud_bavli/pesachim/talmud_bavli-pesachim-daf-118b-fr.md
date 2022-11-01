@@ -60,4 +60,4 @@ Après cela, <b>le méchant royaume de Rome</b> va <b>tirer une <i>a fortiori</i
 La Gemara demande : <b>Quel est</b> le sens de la phrase : <b>"Il ne faut pas en faire un trésor" ? Rav Yosef enseigne : " On ne doit pas le garder précieusement ", ceci</b> fait référence aux objets apportés dans <b>un entrepôt ; " ni le déposer ", ceci</b> signifie <b>un trésor public,</b> où les objets de valeur étaient stockés derrière des murs gardés. <b>Quel est</b> le sens de la phrase : <b>Qui habite devant le Seigneur ?</b> Rabbi Elazar a dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

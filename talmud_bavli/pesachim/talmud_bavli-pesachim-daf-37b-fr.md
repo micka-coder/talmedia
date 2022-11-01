@@ -33,4 +33,4 @@ La Guemara rejette cette suggestion : <b>Non,</b> il est possible de dire <b>que
 <b>Rav Asi a dit :</b> En ce qui concerne la <b>pâte de second-tithe</b> produit, <b>conformément à la déclaration de Rabbi Meir,</b> on est <b>exempté de</b> séparer <b><i>ḥalla</i></b> de celui-ci. La raison en est que Rabbi Meir considère la seconde dîme comme un bien consacré, ce qui signifie que bien que son propriétaire ait le droit d'utiliser ce produit, il ne lui appartient pas en fait. En revanche, <b>conformément à la déclaration des sages,</b> qui soutiennent que le produit de la seconde dîme est la propriété de son propriétaire, on est <b>obligé</b> de s'en séparer <b><i>ḥalla</i></b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

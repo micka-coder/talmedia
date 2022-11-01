@@ -33,4 +33,4 @@ La Gemara raconte : Il y avait <b>un certain homme qui donna un esclave à son a
 La Guemara relate d'autres incidents survenus entre les deux savants. <b>Un jour où Rabbi</b> Yehuda HaNasi <b>s'esclafferait, une calamité s'abattrait sur le monde,</b> car les souffrances de Rabbi Yehuda HaNasi expieraient les péchés du peuple juif. <b>Il</b> a donc <b>dit à bar Kappara : Ne me fais pas rire, et je te donnerai en retour quarante <i>se'a</i> de blé</b>. Bar Kappara <b>lui dit :</b> Le <b>Maître verra</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

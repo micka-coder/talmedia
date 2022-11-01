@@ -24,4 +24,4 @@ La mishna enseigne : <b>Et</b> la viande <b>qui sort</b> de la maison d'adoratio
 A l'inverse, en ce qui concerne <b>un juif qui se rend à une fête d'idolâtrie,</b> s'il est <b>en</b> son <b>chemin vers</b> la fête <b>il est permis</b> d'engager des affaires avec lui, car <b>peut-être se rétractera-t-il de</b> son projet <b>et n'ira pas. A</b> son <b>retour, c'est interdit, car</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara analyse la mishna : <b>Ces objets</b> qui sont <b>convenables</b> pour
 Ceci est <b>comme il est enseigné</b> dans la mishna précitée (<i>Shekalim</i> 4:5) : En ce qui concerne <b>les restes d'encens, qu'en feraient-ils ?</b> Les trésoriers du Temple en <b>enlèveraient</b> une quantité <b>de ceux-ci</b> égale à la valeur des <b>salaires des artisans</b> qui travaillaient dans le Temple. <b>Et ils</b> auraient alors <b>désacralisé</b> cet encens en transférant son caractère sacré <b>à l'argent</b> dû aux <b>artisans. Ils</b> donneraient alors <b>l'encens</b> aux artisans comme leur salaire. Et</b> enfin, <b>ils revenaient et achetaient</b> l'encens aux artisans avec les fonds <b>de la collecte de la <b>chambre du trésor</b> du Temple.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

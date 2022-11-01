@@ -42,7 +42,7 @@ La Guemara demande : Mais <b>après tout, ceci est</b> un cas de <b><i>miggo</i>
 § La Guemara reprend la discussion de la déduction qu'elle a tirée au début concernant les témoins que la mariée était vierge. <b>Et puisque</b> la Guemara a établi précédemment que la revendication de la femme est soutenue par le fait <b>que la plupart des femmes se marient</b> en tant que <b>vierges, si les témoins ne sont pas venus, qu'en est-il ? </b> Cette majorité devrait être suffisante pour établir qu'elle s'est mariée en tant que vierge. <b>Ravina a dit :</b> C'est <b>parce qu'il y a</b> de la place <b>pour dire</b> que bien que <b>la plupart des femmes se marient</b> comme <b>vierges et qu'une minorité</b> de femmes se marient comme <b>veuves</b> ou non-vierges, il y a une présomption supplémentaire : Le mariage de <b>toute personne mariée</b> comme <b>vierge génère de la publicité,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il en est ainsi, <b>comme la bouche qui a interdit,</b> c'est-à-dire qui a prétendu que le champ avait appartenu au père de l'autre, <b>est la bouche qui a permis,</b> c'est-à-dire qui a prétendu avoir acheté le champ. Même s'il n'avait pas admis qu'il avait appartenu au père de l'autre, le champ serait resté en sa possession. Par conséquent, sa revendication est acceptée. <b>Cependant, s'il y a des témoins que le champ appartenait à son père, et</b> celui qui a le champ en sa possession <b>dit : je l'ai acheté de lui, il n'est pas jugé crédible</b> et sa revendication est rejetée.
 
@@ -86,4 +86,4 @@ La Guemara demande : Mais <b>après tout, ceci est</b> un cas de <b><i>miggo</i>
 § La Guemara reprend la discussion de la déduction qu'elle a tirée au début concernant les témoins que la mariée était vierge. <b>Et puisque</b> la Guemara a établi précédemment que la revendication de la femme est soutenue par le fait <b>que la plupart des femmes se marient</b> en tant que <b>vierges, si les témoins ne sont pas venus, qu'en est-il ? </b> Cette majorité devrait être suffisante pour établir qu'elle s'est mariée en tant que vierge. <b>Ravina a dit :</b> C'est <b>parce qu'il y a</b> de la place <b>pour dire</b> que bien que <b>la plupart des femmes se marient</b> comme <b>vierges et qu'une minorité</b> de femmes se marient comme <b>veuves</b> ou non-vierges, il y a une présomption supplémentaire : Le mariage de <b>toute personne mariée</b> comme <b>vierge génère de la publicité,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

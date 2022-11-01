@@ -21,4 +21,4 @@ La Guemara remet en question l'explication de la mishna par Rav Oshaya : <b>Diso
 <b>Il a également été déclaré : Rabbi Ḥama, fils de Rabbi Akiva, dit</b> que <b>Rabbi Yosei, fils de Rabbi Ḥanina, dit</b> que <b>Rabbi Meir dirait : Les biens consacrés</b> <b>sont désacralisés</b> lorsqu'ils sont mal utilisés <b>intentionnellement,</b> mais ils ne sont pas <b>désacralisés</b> lorsqu'ils sont mal utilisés <b>intentionnellement.</b> Ceci s'applique <b>à la fois</b> aux <b>offrandes de l'ordre le plus sacré et</b> aux <b>offrandes de moindre sainteté,</b> au moyen d'une <b>inférence <i>a fortiori</i></b> : Si les <b>offrandes de l'ordre le plus sacré</b> peuvent <b>être désacralisées,</b> n'est-ce pas <b>à plus forte raison</b> que cette <i>halakha</i> s'appliquerait aux <b>offrandes de moindre sainteté ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

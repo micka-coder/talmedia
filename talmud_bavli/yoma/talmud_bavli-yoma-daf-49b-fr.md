@@ -27,4 +27,4 @@ La Gemara demande : <b>Si</b> donc, <b>tout comme là-bas,</b> l'offrande pascal
 La Gemara demande : <b>Si</b> les phrases <b>Vous racheterez</b> servent à <b>amplifier, même tous</b> les animaux devraient <b>également</b> être aptes au rachat d'un âne premier-né, y compris un veau, une bête non domestiquée, un animal abattu, et les autres exceptions énumérées ci-dessus. La Gemara répond : <b>Si c'est le cas, à quoi sert</b> l'analogie verbale de <b>"agneau" ?</b> Il est plutôt évident que certains animaux sont inclus tandis que d'autres sont exclus. En tout cas, il est clair que la <i>halakha</i> du sang du taureau à Yom Kippour ne peut être dérivée d'ici.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

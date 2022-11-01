@@ -63,4 +63,4 @@ Si la distance de l'emplacement actuel d'un individu <b>à son <i>eiruv</i> est 
 Si, toutefois, <b>il a placé</b> son <i>eiruv</i> <b>en dehors de la</b> <b>frontière de la ville, même</b> s'il ne l'a placé que <b>une coudée</b> au-delà de la ville,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

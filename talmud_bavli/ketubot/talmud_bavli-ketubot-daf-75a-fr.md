@@ -45,4 +45,4 @@ La Gemara répond : <b>Rabbi Yosei, fils de Rabbi Ḥanina, dit :</b> Le cas dan
 <strong>MISHNA:</strong> Si <b>elle a des taches et qu'elle est encore dans la maison de son père,</b> puisqu'elle ne s'est pas encore mariée, <b>le père doit apporter la preuve que ces taches sont apparues sur elle après ses fiançailles, et</b> donc que <b>son champ a été inondé,</b> c'est-à-dire que c'est le malheur du mari, puisqu'elle a développé le problème après les fiançailles. Mais si elle s'est déjà mariée et <b>est entrée dans le domaine du mari</b> lorsque ses tares sont découvertes, <b>le mari doit apporter la preuve qu'elle avait ces tares avant de se fiancer, et</b> par conséquent <b>la transaction</b> des fiançailles <b>était une transaction erronée.</b> C'est <b>l'affirmation de Rabbi Meir. Mais les rabbins disent : Dans quel</b> cas <b>cette affirmation,</b> selon laquelle un mari peut prétendre avoir trouvé des tares chez sa femme, en raison desquelles il veut annuler les fiançailles, <b>est-elle dite ? En ce qui concerne les imperfections cachées.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ Abaye lui dit : <b>Vous m'avez rappelé une déclaration de Rabbi Yehoshua ben L
 La Guemara répond : Il pourrait <b>entrer dans votre esprit de dire</b> que <b>tant que</b> l'agneau <b>n'est pas parvenu en possession</b> du prêtre, le prêtre <b>ne l'a pas acquis.</b> Par conséquent, la mishna <b>nous enseigne qu'à partir du moment où</b> l'Israélite <b>l'a séparé, il se trouve en possession du prêtre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

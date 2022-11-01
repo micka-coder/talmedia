@@ -75,4 +75,4 @@ La Guemara soulève une difficulté : <b>Mais</b> dans le cas de <b>l'aspersion 
 En ce qui concerne l'intention requise pour accomplir la mitzva de <i>shofar</i>, <b>Rabbi Zeira dit à son serviteur :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ En réponse, <b>le Saint, Béni soit-Il, dit au</b> peuple juif : <b>Ma fille, t
 <b>Et certains disent</b> une version différente de cette discussion : <b>Disons</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

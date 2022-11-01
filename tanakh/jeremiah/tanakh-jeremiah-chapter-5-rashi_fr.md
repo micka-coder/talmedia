@@ -106,7 +106,7 @@
 <b>et une chose horrible</b> Heb. ושערורה, une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : " Pillez et pillez ", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main", dit à propos de David, c'est-à-dire "après lui". Ici aussi, " sur leurs mains " signifie " après eux ", pour faire selon les paroles des prophètes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -214,4 +214,4 @@
 <b>et une chose horrible</b> Heb. ושערורה, une chose honteuse pour tous, et quelle est la chose effroyable ? Les prophètes prophétisent faussement et disent : " Pillez et pillez ", et les prêtres, qui sont les juges du peuple et ses surveillants, gouvernent le peuple sur les mains des prophètes, c'est-à-dire après eux. Comp. (II Sam. 15) "Et le roi traversait et tout le peuple traversait sur sa main", dit à propos de David, c'est-à-dire "après lui". Ici aussi, " sur leurs mains " signifie " après eux ", pour faire selon les paroles des prophètes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

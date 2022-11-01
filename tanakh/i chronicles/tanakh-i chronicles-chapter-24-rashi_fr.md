@@ -45,4 +45,4 @@
 <b>Voici leurs nominations à leur service</b> Ceux qui sont écrits ici sont les chefs des montres. Leurs nominations étaient sur les montres.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

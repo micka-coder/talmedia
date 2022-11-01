@@ -39,4 +39,4 @@ A <b>Quel</b> cas autrement exclu ce <i>baraita</i> <b>étend-il</b> le <i>halak
 <b>Rav Ashi a dit : Ce <i>baraita</i>,</b> qui enseigne que seules certaines parties du corps doivent être rasées, <b>est</b> en accord avec <b>qui</b> l'opinion ? <b>C'est</b> conforme à l'opinion de <b>Rabbi Yishmael, qui interprète</b> les versets au moyen du principe des <b>généralisations et des détails.</b> Selon cette interprétation, seules les zones collectées de poils visibles doivent être rasées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

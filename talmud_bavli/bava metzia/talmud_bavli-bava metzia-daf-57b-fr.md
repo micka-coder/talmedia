@@ -57,4 +57,4 @@ Par conséquent, ce verset contient <b>une généralisation, et un détail, et u
 <b>Si</b> cela s'est produit après que les <b>contributions</b> de la chambre <b>aient</b> déjà <b>été collectées</b> auprès de la chambre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

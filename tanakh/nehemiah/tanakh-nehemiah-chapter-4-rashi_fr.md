@@ -66,4 +66,4 @@
 <b>Déshabiller</b> Heb.  שִּׁלְחוֹ, enlever, comme (<a class="refLink" href="/Leviticus.6.4" data-ref="Leviticus 6:4">Lev. 6 : 4</a>) : " Il ôtera alors ses vêtements ", ce qui est traduit par le Targum par  וְיִשְּׁלַח-. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

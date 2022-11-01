@@ -54,4 +54,4 @@ La Guemara rejette cette suggestion : <b>Non,</b> il est possible que <b>cette</
 <strong>MISHNA:</strong> <b>Comment font-ils passer</b> tous les récipients de la <b>cour du Temple</b> par un processus de <b>purification ? Ils immergent les vases qui se trouvaient dans le Temple. Et ils disent aux</b> prêtres du <i>am ha'aretz</i> qui servaient dans le Temple pendant la Fête : <b>Faites attention</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

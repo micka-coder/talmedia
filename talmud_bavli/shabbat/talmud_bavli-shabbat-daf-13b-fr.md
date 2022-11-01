@@ -30,4 +30,4 @@ Nous avons appris dans la mishna que lorsque les Sages sont montés à l'étage 
 La Guemara demande d'abord : <b>Qui est le <i>tanna</i></b> qui soutient que <b>celui qui mange des aliments</b> avec un statut d'impureté rituelle de <b>premier</b> degré, <b>et celui qui mange des aliments</b> avec un statut d'impureté rituelle de <b>second</b> degré, <b>disqualifient</b> le <i>teruma,</i> mais...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

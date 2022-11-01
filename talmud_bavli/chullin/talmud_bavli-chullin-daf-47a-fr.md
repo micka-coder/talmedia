@@ -15,4 +15,4 @@ La Gemara ajoute : <b>Et cette déclaration</b> ne s'applique que <b>lorsque</b>
 La Gemara relate qu'un <b>certain</b> animal avec un lobe supplémentaire <b>entre</b> les deux côtés <b>a été amené devant Rav Ashi. Rav Ashi pensait le considérer comme une <i>tereifa</i>. Rav Huna Mar bar Avya lui dit : Tous ces animaux</b> qui paissent <b>à l'extérieur</b> dans les champs <b>ont</b> des lobes supplémentaires comme <b>celui-ci, et les bouchers l'appellent le petit lobe rose.</b> La Gemara ajoute : <b>Et cette affirmation</b> ne s'applique que lorsque le lobe supplémentaire se trouve sur la face <b>intérieure</b> du poumon, face au cœur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

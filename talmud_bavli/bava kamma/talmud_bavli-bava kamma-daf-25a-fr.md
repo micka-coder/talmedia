@@ -42,4 +42,4 @@ Une fois que la Gemara a soulevé la question, elle clarifie : <b>Et qui est le 
 <b>Rabbi Yehoshua dit là</b> que le sperme d'un <i>zav</i> imprime l'impureté rituelle par le portage <b>uniquement parce qu'il est impossible</b> que le sperme émerge <b>sans petites gouttes de <i>ziva</i></b> l'accompagnant. Cela indique que <b>Si ce n'était pas pour cette</b> raison, le sperme n'aurait <b>pas</b> d'impureté rituelle par le portage, selon les avis de Rabbi Yehoshua et de Rabbi Eliezer. La Guemara explique : <b>Au contraire,</b> il doit s'agir de <b>cette <i>tanna</i> est</b> celle qui détient l'opinion selon laquelle le sperme d'un <i>zav</i> confère une impureté rituelle par le portage, <b>comme nous l'avons appris</b> dans une mishna énumérant les sources d'impureté rituelle (<i>Kelim</i> 1:3) : <b>D'un degré supérieur</b> aux impuretés rituelles énumérées précédemment dans la mishna, c'est-à-dire l'impureté d'un animal rampant, le sperme et celui qui a contracté l'impureté rituelle d'un cadavre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara répond : <b>Non,</b> la déclaration de Rav Sheshet est <b>nécessai
 La Guemara explique comment Rav Sheshet tire sa conclusion de la mishna. La raison est <b>que si c'était le cas,</b> c'est-à-dire si sa déclaration initiale est annulée même sans rétractation explicite, <b>laissons</b> la mishna <b>enseigner :</b> Le tribunal le contraint <b>jusqu'à ce qu'il donne</b> l'acte de divorce de sa propre volonté. <b>Quelle est la signification de cette clause ? Le tribunal le contraint <b>jusqu'à ce qu'il dise : </b> je veux le faire ? Cela indique que le tribunal le contraint <b>jusqu'à ce qu'il</b> explicitement <b>annule sa</b> <b>déclaration initiale.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

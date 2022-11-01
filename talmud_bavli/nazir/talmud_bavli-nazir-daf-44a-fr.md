@@ -60,4 +60,4 @@ La Gemara propose l'argument inverse : <b>Et que le rasage ne nie pas</b> la naz
 La Gemara demande : <b>Et que le vin annule trente jours,</b> en raison <b>d'une <i>a fortiori</i></b> déduction <b>de</b> l'interdiction du <b>rasage : Et si le rasage, qui est exempté de son interdiction générale,</b> néanmoins <b>néglige</b> trente jours ; alors en ce qui concerne le <b>vin, qui n'est pas exempté de son interdiction générale, n'est-il pas logique qu'il nie</b> trente jours ? La Gemara répond : <b>Comme la raison</b> pour laquelle la <i>halakha</i> selon laquelle le rasage entraîne la négation de trente jours pour un nazirite est <b>uniquement due à la croissance des cheveux,</b> afin qu'il ait suffisamment de cheveux à la fin de sa naziréité pour se raser, la <i>halakha</i> ne s'applique pas <b>en ce qui concerne le vin,</b> puisque <b>ses cheveux restent</b> en place. Le nazirite lui-même n'a pas changé, donc le fait qu'il ait bu du vin n'est pas une raison suffisante pour annuler tout temps.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

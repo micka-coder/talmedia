@@ -60,4 +60,4 @@ La Guemara conteste cet argument : <b>Mais les colombes d'un colombier et les co
 <b>Rav Yehuda dit</b> que <b>Shmuel a dit : La <i>halakha</i> n'est pas conforme</b> à l'avis de <b>Rabban Gamliel. Certains enseignent cette</b> décision halakhique <b>en ce qui concerne cette</b> <i>baraita</i>, <b>comme il est enseigné :</b> En ce qui concerne une chose à propos de laquelle <b>une incertitude</b> existe si elle a été <b>préparée</b> avant la Fête, <b>Rabban Gamliel la permet</b>, <b>et Rabbi Yehoshua l'interdit</b>. <b>Rav Yehuda dit</b> que <b>Shmuel a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehoshua. Et</b> d'autres <b>l'enseignent en référence à cette</b> <i>baraita</i>, <b>comme il est enseigné :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

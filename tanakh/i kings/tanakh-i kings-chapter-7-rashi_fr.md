@@ -216,4 +216,4 @@
 <b>Le sacré de son père David.</b> Ce qui restait de l'argent et de l'or dédiés par son père. Mais le Midrach explique que Shlomo ne souhaitait utiliser aucun de ces matériaux dédiés pour la construction du Beis [Hamikdosh]. Et j'ai entendu des érudits [de la Torah] de Israël dire que c'était parce que David savait qu'il finirait par être détruit ; afin que les [nations] adoratrices d'idoles ne puissent pas dire que leurs idoles sont plus puissantes, car elles se sont vengées sur le Beis [Hamikdosh] qui a été construit avec le pillage et la destruction que David leur a volés. Et d'autres disent que Shlomo a dit qu'il y avait eu une famine à l'époque de son père pendant trois années consécutives, et qu'il aurait dû gaspiller ces matériaux dédiés pour soutenir les pauvres de Israël.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

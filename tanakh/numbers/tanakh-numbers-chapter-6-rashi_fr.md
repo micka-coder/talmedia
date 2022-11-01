@@ -93,5 +93,5 @@
 <b>Ils accorderont mon nom.</b> Ils les béniront avec le nom explicite [de Dieu]. 
 <b>Et je les bénirai.</b> Les Israélites. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Je concourrai à [la bénédiction des] <i>kohanim.</i> Autre interprétation [de] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>"Et je les bénirai" - Les <i>kohanim.</i>
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

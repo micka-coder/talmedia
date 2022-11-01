@@ -48,4 +48,4 @@ La Guemara continue de contester le point de vue de Rabbi Yishmael : <b>Et déri
 § A propos de la dispute entre Rabbi Ami et Rabbi Asi, la Guemara poursuit avec une autre dispute qu'ils ont eue concernant l'interprétation correcte d'un verset. Il est dit : "Ne regarde pas le vin quand il est rouge, <b>quand il donne sa couleur dans la coupe, quand il glisse doucement [<i>bemeisharim</i>]"</b> (Proverbes 23:31). <b>Rabbi Ami et Rabbi Asi</b> étaient en désaccord. <b>L'un a dit : Celui qui jette</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

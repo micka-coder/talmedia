@@ -42,4 +42,4 @@ De même, <b>nous apprenons</b> la <i>halakha</i> qu'un <b>élément pur encapsu
 La Guemara répond : Les cas de la mishna concernent la possibilité de communiquer l'impureté de l'anneau au corps dans lequel il est contenu et vice versa. Mais <b>lorsque Rabba parlait</b> il faisait référence à la transmission de l'impureté d'un objet à un autre lorsque les deux sont contenus ensemble à l'intérieur d'un corps, <b>comme dans le cas où</b> une personne <b>a avalé deux anneaux, l'un impur et l'autre pur,</b> et qu'ils sont entrés en contact direct l'un avec l'autre. Rabba a enseigné que même dans ce cas, l'anneau <b>impur</b> <b>ne rend pas l'anneau pur</b> <b>impur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

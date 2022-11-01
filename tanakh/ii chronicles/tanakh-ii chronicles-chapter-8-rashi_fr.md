@@ -42,4 +42,4 @@
 <b>Jusqu'à ce jour [depuis] la fondation de la Maison du Seigneur</b> Depuis le jour de sa fondation jusqu'à son achèvement.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

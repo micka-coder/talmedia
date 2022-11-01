@@ -63,4 +63,4 @@ La Gemara demande : <b>Qu'est-ce que le <i>shemen hamor</i> ? Rav Huna bar Ḥiy
 On a raconté que <b>Rav Beivai avait une fille,</b> et <b>il a répandu</b> de la chaux <b>sur son membre</b> par <b>membre,</b> ce qui a fait tomber ses cheveux et blanchir sa peau. Elle devint si belle qu'en la mariant, <b>il prit quatre cents dinars pour elle. Il y avait dans son quartier un certain Gentil qui</b> aussi <b>avait une fille</b> et voulait faire de même. <b>Il a tartiné tout son</b> corps de chaux d'un seul coup, et elle est morte.</b> Ce gentil <b>a dit : Beivai a tué ma fille. Rav Naḥman a dit : Rav Beivai, qui</b> régulièrement <b>buve de la bière, ses filles exigent</b> qu'on les <b>enduise</b> de chaux, car la bière fait pousser les cheveux, <b>mais nous qui ne buvons pas de bière, nos filles n'exigent pas</b> qu'on les <b>enduise</b> de chaux, car elles ont peu de cheveux même sans ce traitement.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

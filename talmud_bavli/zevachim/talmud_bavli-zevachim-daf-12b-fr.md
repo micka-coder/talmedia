@@ -66,4 +66,4 @@ La Gemara rejette également cette idée : <b>Qu'est-ce qui est remarquable</b> 
 La Gemara répond : <b>Ben Azzai</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

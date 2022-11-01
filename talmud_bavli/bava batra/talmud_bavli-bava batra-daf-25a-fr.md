@@ -45,4 +45,4 @@ La Guemara cite une déclaration liée aux quatre vents. <b>Rav Yehuda a dit : Q
 <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit :</b> Le <b>monde</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -44,7 +44,7 @@
 <b>ruban...et...ortie</b> Ce sont des espèces d'épines ; c'est-à-dire pour dire que les méchants seront détruits et que les justes prendront leur règne.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Ho ! Tous ceux qui ont soif</b> Heb. הוֹי. Ce mot הוֹי est une expression d'appel, d'invitation, de rassemblement, et il y en a beaucoup dans l'Écriture, [par exemple,] (Zach. 2:10) "Ho ! Ho ! et fuyez du pays du nord."
 <b>Aller à l'eau</b> à la Torah.
@@ -90,4 +90,4 @@
 <b>ruban...et...ortie</b> Ce sont des espèces d'épines ; c'est-à-dire pour dire que les méchants seront détruits et que les justes prendront leur règne.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

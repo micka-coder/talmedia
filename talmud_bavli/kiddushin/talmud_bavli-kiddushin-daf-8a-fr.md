@@ -69,4 +69,4 @@ La Gemara demande en outre : <b>Quelles sont les circonstances de ce dinar vici�
 § <b>Rava dit</b> que <b>Rav Naḥman dit :</b> Si <b>on dit à</b> une femme : <b>Fiez-vous à moi avec cent dinars, et</b> au lieu de les lui donner <b>il lui a donné en garantie</b> l'argent, <b>elle n'est pas fiancée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

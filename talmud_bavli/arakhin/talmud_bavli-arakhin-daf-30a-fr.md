@@ -60,4 +60,4 @@ La <i>baraita</i> poursuit : <b>Et j'ai</b> dérivé <b>seulement</b> en ce qui 
 La Gemara rapporte que <b>Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara conteste cette affirmation : <b>Mais n'est-il pas écrit : "Et son mar
 <b>Rabbi Yoḥanan dit : La puissance de Joseph</b> est l'<b>humilité de Boaz,</b> car Joseph est loué pour avoir fait preuve de force à l'égard d'un accomplissement qui était insignifiant pour Boaz (voir Genèse, chapitre 39). De même, <b>la puissance de Boaz</b> est la <b>humilité de Palti, fils de Laïsh,</b> car la capacité de retenue de Palti était plus grande encore. <b>La puissance de Joseph</b> est la <b>humilité de Boaz, comme il est écrit</b> à propos de Boaz : <b>"Et il arriva à minuit que l'homme fut surpris et se retourna,</b> et voici qu'une femme était couchée à ses pieds" (Ruth 3:8). <b>Quel</b> est le sens de <b>"et se retourna [<i>vayyilafet</i>]" ? Rav dit :</b> Le sens est <b>que sa chair est devenue comme des têtes de navets [<i>lefatot</i>],</b> son organe sexuel durcissant par excitation, mais bien que Ruth ne soit pas mariée, il s'est abstenu d'avoir des rapports avec elle ; alors que Joseph a dû fournir plus d'efforts, malgré le fait que la femme de Potiphar était mariée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

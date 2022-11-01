@@ -84,7 +84,7 @@ La Gemara explique : <b>Non,</b> la décision est <b>nécessaire</b> dans un cas
 <b>Rabbi Shimon ben Pazi dit : Et</b> la valeur du <b>quartier</b> -<i>log</i> <b>qu'ils ont mentionné</b> dans la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara conteste l'interprétation de Shmuel : Si le litige porte sur la taille du <b>vêtement</b> vendu, le vendeur ne doit pas être tenu de prêter serment, car <b>ce que</b> l'acheteur lui <b>réclame,</b> le vendeur <b>n'a pas du tout admis</b>, <b>et ce que</b> le vendeur <b>admet, </b> l'acheteur <b>ne lui avait pas réclamé.</b> La Gemara répond : Shmuel faisait référence à un cas <b>comme celui</b> que <b>Rav Pappa a dit</b> ci-dessous : Le litige porte <b>sur un vêtement qui a été formé de plusieurs pièces de tissu qui ont été <b>attachées</b> ensemble. <b>Ici aussi,</b> le litige est <b>en ce qui concerne</b> un vêtement qui a été formé de plusieurs pièces de tissu qui ont été <b>attachées</b> ensemble, et le désaccord portait sur la quantité de ce vêtement qui a été effectivement vendue.
 
@@ -170,4 +170,4 @@ La Gemara explique : <b>Non,</b> la décision est <b>nécessaire</b> dans un cas
 <b>Rabbi Shimon ben Pazi dit : Et</b> la valeur du <b>quartier</b> -<i>log</i> <b>qu'ils ont mentionné</b> dans la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

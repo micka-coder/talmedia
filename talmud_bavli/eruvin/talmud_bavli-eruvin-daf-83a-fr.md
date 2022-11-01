@@ -57,4 +57,4 @@ La Gemara s'interroge : <b>Un tiers de quelle</b> mesure ? <b>Si tu dis</b> que 
 <b>Nos Sages ont enseigné</b> une <i>baraita</i> : Le verset dit : "Tu mettras à part un gâteau de <b>la première de tes pâtes</b> comme cadeau ; comme le cadeau de l'aire de battage, tu le mettras à part" (Nombres 15:20).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

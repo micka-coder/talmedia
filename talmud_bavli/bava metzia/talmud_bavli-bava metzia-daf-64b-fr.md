@@ -24,4 +24,4 @@ La Gemara relate : <b>Rav Yosef bar Ḥama,</b> le père de Rava, <b>s'emparait 
 Rava <b>lui a dit : Je dirai que Rav Naḥman a dit</b> ceci à propos d'esclaves spécifiques, <b>comme son esclave Dari, qui</b> ne fait que <b>danser parmi</b> les <b>fûts de vin [<i>khuvei</i>]</b> et n'effectue aucun travail. <b>A-t-il dit</b> cela concernant les <b>autres esclaves ?</b> Tous les autres esclaves effectuent un travail, et leur travail vaut plus que leur pension. Son père lui <b>dit : Je maintiens</b> que la <i>halakha</i> est <b>conforme à cette</b> déclaration dite par <b>Rav Daniel bar Rav Ketina</b> que <b>Rav dit, comme il dit : Celui qui s'empare de l'esclave d'autrui et lui fait effectuer un travail est exempté</b> de payer le maître pour le travail de l'esclave,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

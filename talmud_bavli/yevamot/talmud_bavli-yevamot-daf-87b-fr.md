@@ -21,4 +21,4 @@ La Guemara suggère en outre : <b>Et faisons</b> son <b>enfant du premier</b> ma
 La Gemara offre une autre possibilité : <b>Et devons-nous faire en sorte qu'un enfant du premier</b> mari <b>ne soit pas comme un enfant du second</b> un <b>en ce qui concerne le <i>teruma</i>, à partir d'une déduction <i>a fortiori</i></b> : <b>Si dans un lieu où</b> la Torah <b>fait la vivante comme la morte pour l'exempter du mariage lévirat,</b> elle n'a toujours pas <b>fait un enfant du premier</b> mari <b>comme un enfant du second, </b> alors dans <b>un endroit où</b> la Torah <b>n'a pas rendu les vivants comme les morts, en ce qui concerne le <i>teruma</i>, n'est-il pas juste que nous ne devions pas rendre</b> l'<b>enfant du premier</b> mari <b>comme</b> l'<b>enfant du second ? </b> La Gemara répond : Par conséquent, <b>le verset dit :</b> "Et <b>elle n'a pas</b> d'enfant", <b>mais</b> en fait cette femme <b>a</b> des enfants.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

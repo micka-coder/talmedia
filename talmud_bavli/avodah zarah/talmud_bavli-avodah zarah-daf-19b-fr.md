@@ -48,4 +48,4 @@ Le psaume continue : <b>"Eloigne-toi du mal et fais le bien;</b> recherche la pa
 <strong>GEMARA:</strong> La Gemara demande : <b>D'où provient cette question,</b> selon laquelle il est interdit de vendre à un Gentil tout ce qui est attaché au sol ? <b>Rabbi Yosei bar Ḥanina dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

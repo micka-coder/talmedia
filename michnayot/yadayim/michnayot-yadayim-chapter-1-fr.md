@@ -14,5 +14,5 @@ S'il a nettoyé des récipients avec l'eau ou a frotté des mesures avec elle, [
 ### michna 5
 L'eau dans laquelle le boulanger trempe ses pains n'est pas valide ; mais s'il a mouillé ses mains dans l'eau, elle est valide. Tous sont aptes à verser de l'eau sur les mains, même un sourd-muet, un imbécile ou un mineur. Une personne peut placer la cruche entre ses genoux et verser l'eau, ou bien elle peut tourner la cruche sur le côté et verser l'eau. Un singe peut verser l'eau sur ses mains. Rabbi Yose déclare ces deux derniers cas invalides.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

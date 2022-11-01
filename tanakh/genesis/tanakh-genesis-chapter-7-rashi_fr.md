@@ -72,5 +72,5 @@
 <b>[Il] a effacé.</b> C'est sous la forme וַיִּפְעַל et non sous la forme וַיִּפָּעֶל. Cela provient des formes [des verbes :] וַיִּפֶן, וַיִּבֶן Chaque mot dont la dernière lettre racine est ה "א tel que : בנה, מחה, קנה lorsqu'un וי "ו et יו "ד sont placés au début est vocalisé avec un <i>Hirik</i> sous le יו "ד . 
 <b>Uniquement Noach.</b> "Seulement Noach." C'est l'explication simple. [Cependant,] le Midrash Aggadah explique. il toussait et crachait du sang à cause du labeur et du fardeau des animaux D'autres expliquent : qu'[une fois] il a tardé à apporter de la nourriture au lion et celui-ci l'a mordu. A propos d'un tel [Noach], il est dit : "Le juste est puni dans ce monde". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

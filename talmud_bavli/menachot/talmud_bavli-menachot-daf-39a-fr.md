@@ -36,4 +36,4 @@ Il a été <b>enseigné : Quand on commence</b> à former les enroulements, on <
 § La Guemara relate : <b>Rav et Rabba bar bar Ḥana étaient assis</b> ensemble. <b>Un certain homme passait, vêtu d'un manteau qui</b> était fait <b>entièrement de laine bleu ciel</b>, sur lequel il avait apposé</b> des cordes blanches et <b>bleues ciel</b>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

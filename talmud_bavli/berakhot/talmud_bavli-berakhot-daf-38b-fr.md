@@ -45,4 +45,4 @@ La Guemara repond : <b>C'est different ici, car</b> meme si on affirme que les l
 La Guemara a relate ci-dessus que Rabbi Yohanan a recite une benediction sur une olive salee. Concernant cette histoire, <b>Rabbi Yirmeya dit a Rabbi Zeira : Comment Rabbi Yohanan a-t-il recite une benediction sur une olive salee</b> apres l'avoir mangee ? <b>Puisque le noyau a ete retire,</b> c'est-a-dire qu'il ne l'a pas mangee,
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

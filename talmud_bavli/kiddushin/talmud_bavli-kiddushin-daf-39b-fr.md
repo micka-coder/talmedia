@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais Rabbi Elazar n'a-t-il pas dit</b> que <b>ceux qui so
 C'est <b>comme</b> un incident impliquant <b>Rabbi Ḥanina bar Pappi, qui fut incité par une certaine noble [<i>matronita</i>]</b> à avoir des rapports sexuels avec elle. <b>Il prononça une formule</b> d'incantation <b>et fut couvert de furoncles et de croûtes</b> afin de se rendre peu attirant pour elle. <b>Elle accomplit un acte</b> de magie <b>et il fut guéri. Il s'enfuit et se cacha dans un établissement de bains</b> qui était si dangereux, en raison des démons qui le fréquentaient, <b>que lorsque deux personnes y entraient</b> ensemble <b>même pendant la journée, elles étaient blessées. Le lendemain, les Sages lui dirent : Qui t'a protégé</b> dans ce lieu dangereux ? Rabbi Ḥanina bar Pappi <b>leur répondit :</b> Il y avait des anges qui apparaissaient comme <b>deux</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

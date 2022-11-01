@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais pourquoi exigent-ils</b> <b>que leur père leur dis
 § Nous avons appris dans la mishna que parmi les tâches que l'on peut accomplir pour quelqu'un à qui un vœu interdit de bénéficier de lui, il y a : <b>Et il sépare son <i>teruma</i>.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

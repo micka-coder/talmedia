@@ -12,4 +12,4 @@
 <b>Rami bar Ḥama soulève un dilemme :</b> Si l'on <b>dit : Ce produit est <i>konam</i> pour untel et untel, quelle est</b> la <i>halakha</i> <b>en ce qui concerne leurs remplacements ? Dit-on : En ce qui le concerne, puisqu'une personne peut rendre le produit d'un autre interdit pour elle-même,</b> bien qu'il ne soit pas actuellement en sa possession, de même, <b>une personne peut rendre interdite pour elle-même une entité qui n'est pas</b> encore <b>venue au monde ?</b> Est-ce pour cela que le produit de remplacement et tout ce qui en provient lui est interdit, même s'il n'existait pas encore lorsqu'il a prononcé le vœu ? Si oui, <b>Par rapport à autrui, puisqu'une personne ne peut rendre le produit d'autrui interdit à autrui,</b> c'est-à-dire à ce propriétaire lui-même, de même <b>on ne peut rendre interdite à autrui une entité qui n'est pas</b> encore <b>venue au monde.</b> Les produits de remplacement du produit lui seraient donc permis.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

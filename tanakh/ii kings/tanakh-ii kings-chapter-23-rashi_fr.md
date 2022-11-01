@@ -95,7 +95,7 @@
 <b>Chacun selon son évaluation.</b> Selon sa richesse.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -192,4 +192,4 @@
 <b>Chacun selon son évaluation.</b> Selon sa richesse.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

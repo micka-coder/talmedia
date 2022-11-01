@@ -29,8 +29,8 @@ Ils peuvent donner la teroumah de l'huile pour des olives marinées, ou du vin p
 ### michna 10
 Ils ne peuvent pas prendre la teroumah d'un produit dont le traitement est terminé pour un produit dont le traitement n'est pas terminé, ou d'un produit dont le traitement n'est pas terminé pour un produit dont le traitement est terminé ou d'un produit dont le traitement n'est pas terminé pour un autre produit dont le traitement n'est pas terminé. S'ils ont pris de la teroumah, leur teroumah est de la teroumah.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC
 ### michna 1
 Cinq [types de personnes] ne peuvent pas mettre de côté la Térouma [produit consacré à la consommation sacerdotale], et si elles ont mis de côté la Térouma, leur Térouma n'est pas une Térouma [valide] : le sourd-muet, le shoteh, le mineur, et celui qui met de côté la Térouma de ce qui ne lui appartient pas. Si un non-Juif met de côté la Térouma de ce qui appartient à un Juif, même avec une permission, la Térouma [du non-Juif] n'est pas une Térouma [valide].
 

@@ -78,4 +78,4 @@ En ce qui concerne <b>celui qui accomplit</b> les actes suivants, s'il accomplit
 Le Sage <b>a enseigné : De même que</b> la saignée <b>en bas</b> cause <b>deux fois</b> autant de <b>préjudices, de même,</b> la saignée <b>en haut,</b> sur la partie supérieure du corps, est <b>deux fois</b> aussi <b>efficace. Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> <b>est ce qui est enseigné</b> 
 En ce qui concerne la mention de trois pluies dans le <i>baraita</i>, la Gemara demande : <b>Grâce,</b> le moment de la <b>première pluie</b> est significatif, car c'est la date à laquelle on commence <b>à demander</b> la pluie. De même, l'heure de la <b>troisième</b> pluie est importante, afin que l'on sache quand commencer à <b>jeûner</b> si aucune pluie n'est tombée à ce moment-là. Cependant, <b>pour quelle</b> raison la <b>deuxième</b> pluie est-elle mentionnée dans la <i>baraita</i> ? <b>Rabbi Zeira dit :</b> La deuxième pluie est significative <b>pour</b> la question des <b>vœux, comme nous l'avons appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

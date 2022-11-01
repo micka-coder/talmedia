@@ -30,4 +30,4 @@ En outre, <b>quinze escaliers montent de l'intérieur</b> de la cour des femmes 
 <b>Au contraire,</b> faut-il <b>ne pas en conclure</b> que les <i>mishnayot</i> du tractat <i>Middot</i> sont enseignées par <b>Rabbi Eliezer ben Ya'akov ? Rav Adda bar Ahava a dit :</b> Ceci n'est pas une preuve définitive, et il est toujours possible d'interpréter les <i>halakhot</i> de ce tractat d'une manière différente. <b>Au contraire, à qui appartient cette</b> opinion selon laquelle le mur oriental a été abaissé ? <b>C'est</b> l'opinion de <b>Rabbi Yehuda, comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit : L'autel est centré et se tient au milieu de</b> la <b>cour du Temple,</b> directement aligné avec les entrées des cours et du Sanctuaire, et <b>il avait trente-deux coudées</b> de long et trente-deux coudées de large.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

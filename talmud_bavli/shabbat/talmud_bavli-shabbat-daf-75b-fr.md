@@ -30,4 +30,4 @@ La mishna conclut : <b>Ce sont les catégories primaires de travail.</b> La Guem
 Nous avons appris dans la mishna : <b>Et tout ce qui n'est pas propre à être stocké,</b> qui est trop insignifiant pour justifier un stockage, seul celui qui le stocke est responsable de son exécution.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

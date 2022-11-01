@@ -51,4 +51,4 @@ La Gemara demande : <b>Que tenait</b> Rabbi Yehuda HaNasi <b>dans sa jeunesse, e
 <b>Il y a ceux qui enseignent</b> la déclaration de Rabbi Hillel <b>en ce qui concerne la dernière clause</b> de la mishna : <b>Un juif ne peut pas révoquer</b> le statut de l'objet d'un <b>d'adoration d'idole d'un gentil.</b> La Gemara demande : N'est-ce pas <b>évident ? Dit Rabbi Hillel, fils</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

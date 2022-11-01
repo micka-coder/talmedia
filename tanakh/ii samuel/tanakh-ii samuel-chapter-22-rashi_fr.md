@@ -141,7 +141,7 @@
 <b>Hachem vit.</b> Qui fait tout cela pour moi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Le jour où Hachem l'a sauvé.</b> Dans sa vieillesse, après que tous ses ennuis soient passés et qu'il ait survécu à tous.
 <b>Et des mains de Saül.</b> Saül faisait partie du groupe général [de "ses ennemis"] ? <sup>1</sup><i class="footnote">I.e. Pourquoi est-il mis à part ? </i> mais il était son plus grand ennemi et poursuivant. De même, [nous trouvons] : "Dix-neuf hommes et Asohel<sup>2</sup><i class="footnote">Plus tôt dans 2:30. où Asohel est distingué parce qu'il était égal à tous, comme le souligne Rachi.</i> De même, "Va espionner le pays et Yericho. "<sup>3</sup><i class="footnote">Yehoshua 2:1.</i> Et de même, "Le roi Shlomo aimait [beaucoup] de femmes étrangères et [il aimait] la fille de Pharaon."<sup>4</sup><i class="footnote">Melochim I, 11:1.</i>
@@ -284,4 +284,4 @@
 <b>Hachem vit.</b> Qui fait tout cela pour moi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

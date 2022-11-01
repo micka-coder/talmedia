@@ -33,7 +33,7 @@ La Guemara poursuit : <b>Et maintenant que nous avons appris</b> que la raison d
 Si elle a commencé à avoir ses règles <b>au moment de sa période fixée [<i>vista</i>], ne soulevez pas le dilemme,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> <b>On marie une vierge le mercredi et une veuve le jeudi. </b> La raison de la première est <b>que deux fois par semaine les tribunaux se réunissent dans les villes, le lundi et le jeudi,</b> de sorte que <b>si le mari <b>avait une réclamation concernant</b> la <b>virginité</b> de la mariée lors de la consommation du mariage le mercredi soir, <b>il se rendrait tôt</b> le lendemain <b>au tribunal</b> et ferait sa réclamation.
 
@@ -68,4 +68,4 @@ La Guemara poursuit : <b>Et maintenant que nous avons appris</b> que la raison d
 Si elle a commencé à avoir ses règles <b>au moment de sa période fixée [<i>vista</i>], ne soulevez pas le dilemme,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

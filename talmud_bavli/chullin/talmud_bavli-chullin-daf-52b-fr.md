@@ -60,4 +60,4 @@ La Guemara demande : <b>Mais dans un endroit où il n'y a personne</b> présent 
 La Guemara relate que <b>Rav Kahana a demandé à Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara souleve un defi a partir de ce que <b>nous avons appris</b> dans notr
 La Gemara repond : <b>Dites</b> que le sens de la mishna est :
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

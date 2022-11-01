@@ -23,5 +23,5 @@ Le premier jour de fête de Souccot, il y avait treize taureaux, deux béliers e
 ### michna 8
 Si un jour les séparait [Chabbat et Yom Tov], la veille dont l'heure de service était fixée [pour cette semaine] prenait dix [des] pains, tandis que celles qui étaient retenues en prenaient deux. Tous les autres jours de l'année, la veille entrante prenait six pains et la veille sortante six. Rabbi Juda dit : la veille d'entrée en prenait sept et la veille de sortie cinq. La veille entrante le partageait au nord, et la veille sortante au sud. La veille de Bilga le partageait toujours au sud ; leur anneau était fixe et leur alcôve était bouchée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

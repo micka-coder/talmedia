@@ -66,4 +66,4 @@ La Gemara rejette cette preuve : <b>Si c'est dû à cette</b> raison, c'est-à-d
 La Gemara suggère : <b>Disons</b> qu'une mishna (100b) <b>appuie</b> l'opinion de Rav Asi : En ce qui concerne <b>celui qui donne de la laine à un teinturier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

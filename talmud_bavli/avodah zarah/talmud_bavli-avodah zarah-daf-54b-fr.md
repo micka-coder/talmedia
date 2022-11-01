@@ -66,4 +66,4 @@ Rabban Gamliel <b>Dit au</b> philosophe <b>Je vais te raconter une parabole. A q
 Le philosophe <b>dit à</b> Rabban Gamliel : <b>Vous appelez</b> l'idole <b>un chien ; vous appelez</b> l'idole <b>morte. Si</b> c'est <b>ainsi, que</b> Dieu <b>l'enlève du monde.</b> Rabban Gamliel <b>dit au</b> philosophe : <b>Si les gens <b>n'adoraient</b> que des <b>objets dont le monde n'a pas besoin, Il les éliminerait.</b> Mais <b>ils adorent le soleil et la lune, les étoiles et les constellations,</b> et <b>les ruisseaux et les vallées. Devrait-Il détruire Son monde à cause d'insensés ? Et ainsi</b> le verset <b>déclare :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

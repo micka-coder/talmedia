@@ -33,4 +33,4 @@ La Guemara explique l'affirmation précédente : <b>Dérivons</b> le contraire d
 § Si tel est le cas, aucune preuve ne peut être apportée à partir du cas d'un nazirite. <b>Au contraire,</b> la Guemara propose une explication différente : <b>En fait,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

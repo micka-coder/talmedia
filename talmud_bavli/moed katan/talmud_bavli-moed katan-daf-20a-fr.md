@@ -51,4 +51,4 @@ Rava lui <b>dit :</b> Ceci <b>est un avis individuel</b>, <b>et nous ne tenons p
 La Gemara demande : <b>C'est ainsi,</b> que c'est l'opinion de Rabbi Aḥiyya ? <b>Mais Rav était le fils du frère de Rabbi Ḥiyya et</b> également <b>le fils de la sœur de Rabbi Ḥiyya,</b> car le père de Rav, Aivu, était le demi-frère paternel de Rabbi Ḥiyya, et la mère de Rav était la demi-sœur maternelle de Rabbi Ḥiyya. <b>Lorsque</b> Rav <b>se rendit là-bas,</b> Eretz Yisrael, son oncle Rabbi Ḥiyya <b>lui dit : Est-ce que</b> ton <b>père, Aivu, est toujours <b>vivant ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

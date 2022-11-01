@@ -39,4 +39,4 @@ La Guemara répond : <b>En fait,</b> la déclaration de Rav fait référence <b>
 La Guemara demande : <b>Mais une fois que Rav a dit que la <i>halakha</i></b> est conforme à l'opinion du <i>tanna</i> anonyme dans les <i>mishnayot</i> <b>dans tout le chapitre sauf</b> là où il y a <b>une différence</b> d'opinion,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

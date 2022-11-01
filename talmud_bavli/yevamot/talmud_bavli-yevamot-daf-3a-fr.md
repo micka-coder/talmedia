@@ -39,4 +39,4 @@ A la lumière de l'argument précédent, la Guemara suggère une autre raison po
 § La Guemara pose une autre question par rapport au langage de la mishna : <b>L'énumération de la première clause</b> de la mishna : Quinze femmes, qui indique que ces femmes seules sont incluses dans cette liste, sert <b>à exclure quoi ? </b> Quels autres cas auraient pu être inclus ? <b>Et l'énumération de la dernière clause,</b> qui indique : Celles-ci exemptent leurs épouses rivales, signifiant à nouveau celles-ci et aucune autre, sert <b>à exclure quoi ?</b> Puisque la mishna ne spécifie que ces femmes et aucune autre, la Gemara demande quelles autres femmes auraient pu être incluses dans ces listes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

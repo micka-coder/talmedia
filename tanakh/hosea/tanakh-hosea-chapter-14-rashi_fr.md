@@ -44,4 +44,4 @@
 <b>et les rebelles trébucheront sur eux</b> c'est-à-dire à cause d'eux, parce qu'ils n'ont pas marché en eux. Jonathan rend de cette manière .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

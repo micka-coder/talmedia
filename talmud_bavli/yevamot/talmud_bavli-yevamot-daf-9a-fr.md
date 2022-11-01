@@ -75,4 +75,4 @@ La Gemara répond : Lorsque <b>nous disons</b> que seules les <i>halakhot</i> ac
 La Gemara répond : Lorsque <b>Beit Shammai</b> expriment un avis <b>où Beit Hillel</b> ne sont pas d'accord, leur avis est considéré comme s'il n'était <b>pas</b> dans la <b>mishna,</b> c'est-à-dire qu'il est complètement ignoré, car il est communément admis que l'avis de Beit Shammai est rejeté et non statué comme <i>halakha</i>. Par conséquent, cela ne peut pas être considéré comme une véritable dispute. La Guemara soulève une difficulté supplémentaire : <b>Mais</b> il y a le cas de <b>la femme d'un frère avec qui il ne coexistait pas,</b> c'est-à-dire que le <i>yavam</i> n'était pas vivant au moment du décès de son frère.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

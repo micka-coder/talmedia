@@ -51,4 +51,4 @@ La Guemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabbi Shimon ?<
 <b>Et je leur ai dit : Au contraire,</b> d'après ce raisonnement, la maison doit certainement être impure, car <b>il est impossible qu'il n'y ait pas <b>deux grains de poussière</b> du cadavre qui soient <b>plus nombreux</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

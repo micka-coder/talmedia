@@ -51,4 +51,4 @@ Certains avaient une version différente du passage précédent. <b>Il y a</b> c
 <b>Rabba a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

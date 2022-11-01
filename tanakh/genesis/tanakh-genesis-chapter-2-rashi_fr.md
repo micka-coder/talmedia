@@ -87,5 +87,5 @@ Autre explication : [À ce moment-là,] qu'est-ce qui manquait [encore] au monde
 ### passuk 25
 <b>Et ils n'eurent pas honte.</b> Ils ne connaissaient pas les voies de la pudeur pour distinguer le bien du mal. Bien qu'il [Adam] ait reçu la sagesse d'appeler [toutes les créatures] par leur nom, il n'était pas imprégné du mauvais penchant jusqu'à ce qu'il mange de l'arbre et que le mauvais penchant entre en lui et qu'il soit capable de distinguer le bien et le mal. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

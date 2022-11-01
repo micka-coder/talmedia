@@ -54,4 +54,4 @@ La Gemara répond : <b>Rav Shimi bar Ḥiyya a déjà soulevé cette contradicti
 <strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Lorsqu'il est dit que <b>un <i>ḥarum</i></b> est considéré comme un prêtre souillé (Lévitique 21:18), cela fait référence à un prêtre <b>dont le nez est enfoncé.</b> Si <b>son nez recule,</b> c'est-à-dire, il est très court et contracté vers le haut, ou si <b>son nez</b> est <b>bloqué,</b> ou si <b>son nez</b> est si long qu'il <b>déborde, d'où</b> vient qu'il est considéré comme souillé ? <b>Le</b> même <b>verset précise : "Ou un <i>ḥarum</i>."</b> Le terme "ou" sert à inclure toutes les imperfections du nez. <Rabbi Yosei dit : Un <i>ḥarum</i> est seulement celui qui</b> peut <b>peindre ses deux yeux comme un seul. Ils lui ont dit : Tu es allé</b> trop <b>loin</b> en limitant ta définition d'un <i>ḥarum</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

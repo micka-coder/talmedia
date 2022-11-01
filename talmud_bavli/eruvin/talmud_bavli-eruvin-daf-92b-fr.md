@@ -30,4 +30,4 @@ Abaye <b>dit à</b> Rabbi Zeira : Les deux cas ne sont pas comparables, car <b>l
 <b>Rava dit à Abaye : Et n'avons-nous pas trouvé une cloison qui</b> entraîne une <b>interdiction ? Mais n'a-t-il pas été précisé :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

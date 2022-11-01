@@ -45,4 +45,4 @@ Au contraire, ce cas <b>n'est comparable qu'à</b> ceux qui répondent à un pri
 <b>Depuis que le sacrifice de culpabilité d'un lépreux a été spécifié</b> de la catégorie générale de tous les sacrifices de culpabilité <b>pour discuter d'une nouvelle question,</b> c'est-à-dire, que le sang est placé sur <b>le pouce</b> de la main droite <b>et le gros orteil du pied droit</b> du lépreux, on <b>pourrait</b> avoir pensé que cette offrande de culpabilité <b>ne nécessite pas le placement du sang et des parties sacrificielles sur l'autel,</b> car pour cette offrande de culpabilité le placement du sang sur le lépreux est suffisant.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

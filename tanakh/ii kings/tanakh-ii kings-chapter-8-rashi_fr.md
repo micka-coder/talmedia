@@ -65,7 +65,7 @@
 <b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayamim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayamim 21:20. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Elisha a parlé à la femme.</b> Sept ans [avant].<sup>1</sup><i class="footnote">C'est-à-dire sept ans avant l'incident décrit dans ce chapitre. Voir ci-dessus, 4:8-37.</i>
 <b>Parce qu'Hachem a proclamé une famine.</b> Il s'agit de la faim à l'époque de Yoel, fils de Pesuel.</sup>2</sup><i class="footnote">Voir Yoel chapitre 1 et Masehet Taanis 5a.</i>
@@ -132,4 +132,4 @@
 <b>Et fut enterré avec ses ancêtres dans la ville de David.</b> Dans le Divrei Hayamim, on peut lire : "[On l'enterra] dans la ville de David, mais pas dans les tombes des rois."<sup>27</sup><i class="footnote">II Divrei Hayamim 21:20. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

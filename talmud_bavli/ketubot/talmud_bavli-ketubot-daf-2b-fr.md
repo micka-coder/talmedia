@@ -42,7 +42,7 @@ La Guemara rejette cette preuve : <b>Et peut-être des circonstances inévitable
 <b>Rava énonce plutôt</b> une <i>halakha</i> basée sur <b>son propre raisonnement.</b> Les circonstances indépendantes de notre volonté ne sont pas un facteur pour déterminer si une condition se réalise ou non, et ce, <b>en raison des femmes vertueuses et en raison des femmes licencieuses.</b> La Gemara articule : Il y a une préoccupation <b>due aux femmes vertueuses</b> est, <b>comme, si vous disiez : Que ce ne soit pas un acte de divorce,</b> si la raison pour laquelle la condition n'a pas été remplie est due à des circonstances indépendantes de sa volonté,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Comme</b> il est clair que <b>elle ne peut pas lui dire</b> que <b>son champ était inondé.</b> Ici, les circonstances étaient évitables, et le report du mariage lui est imputable. <b>Lorsque vous</b> devez <b>soulever un dilemme</b>, c'est dans un cas où les menstruations n'ont pas commencé <b>au moment de sa période fixée. Quelle</b> est la décision à prendre dans ce cas ? <b>Puisque ce n'est pas le moment de sa période fixée,</b> c'est comparable au cas de sa maladie, et <b>elle peut lui dire que son champ était inondé. Ou bien, peut-être, puisqu'il y a des femmes dont la période fixée change,</b> il est évitable, et son statut juridique <b>est comme</b> la menstruation au <b>temps de sa période fixée,</b> et le report du mariage lui est imputable.
 
@@ -86,4 +86,4 @@ La Guemara rejette cette preuve : <b>Et peut-être des circonstances inévitable
 <b>Rava énonce plutôt</b> une <i>halakha</i> basée sur <b>son propre raisonnement.</b> Les circonstances indépendantes de notre volonté ne sont pas un facteur pour déterminer si une condition se réalise ou non, et ce, <b>en raison des femmes vertueuses et en raison des femmes licencieuses.</b> La Gemara articule : Il y a une préoccupation <b>due aux femmes vertueuses</b> est, <b>comme, si vous disiez : Que ce ne soit pas un acte de divorce,</b> si la raison pour laquelle la condition n'a pas été remplie est due à des circonstances indépendantes de sa volonté,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

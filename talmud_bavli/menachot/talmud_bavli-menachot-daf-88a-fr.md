@@ -63,4 +63,4 @@ En outre, <b>trois et demi</b> <i>log</i> d'huile étaient nécessaires <b>pour 
 <strong>GEMARA :</strong> <b>Rabbi</b> Yehuda HaNasi <b>était assis</b> en étude <b>et posa une difficulté : Dans quel</b> but le <b>quarter-</b><i>log</i> récipient de mesure <b>a été oint</b> avec l'huile d'onction, le consacrant ainsi comme récipient de service ? <b>Si</b> vous suggérez que c'était nécessaire pour mesurer l'eau utilisée dans la purification d'<b>un lépreux,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

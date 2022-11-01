@@ -42,4 +42,4 @@ La Gemara commente : <b>Et il est nécessaire</b> que le <i>baraita</i> mentionn
 <b>Les Sages ont enseigné :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

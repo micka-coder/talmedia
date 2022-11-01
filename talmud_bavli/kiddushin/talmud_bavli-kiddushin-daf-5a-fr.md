@@ -57,4 +57,4 @@ La Gemara demande : <b>Et est-ce que</b> l'argent des fiançailles ne permet pas
 <b>Au contraire,</b> la Guemara émarge la déclaration de Rav Huna et dit que <b>il réfute</b> l'opinion selon laquelle entrer dans un dais de mariage n'effectue pas les fiançailles <b>comme suit : Si l'argent, qui ne complète pas</b> l'acquisition d'une femme, car une jeune femme reste sous l'autorité de son père en ce qui concerne certaines questions, il <b>effectue néanmoins son acquisition</b> pour l'étape des fiançailles,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara explique que <b>c'est</b> ce que le verset <b>dit : Tu ne planteras p
 <b>Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>D'où vient</b> qu'il n'y a rien</b> qui est sacrifié sur l'autel <b>avant l'offrande quotidienne du matin ? Le verset dit :</b> "Le feu restera allumé sur l'autel, il ne s'éteindra pas ; le prêtre y allumera du bois chaque matin, <b>et il préparera l'holocauste</b> et fera monter en fumée sur l'autel les graisses des sacrifices de communion" (Lévitique 6:5). <b>Et Rabba dit</b> que le terme : <b>L'holocauste,</b> avec l'article défini, indique que l'<b>holocauste</b> est important et constitue la <b>première</b> offrande sacrifiée chaque jour. <b>Rav Yehuda dit :</b> L'offrande de la galette n'était pas brûlée sur l'autel à cette heure matinale. Il était plutôt nécessaire de mettre les préparateurs de l'offrande de gâteaux à la plancha <b>à chauffer l'eau chaude pour</b> préparer <b>les gâteaux à la plancha étuvés</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

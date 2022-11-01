@@ -66,4 +66,4 @@ La Gemara demande : <b>Et que son dilemme soit soulevé</b> également par rappo
 § <b>Abaye a dit : Tout le monde concède</b> que dans un cas <b>où</b> le mari <b>a dit</b> à sa femme que l'acte de divorce prendra effet <b>lorsque le soleil sortira de sa gaine</b> [<b><i>minnartikah</i>],</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

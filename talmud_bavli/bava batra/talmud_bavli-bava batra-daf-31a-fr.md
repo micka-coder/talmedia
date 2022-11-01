@@ -30,4 +30,4 @@ Dans un incident où deux personnes se disputent la propriété d'un terrain, <b
 <b>Rav Naḥman a dit : Etablissez</b> le témoignage relatif au <b>profitage</b> par le premier plaideur <b>à côté</b> du témoignage relatif au <b>profitage</b> par le second, et les deux témoignages s'annulent, laissant le témoignage relatif à la propriété des ancêtres du premier plaideur. <b>Et</b> donc, <b>établir le terrain dans</b> la <b>presomption de propriété</b> du plaideur qui a apporté des témoignages selon lesquels il appartenait à ses <b>ancêtres. Rava</b> s'y est opposé et lui a <b>dit : On ne peut se fier à ce témoignage</b>, car il <b>est contredit</b> par les autres témoignages. Rav Naḥman a répondu et lui a <b>dit : Bien</b> qu'il soit ainsi <b>que</b> le témoignage <b>a été contredit en ce qui concerne le profit</b> de la terre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

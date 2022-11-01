@@ -39,4 +39,4 @@ Ceci est <b>comme cette</b> décision de <i>halakha</i> énoncée lorsque <b>Rab
 <b>Rav Beruna a dit</b> que <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

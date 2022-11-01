@@ -54,4 +54,4 @@ On rapporte que <b>Abaye a permis aux gens de Bar Hamdakh d'enlever</b> les bran
 § Il a été enseigné dans la mishna : Pendant les jours intermédiaires d'une Fête <b>on peut réparer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Si</b> c'est un cas <b>où</b> on <b>trouve</b> des réci
 La Gemara demande : <b>Si</b> il s'agit d'un cas <b>où l'on forme</b> une figure, <b>dit la dernière clause</b> de la déclaration de Rav Sheshet : <b>Toutes les figures sont permises sauf la figure d'un dragon. Et si</b> il se réfère à un cas <b>où l'on forme</b> une figure, <b>est-ce que</b> former <b>la figure d'un dragon est interdit ? Mais n'est-il pas écrit : "Tu ne feras pas avec Moi des dieux d'argent, ni des dieux d'or" ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

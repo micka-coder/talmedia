@@ -24,4 +24,4 @@ N'est-ce pas parce que</b> Rabbi Eliezer <b>soutient : </b> En ce qui concerne l
 La Guemara rejette cette idée : <b>Non, Rabbi Eliezer</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Gemara répond : <b>Abaye dit que</b> dans un cas <b>où l'on dit :</b> Je fa
 <b>Ravina a dit à Rav Ashi : Et peut-être que cet homme a vu une fourmilière et les a appelés :</b> Ceux <b>qui sont montés</b> d'<b>Égypte,</b> car la quantité de fourmis était très importante, <b>et il a prêté serment correctement.</b> Pourquoi, alors, disons-nous que c'est un serment fait en vain ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

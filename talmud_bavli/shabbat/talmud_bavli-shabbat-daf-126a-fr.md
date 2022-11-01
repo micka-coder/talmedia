@@ -21,4 +21,4 @@ Rabbi Abba <b>dit à</b> Rabbi Yirmeya : <b>C'est moi qui dis</b> que ce cas est
 La Guemara demande : <b>Rabbi Yoḥanan</b> a-t-il vraiment <b>dit cela ? N'avons-nous pas appris</b> dans la mishna : <b>Toutes les couvertures de récipients</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

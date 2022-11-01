@@ -19,4 +19,4 @@
 <b>Ma coupe déborde</b> Heb.  רויה", une expression de plénitude.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

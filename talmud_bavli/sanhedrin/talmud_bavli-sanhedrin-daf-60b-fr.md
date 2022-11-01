@@ -60,4 +60,4 @@ Le <i>baraita</i> affirme que le principe concernant les formes d'adoration des 
 <b>Comme il a été dit</b> qu'en ce qui concerne <b>celui qui abat un animal</b> dans le but <b>d'asperger son sang dans un culte idolâtre ou de brûler sa graisse dans un culte idolâtre, Rabbi Yoḥanan dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara demande plus loin : <b>Mais il y a</b> le Nouvel An pour <b>le Jubilé
 La Gemara demande : <b>Mais il y a</b> le Nouvel An pour <b>les Fêtes, qui dépend d'une action,</b> c'est-à-dire le sacrifice de l'offrande quotidienne, car aucune offrande ne peut être apportée avant l'offrande quotidienne, <b>et</b> néanmoins le <i>tanna</i> <b>le compte</b>. La Guemara répond : Ce n'est pas le cas, car la transgression de l'interdiction : <b>Tu ne tarderas pas,</b> ne dépend d'aucune autre chose ; au contraire, elle <b>commence d'elle-même</b> dès que la Fête commence.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

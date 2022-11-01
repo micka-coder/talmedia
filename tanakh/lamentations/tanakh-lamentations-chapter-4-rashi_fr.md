@@ -87,4 +87,4 @@
 <b>Il ne t'exilera plus jamais.</b> Après l'exil d'Edom.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara continue son défi. <b>Venez</b> et <b>entendez</b> un autre verset : 
 La Guemara développe ce qui s'est passé lorsque Sisera était dans la tente de Yaël. <b>Rabbi Yoḥanan dit : Ce méchant</b> homme, Sisera, <b>avait</b> des <b>rapports</b> sexuels avec Yaël <b>sept fois ce jour-là, comme il est dit : "A ses pieds, il s'enfonça, il tomba, il se coucha ; à ses pieds, il s'enfonça, il tomba ; là où il s'enfonça, là il tomba mort"</b> (Juges 5:27). Chaque occurrence des termes "coulé", "tombé" ou "couché" dans le verset indique un acte de relation sexuelle, Yael cherchant à fatiguer et à affaiblir Sisera pour lui permettre de le tuer. La Guemara demande : <b>Mais</b> comment Yaël pouvait-elle faire cela même dans le noble but de tuer le méchant Sisera, puisque <b>elle tirait du plaisir</b> de la <b>transgression</b> de relations sexuelles licencieuses avec un Gentil ? <b>Rabbi Yoḥanan a dit au nom de Rabbi Shimon ben Yoḥai : Tout</b> acte qui est un <b>bénéfice pour les méchants</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

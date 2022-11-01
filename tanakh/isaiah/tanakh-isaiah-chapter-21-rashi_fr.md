@@ -78,7 +78,7 @@
 <b>Les arcs des héros des enfants de Kédar</b> Archers, car ils sont comme leur aïeul, (Ismaël,) au sujet duquel il est dit (Gen. 21:2) : "Et il était un archer."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La dure prophétie du désert occidental</b> Cette prophétie fait référence à la Babylonie, telle qu'elle y est délimitée. Si vous demandez, n'a-t-il pas déjà prophétisé à ce sujet (supra 13) : "Sur une montagne tranquille, élevez une bannière", et tout le chapitre... parfois la prophétie lui vient à la bouche aujourd'hui d'une certaine manière, et plus tard d'une autre manière.
 <b>La dure prophétie du désert occidental</b> Jonathan paraphrase : Une dure prophétie concernant les armées qui viennent du désert, aussi nombreuses que les eaux de la mer.
@@ -158,4 +158,4 @@
 <b>Les arcs des héros des enfants de Kédar</b> Archers, car ils sont comme leur ancêtre, (Ismaël,) au sujet duquel il est dit (Gen. 21:2) : "Et il était un archer."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

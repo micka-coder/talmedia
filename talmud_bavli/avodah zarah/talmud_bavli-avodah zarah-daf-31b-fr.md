@@ -36,4 +36,4 @@ La Gemara explique : <b>Au contraire, Rav soutient</b> que l'interdiction est <b
 <b>Rav Yosef dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

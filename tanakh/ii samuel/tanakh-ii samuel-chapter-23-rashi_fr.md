@@ -112,7 +112,7 @@
 <b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elazar et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Ce sont les mots de David.</b> La dernière prophétie de David. Quels étaient les premiers mots ? Les paroles du chant qui ont été dites plus haut.<sup>1</sup><i class="footnote"></i> Mais tous les chants et louanges qu'il [David] a dits ne sont pas appelés "paroles". <sup>2</sup><i class="footnote">L'emploi du mot <span>דִּבְרֵי</span> désigne ici la prophétie, et non les chants et les louanges.</i>
 <b>Raised on high.</b> Élevé d'en haut.<sup>3</sup><i class="footnote">Le mot <span>עָל</span>, est utilisé pour désigner <span>לְמַעְלָה</span>, "En haut". </i>
@@ -226,4 +226,4 @@
 <b>Trente-sept.</b> Ils ne sont pas [tous] mentionnés ici<sup>24</sup><i class="footnote">Rashi semble considérer que seuls trente-trois des trente-sept sont comptabilisés, les trois premiers guerriers, Adino, Elazar et Ahamoh. Puis les trente qui sont énumérés à partir du verset 24 mais sans inclure Asoel, voir le Metsudos David sur ce verset.</i> et je dis que Yoav n'avait pas à être mentionné car il était le général [commandant] l'armée et le reste qui manque, il est possible qu'il s'agisse de trois ou quatre fils de Yeshai.<sup>25</sup><i class="footnote">Après avoir comptabilisé trente-trois sur trente-sept, il en manque quatre. Rachi semble offrir deux réponses possibles distinctes, soit les quatre sont Yoav et trois des fils de Yeshai, soit Yoav n'est pas compté ici comme faisant partie du groupe des trente-sept et les quatre manquants sont tous des fils de Yeshai.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

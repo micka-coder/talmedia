@@ -51,4 +51,4 @@ Les six femmes avec lesquelles les relations sont interdites sont les suivantes 
 § Jusqu'à présent, les discussions étaient basées sur l'hypothèse que non seulement un parent interdit ne peut pas contracter un mariage lévirat, mais que sa femme rivale en est également exempte. Cependant, cette question fait l'objet d'un différend de longue date. <b>Beit Shammai autorisent les épouses rivales aux frères,</b> car ils n'acceptent pas l'interprétation des versets qui indique que les épouses rivales sont interdites. <b>Et Beit Hillel les interdisent</b>. Les <i>mishnayot</i> précédentes sont conformes à l'opinion de Beit Hillel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

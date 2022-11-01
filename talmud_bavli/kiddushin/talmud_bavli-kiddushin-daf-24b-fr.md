@@ -63,4 +63,4 @@ La Guemara commente : On <b>pourrait</b> penser que si l'on apporte un oiseau <b
 <b>Rabbi Ḥiyya bar Ashi dit</b> que <b>Rav dit:</b> Si l'esclave <b>avait</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

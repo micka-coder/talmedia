@@ -39,4 +39,4 @@ La Guemara remet en question cette déduction : <b>Mais</b> si tel est le cas, c
 <b>Rava dit : Si c'est le cas,</b> on devrait dire que le <b>meurtre ne devrait pas outrepasser</b> même <b>l'offrande d'un individu sur la base d'une déduction <i>a fortiori</i></b> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

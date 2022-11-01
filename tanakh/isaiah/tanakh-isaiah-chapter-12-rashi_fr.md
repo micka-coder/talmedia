@@ -17,7 +17,7 @@
 <b>Gardez-le en mémoire</b> pour louer [Son Nom,] car il est exalté.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et tu diras</b> quand tu verras les nations condamnées au déshonneur et à l'horreur.
 <b>Je te remercierai, Seigneur, car tu as été irrité contre moi</b> et tu m'as exilé, et mon exil m'a expié, et maintenant, la réparation a été faite pour mon iniquité. Que Ta colère se détourne et que Tu me réconfortes. Jonathan rend : Je confesserai devant Toi, Seigneur, que j'ai péché devant Toi, et que, par conséquent, Tu t'es irrité contre moi, et que, sans Ta miséricorde, je ne serais pas digne que Ta colère se détourne et me réconforte, et voici que Ta colère s'est détournée de moi.
@@ -36,4 +36,4 @@
 <b>Gardez-le en mémoire</b> pour louer [Son Nom,] car il est exalté.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

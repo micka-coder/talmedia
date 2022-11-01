@@ -51,4 +51,4 @@ La Guemara cite encore une autre source pertinente. <b>Venez</b> et <b>entendez,
 § La mishna a enseigné que si elle <b>était une femme israélite, elle est disqualifiée pour</b> se marier à <b>la prêtrise.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

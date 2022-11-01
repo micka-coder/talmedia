@@ -57,4 +57,4 @@ La Gemara rejette cette preuve : <b>Mais peut-être que cette affirmation ne s'a
 La Guemara conclut : <b>Et la <i>halakha</i></b> est :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

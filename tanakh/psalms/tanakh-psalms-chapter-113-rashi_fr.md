@@ -21,4 +21,4 @@
 <b>Comme une heureuse mère d'enfants</b> (Esaïe 66:8) : " Que Sion ait connu les douleurs de la naissance et qu'elle ait porté ses enfants ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

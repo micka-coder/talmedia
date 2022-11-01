@@ -21,4 +21,4 @@ Si quelqu'un est assis dans un bateau, dans un chariot ou sur un radeau, [lorsqu
 Rabbi Elazar ben Azaryah dit : [On] ne [dit] pas la prière du _Musaf_ sauf en présence d'un _Minyan_. Et les sages disent : [On doit toujours dire la prière du _Musaf_,] avec un _Minyan_ ou sans _Minyan_. Rabbi Yehouda dit en son nom [Rabbi Elazar ben Azaryah] : Tout endroit dans lequel il y a un _Minyan_ qui prie, l'individu est exempté de la prière du _Musaf_.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

@@ -33,7 +33,7 @@ Rabbi Abba <b>a dit à</b> Rav Safra : Cette mishna <b>était difficile à compr
 La Guemara développe : En ce qui concerne <b>un défi de quelle</b> sorte a-t-on énoncé cette <i>halakha</i> ? <b>Si</b> il s'agissait d'une <b>défiance</b> basée sur une allégation <b>de vol</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara relate : <b>Ravnaï, frère de Rabbi Ḥiyya bar Abba, se trouve</b> venir et <b>vendre du sésame, et il dit</b> que <b>ceci</b> est ce que <b>Shmuel a dit : Un témoin et un juge se rejoignent</b> pour témoigner. <b>Ameimar a dit : Combien cette <i>halakha</i> est excellente. Rav Ashi a dit à Ameimar : En raison</b> du fait <b>que</b> Rami bar Ḥama, <b>père de ta mère, en a fait l'éloge, tu en fais aussi l'éloge</b> [<b><i>mekallesat</i></b>] <b>d'elle ? Rava a déjà réfuté</b> cette affirmation et prouvé qu'elle était incorrecte.
 
@@ -68,4 +68,4 @@ Rabbi Abba <b>a dit à</b> Rav Safra : Cette mishna <b>était difficile à compr
 La Guemara développe : En ce qui concerne <b>un défi de quelle</b> sorte a-t-on énoncé cette <i>halakha</i> ? <b>Si</b> il s'agissait d'une <b>défiance</b> basée sur une allégation <b>de vol</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

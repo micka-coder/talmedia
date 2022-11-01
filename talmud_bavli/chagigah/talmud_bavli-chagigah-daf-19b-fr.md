@@ -18,4 +18,4 @@ Cependant, <b>Rav Aḥa bar Adda enseignerait</b> que <b>cinq niveaux</b> de pur
 § <b>Rav Mari a dit :</b> Ils <b>apprennent de</b> la mishna que les produits <b>non sacrés</b> <b>qui ont été préparés selon</b> le niveau de <b>pureté rituelle</b> requis <b>pour les aliments sacrificiels</b>, c'est-à-dire avec les mêmes rigueurs que celles requises pour les aliments sacrificiels, sont <b>comme des aliments sacrificiels</b>. <b>D'où</b> cela se déduit-il ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

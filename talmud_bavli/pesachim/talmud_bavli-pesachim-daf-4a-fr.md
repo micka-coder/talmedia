@@ -36,4 +36,4 @@ La Guemara rejette cette preuve : <b>Il y a,</b> dans le cas de la <i>mezuza</i>
 <b>Rav Naḥman bar Yitzḥak leur dit</b> que <b>nous</b> avons déjà <b>appris</b> la résolution de ce dilemme sur la base d'une <i>baraita</i> connexe : <b>Tout le monde est cru</b> pour apporter un témoignage <b>sur l'élimination du pain levé ; même les femmes, même les esclaves,</b> et <b>même les mineurs.</b> Bien que l'on ne compte généralement pas sur ces personnes pour apporter un témoignage, on les croit lorsqu'elles témoignent qu'elles ont éliminé le levain. La Guemara demande : <b>Quelle est la raison</b> pour laquelle <b>on les croit ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

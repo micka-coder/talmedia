@@ -63,4 +63,4 @@ Il rejette cette idée : <b>Là, la raison</b> pour laquelle un espace supérieu
 La Guemara relate que <b>Rav Ḥana était assis, et</b> le point suivant <b>était difficile pour lui:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

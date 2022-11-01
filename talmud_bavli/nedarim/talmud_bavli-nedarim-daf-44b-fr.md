@@ -15,4 +15,4 @@ La Gemara demande : <b>Accordé,</b> il en est ainsi <b>selon Ulla,</b> qui expl
 La Guemara répond que Reish Lakish aurait pu vous <b>dire : </b> Bien que <b>lorsque</b> j'ai expliqué la première clause et la dernière clause de cette <i>baraita</i> <b>j'ai dit</b> que les deux sont <b>conformes</b> à l'opinion de <b>Rabbi Yosei,</b> qui a dit qu'un objet sans propriétaire ne quitte la possession du propriétaire que lorsqu'il entre en possession d'un autre, <b>cette</b> <i>baraita</i> est conforme à l'opinion des <b>rabbins,</b> qui considèrent qu'il quitte la possession du propriétaire immédiatement après la déclaration du statut de sans propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

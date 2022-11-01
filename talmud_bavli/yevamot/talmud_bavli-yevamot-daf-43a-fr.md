@@ -60,4 +60,4 @@ Pour défendre la décision de Rav Yosei dans la mishna, la Gemara explique : <b
 La Guemara accepte la conclusion de cette déduction <i>a fortiori</i> et conclut donc : <b>Ne dites pas</b> que <b>Rabbi Yosei dit : Toutes les femmes peuvent être fiancées</b> dans un délai de trois mois ; <b>plutôt,</b> émendez sa déclaration pour <b>dire : Toutes les femmes peuvent être mariées</b> dans un délai de trois mois, à l'exception d'une veuve. Cependant, même Rabbi Yosei convient qu'il est permis à une veuve de se fiancer pendant cette période.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

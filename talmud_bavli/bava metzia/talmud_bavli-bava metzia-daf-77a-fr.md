@@ -42,4 +42,4 @@ Le Rav Huna, fils du Rav Natan, développe : <b>Vous dites</b> que l'employeur p
 Concernant cette même dispute dans la <i>baraita</i>, <b>Rav a dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Dosa.</b> La Gemara demande : <b>Et est-ce que Rav</b> a vraiment <b>dit cela ? Mais Rav ne dit-il pas</b> que <b>un ouvrier peut revenir sur</b> son engagement <b>même à midi ? Et si vous disiez</b> que <b>il y a une différence pour Rabbi Dosa entre le travail loué</b> <b>et le travail sous contrat</b>, car un ouvrier loué peut renier son engagement mais un ouvrier sous contrat ne le peut pas, <b>y a-t-il</b> vraiment <b>une différence pour lui ? Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui engage un ouvrier, et qu'à midi</b> l'ouvrier <b>entend que</b> un parent <b>de lui est décédé</b> et qu'il doit s'occuper de l'enterrement, <b>ou si</b> l'ouvrier <b>était pris de fièvre</b> et ne pouvait pas continuer à travailler, <b>si c'est un ouvrier engagé,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara répond que <b>Rabbi Eliezer</b> soutient que <b>là,</b> la <i>halak
 <b>Rabbi Yehuda dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

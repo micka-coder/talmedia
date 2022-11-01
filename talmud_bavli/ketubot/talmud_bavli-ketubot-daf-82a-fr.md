@@ -42,4 +42,4 @@ La Gemara explique : Il est nécessaire de préciser ceci <b>de peur que vous ne
 La Guemara s'interroge sur la deuxième partie de l'interprétation de Rabbi Yosei, fils de Rabbi Ḥanina, selon laquelle <b>il peut se remarier avec elle:</b> Il est <b>évident</b> qu'il peut se remarier avec elle si le couple choisit de le faire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

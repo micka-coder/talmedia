@@ -48,4 +48,4 @@ La Guemara demande : <b>Mais Rabba bar bar Ḥana ne dit-il pas</b> que <b>Shmue
 § La mishna déclare : <b>Ou</b> un animal avec <b>une trachée coupée,</b> coupée dans sa largeur, est un <i>tereifa</i>. A ce propos, les Sages ont <b>enseigné : De combien</b> faut-il que <b>la trachée</b> soit <b>coupée</b> pour que l'animal soit un <i>tereifa</i> ? <b>Dans sa majorité. Et de combien est sa majorité ? Le Rav dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

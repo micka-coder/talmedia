@@ -51,4 +51,4 @@
 <b>et il partit sans joie</b> Le sens est le suivant : toute sa vie, il fut dans la détresse et dans les maladies, et avec lui s'accomplit (Deut. 30:15) : "Vois, j'ai mis devant toi aujourd'hui la vie, etc." et (Job 14:1) "court de jours et plein de crainte".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

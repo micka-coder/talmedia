@@ -63,4 +63,4 @@ La Guemara rejette cette suggestion : Il n'est pas nécessaire d'exclure un anim
 La Gemara demande : <b>Et</b> quant aux <b>rabbins aussi,</b> qui tirent leur opinion du verset : "Il sera parfait pour être accepté", <b>n'est-il pas écrit : "Il n'y aura pas de tare en elle"</b>, ce qui indique une extension de l'interdiction de causer une tare sur une offrande ? La Gemara répond : <b>Ce</b> verset <b>arrive</b> pour enseigner <b>que</b> l'interdiction de causer une tare s'étend également à une tare causée à la suite d'<b>une action indirecte</b>. <b>Comme il est enseigné</b> dans un <i>baraita</i> : Le verset stipule : <b>"Il n'y aura</b> pas de <b>saleté en elle"</b> (Lévitique 22:21) ; d'ici <b>J'ai</b> dérivé .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

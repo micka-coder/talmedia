@@ -42,4 +42,4 @@ La Gemara demande : <b>Qu'est-ce</b> est le sens de : Et <b>si c'est ton désir 
 La Guemara relate : <b>Rav Ulla, fils de Rav Ilai, avait un procès</b> en cours <b>devant Rav Naḥman. Rav Yosef envoya</b> un message <b>au</b> Rav Naḥman : <b>Ulla notre ami</b> est <b>un collègue en Torah et en mitzvot,</b> à l'égard duquel le verset indique que tu dois le juger favorablement. Le Rav Naḥman <b>a dit : Dans quel</b> but <b>a-t-il envoyé</b> ce message <b>à moi ? </b> Attend-il de moi <b>que je lui accorde un traitement préférentiel</b> ? Tout jugement doit être entrepris avec droiture. Rav Naḥman <b>dit alors :</b> Rav Yosef m'a envoyé le message <b>pour</b> m'assurer que j'ouvrirai <b>avec</b> le <b>dispute</b> de Rav Ulla au cas où d'autres cas me seraient soumis pour jugement, par déférence à la Torah car il est un érudit de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara présente <b>une autre version</b> de la réponse : Le prêtre l'aura
 La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : Les prêtres peuvent <b>sanctifier</b> leurs mains et leurs pieds à partir de <b>tous les récipients, qu'ils puissent contenir un quart</b><i>de log</i> d'eau...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

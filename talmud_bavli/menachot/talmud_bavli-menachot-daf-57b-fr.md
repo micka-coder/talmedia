@@ -57,4 +57,4 @@ La Guemara développe. <b>Rabbi Yoḥanan dit</b> qu'il est <b>fiable, comme il 
 La Gemara explique : Le terme <b>"eux"</b> indique que cette <i>halakha</i> ne s'applique qu'aux offrandes qui proviennent de levain ou de miel et qui sont appelées : "Une offrande de premiers produits". Cette catégorie comprend les prémices, qui sont apportées à partir de dattes et d'autres fruits sucrés et qui sont appelées : " Les prémices les plus recherchées de ton pays " (Exode 23, 19), et les deux pains, qui sont du levain et qui sont les premières offrandes de repas apportées de la nouvelle récolte chaque année. En d'autres termes, c'est par rapport à <b>cette</b> catégorie <b>que</b> le verset <b>amplifie pour vous</b> la <i>halakha</i> que la <b>rampe</b> de l'autel est considérée <b>comme</b> l'<b>autel</b> lui-même. <b>Mais</b> en ce qui concerne les <b>autres éléments,</b> par exemple, la viande des offrandes de péché et des offrandes de culpabilité, la rampe de l'autel est <b>non</b> traitée comme l'autel lui-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

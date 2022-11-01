@@ -54,4 +54,4 @@ Ils ont interprété : <b>"Tu décréteras aussi une affaire"</b> toi,</b> Ḥon
 § La Guemara relate une autre histoire, cette fois à propos des descendants d'Ḥoni HaMe'aggel', qui étaient également réputés pour leurs actes justes. <b>Abba Ḥilkiyya était le fils du fils de Ḥoni HaMe'aggel'. Et quand le monde avait besoin de pluie, ils lui envoyaient des Sages, et il priait pour la miséricorde, et la pluie tombait. Une fois, le monde avait besoin de pluie,</b> et <b>les Sages lui envoyaient une paire de Sages</b> afin <b>qu'il prie pour la miséricorde et que la pluie tombe. Ils se rendirent chez lui mais ils ne l'y trouvèrent pas</b>. <b>Ils allèrent au champ et le trouvèrent en train de biner</b> la terre. <b>Ils le saluèrent,</b> <b>et lui donnèrent un coup de main.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

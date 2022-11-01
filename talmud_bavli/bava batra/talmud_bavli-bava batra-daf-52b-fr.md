@@ -30,4 +30,4 @@ La Guemara répond que la mishna <b>est incomplète et voici</b> ce qu'elle ense
 <b>Rav Hoshaya enseigne dans</b> la <i>baraita</i> du tractate <b><i>Kiddushin</i></b> qui était enseigné dans la <b>école de Lévi : </b> Si l'on <b>bloque</b> la porte de la propriété, ou qu'on la <b>clôture</b> ou qu'on <b>brise</b> sa clôture même <b>un peu,</b> si cela a été fait <b>en</b> la <b>présence</b> du vendeur, <b>c'est</b> considéré comme une <b>prise de possession</b> de la propriété. La Gemara demande : On pourrait en déduire que <b>en sa présence, oui,</b> il l'acquiert ; mais <b>en son absence, non,</b> il ne l'acquiert pas. Pourquoi pas ? Dans tous les cas, il en a pris possession. <b>Rava dit</b> que <b>ceci</b> est ce que Rav Hoshaya <b>dit :</b> Si l'acte a été accompli <b>en</b> <b>présence du vendeur,</b> le vendeur n'a pas <b>à lui dire : Va, prends possession, et</b> ainsi <b>acquérir</b> le bien. Puisque l'acheteur accomplit l'acte en présence du vendeur, il n'est pas nécessaire que le vendeur précise qu'il consent à ce que l'acheteur l'acquière.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

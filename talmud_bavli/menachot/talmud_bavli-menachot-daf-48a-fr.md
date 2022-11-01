@@ -60,4 +60,4 @@ La Gemara demande : <b>Et</b> est-ce que c'est ainsi que <b>en ce qui concerne d
 <b>Mais si ce n'est pas le cas,</b> c'est-à-dire que l'on ne peut pas sauver une partie du vin qui est <i>teruma</i>, par exemple, si l'on n'a pas de récipients purs dans lesquels le recueillir, <b>Rabbi Eliezer dit :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

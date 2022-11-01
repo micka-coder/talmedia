@@ -57,4 +57,4 @@ La Guemara explique maintenant la source de ce principe. <b>Comme l'enseigne l'�
 <b>Et</b> de même, <b>il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Pour quelle</b> raison <b>les Sages ont-ils <b>dit</b> que pour que <b>la carcasse d'un oiseau casher</b> devienne susceptible d'impureté, il <b>exige</b> que l'<b>intention</b> de celui qui effectue l'abattage soit de désigner l'animal comme nourriture, <b>mais il n'est pas exigé</b> que l'oiseau soit <b>rendu susceptible</b> d'impureté par contact avec un liquide ? La raison en est <b>parce que</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

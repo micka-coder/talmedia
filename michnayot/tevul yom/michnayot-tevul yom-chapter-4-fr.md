@@ -20,5 +20,5 @@ Si des fers de grappin d'Ashkelon ont été cassés mais que leurs crochets sont
 ### michna 7
 Si quelqu'un prenait de la teruma d'une citerne et disait : " Que ce soit de la teroumah à condition qu'elle remonte sans danger ", [il est sous-entendu qu'il voulait dire] sans danger d'être cassée ou renversée, mais pas de devenir impure ; mais Rabbi Shimon dit : également de l'impureté. Si elle était brisée, cela ne rendrait pas [le contenu de la citerne] sujet aux restrictions de la teroumah. Jusqu'où peut-on la briser et ne pas soumettre [le contenu de la citerne] aux restrictions de la térouma ?  Seulement jusqu'à ce que, si elle se retourne, elle puisse atteindre la citerne. Rabbi Yose dit : même si l'on avait l'intention de faire une telle stipulation, mais qu'on ne l'a pas fait, et qu'elle s'est brisée, cela ne rend pas le [contenu de la citerne] sujet aux restrictions de la térouma, car il s'agit d'une stipulation établie par le tribunal.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

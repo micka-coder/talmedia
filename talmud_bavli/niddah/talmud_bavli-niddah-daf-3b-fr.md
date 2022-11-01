@@ -57,4 +57,4 @@ Alternativement, il existe une raison différente pour laquelle on ne renverse p
 Comme alternative à sa résolution précédente selon laquelle Ḥizkiyya discute le cas d'un récipient à rebord, la Guemara suggère une autre résolution de la contradiction apparente entre la décision de Ḥizkiyya et les opinions de Hillel et Shammai. <b>Et si vous le souhaitez, dites : Quand</b> <b>Shammaï et Hillel sont-ils d'accord ? Dans</b> le cas d'un <b>corbeille qui n'a pas été examinée.</b> Puisqu'il n'a pas examiné la corbeille lorsqu'il y a placé le produit pur, un animal rampant aurait pu déjà se trouver à l'intérieur. Par conséquent, ils s'accordent à dire que le produit ne conserve pas son état présumé de pureté mais est considéré comme rétroactivement impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

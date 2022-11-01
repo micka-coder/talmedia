@@ -45,4 +45,4 @@ La Guemara statue : <b>Et</b> en ce qui concerne un animal au sujet duquel il es
 § <b>Rav Huna dit : Toute créature qui n'a pas d'os ne peut pas durer douze mois. Rav Pappa a dit :</b> On peut <b>apprendre de la déclaration de Rav Huna</b> à propos de <b>ce que dit Shmuel : Si un melon serpent a été infesté par des vers alors qu'il était attaché au sol</b> [<b><i>be'ibbeha</i></b>], le ver <b>est interdit</b> à la consommation, conformément au verset : "Et tout ce qui grouille sur la terre est une chose détestable ; on ne le mangera pas" (Lévitique 11, 41).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara commente : <b>Et cette déclaration</b> ne s'applique qu'au <b>foie,<
 La Guemara raconte : <b>Rav Ashi arriva à la maison de son beau-père Rami bar Abba,</b> et <b>il vit que le fils de Rami bar Abba était</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

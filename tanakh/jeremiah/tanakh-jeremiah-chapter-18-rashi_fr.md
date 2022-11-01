@@ -73,7 +73,7 @@
 <b>Que ce ne soit pas effacé</b> qu'il ne soit pas effacé. Et parce que c'est un genre féminin, il y a placé un 'yud'. Cela aussi est superflu, comme le 'yud' de (Ezéchiel 16:17) "Et tu t'es prostituée (וַתִּזְנִי) avec eux."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -148,4 +148,4 @@
 <b>Que ce ne soit pas effacé</b> qu'il ne soit pas effacé. Et parce que c'est un genre féminin, il y a placé un 'yud'. Cela aussi est superflu, comme le 'yud' de (Ezéchiel 16:17) "Et tu t'es prostituée (וַתִּזְנִי) avec eux."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

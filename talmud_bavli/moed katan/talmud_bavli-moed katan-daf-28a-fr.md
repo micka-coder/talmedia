@@ -72,4 +72,4 @@ L'Ange de la Mort <b>ne put</b> prendre <b>Rav Ḥisda car sa bouche n'était ja
 L'ange de la mort <b>ne pouvait pas s'approcher de Rabbi Ḥiyya,</b> en raison de sa droiture. <b>Un jour</b> l'Ange de la Mort <b>lui apparut sous la forme d'un pauvre. Il vint et frappa à la porte. Il dit à</b> Rabbi Ḥiyya : <b>Porte-moi du pain,</b> et <b>il a sorti</b> du pain <b>pour lui.</b> L'ange de la mort a alors <b>dit</b> à Rabbi Ḥiyya : <b>Maître, n'avez-vous pas pitié d'un pauvre ? Pourquoi, alors, n'as-tu pas pitié de cet homme,</b> c'est-à-dire de moi, et ne me donne pas ce que je veux ? L'Ange de la Mort lui a alors <b>révélé</b> son identité <b>et lui a <b>montré un bâton ardent</b> afin de confirmer qu'il était bien l'Ange de la Mort. A ce moment-là, Rav Ḥiyya <b>se rendit</b> lui-même <b>à lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

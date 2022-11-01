@@ -72,4 +72,4 @@ La Gemara commente : <b>Et</b> le souci de <b>une pierre d'achoppement</b> en co
 <b>Rabbi Yishmael, fils de Rabbi Yosei, dit : Je vais trancher</b> ce litige. Si le tonneau se trouvait <b>dans un champ, il</b> doit <b>être versé en une seule fois,</b> de peur que l'impureté rituelle du tonneau ne soit oubliée au moment où il est apporté à l'intérieur de la maison. Cependant, si le tonneau se trouvait <b>dans la maison,</b> où il pouvait être utilisé immédiatement, <b>il</b> peut <b>être utilisé pour l'aspersion. Certains disent</b> que Rabbi Yishmael, fils de Rabbi Yosei, a décidé : <b>Dans</b> le cas du <b>vin nouveau</b>, <b>il</b> doit <b>être versé en une seule fois;</b> mais <b>dans</b> le cas du <b>vin vieux</b>, <b>il doit être utilisé pour l'aspersion. Ils lui dirent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

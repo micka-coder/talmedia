@@ -54,4 +54,4 @@ La Guemara répond : <b>Shmuel tient conformément</b> à l'opinion de <b>Rabbi 
 <b>Rav Ashi soulève un dilemme : Quelle est la raison de</b> l'opinion de <b>Rabbi Elazar ?</b> Une possibilité est qu'il <b>est évident pour lui que l'esprit d'un sourd-muet est faible. En d'autres termes, bien qu'un sourd-muet soit intellectuellement plus faible qu'une personne moyenne, et qu'il ne comprenne pas tout, il est néanmoins conscient de ce qu'il fait en ce qui concerne certaines entreprises.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

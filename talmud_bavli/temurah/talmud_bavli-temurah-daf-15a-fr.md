@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais Rabbi Yehouda</b> a-t-il réellement <b>dit</b> qu'
 § La mishna enseigne que Rabbi Yehuda dit : Même une offrande de péché communautaire doit être laissée à mourir si la communauté a déjà obtenu l'expiation par un autre animal. La Guemara demande : <b>Mais y a-t-il quelqu'un qui a dit</b> que <b>une offrande de péché commune dont les propriétaires ont accompli l'expiation</b> avec une autre offrande de péché après qu'elle ait été perdue est laissée <b>à mourir ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

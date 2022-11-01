@@ -48,4 +48,4 @@ On raconte que <b>Rav Huna, fils de Rav Yehoshua, tomba malade,</b> et <b>Rav Pa
 Ce même verset poursuit : <b>Il supporte les péchés et pardonne la transgression <b>pour le reste de son héritage</b> (Michée 7:18). <b>Rav Aḥa bar Ḥanina a dit :</b> C'est comme la <b>queue grasse qui a une épine dedans,</b> c'est-à-dire quelque chose de bon qui contient quelque chose de mauvais. Dieu pardonne et gracie seulement <b>pour le reste de son héritage,</b> mais pas pour tout son héritage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La <i>baraita</i> continue : A l'inverse, le territoire <b>à sa gauche, à l'ou
 <b>Rava dit,</b> en rejetant cette affirmation : <b>Peut-être</b> que <b>ce n'est pas le cas,</b> car <b>Rabbi Yehuda dit</b> son avis <b>seulement là, en ce qui concerne un bateau,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

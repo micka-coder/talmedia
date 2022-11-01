@@ -42,4 +42,4 @@ La Guemara remet en question l'objection de Rav Ashi : <b>Si c'est le cas,</b> a
 Dans le cas de <b>une personne qui était mariée à deux femmes et qui est décédée</b> sans enfant, le <b>rapport ou <i>ḥalitza</i> de</b> l'une ou l'autre <b>une des</b> épouses avec le <i>yavam</i> <b>libère son épouse rivale</b> du lien lévirien, et l'épouse rivale n'a pas besoin de contracter un mariage lévirien ou d'accomplir <i>ḥalitza</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> comment explique-t-on la mishna <b>selon</b> l'avi
 § <b>Rabba dit</b> que <b>Rav Huna dit :</b> Si quelqu'un dit à un autre : <b>Vends-moi</b> ton article <b>pour ces</b> pièces qui sont dans ma main, et qu'en prenant l'argent le propriétaire de l'article n'a pas déterminé la somme, l'acheteur <b>acquiert</b> l'article et la transaction est complète, et aucun des deux ne peut revenir sur le marché.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

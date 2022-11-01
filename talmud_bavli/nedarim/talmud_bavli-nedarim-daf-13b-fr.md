@@ -15,4 +15,4 @@ La mishna <b>enseigne</b> que si l'on dit : Ce que <b>je ne mangerai pas de toi 
 <b>Rav Yehuda a dit :</b> La mishna fait référence <b>à celui qui dit : Ma bouche sera interdite</b> en ce qui concerne <b>mon discours,</b> ou : <b>Mes mains</b> seront interdites en ce qui concerne <b>leur travail,</b> ou : <b>Mes pieds</b> devront être interdits en ce qui concerne <b>leur marche.</b> Dans ces cas, le vœu s'applique à un membre, qui est un élément concret, et donc il prend effet. La Guemara commente : Le langage de la mishna <b>est également précis</b> selon cette interprétation, <b>car elle enseigne :</b> Car <b>ma bouche</b> pour <b>parler avec vous, et elle n'enseigne pas : Ce que je dis avec vous.</b> Cela indique qu'il a imposé le vœu à sa bouche et non à l'acte de parler.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

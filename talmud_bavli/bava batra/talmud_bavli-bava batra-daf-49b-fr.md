@@ -15,4 +15,4 @@ La Guemara cite une source pour cette affirmation : <b>N'avons-nous pas appris</
 La Guemara répond : <b>Mais n'a-t-il pas été dit à propos de cette</b> mishna que <b>Rabba bar Rav Huna dit :</b> La <i>halakha</i> selon laquelle une femme peut prétendre qu'elle a agi uniquement pour plaire à son mari n'est pas énoncée à l'égard de tous ses biens, mais <b>est nécessaire uniquement à l'égard de ces trois</b> types de <b>champs</b> qui ont un statut particulier : <b>Un</b> champ au sujet duquel il lui a écrit dans son contrat de mariage</b> qu'il servirait de paiement de son contrat de mariage ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

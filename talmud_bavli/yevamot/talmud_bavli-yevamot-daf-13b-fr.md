@@ -66,4 +66,4 @@ Rabbi Yoḥanan répondit : <b>Et</b> dans ce cas <b>là, </b> la veille de Pess
 Reish Lakish lui <b>dit :</b> Dans ce cas <b>là,</b> les différentes factions ne sont pas perceptibles, comme <b>celui qui voit</b> un autre oisif <b>dit : C'est</b> parce que <b>il n'a pas de travail</b> à effectuer. Par conséquent, s'abstenir de travailler n'a pas l'apparence d'une rupture de factions. Rabbi Yoḥanan soulève une difficulté : <b>Mais Beit Shammai permet des épouses rivales aux frères, et Beit Hillel interdit</b> cette pratique. C'est un exemple d'une interdiction claire, et pourtant deux traditions différentes ont été suivies.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

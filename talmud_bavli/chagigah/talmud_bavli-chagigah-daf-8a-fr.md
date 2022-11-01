@@ -30,4 +30,4 @@ La Gemara demande : <b>D'où peut-on déduire que ceci : "Après la mesure [<i>m
 <b>Et les prêtres</b> s'acquittent de leur obligation de se réjouir <b>avec</b> la viande des <b>offrandes de péché</b> <b>et des offrandes de culpabilité</b>, <b>et des offrandes de premier-né</b>, <b>et de la poitrine et de la cuisse</b> des offrandes de paix. On <b>pourrait</b> avoir pensé qu'ils peuvent remplir leur obligation <b>même en</b> mangeant des <b>offrandes d'oiseaux</b> <b>et des offrandes de repas</b>. Par conséquent, <b>le verset dit : "Et tu te réjouiras de ton festin."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

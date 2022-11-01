@@ -54,4 +54,4 @@ La Guemara commente : <b>Aussi, il est raisonnable</b> d'expliquer la mishna de 
 La Gemara demande : <b>Disons</b> que <b>cette mishna</b> <b>est une réfutation concluante de</b> l'opinion de <b>Ḥiyya bar Rav,</b> selon laquelle deux villes adjacentes ne se voient accorder qu'un seul <i>karpef</i>. La Guemara répond que <b>Ḥiyya bar Rav</b> aurait pu <b>vous dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

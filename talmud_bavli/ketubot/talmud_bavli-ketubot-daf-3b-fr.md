@@ -27,4 +27,4 @@ Le <i>baraita</i> continue : <b>Et le lundi on ne peut pas se marier</b> même e
 <b>Et si vous le souhaitez, dites</b> plutôt : <b>Quel est</b> le sens de : <b>Du fait de la coercition ?</b> C'est <b>comme il est enseigné</b> dans un <i>baraita</i> : <b>Si l'on a cuit son pain, abattu son animal et dilué son vin,</b> et que tous les préparatifs de la fête de mariage étaient terminés, <b>et que le père du marié ou la mère de la mariée est décédé</b> avant le mariage, alors avant d'enterrer le défunt, ce qui déclencherait le début du deuil, <b>on déplace le cadavre dans une pièce, et les mariés</b> sont conduits <b>vers le dais de mariage</b> et ils se marient.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

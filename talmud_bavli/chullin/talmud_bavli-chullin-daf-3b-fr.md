@@ -63,4 +63,4 @@ La Gemara répond : Lorsque Rava a expliqué que le <i>tanna</i> dans la mishna 
 <b>De même,</b> si le Juif <b>trouve en la possession</b> d'un Samaritain...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

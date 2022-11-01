@@ -54,4 +54,4 @@ Rav Ashi explique la preuve : <b>Accordé,</b> la mishna précise que l'interdic
 La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> que le verset ne critique les Juifs qu'<b>une fois qu'ils ont mangé</b> du sacrifice ? <b>Rava dit : Si</b> cela <b>est</b> ce que l'on veut dire, <b>laissons le verset dire</b> seulement : <b>Et vous mangez de leur sacrifice. Que signifie la phrase supplémentaire : <b>"Et ils vous appellent"?</b> Cela indique que l'interdiction intervient <b>à partir du moment de l'appel. Par conséquent,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

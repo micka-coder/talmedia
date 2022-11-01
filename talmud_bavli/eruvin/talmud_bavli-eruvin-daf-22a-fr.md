@@ -84,4 +84,4 @@ Entre une déclaration des <b>Rabbins</b> et l'autre déclaration des <b>Rabbins
 <b>Rabbi Yitzḥak bar Yosef a dit</b> que <b>Rabbi Yoḥanan a dit :</b> En <b>Eretz Yisrael on n'est pas responsable de</b> porter dans <b>le domaine public. Rav Dimi s'est assis et a récité cette <i>halakha</i>. Abaye dit à Rav Dimi : Quelle est la raison</b> sous-jacente à cette décision ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

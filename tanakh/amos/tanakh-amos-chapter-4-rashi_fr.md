@@ -54,4 +54,4 @@
 <b>et foule les hauts lieux de la terre</b> - Il humilie les hauts et les hautains.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

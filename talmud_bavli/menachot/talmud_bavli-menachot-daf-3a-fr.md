@@ -60,4 +60,4 @@ La Gemara conteste : <b>Une offrande de chèvre</b> pour le péché <b>que l'on 
 La Gemara conteste : <b>Un veau ou un taureau que l'on égorge en vue</b> soit d'une <b>offrande pascale, soit d'une offrande de culpabilité doit entraîner l'acceptation.</b> Il est clair que de tels animaux ne peuvent être ni l'une ni l'autre offrande, <b>car un veau ou un taureau</b> dont l'offrande <b>n'est pas</b> sacrifiée soit <b>comme offrande pascale, soit</b> comme <b>offrande de culpabilité.</b> La Gemara répond : <b>Oui,</b> il en est effectivement ainsi,</b> car selon Rabbi Shimon, de telles offrandes entraînent l'acceptation de leurs propriétaires.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

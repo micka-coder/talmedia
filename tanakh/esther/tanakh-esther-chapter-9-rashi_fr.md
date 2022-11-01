@@ -88,4 +88,4 @@
 <b>Sur la base de la demande d'Esther [ces affaires de Pourim] ont été perpétuées, etc.</b> Esther a demandé aux Sages de la génération de la commémorer et d'écrire ce livre avec le reste des Écritures, et c'est le sens de "et inscrit dans le livre."<sup>20</sup><i class="footnote">Traité Megillah 7a. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

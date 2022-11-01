@@ -48,4 +48,4 @@ La Gemara demande : <b>Et</b> y a-t-il vraiment <b>aucun</b> cas de ce genre ? <
 <b>Rabba bar Sheila dit : Non</b>, ce n'est pas le sens de <i>tohoro</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

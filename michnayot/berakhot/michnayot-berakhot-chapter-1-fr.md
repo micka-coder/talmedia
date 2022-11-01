@@ -15,4 +15,4 @@ Le matin, on dit deux bénédictions avant [_Shema_] et une après, tandis que l
 On doit mentionner la sortie d'Égypte la nuit. Rabbi Elazar ben Azaryah a dit : "Voici, je suis comme un homme de soixante-dix ans, et pourtant je ne pouvais pas gagner [l'argument contre les autres sages] en faisant réciter l'exode d'Égypte la nuit, jusqu'à ce que Ben Zoma l'ait dérivé [d'une source biblique]". "[Il l'a dérivé comme suit :] Il est dit (Deut. 16:3), 'Afin que vous vous souveniez du jour où vous avez quitté l'Egypte pour tous les jours de votre vie'". "Or, 'les jours de ta vie' signifie les jours ; 'tous les jours de ta vie' [comprend aussi] les nuits". Mais les Sages disent : " Les jours de ta vie " signifient le monde actuel ; " Tous les jours de ta vie " incluent aussi l'ère de _Mashiach_.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

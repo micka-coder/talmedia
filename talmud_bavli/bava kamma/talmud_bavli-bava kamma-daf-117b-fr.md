@@ -66,4 +66,4 @@ La Gemara demande : <b>Et</b> il y a <b>ce qui est enseigné</b> dans une <i>bar
 <b>Rav Pappa a dit : Là, de quoi s'agit-il ? </b> Nous traitons d'un cas <b>où il</b> avait <b>volé un autre d'un champ, et il y avait</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

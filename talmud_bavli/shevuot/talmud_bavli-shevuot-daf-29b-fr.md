@@ -45,4 +45,4 @@ Ces déclarations de la mishna sont <b>difficiles,</b> car elles se contredisent
 La Gemara demande : <b>Mais</b> puisque sa déclaration peut être dérivée de sources tannaïtiques, <b>Que nous enseigne Shmuel ?</b> La Gemara répond : <b>Il nous enseigne la lecture précise</b> <b>de la mishna.</b> Comme cette <i>halakha</i> n'est pas énoncée explicitement dans la mishna, Shmuel a jugé bon de l'énoncer.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@ La Gemara demande : <b>D'accord, selon celui qui dit</b> que <b>"<i>elohim</i>" 
 La Gemara répond : <b>Si oui,</b> s'il est interdit de maudire Dieu mais pas les juges, <b>laissons le verset écrire : Tu ne traiteras pas à la légère [<i>takel</i>],</b> au lieu de : "Tu ne blasphémeras pas [<i>tekallel</i>]" ; il aurait été dérivé de cette formulation qu'il est interdit de rabaisser ou de maudire Dieu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

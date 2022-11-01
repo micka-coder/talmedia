@@ -33,4 +33,4 @@ La Gemara rejette cette affirmation : <b>Là,</b> le conflit <b>est</b> entre <b
 La Guemara soulève une autre difficulté à l'encontre de Rava : <b>Et</b> est-ce que c'est pour que <b>une incertitude ne l'emporte pas sur une certitude ? Mais n'a-t-on pas</b> enseigné</b> dans une <i>baraïta</i> que <b>Rabbi Yehuda a dit :</b> Il y eut <b>un incident impliquant la servante d'une certaine personne violente dans</b> la ville de <b>Rimon, qui jeta un bébé mort-né</b> <b>dans une fosse,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

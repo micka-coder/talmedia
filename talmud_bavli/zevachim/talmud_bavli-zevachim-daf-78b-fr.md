@@ -33,4 +33,4 @@ La Guemara explique cette contradiction : <b>Qui as-tu entendu qui accepte</b> c
 <b>Abaye dit:</b> Ceci n'est <b>pas difficile;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara répond que <b>Rav Yehuda a dit : Dis</b> que la mishna doit être lue
 <b>Abaye lui dit : La mishna n'a-t-elle pas</b> <b>enseigné : Et de même en ce qui concerne l'impureté rituelle.</b> Le texte de la mishna ne peut être modifié de manière aussi radicale simplement pour résoudre une difficulté. <b>Abaye a plutôt dit : C'est</b> ce que la mishna <b>dit : Et de même</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

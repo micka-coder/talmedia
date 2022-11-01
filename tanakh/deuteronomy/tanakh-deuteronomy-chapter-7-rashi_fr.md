@@ -76,5 +76,5 @@ Plutôt, par l'amour d'Hachem. Ici le mot כִּי est utilisé pour exprimer "p
 ### passuk 23
 <b>Et les confondront.</b> Les deux syllabes du mot הָמָם ont une voyelle <i>kometz</i> car le dernier <i>mème</i> ne fait pas partie de la racine. Ainsi וְהָמָם est identique à וְהָם אוֹתָם [et les confondra]. Or (le mot וְהָמַם dans le verset,) " Et bien que le rouleau de son chariot ait été bruyant ", le verbe הָמַם est entièrement constitué de lettres racines ; il a donc pour moitié un <i>kometz</i> (הָ) et pour moitié un <i>patach</i> (מַ) comme tout autre verbe de trois lettres. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

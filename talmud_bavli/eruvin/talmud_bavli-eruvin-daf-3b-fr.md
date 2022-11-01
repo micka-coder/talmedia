@@ -66,4 +66,4 @@ Ce qui précède est basé sur la décision de Rav Naḥman selon Abaye. <b>Mais
 <b>La Gemara soulève une objection</b> d'un <i>baraita</i> : <b>Toutes les coudées qui ont été mentionnées par les Sages sont des coudées de six</b> centimètres, <b>à condition</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

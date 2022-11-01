@@ -69,4 +69,4 @@ La Gemara demande : <b>Maintenant que</b> la disqualification d'une <i>tereifa</
 La Gemara demande : <b>Mais</b> en ce qui concerne <b>ce verset</b>, <b>vient-il à</b> enseigner <b>cette</b> interdiction ? <b>Ce</b> verset <b>est requis pour ce qui est enseigné</b> dans une <i>baraita</i>, en ce qui concerne l'interdiction de sacrifier des offrandes en dehors du Tabernacle :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

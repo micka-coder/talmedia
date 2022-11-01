@@ -27,4 +27,4 @@ La Guemara rejette cette suggestion : Les Sages <b>ont dit : Non;</b> la mishna 
 La Gemara déduit de cette décision : <b>Mais</b> si les animaux ont donné naissance <b>avant leur rachat,</b> la progéniture <b>est interdite</b> jusqu'à ce qu'ils soient rachetés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

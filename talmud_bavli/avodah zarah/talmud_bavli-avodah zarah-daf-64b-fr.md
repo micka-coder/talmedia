@@ -48,4 +48,4 @@ La Guemara commente la <i>baraita</i> : <b>En tout cas,</b> le <i>baraita</i> <b
 La Gemara relate : <b>Rav Yehuda envoya un cadeau</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

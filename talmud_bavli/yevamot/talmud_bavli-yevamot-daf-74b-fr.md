@@ -54,4 +54,4 @@ La Guemara conteste cet argument : <b>Au contraire, le <i>teruma</i></b> devrait
 <b>Rava a dit : Et</b> le verset <b>ne se réfère-t-il pas</b> également au <i>teruma</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -26,4 +26,4 @@
 <b>Ceux qui craignent le Seigneur</b> Ce sont les prosélytes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

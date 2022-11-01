@@ -24,4 +24,4 @@ Rabbi Yoḥanan explique son affirmation : <b>Comme il est dit : "Et Josaphat se
 <b>Et</b> en ce qui concerne cette <i>halakha</i> elle-même, à savoir qu'un lépreux qui a subi une émission séminale peut néanmoins sacrifier des offrandes dans le Temple, <b>Ulla dit : Quelle est la raison</b> pour laquelle cela lui est permis ? <b>Puisque c'est permis pour sa lèpre,</b> c'est-à-dire que la Torah lui a permis d'entrer sur le Mont du Temple alors qu'il était encore lépreux pour réaliser une purification rituelle complète, qui nécessite qu'il sacrifie des offrandes, <b>c'est permis en ce qui concerne son émission séminale</b> également. Cela montre que la <i>tanna</i> accepte le principe selon lequel comme une interdiction est permise, deux interdictions sont de même permises. La Guemara rejette cet argument : <b>Est-ce que cette hypothèse est <b>comparable</b> au cas de <b>Ulla ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

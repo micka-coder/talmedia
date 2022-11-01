@@ -89,5 +89,5 @@
 <b>Térach mourut à Charan.</b> [Il mourut] alors qu'Avram avait déjà quitté Charan et était arrivé au pays de Canaan, et y avait déjà séjourné plus de soixante ans. Car il est écrit : "Et Avram avait 75 ans lorsqu'il quitta Charan." Térakh avait 70 ans quand Avram est né, ce qui fait que Térakh avait 145 ans quand Avram a quitté Charan, il lui restait donc encore de nombreuses années de vie. Alors, pourquoi l'Écriture mentionne-t-elle la mort de Térakh avant le départ d'Avram ? C'est pour que cette affaire ne soit pas rendue publique [et que les gens] disent : "Avraham n'a pas fait preuve de respect envers son père car il l'a quitté [son père] dans sa vieillesse". Ainsi donc l'Écriture le désigne comme mort parce que les méchants sont appelés morts même s'ils sont vivants, alors que les justes, même morts, sont appelés vivants, comme il est dit : Benayahu ben Yehoyada, le fils d'un homme vivant." 
 <b>Dans Charan.</b> La lettre נ' est inversée pour vous dire que jusqu'à ce qu'Avram [apparaisse], il y avait une colère de Dieu contre le monde. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

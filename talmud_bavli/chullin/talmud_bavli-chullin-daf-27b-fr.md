@@ -57,4 +57,4 @@ La Guemara <b>souleve une objection</b> à la déclaration de Rabbi Yitzḥak be
 La Guemara cite un autre défi : <b>Venez</b> et <b>entendez</b> ce qui est enseigné dans une <i>baraita</i> : <b>Celui qui égorge</b> un animal non domestiqué ou un oiseau <b>et a besoin du sang</b> et non de l'animal <b>est obligé de couvrir</b> le sang. Au contraire, <b>comment agit-il</b> s'il cherche à utiliser le sang plutôt que de le couvrir ? Il <b>soit poignarde</b> l'animal <b>soit déchire</b> le <i>simanim</i>, et alors il est dispensé de couvrir le sang.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

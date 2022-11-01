@@ -42,4 +42,4 @@ La Guemara soulève une difficulté : Mais maintenant <b>Disons la dernière cla
 <b>Parce que si</b> c'est l'opinion de <b>Rabbi Meir, n'a-t-il pas dit</b> que l'omission de la <b>garantie</b> d'un document <b>n'est pas une erreur scribale,</b> c'est-à-dire qu'un privilège peut être placé sur la propriété pour garantir la transaction seulement si le document indique explicitement que c'est le cas. La Gemara cite la source de ce différend. <b>Comme nous l'avons appris</b> dans une mishna (<i>Bava Metzia</i> 12b) : A l'égard de celui qui a <b>trouvé des billets à ordre, si</b>...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

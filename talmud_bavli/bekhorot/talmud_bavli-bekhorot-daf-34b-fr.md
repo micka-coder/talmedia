@@ -54,4 +54,4 @@ Rabbi Zeira <b>dit à</b> Rabbi Yirmeya : <b>Vous avez appris</b> la résolution
 <b>Abaye dit : Nous avons une tradition</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

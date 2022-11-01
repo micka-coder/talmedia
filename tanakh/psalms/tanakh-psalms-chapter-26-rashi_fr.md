@@ -32,4 +32,4 @@
 <b>Mon pied s'est tenu sur un chemin droit</b> Heb.  במישור, sur un chemin droit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

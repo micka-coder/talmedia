@@ -45,4 +45,4 @@ La Guemara <b>souleve</b> une autre <b>objection : </b> Le statut halakhique de 
 La Gemara s'interroge : Dans quel but les <i>baraita</i> viendraient-ils enseigner la durée de <b>leur impureté ?</b> La Torah <b>écrit explicitement</b> les durées de <b>leur</b> impureté. <b>Cela,</b> celui qui est impur par l'impureté transmise par un cadavre, a une <b>impureté de sept</b> jours <b>écrite à son</b> égard ; <b>et</b> de même, <b>celui-ci,</b> celui qui est impur parce qu'il a eu des relations avec une femme menstruée, a une <b>impureté de sept</b> jours <b>écrite à son</b> égard. Il n'est pas nécessaire pour le <i>baraita</i> de dériver une question explicitement écrite dans la Torah d'une autre question explicitement écrite dans la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

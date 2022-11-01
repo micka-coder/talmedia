@@ -51,4 +51,4 @@ Il est écrit : <b>"Et les princes de Moab restèrent avec Balaam"</b> (Nombres 
 La Gemara relate : Balaam <b>était un devin en</b> utilisant <b>son pénis. Il est écrit ici : "Tombé, mais les yeux ouverts"</b> (Nombres 24:4), <b>et il est écrit ici : "Et Haman était tombé sur le lit</b> où était Esther" (Esther 7:8), ce qui indique que le verbe tombé a une connotation sexuelle. <b>Il a été dit</b> qu'il existe un différend amoraïque à ce sujet. <b>Mar Zutra dit :</b> Balaam <b>était un devin en</b> utilisant <b>son pénis. Mar, fils de Ravina, dit : Il s'est livré à la bestialité avec son âne. Celui qui dit</b> qu'il <b>était un devin en</b> utilisant <b>son pénis</b> le dérive <b>comme nous l'avons énoncé. Et celui qui dit</b> qu'il <b>s'est livré à la bestialité avec son âne</b> le dérive comme suit : <b>Il est écrit ici : "Il s'accroupit, il se coucha"</b> (Nombres 24:9), <b>et il est écrit ici : "Entre ses jambes</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

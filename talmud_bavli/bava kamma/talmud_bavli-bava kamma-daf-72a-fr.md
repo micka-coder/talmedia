@@ -24,4 +24,4 @@ Rav Huna dit à Rav Ashi : <b>Mais</b> si tu as raison, la mishna <b>est diffici
 <b>Il y a</b> ceux <b>qui enseignent</b> que l'échange précédent a eu lieu <b>au regard</b> de la dispute suivante : <b>Rabbi Shimon</b> ben Lakish <b>dit au nom de Rabbi Lévi l'Ancien :</b> L'acte d'abattage est considéré comme ayant été <b>effectué seulement à la fin</b> du processus d'abattage. <b>Et Rabbi Yoḥanan dit :</b> L'acte <b>d'abattage dure du début à la fin. Rav Ḥavivi de Meḥoza dit à Rav Ashi : Devons-nous dire que Rabbi Yoḥanan soutient</b> que l'interdiction de tirer un bénéfice des animaux <b>non sacrés</b> <b>qui ont été abattus dans la cour du Temple n'est pas par la loi de la Torah ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

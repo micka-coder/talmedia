@@ -57,4 +57,4 @@ Rabbi Abbahou <b>pensa</b> que <b>puisqu'il se taisait,</b> cela doit signifier 
 La Guemara explique la distinction entre ce cas et celui de la pierre ou de la poutre consacrée. La raison pour laquelle on considère que le trésorier d'un bien consacré a abusé d'un bien consacré en en tirant un bénéfice est <b>conforme</b> à la déclaration <b>de Rabba, car Rabba dit : Un bien consacré</b> dont on a tiré un bénéfice <b>sans</b> que le trésor du Temple en soit <b>connu</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

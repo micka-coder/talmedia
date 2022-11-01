@@ -63,4 +63,4 @@ La deuxième moitié du verset susmentionné dans Job dit : <b>"Ou un chemin pou
 Il y est encore dit : <b>"Sais-tu quand les chèvres sauvages du rocher mettent bas ? Peux-tu marquer le moment où les biches mettent bas ?"</b> (Job 39:1). <b>Cette chèvre est cruelle envers ses petits</b> et ne leur témoigne aucune pitié ; <b>quand elle s'accroupit</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara présente <b>une version alternative</b> du dilemme précédent. <b>R
 La Guemara explique que Rabbi Avin soulève un dilemme en raison de la solution anticipée d'un autre dilemme. Si l'offrande de culpabilité initiale est devenue tachée <b>et qu'il l'a désacralisée</b> en transférant sa sainteté <b>sur un autre,</b> deuxième animal, <b>qu'elle est</b> la <i>halakha</i> quant <b>à</b> savoir si le propriétaire doit <b>ajouter un cinquième à sa</b> valeur lorsqu'il la rachète ? <b>Disons-nous</b> que <b>en ce qui concerne</b> un second rachat de la <b>première offrande de culpabilité, il</b> ne <b>ajoute pas</b> un cinquième, puisqu'il s'agit du même corps et de la même sainteté, <b>mais</b> ici, lorsqu'il s'agit d'un <b>autre corps, même s'il conserve le même</b> type de <b>sainteté</b> que l'animal initial, il <b>ajoute un cinquième,</b> car il est considéré comme directement consacré ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

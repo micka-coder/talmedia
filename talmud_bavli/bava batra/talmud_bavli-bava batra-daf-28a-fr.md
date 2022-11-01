@@ -21,4 +21,4 @@ En ce qui concerne <b>un champ non irrigué,</b> c'est-à-dire arrosé par la pl
 La Gemara remet en question cette comparaison : <b>Si</b> alors, disons que <b>comme pour un bœuf averti,</b> le propriétaire <b>n'est pas tenu</b> de payer la totalité des dommages <b>jusqu'au quatrième gorgement, ici aussi,</b> le terrain ne devrait <b>pas être établi</b> comme étant <b>en sa possession jusqu'à la quatrième année.</b> La Gemara rejette cette question : <b>Comment peut-on</b> ces cas peuvent-ils être comparés ? Là, une fois qu'il a encorné trois</b> fois <b>il est prévenu,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

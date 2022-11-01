@@ -42,4 +42,4 @@ La Guemara s'interroge sur cette formulation : Pourquoi est-il nécessaire de me
 <b>Rabbi Eliezer dit :</b> Une femme <b>ne doit pas la désigner</b> comme <i>ḥalla</i> avant de la cuire ; elle doit plutôt s'abstenir de le faire <b>jusqu'à ce qu'elle soit cuite.</b> En d'autres termes, elle doit attendre d'avoir cuit toute la pâte, et qu'il n'y ait aucun risque qu'elle devienne levée. Ce n'est qu'alors qu'elle doit en séparer la <i>ḥalla</i>. La portion de <i>ḥalla</i> pourra alors être conservée jusqu'après le jour de la Fête, où elle pourra être brûlée. <b>Ben Beteira dit : Elle doit</b> séparer la <i>ḥalla</i> avant qu'elle ne soit cuite, et <b>placer</b> la pâte <b>dans de l'eau froide</b> afin qu'elle ne devienne pas levée. <b>Rabbi Yehoshua a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

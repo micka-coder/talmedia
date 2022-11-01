@@ -17,5 +17,5 @@ Si l'on égorge des animaux sacrés [dans l'intention] de manger le fœtus ou le
 ### michna 6
 S'il l'a abattu avec l'intention de laisser son sang ou ses entrailles pour le lendemain, ou de les transporter hors de leur lieu : Rabbi Juda le disqualifie, mais les sages le déclarent valide. S'il l'a abattu] avec l'intention d'asperger [le sang] sur la montée, [ou sur l'autel] mais pas contre sa base ; ou d'appliquer en dessous [la ligne écarlate] ce qui doit être appliqué en haut, ou en haut ce qui doit être appliqué en bas, ou en dehors ce qui doit être appliqué en dedans, ou en dedans ce qui doit être appliqué en dehors ; dans l'intention] que des [personnes] impures en mangent, [ou] que des [prêtres] impurs l'offrent ; [ou] que des [personnes] incirconcises en mangent, [ou] que des personnes incirconcises l'offrent ; Ou avec l'intention] de briser les os de la pesah, ou de la manger avant qu'elle ne soit rôtie ; ou de mélanger son sang avec le sang de [sacrifices] invalides ; [Dans tous ces cas] il est valide, parce qu'une intention [illégitime] ne disqualifie pas [un sacrifice] sauf lorsqu'elle se réfère à un moment ultérieur ou en dehors du lieu prescrit, et [dans le cas de] une pesah et une hatat, [l'intention de les abattre] pour qu'elles soient un sacrifice différent.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

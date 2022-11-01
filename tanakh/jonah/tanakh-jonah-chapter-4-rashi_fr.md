@@ -34,7 +34,7 @@
 <b>et beaucoup de bêtes aussi</b>-Adultes, qui ont l'intelligence des bêtes, qui ne reconnaissent pas qui les a créés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Maintenant, cela déplut à Jonas</b> - Il dit : " Maintenant, les nations diront que je suis un faux prophète. " [de <i>Pirk&amp;d'Rabbi Eliezer</i> ch. 10]
 
@@ -70,4 +70,4 @@
 <b>et beaucoup de bêtes aussi</b>-Adultes, qui ont l'intelligence des bêtes, qui ne reconnaissent pas qui les a créés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

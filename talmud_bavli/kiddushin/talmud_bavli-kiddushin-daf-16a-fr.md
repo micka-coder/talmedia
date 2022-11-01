@@ -54,4 +54,4 @@ La Gemara demande : <b>Quoi</b> d'autre a-t-il omis qu'il a omis cela ? </b> La 
 La Guemara soulève une difficulté : <b>Mais</b> il y a le cas des <b>signes</b> indiquant la puberté, <b>qui n'ont pas de temps déterminé,</b> car les jeunes femmes présentent ces signes de puberté à des âges différents, <b>et</b> pourtant <b>il enseigne</b> quand même ce mode d'émancipation. <b>Rav Safra dit :</b> Certes, ces signes <b>n'ont pas de durée maximale déterminée,</b> car dès qu'elle atteint l'âge de douze ans, elle est émancipée dès qu'elle développe ces signes, <b>mais ils ont une durée déterminée</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

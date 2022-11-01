@@ -48,4 +48,4 @@ La Guemara demande pourquoi Rav Adda bar Ahava a interprété la mishna comme é
 <b>Et Rav Sherevya dit :</b> Conformément à l'opinion de <b>qui</b> <b>est cette mishna</b> dans <i>Tamid</i>, qui soutient que l'autel entier était situé dans la partie nord de la cour du Temple ? <b>C'est</b> conforme à l'avis de <b>Rabbi Yosei HaGelili, tel qu'il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yosei HaGelili dit : Puisqu'il est dit : "Et tu placeras le Bassin entre la Tente de la Rencontre</b> et l'autel" (Exode 40:7), et un autre verset indique : <b>"Et</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

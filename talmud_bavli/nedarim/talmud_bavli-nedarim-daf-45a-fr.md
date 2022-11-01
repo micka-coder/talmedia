@@ -6,4 +6,4 @@
 <b>Et Rabbi Yehoshua ben Levi a dit : Selon la loi de la Torah, même avec une</b> personne, l'objet <b>est sans propriétaire, et quelle</b> est la <b>raison</b> pour laquelle les Sages ont <b>dit</b> que le statut de sans propriétaire doit être déclaré <b>avec trois</b> personnes ? C'est <b>pour qu'une seule prenne possession</b> de l'objet <b>et que deux</b> attestent <b>de la déclaration de l'absence de propriétaire et de l'acquisition de l'objet par cette personne. Il ne s'agit pas d'une exigence fondamentale pour la déclaration du statut de sans propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

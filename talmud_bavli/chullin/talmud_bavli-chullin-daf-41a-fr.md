@@ -27,4 +27,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une contradiction à la dis
 <strong>MISHNA :</strong> <b>On ne peut pas égorger</b> un animal et faire couler son sang, <b>ni dans les mers, ni dans les rivières, ni dans les récipientx,</b> car dans tous ces cas, il apparaît qu'il égorge l'animal à la manière des idolâtres. <b>Mais on peut abattre</b> un animal et faire couler son sang <b>dans une excavation ronde</b> contenant de l'<b>eau. Et sur un navire,</b> on peut abattre un animal <b>sur les navires</b> car il est clair que son objectif est d'éviter de souiller le navire. <b>On ne peut pas du tout abattre</b> un animal et faire couler son sang <b>dans un petit trou</b> dans le sol <b>mais on peut façonner un petit trou à l'intérieur de sa maison pour que le sang y entre. Et sur la place du marché, on ne peut pas le faire,</b> de sorte <b>que</b> il ne <b>pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

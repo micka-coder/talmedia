@@ -29,5 +29,5 @@ Comment la libation d'eau était-elle effectuée ? Une fiole en or contenant tro
 ### michna 10
 Tout comme on le faisait en semaine, on le faisait le jour du Chabbat, sauf que la veille du Chabbat, on remplissait un tonneau d'or non sanctifié provenant de la Shiloah, et on le plaçait dans la chambre. Si l'eau s'est écoulée ou a été découverte, il la remplissait à nouveau à partir de la cuve, car le vin ou l'eau qui a été découverte n'est pas valable pour l'autel.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

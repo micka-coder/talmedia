@@ -45,4 +45,4 @@ En ce qui concerne les objets impropres qui, s'ils montaient, ne descendent pas,
 <strong>GEMARA:</strong> La mishna enseigne que les membres d'un holocauste convenable qui ont été délogés de sur l'autel avant minuit sont remis sur l'autel, mais que s'ils ont été délogés après minuit, ils ne sont pas remis. La Guemara demande : <b>Quelles sont les circonstances ? Si</b> les membres <b>ont de la substance,</b> c'est-à-dire qu'ils n'ont pas encore été consumés dans leur totalité par le feu, alors <b>même</b> s'ils ont été délogés <b>après minuit</b> le prêtre doit les retourner au feu. <b>Si elles n'ont pas de substance</b> et ont été réduites en cendres, alors <b>même</b> si elles ont été délogées <b>avant minuit</b> le prêtre ne doit <b>pas</b> les retourner à l'autel. La Guemara répond : <b>Non,</b> il est <b>nécessaire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

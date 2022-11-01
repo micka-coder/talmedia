@@ -69,4 +69,4 @@
 <b>Au début de la récolte de l'orge.</b> Le verset parle de la récolte de l'Omer.</sup>32</sup><i class="footnote">L'orge pour l'Omer était récoltée la deuxième nuit de Pessah et offerte le jour suivant. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

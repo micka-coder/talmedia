@@ -42,4 +42,4 @@ La Gemara commente : Abaye et Rava <b>suivent tous deux leurs propres lignes de 
 La Guemara explique l'objection : <b>Grâce, selon</b> l'avis de <b>Abaye, au fait qu'un vœu <b>que l'on associe</b> à un autre <b>vœu</b> est considéré comme <b>un vœu,</b> comme le démontre la décision de Shmuel, on peut conclure qu'un serment que <b>on associe</b> à un autre <b>serment</b> est considéré comme <b>un serment.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

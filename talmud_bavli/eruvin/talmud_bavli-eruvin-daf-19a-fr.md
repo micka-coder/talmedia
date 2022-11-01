@@ -69,4 +69,4 @@ La Gemara répond : Ceci est précisé, <b>de peur que l'on dise</b> que <b>lié
 La mishna poursuit : Il doit rester suffisamment d'espace pour que <b>quelqu'un puisse entrer et qu'un autre puisse sortir.</b> Une <i>Tosefta</i> <b>a été enseignée</b> qui explique la mishna : Un espace suffisant pour que <b>une équipe puisse entrer et</b> une autre <b>équipe puisse sortir. Nos Sages ont enseigné</b> dans une <i>baraita</i> : <b>Quel est</b> la longueur de <b>la tête et de la plus grande partie du corps d'une vache ? Deux coudées. Et quelle est l'épaisseur d'une vache ? Une coudée et deux tiers d'une coudée,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara demande : <b>Si c'est le cas, le propriétaire de la maison</b> lui-m�
 La Gemara demande : <b>Et l'acheteur est-il obligé par la loi de la Torah</b> de payer la dîme du produit qu'il achète ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Pour quelle raison les magasins de Beit Hino,</b> une ville proche de Jérusalem, ont-ils été <b>détruits trois ans avant</b> la destruction de <b>Jérusalem</b> elle-même ? C'est <b>parce qu'ils fondaient leurs pratiques</b> strictement <b>sur des questions de Torah,</b> c'est-à-dire qu'ils n'adhéraient pas aux garde-fous rabbiniques. La <i>baraita</i> explique <b>qu'ils disaient</b> .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

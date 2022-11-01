@@ -39,4 +39,4 @@ En ce qui concerne le cas précédent, <b>un dilemme a été soulevé devant</b>
 La mishna enseigne : Si le vendeur a dit : Je te vends du <b>vieux</b> vin, il est tenu de fournir du vin <b>de l'année précédente.</b> Et s'il a dit : Je vous vends du vin âgé, il est responsable de fournir du vin qui date de trois ans auparavant.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

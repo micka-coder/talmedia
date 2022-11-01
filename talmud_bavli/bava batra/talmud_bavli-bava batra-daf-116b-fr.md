@@ -12,4 +12,4 @@ La Guemara note que <b>aussi, il est raisonnable</b> de comprendre la mishna de 
 <strong>MISHNA :</strong> <b>Les filles de Zelophehad ont pris trois portions</b> de terre <b>dans</b> l'<b>héritage</b> d'Eretz Yisrael : <b>La part de leur père</b> qu'il a reçue <b>parce qu'il était parmi ceux qui ont quitté l'Egypte ; et sa part</b> qu'il a reçue <b>avec ses frères dans</b> la <b>propriété de Hepher,</b> leur père ; <b>et</b> une part supplémentaire qu'il a reçue de Hepher <b>parce qu'il était un premier-né,</b> et un premier-né <b>prend deux parts</b> d'héritage de son père.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

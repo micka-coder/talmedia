@@ -25,4 +25,4 @@
 <b>Car Tu</b> es Celui qui hérite des nations, et tout le monde est entre Tes mains pour juger.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

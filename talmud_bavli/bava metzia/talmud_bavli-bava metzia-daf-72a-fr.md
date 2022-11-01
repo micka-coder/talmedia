@@ -33,4 +33,4 @@ Lorsque l'emprunteur vit qu'il ne pouvait pas se protéger contre la ruse, il im
 La Guemara clarifie la <i>halakha</i> : <b>La vente n'était certainement pas une vente,</b> puisque le champ ne lui appartenait pas, mais la question est la suivante : est-ce que <b>les dinars</b> que l'acheteur a payés sont <b>similaires à un prêt avec</b> un <b>billet à ordre, et</b> donc l'acheteur <b>peut récupérer</b> l'argent qu'il a payé même <b>sur des biens grevés</b> qui ont été vendus ? <b>Ou peut-être est-ce semblable à un prêt par accord oral</b>, <b>et</b> donc <b>il ne peut pas le recouvrer</b> <b>sur un bien grevé</b> qui a été vendu. <b>Abaye a dit : Cette</b> question n'est-elle <b>pas</b> la même que celle de <b>Rabbi Asi ?</b> Comme <b>Rabbi Asi dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

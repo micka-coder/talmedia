@@ -60,4 +60,4 @@ La Gemara demande : <b>Et que Rav,</b> au lieu d'expliquer son propre avis, <b>d
 <b>Abaye a dit : Et selon le raisonnement de Rav,</b> si <b>un</b> homme <b>se présente et dit</b> la déclaration ambiguë suivante <b>à elle : Tu es par la présente fiancée à moi à partir de maintenant et après trente jours. Et un autre</b> homme <b>est venu</b> pendant ces trente jours <b>et lui a dit : Tu es par la présente fiancée à moi à partir de maintenant et après vingt jours,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

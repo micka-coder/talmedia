@@ -18,4 +18,4 @@ La Guemara <b>souleve une objection</b> à partir de ce que nous avons appris : 
 L'explication de Rav Ashi' explique la <i>baraita</i>, mais la Gemara s'interroge sur la question elle-même. En ce qui concerne la <b>idolâtrie, accordé,</b> un cas <b>où d'autres l'ont déplacé</b> peut être facilement <b>trouvé. Cependant,</b> un cas où l'idolâtrie <b>déplaçait les autres,</b> dans quelles circonstances <b>peut-on la trouver ? </b> Comment une idole peut-elle déplacer un autre objet ? <b>Rami, fils de Rav Yeiva, a dit,</b> un tel cas est possible, <b>comme nous l'avons appris</b> dans une mishna : Dans un cas où <b>le <i>zav</i></b> s'est assis <b>sur</b> un <b>panneau d'une <b>balance</b>, et que de la nourriture et des boissons</b> se trouvaient <b>sur</b> le <b>second plateau,</b> si <b>le <i>zav</i> fait pencher</b> la balance, la nourriture et les boissons sur l'autre plateau <b>sont rituellement impures</b> parce que le <i>zav</i> les a déplacées.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

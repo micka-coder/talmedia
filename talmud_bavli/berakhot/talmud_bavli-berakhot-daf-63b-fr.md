@@ -72,4 +72,4 @@ La Guemara revient sur les homelies proposees par les Sages dans le vignoble de 
 La Gemara demande : <b>Quel est</b> cette <b>benediction avec laquelle</b> Oved-edom <b>a ete beni ? Rav Yehuda bar Zevida a repondu : Il s'agit d'Hamot et de ses huit belles-filles, qui en ont chacune porte six dans un seul ventre,</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

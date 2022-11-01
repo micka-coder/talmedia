@@ -60,4 +60,4 @@ La Gemara répond : <b>Là aussi,</b> le dépositaire n'est pas suspect de vol p
 La Guemara répond : L'interdiction <b>"Tu ne convoiteras pas" est comprise par</b> la plupart des <b>gens</b> comme faisant référence au fait de prendre un objet <b>sans</b> payer <b>l'argent.</b> Puisque le dépositaire n'était peut-être pas conscient qu'il agissait de manière criminelle, son témoignage et son serment sont jugés crédibles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

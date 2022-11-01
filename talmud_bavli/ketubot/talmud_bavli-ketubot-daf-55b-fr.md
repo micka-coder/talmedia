@@ -15,4 +15,4 @@ D'une part, <b>il est semblable</b> au <b>don d'une personne en bonne santé</b>
 <b>Et Shmuel dit : Je ne sais pas ce qu'il faut décider à ce sujet. Peut-être</b> que son accomplissement d'un acte d'acquisition indique que <b>il a résolu de le transférer</b> à lui <b>seulement avec un acte</b> de vente. <b>Et</b> puisque son intention est que la vente ne prenne pas effet tant qu'il ne donne pas également un acte de vente, le transfert ne prend pas effet, car un <b>acte de vente</b> ne prend pas effet <b>après le décès</b> du propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

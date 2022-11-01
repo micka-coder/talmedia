@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelle</b> formule doit-on utiliser <b>pour conclure</b> 
 <b>Il a été enseigné au nom de Rabbi Yehoshua ben Ḥananya : Quiconque conclut</b> la bénédiction <i>havdala</i> avec la formule combinée : <b>Qui sanctifie Israël et distingue le sacré du profane,</b> Dieu <b>allongera ses jours et ses années.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

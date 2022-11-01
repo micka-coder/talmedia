@@ -58,7 +58,7 @@
 <b>Ils sont venus par la porte des coureurs.</b> Au palais du roi.</sup>25</sup><i class="footnote">Littéralement, le verset se lit "par la porte des coureurs <i>du</i> palais du roi". Cependant, Rachi a expliqué au verset 5 ci-dessus que la Porte des Coureurs était l'une des portes de la cour du Temple. Par conséquent, Rachi rend le verset comme suit : "par la porte des Coureurs <i>vers</i> le palais du roi". Alternativement, la Porte des Coureurs était l'une des portes du palais du roi.-Targum </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -118,4 +118,4 @@
 <b>Ils sont venus par la porte des coureurs.</b> Au palais du roi.</sup>25</sup><i class="footnote">Littéralement, le verset se lit "par la porte des coureurs <i>du</i> palais du roi". Cependant, Rachi, au v. 5 ci-dessus, a expliqué que la Porte des Coureurs était l'une des portes de la cour du Temple. Par conséquent, Rachi rend le verset comme suit : "par la porte des Coureurs <i>vers</i> le palais du roi". Alternativement, la Porte des Coureurs était l'une des portes du palais du roi.-Targum </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara répond : <b>Reish Lakish</b> aurait pu te <b>dire : Et selon ton rais
 <b>Au contraire,</b> il faut croire que toutes les clauses de la mishna n'enseignent pas une nouvelle <i>halakha</i>, et le raisonnement du <i>tanna</i> est le suivant : <b>Puisqu'il enseigne la libération</b> du lien entre <b>un <i>yavam</i> et un <i>yevama</i>, il enseigne aussi</b> le cas de <b>deux <i>yevamot</i> et un <i>yavam</i>, et puisqu'il enseigne</b> le cas de <b>deux <i>yevamot</i> et d'un <i>yavam</i>, il enseigne également</b> le cas de <b>deux <i>yevamin</i> et d'un <i>yevama</i>. </b> Le <i>tanna</i> a donc énuméré tous les cas possibles, même si nous n'apprenons pas une nouvelle <i>halakha</i> de chacun d'entre eux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

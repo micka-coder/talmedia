@@ -57,4 +57,4 @@ La Gemara rejette cette idée : <b>Comment peut-on</b> ces cas <b>être comparé
 <b>Rav Aḥa, fils de Rava, dit à Rav Ashi : Quelles sont les circonstances ? Si</b> quelqu'un a fait un serment <b>où il a dit : Je ne mangerai pas</b> ce pain, ce que Rava, comme cité plus haut, comprend comme lui rendant interdit de manger une partie du pain, alors <b>avec le premier pain d'olives</b> qu'il a mangé <b>il</b> a déjà <b>commis sa transgression. Si</b> il a fait un serment <b>où il a dit : Je ne le mangerai pas,</b> ce que Rava comprend comme rendant interdit le fait de ne manger que le pain entier, <b>pourquoi</b> Rava mentionne-t-il <b>spécifiquement</b> qu'il a laissé un <b>boulot d'olives ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

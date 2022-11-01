@@ -73,5 +73,5 @@
 ### passuk 19
 <b>Vous effacerez le souvenir d'Amalek.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Homme et femme, enfant et nourrisson, bœuf et mouton, afin que l'on ne se souvienne jamais du nom "Amalek", même en ce qui concerne un animal, en disant : "Cet animal a appartenu à Amalek". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

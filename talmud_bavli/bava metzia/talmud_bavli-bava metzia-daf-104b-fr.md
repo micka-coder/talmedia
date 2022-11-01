@@ -51,7 +51,7 @@ La Gemara relate un autre incident : Il y avait <b>un certain homme qui avait re
 <b>Rava dit :</b> Si deux personnes ont mené <b>une entreprise commune et</b> l'ont rédigée comme des entreprises séparées de valeur égale dans <b>deux</b> documents séparés,</b> et qu'elles ont subi une lourde perte de l'entreprise enregistrée dans l'un des documents et ont eu un léger gain de l'autre, la <i>halakha</i> est la suivante : Les deux documents sont traités comme deux accords distincts, et on ne calcule pas les profits et les pertes des deux ven-tures ensemble. Par conséquent, cela se fera au <b>désavantage du prêteur.</b> Selon l'arrangement commun, il gagnera la moitié des profits d'une entreprise et subira les deux tiers de la perte de l'autre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara répond : L'<b>écriture</b> de cette déclaration dans le document <b>est effective pour la dépréciation.</b> Si la garantie se déprécie, le créancier peut réclamer le reste de la dette sur les biens du débiteur.
 
@@ -104,4 +104,4 @@ La Gemara relate un autre incident : Il y avait <b>un certain homme qui avait re
 <b>Rava dit :</b> Si deux personnes ont mené <b>une entreprise commune et</b> l'ont rédigée comme des entreprises séparées de valeur égale dans <b>deux</b> documents séparés,</b> et qu'elles ont subi une lourde perte de l'entreprise enregistrée dans l'un des documents et ont eu un léger gain de l'autre, la <i>halakha</i> est la suivante : Les deux documents sont traités comme deux accords distincts, et on ne calcule pas les profits et les pertes des deux ven-tures ensemble. Par conséquent, cela se fera au <b>désavantage du prêteur.</b> Selon l'arrangement commun, il gagnera la moitié des profits d'une entreprise et subira les deux tiers de la perte de l'autre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

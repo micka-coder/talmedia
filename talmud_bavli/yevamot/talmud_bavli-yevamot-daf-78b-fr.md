@@ -63,4 +63,4 @@ La Guemara remet en question cette compréhension : D'une part, Dieu <b>demande<
 <b>David a dit :</b> En ce qui concerne l'éloge funèbre de <b>Saul, il y a</b> déjà <b>passé</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

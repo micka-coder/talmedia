@@ -27,4 +27,4 @@ Rav Ashi développe : Un <b>Sage,</b> les Rabbins, <b>soutient</b> que le vendeu
 Rav Ashi demande : Pourquoi, alors, a-t-il acheté le billet à ordre ? <b>Mais en a-t-il besoin</b> pour l'attacher autour de la bouche de sa gourde</b> comme bouchon ? De toute évidence, il a acheté le document dans le but de recouvrer la dette qui y est inscrite. Rav Pappa m'a dit : Oui,</b> il est possible qu'il ait acheté le billet à ordre afin <b>de l'attacher</b> autour de sa gourde. Puisque le propriétaire n'a pas transféré la propriété de l'obligation inscrite dans le billet à ordre, l'acheteur n'acquiert que le papier lui-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> dans un cas <b>où les
 <b>Venez</b> et <b>entendez</b> une preuve possible à partir de la mishna : S'il a <b>couvert</b> la fosse <b>de manière appropriée, et qu'un bœuf ou un âne y est tombé et est mort,</b> il est <b>exempté.</b> Maintenant <b>quelles sont les circonstances ? Si nous disons</b> qu'il l'a couvert <b>de manière appropriée pour les bœufs et de manière appropriée pour les chameaux,</b> alors <b>comment</b> sont-ils <b>tombés</b> dedans ? <b>Au contraire, n'est-ce pas</b> le cas qu'il l'a couverte d'une couverture qui était <b>appropriée aux bœufs</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

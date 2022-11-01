@@ -33,4 +33,4 @@ La Guemara soulève une difficulté : L'avis introduit par la phrase : <b>D'autr
 <b>Rabbi Asi dit</b> que <b>Rabbi Yoḥanan dit au nom de Rabbi Yehuda ben Beteira : Il y a trois</b> sortes de <b>vins interdits : </b> Il est <b>interdit de</b> tirer un <b>bénéfice du vin</b> utilisé pour <b>une libation, et</b> le vin <b>participe à une <b>impureté</b> rituelle sévère lorsqu'il</b> a le volume d'<b>une botte d'olives. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

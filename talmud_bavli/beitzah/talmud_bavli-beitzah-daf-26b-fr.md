@@ -60,4 +60,4 @@ La Gemara répond : <b>Non,</b> la <i>baraita</i> est <b>nécessaire</b> pour un
 <b>Rabbi Zeira a dit : Venez</b> et <b>entendre</b> une résolution du problème soulevé ci-dessus <b>de la <i>halakha</b> régissant les <b>fèves et les lentilles</b> cuites lors d'une Fête. <b>Comme les haricots et les lentilles au départ,</b> au crépuscule, alors qu'ils sont encore crus et non cuits, <b>ils sont aptes à être mâchés</b> tels quels et n'entrent donc pas dans la catégorie des <i>muktze</i> ; puis, lorsque <b>il les jette dans la marmite</b> pour les cuire, <b>ils deviennent disqualifiés</b> car pendant leur cuisson, ils ne sont aptes ni à être mâchés crus ni à être mangés cuits.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

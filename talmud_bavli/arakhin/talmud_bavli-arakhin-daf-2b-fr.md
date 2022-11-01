@@ -54,4 +54,4 @@ La Guemara répond : Elle sert <b>à ajouter</b> celui qui est <b>aveugle d'un d
 La Guemara demande : En ce qui concerne la décision de la <i>baraita</i> : <b>Tout le monde est obligé dans</b> la mitzva de <b>lire</b> la <b>Mégilla,</b> le Rouleau d'Esther, et la déclaration de la mishna (<i>Mégilla</i> 19b) : <b>Tout le monde est apte à lire la Megilla,</b> ceux-ci servent <b>à ajouter</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

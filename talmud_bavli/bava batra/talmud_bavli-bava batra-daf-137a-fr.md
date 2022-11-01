@@ -45,4 +45,4 @@ La Gemara demande : N'est-ce pas <b>évident?</b> La Gemara répond : <b>Tu dis<
 <b>Rav Naḥman bar Yitzḥak s'oppose à cette</b> affirmation, en raisonnant que <b>Rabbi</b> Yehuda HaNasi <b>et Rabban Shimon ben Gamliel ne sont en désaccord que là,</b> dans le cas de : Après toi, en ce qui concerne la nature de la propriété du destinataire ; <b>Comme</b> un <b>Sage,</b> Rabban Shimon ben Gamliel, <b>tient</b> que la <b>propriété</b> des droits d'utilisation d'un bien et des <b>profits</b> qu'il engendre <b>est considérée comme la propriété du bien lui-même, et</b> l'autre <b>Sage,</b> Rabbi Yehuda HaNasi, <b>soutient</b> que la <b>propriété</b> des droits d'utilisation d'un article et des <b>profits</b> qu'il engendre <b>n'est pas considérée comme la propriété de l'article lui-même. Mais ici,</b> en ce qui concerne le <i>etrog</i>,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

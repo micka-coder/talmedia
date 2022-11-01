@@ -45,4 +45,4 @@
 <b>gros</b> Héb.  דשנים, Ils seront gras et frais, et alors ils déclareront que le Seigneur est droit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

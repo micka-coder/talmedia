@@ -27,4 +27,4 @@
 <b>Le méchant verra et se mettra en colère</b> Héb.  וכעס¡, expression d'un verbe au passé, équivalent à  ויכעס ¡ [c'est-à-dire que le "vav" convertit le passé en futur]. Par conséquent, il est voyellé pour moitié avec un "kamatz" et pour moitié avec un "pattah", et l'accent est à la fin du mot.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

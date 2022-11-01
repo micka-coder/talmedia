@@ -60,4 +60,4 @@ Le <i>baraita</i> continue : <b>Mais</b> en ce qui concerne les <b>autres</b> ca
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Une femme <b>qui voit du sang à cause d'un rapport sexuel peut avoir des rapports</b> avant la <b>première fois</b> que cela se produit, avant la <b>seconde</b> fois que cela se produit, <b>et</b> avant la <b>troisième</b> fois que cela se produit. <b>A partir de ce</b> moment <b>à partir de maintenant,</b> c'est-à-dire après trois occurrences consécutives de saignement dû à un rapport sexuel, <b>elle ne peut pas avoir de rapports sexuels jusqu'à ce qu'elle soit divorcée</b> de son mari.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

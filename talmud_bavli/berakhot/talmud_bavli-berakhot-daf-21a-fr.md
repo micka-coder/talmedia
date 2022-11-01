@@ -51,4 +51,4 @@ La Guemara rejette cette affirmation : <b>Comment pouvez-vous comparer</b> les d
 La Guemara note : Ce concept est identique a la declaration precedente de Shmuel concernant celui qui a deja prie qu'il n'a pas besoin de prier a nouveau. Neanmoins, les deux declarations sont <b>necessaires. S'il nous avait enseigne la premiere</b> <i>halakha</i>, nous aurions dit que <b>s'applique uniquement</b> a un cas impliquant <b>un individu</b> qui a prie <b>et un individu</b> qui a commence a repeter la priere,
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

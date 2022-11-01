@@ -39,4 +39,4 @@ La Gemara demande : <b>Quel est la durée d'un intervalle</b> de temps ? <b>Rabb
 § <b>Rav Yehuda dit :</b> Pour nettoyer <b>ces sacs à filtre [<i>ravukei</i>] de gentils, </b> qui servent à filtrer la levure du vin, en ce qui concerne ceux faits <b>de cheveux,</b> qui ne sont pas absorbants, on peut les <b>rincer.</b> En ce qui concerne ceux faits <b>de laine,</b> on doit les <b>nettoyer</b> avec de la cendre et de l'eau. En ce qui concerne celles faites <b>de lin,</b> qui sont plus absorbantes, on doit <b>les laisser en sommeil. Et s'il y a des nœuds,</b> on doit <b>les défaire.</b> Pour nettoyer <b>les paniers et les passoires des gentils,</b> en ce qui concerne ceux <b>qui sont tressés avec des bandes de palmier,</b> on peut <b>les rincer.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

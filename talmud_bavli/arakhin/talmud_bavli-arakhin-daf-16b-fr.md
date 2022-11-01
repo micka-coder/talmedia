@@ -72,4 +72,4 @@ La Guemara note que cela constitue une souffrance <b>spécifique</b> dans le cas
 <b>Et pourquoi</b> est-il <b>si important</b> de connaître la moindre souffrance ? <b>Comme l'enseigne l'école de Rabbi Yishmael</b> dans une <i>baraita</i> : <b>Quiconque passe quarante jours sans souffrir a reçu son Monde,</b> c'est-à-dire sa récompense, et il n'aura plus de récompense dans le Monde à venir. <b>En Occident,</b> Eretz Yisrael, <b>on dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

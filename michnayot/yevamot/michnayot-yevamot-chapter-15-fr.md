@@ -29,5 +29,5 @@ Si une femme déclare : "Un fils m'a été donné [alors que j'étais] dans un p
 ### michna 10
 Si une femme déclare : "Un beau-frère m'a été donné [alors que j'étais] dans un pays au-delà de la mer", et qu'ensuite elle déclare : "Mon mari est mort et ensuite mon beau-frère est mort" ou "Mon beau-frère est mort et ensuite mon mari est mort", on la croit. Si une femme, son mari et son beau-frère sont allés dans un pays de l'autre côté de la mer, et qu'à son retour elle déclare : "Mon mari est mort et ensuite mon beau-frère est mort" ou "Mon beau-frère est mort et ensuite mon mari est mort", elle n'est pas crue ; car on ne croit pas une femme qui déclare : "Mon beau-frère est mort", pour qu'elle puisse se remarier ; on ne croit pas non plus sa sœur qui est morte, pour qu'elle puisse entrer dans sa maison. Un homme n'est pas non plus cru lorsqu'il déclare que "mon frère est mort", afin qu'il puisse avoir du yibbum avec sa femme, ni [lorsqu'il déclare que] sa femme est morte, afin qu'il puisse épouser sa sœur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

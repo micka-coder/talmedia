@@ -54,4 +54,4 @@ La Guemara explique : <b>Comme le dit Rabbi Yannai : Les produits non lavés ne 
 <strong>GEMARA :</strong> <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> Le <b>dispute</b> entre Beit Shammai et Beit Hillel est spécifiquement <b>dans</b> un cas <b>où ils ont vu qu'elle s'est engagée dans un rapport sexuel,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

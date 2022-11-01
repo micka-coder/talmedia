@@ -9,4 +9,4 @@ La Gemara demande : <b>Et</b> en <b>quelle manière</b> ce cas <b>est-il</b> dif
 La Gemara répond : <b>Il y a,</b> dans le cas de l'échange, <b>pour celui-ci</b> celui-là, c'est-à-dire l'acheteur,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

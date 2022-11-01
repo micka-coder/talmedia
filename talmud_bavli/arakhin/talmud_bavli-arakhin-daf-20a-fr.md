@@ -96,4 +96,4 @@ La mishna enseigne en outre que <b>C'est le principe:</b> Celui qui fait un vœu
 Si tel est le cas, <b>cette</b> clause de la mishna est identique à <b>cette</b> clause précédente de la mishna, qui stipule que si quelqu'un a dit : Il m'incombe de donner mon évaluation, et qu'il meurt, ses héritiers doivent donner son évaluation au trésor du Temple. Puisqu'il a été expliqué que la clause précédente traite également d'un cas où il se tenait en jugement, dans quel but cette <i>halakha</i> a-t-elle été répétée dans la mishna ? La Guemara répond : <b>Il était nécessaire</b> de répéter cette <i>halakha</i> afin d'enseigner <b>la dernière clause</b> de la mishna : En ce qui concerne celui qui dit qu'il lui incombe <b>de faire don</b> de <b>l'évaluation d'untel ou d'unetelle, et que celui qui a fait ce vœu meurt,</b> ses <b>héritiers doivent donner</b> son évaluation au trésor du Temple.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

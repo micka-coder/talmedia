@@ -39,4 +39,4 @@ La Guemara revient sur la question principale en discussion. En ce qui concerne 
 La Guemara soulève une autre difficulté : <b>Mais encore,</b> c'est <b>Joshua</b> qui a <b>émis un décret contre</b> les Gibéonites, <b>comme il est écrit : "Et Josué les fit ce jour-là scieurs de bois et puiseurs d'eau, pour l'assemblée et pour l'autel de l'Eternel"</b> (Josué 9, 27). La Gemara répond : <b>Joshua a émis un décret pour la période où le Temple est debout,</b> comme l'indique l'expression "pour l'autel du Seigneur", alors que <b>David a émis un décret</b> même <b>pour la période où le Temple n'est pas debout.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

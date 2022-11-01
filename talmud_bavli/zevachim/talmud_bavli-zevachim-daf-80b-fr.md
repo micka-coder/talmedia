@@ -36,4 +36,4 @@ La Guemara soulève une autre difficulté : La mishna enseigne que dans le cas d
 La Guemara soulève une autre difficulté : La mishna enseigne que si le sang d'une offrande qui doit être placée sur l'autel avec <b>quatre placements</b> a été mélangé avec le sang d'une autre offrande qui doit être placée sur l'autel <b>avec un placement,</b> Rabbi Eliezer dit : Le sang sera placé avec quatre placements. Ici aussi, s'il n'y a pas de mélange selon Rabbi Eliezer, peut-être a-t-il placé le sang d'une seule des offrandes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

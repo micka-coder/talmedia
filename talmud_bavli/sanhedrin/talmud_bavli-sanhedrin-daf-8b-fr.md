@@ -21,4 +21,4 @@ La Guemara <b>souleve une objection</b> d'un <i>baraita</i> (<i>Tosefta</i> 1:2)
 <b>Rav Ashi dit</b> une explication différente : Le différend dans la mishna concerne un cas <b>où</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

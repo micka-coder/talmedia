@@ -19,4 +19,4 @@
 <b>Tu les as couverts de honte</b> Toi, Seigneur, tu as couvert de honte tous mes ennemis, car tu les as rejetés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

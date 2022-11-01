@@ -36,4 +36,4 @@ Pourquoi <b>fait-on</b> on <b>établit un <i>eirouv</i> entre les cours et</b> �
 <b>Rabbi Naḥumi et Rabba étaient en désaccord sur</b> cette question. <b>L'un</b> d'entre eux <b>a dit :</b> Dans le cas <b>du pain,</b> qui peut être utilisé à la fois pour un <i>eirouv</i> et pour une fusion de ruelles, <b>tout le monde est d'accord pour dire qu'un seul,</b> soit un <i>eirouv</i> soit une fusion de ruelles, <b>est suffisant. Lorsqu'ils sont en désaccord</b> dans le cas <b>du vin,</b> qui ne peut être utilisé que pour une fusion de ruelles mais pas pour un <i>eirouv</i>, Rabbi Meir soutient qu'un <i>eirouv</i> est également nécessaire, tandis que les sages soutiennent qu'il n'est pas nécessaire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

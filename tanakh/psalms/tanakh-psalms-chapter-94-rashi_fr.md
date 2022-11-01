@@ -62,4 +62,4 @@
 <b>leur violence</b> Heb.  אונם, leur violence, comme (Job 21:19) : "Dieu devrait-il laisser tomber sa violence (אונו-) pour ses fils ?
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

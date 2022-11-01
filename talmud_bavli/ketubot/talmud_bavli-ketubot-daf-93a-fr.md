@@ -51,4 +51,4 @@ La Gemara explique : <b>La première clause</b> de la mishna, où deux cents din
 Il a été enseigné dans la mishna : <b>De même, trois</b> individus <b>qui ont déposé</b> de l'argent <b>dans une bourse,</b> c'est-à-dire investi des montants différents dans une entreprise commerciale commune, divisent les biens de manière similaire. <b>Shmuel a dit :</b> Dans le cas de <b>deux</b> individus <b>qui ont déposé</b> de l'argent <b>dans une bourse,</b> où <b>cette personne</b> a investi <b>cent dinars et cette personne</b> a investi <b>deux cents,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

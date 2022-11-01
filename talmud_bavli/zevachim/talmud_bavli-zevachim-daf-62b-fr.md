@@ -48,4 +48,4 @@ La Guemara poursuit : <b>Et il était nécessaire</b> pour le verset <b>d'écrir
 § <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (<i>Middot</i> 37b) : <b>La rampe et l'autel</b> ensemble faisaient <b>soixante-deux</b> coudées de long. La Gemara conteste : Les dimensions de <b>ceux-ci sont de soixante-quatre</b> coudées, car l'autel et la rampe avaient chacun trente-deux coudées de long (<i>Middot</i> 36a). La Guemara explique : La mesure de trente-deux coudées de la rampe est expliquée par une <i>baraïta</i> qui stipule : Il <b>est constaté</b> que la rampe de l'autel <b>surplombait</b> la <b>base</b> de l'autel d'une <b>cubite et</b> le <b>rebord entourant</b> d'une <b>cubite,</b> ce qui donne une longueur totale de trente-deux coudées.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

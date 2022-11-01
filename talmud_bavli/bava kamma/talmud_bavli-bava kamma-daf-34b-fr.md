@@ -54,4 +54,4 @@ En revanche, si <b>son bœuf a blessé</b> le <b>père ou la mère du propriéta
 <b>Nous avons appris</b> dans la mishna : Si <b>son bœuf a mis le feu à une botte de foin le Chabbat,</b> il est <b>responsable. Mais</b> si <b>il</b> lui-même <b>a mis le feu à une meule de foin le Chabbat,</b> il est <b>exempté. Et</b> la mishna <b>est</b> vraisemblablement <b>l'enseignement</b> d'un cas où <b>il</b> a mis le feu dans un scénario qui est <b>similaire</b> au cas <b>où son bœuf</b> l'a fait. <b>Tout comme</b> dans le cas <b>où son bœuf</b> a mis le feu <b>il</b> n'a clairement <b>pas besoin</b> des cendres, car un bœuf n'agit pas avec de telles intentions,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

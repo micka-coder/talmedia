@@ -128,5 +128,5 @@
 ### passuk 35
 <b>Hachem frappa le peuple d'une plaie.</b> [C'est-à-dire] la mort de la main du Roi céleste, [pour ceux qui ont péché] devant témoins sans avoir reçu d'avertissement. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

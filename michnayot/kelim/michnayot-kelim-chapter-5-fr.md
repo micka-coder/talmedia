@@ -32,5 +32,5 @@ S'il a coupé le four en anneaux, et qu'il a mis du sable entre chaque paire d'a
 ### michna 11
 Un four de pierre ou de métal est propre, Mais ce dernier est impur comme un récipient de métal. Si on y a fait un trou, ou s'il a été endommagé ou fendu, et qu'on l'a garni de plâtre ou d'un rebord d'argile, il est impur. Quelle doit être la taille du trou [pour qu'il soit pur] ?  Il doit être suffisamment grand pour que la flamme puisse y passer. Il en va de même pour un poêle. Un poêle en pierre ou en métal est pur. Mais ce dernier est impur comme un récipient en métal. Si on y a fait un trou ou s'il a été endommagé ou fissuré mais qu'on l'a pourvu d'étayages, il est impur. S'il a été garni d'argile, que ce soit à l'intérieur ou à l'extérieur, il reste propre. Rabbi Juda dit : si [le revêtement était] à l'intérieur, il est impur, mais s'il était à l'extérieur, il reste pur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

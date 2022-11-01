@@ -57,4 +57,4 @@ La Guemara cite d'autres déclarations relatives à l'étude de la Torah. <b>Rav
 <b>Rav Ḥisda dit aux Sages</b> qui étudiaient avec lui : <b>Je souhaite vous dire quelque chose, mais j'ai peur qu'ensuite</b> <b>vous me quittiez et partiez.</b> Que souhaitait-il leur dire ? Il voulait dire que <b>celui qui apprend la Torah d'un seul maître</b> <b>ne voit jamais de signe de bénédiction.</b> Lorsque les étudiants ont entendu cela, ils <b>ont effectivement</b> <b>le quitté et sont allés</b> apprendre <b>de Rava.</b> Rav Ḥisda <b>leur a dit : Cette question</b> ne s'applique qu'en ce qui concerne le <b>raisonnement,</b> c'est-à-dire que pour aboutir à un raisonnement sophistiqué, il est nécessaire d'entendre de nombreux avis différents. <b>Mais</b> en ce qui concerne la <b>tradition orale</b> elle-même, <b>il est préférable</b> d'apprendre <b>d'un seul maître afin que</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -26,7 +26,7 @@
 <b>Et pour un sujet de conversation</b> Que chacun répétera et discutera de son châtiment.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>pots</b> Heb. דּוּדָאֵי.
 <b>préparé</b> Heb. מוּעדים.
@@ -54,4 +54,4 @@
 <b>Et pour un sujet de conversation</b> Que chacun répétera et discutera de son châtiment.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

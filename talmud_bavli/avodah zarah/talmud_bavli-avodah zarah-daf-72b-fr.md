@@ -33,4 +33,4 @@ La Gemara raconte : Il y eut un incident impliquant <b>un certain homme qui siph
 <b>Mar Zutra, fils de Rav Naḥman, dit :</b> Qu'un Juif et un Gentil boivent simultanément dans <b>un récipient avec des tubes pour que plusieurs personnes puissent boire [<i>kenishkanin</i>]</b> est <b>permis. Et cette déclaration</b> ne s'applique que dans un cas <b>où</b> le <b>Juif cesse</b> de boire <b>en premier,</b> avant le gentil ; <b>mais</b> si le <b>gentil cesse</b> de boire <b>en premier,</b> elle ne <b>s'applique pas</b> et le vin est interdit, car le vin de la bouche du gentil retourne dans le récipient et rend tout le vin interdit. <b>Rabba bar Rav Huna est arrivé</b> à venir <b>dans la maison de l'Exilarque,</b> et <b>il leur a permis de boire dans un <i>kenishkanin</i></b> avec des gentils.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara rejette cette conclusion : La nullité le Chabbat fait l'objet d'une 
 Afin de clarifier l'opinion de Rav sur cette question, la Gemara cite <b>Rav Ika bar Avin</b> qui <b>a dit : Rav a assisté</b> à la dissolution d'un vœu fait par <b>Rabba,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

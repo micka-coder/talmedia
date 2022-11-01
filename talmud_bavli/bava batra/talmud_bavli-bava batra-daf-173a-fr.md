@@ -69,4 +69,4 @@ Rava explique : <b>Ici, le détenteur du document</b> de vente <b>est désavanta
 <strong>MISHNA:</strong> <b>Quelqu'un qui prête</b> de l'argent <b>à un autre avec</b> l'assurance d'un <b>garant ne peut pas recouvrer</b> la dette <b>auprès du garant.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

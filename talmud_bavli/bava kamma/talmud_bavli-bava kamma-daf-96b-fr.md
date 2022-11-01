@@ -63,4 +63,4 @@ Le <i>baraita</i> poursuit : <b>Et les rabbins disent</b> que <b>on ne fait pas 
 La Guemara demande : S'il est vrai que l'opinion que la mishna attribue à Rabbi Meir a été attribuée par Rav aux rabbins, alors <b>cette</b> phrase : La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Meir,</b> est imprécise. Rav <b>aurait dû</b> dire que la <b><i>halakha</i></b> est <b>conforme</b> à l'avis des <b>rabbins.</b> La Guemara répond : <b>C'est</b> ce que Rav <b>dit : Selon</b> la manière <b>dont vous avez inversé</b> les avis dans la mishna, <b>et vous avez enseigné</b> que Rabbi Meir dit que le voleur dit à la victime du vol : Ce qui est à toi est devant toi, alors la <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Meir,</b> malgré le fait que selon Rav, c'est l'opinion des rabbins.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

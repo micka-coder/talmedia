@@ -72,4 +72,4 @@ La Guemara développe : <b>Selon Rava,</b> qui soutient que Rav soutient que la 
 <b>Rabbi Yirmeya soulève une objection à Rabbi Zeira</b> à partir d'une <i>baraita</i>. <b>Rabbi Eliezer dit :</b> En ce qui concerne <b>un <i>koy</i>, on est obligé</b> d'apporter <b>une offrande de culpabilité provisoire pour</b> avoir mangé <b>sa graisse.</b> De toute évidence, on doit apporter une offrande de culpabilité provisoire même dans un cas où l'incertitude ne concerne qu'un seul élément. Rabbi Zeira <b>dit à</b> Rabbi Yirmeya : <b>Rabbi Eliezer soutient que nous n'avons pas besoin</b> d'un cas où il est possible <b>d'identifier son interdiction</b> pour que l'on soit obligé d'apporter une offrande de culpabilité provisoire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

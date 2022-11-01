@@ -54,4 +54,4 @@ La Gemara conteste cette solution : <b>Et selon votre raisonnement, Rava a-t-il<
 L'expression : <b>Et pour toujours,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

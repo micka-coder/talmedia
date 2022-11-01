@@ -45,4 +45,4 @@ La Guemara répond : Les deux cas <b>sont nécessaires, car, si</b> le désaccor
 <b>Rav Asi dit à Rabbi Yoḥanan : Mes collègues de l'exil,</b> c'est-à-dire les Sages de Babylone, <b>m'ont déjà enseigné</b> ce qui suit .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

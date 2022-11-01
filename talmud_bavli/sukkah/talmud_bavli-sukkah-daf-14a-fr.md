@@ -48,4 +48,4 @@ La Guemara répond : <b>Vous tenez</b> que cette dernière <i>halakha</i> de la 
 La Guemara cite une preuve supplémentaire. <b>Venez</b> et <b>entendez : Deux feuilles</b> placées sur la toiture de la <i>sukka</i> <b>se rejoignent</b> pour constituer quatre coudées, la mesure de toiture impropre qui rend une <i>sukka</i> impropre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

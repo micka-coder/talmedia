@@ -23,5 +23,5 @@ Si quelqu'un est interdit par vœu de profiter de son voisin, et qu'il n'a rien 
 ### michna 8
 S'ils marchent ensemble sur la route, et qu'il n'a rien à manger, il peut faire un cadeau à une troisième personne, et il lui est permis [de le manger]. S'il n'y a personne d'autre avec eux, il peut le poser sur une pierre ou un mur et dire : "Ceci est gratuit pour celui qui le désire", et l'autre le prend et le mange. Rabbi Yose interdit cette pratique.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

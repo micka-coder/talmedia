@@ -36,4 +36,4 @@ Il a été enseigné dans la mishna que <b>Rabbi Meir a dit : De leurs déclarat
 La Guemara suggère : <b>Disons</b> que <b>Rabbi Meir soutient</b> que <b>la mishna</b> fait référence <b>à</b> un objet qui est <b>une source primaire d'impureté par la loi de la Torah et</b> un objet qui est <b>une source secondaire d'impureté par la loi rabbinique, qui par la loi de la Torah est entièrement pur. </b> Puisque le <i>teruma</i> est pur par la loi de la Torah, la nouveauté de la déclaration de Rabbi Meir est que, bien que par la loi de la Torah l'un des aliments soit pur et l'autre impur, en raison du décret rabbinique d'impureté, on peut brûler les deux objets ensemble.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara demande : <b>Et en ce qui concerne un <i>etrog</i>, Rabbi Yehuda exige
 <b>Et Rabbi Yehouda dit :</b> Il y eut <b>un incident</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

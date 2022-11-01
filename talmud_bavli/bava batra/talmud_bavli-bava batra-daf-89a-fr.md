@@ -48,4 +48,4 @@ En outre, <b>les Sages ont enseigné :</b> Si l'acheteur <b>demande à celui-ci 
 Puisque la fonction de chaque type de balance est mentionnée à l'exception du premier type, la Gemara demande : <b>Et cette</b> grande balance, qui est mentionnée <b>en premier, à quoi</b> sert-elle ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

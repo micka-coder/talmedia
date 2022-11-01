@@ -60,4 +60,4 @@ De même, la Guemara relate que <b>Rav Ashi se trouva</b> à venir <b>chez Rav K
 <b>Il a été dit</b> que les Sages ont discuté de la question suivante : Quelle est la décision dans le cas où un bébé <b>mort dans les trente jours</b> après sa naissance, laissant sa mère veuve sans enfant, <b>et</b> avant qu'ils ne décident si elle était obligée ou non au lévirat, <b>elle s'est levée et s'est fiancée</b> à un autre ? <b>Ravina a dit au nom de Rava :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara objecte : <b>Si c'est le cas,</b> que tout animal qui sera apte à êt
 § La Guemara continue à discuter de cette dispute entre Rabbi Shimon et les rabbins : <b>Les Sages ont enseigné</b> que <b>celui qui consacre un animal femelle</b> <b>pour son holocauste</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

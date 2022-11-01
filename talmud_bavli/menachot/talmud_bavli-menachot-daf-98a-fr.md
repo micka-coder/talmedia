@@ -66,4 +66,4 @@ La Gemara demande : <b>Qu'est-ce que</b> la <i>tanna</i> <b>dit</b> dans la dern
 La Gemara demande : <b>Et</b> en ce qui concerne <b>ses douves, d'où déduit-on</b> qu'elles étaient placées sur la longueur du Temple, d'est en ouest ? Ceci est dérivé <b>comme il est enseigné</b> dans un <i>baraita</i> : Le verset dit : <b>"Et les douves étaient si longues</b> que l'on voyait les extrémités des douves depuis le lieu saint devant le Sanctuaire, mais on ne pouvait pas les voir à l'extérieur" (I Rois 8:8). On <b>pourrait</b> penser que les douves <b>ne touchaient pas le Rideau</b> séparant le Sanctuaire et le Saint des Saints, et ne faisaient pas du tout saillie. Par conséquent, <b>le verset indique :</b> "Les extrémités des douves <b>étaient vues". Si</b> le verset avait dit seulement : "Les extrémités des douves <b>étaient vues"</b> on <b>pourrait</b> penser que les douves <b>déchirent le Rideau et sortent</b> dans le Sanctuaire. Par conséquent, le verset dit : "On ne pouvait pas les voir à l'extérieur." Comment</b> peut-on réconcilier <b>ces textes</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

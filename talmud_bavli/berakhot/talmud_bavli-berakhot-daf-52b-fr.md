@@ -102,4 +102,4 @@ La Guemara demande : <b>Mais de ce qui a ete enseigne dans la derniere clause</b
 <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Sur le feu qui s'est repose, on peut reciter une benediction</b> en <i>havdala</i>, <b>et sur</b> le feu <b>qui ne s'est pas repose, on ne peut pas reciter de benediction.</b> La Gemara demande : <b>Qu'est-ce qui est</b> signifie par <b>repose, et qu'est-ce qui est</b> signifie par <b>n'a pas repose ?</b>×'
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

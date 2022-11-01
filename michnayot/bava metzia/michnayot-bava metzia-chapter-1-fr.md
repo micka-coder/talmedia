@@ -23,5 +23,5 @@ Si un homme trouve des actes de divorce, ou des actes d'émancipation, ou des te
 ### michna 8
 Si un homme a trouvé des lettres d'évaluation, ou des lettres de subsistance, ou des documents de halitzah ou de refus, ou des documents d'arbitrage ou tout document rédigé par le tribunal, il devra les rendre. S'il a trouvé des documents dans une sacoche ou un sac, ou une liasse de documents, il doit les rendre. Combien de documents sont considérés comme une liasse ? Trois attachés ensemble. Rabbi Shimon ben Gamaliel dit :  [Si l'on trouve trois documents dans lesquels] on a emprunté à trois autres personnes, on doit les rendre à l'emprunteur. Mais si [on trouve trois documents dans lesquels] on a prêté à trois personnes, on doit les rendre au prêteur. Si un homme a trouvé un document parmi ses documents et qu'il ne sait pas quelle est sa nature, il doit le laisser jusqu'à la venue d'Elie. S'il y avait des post-scriptum parmi eux, il doit faire ce qui est indiqué dans le post-scriptum.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

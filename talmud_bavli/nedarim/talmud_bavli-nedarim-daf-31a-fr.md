@@ -39,4 +39,4 @@ La Gemara demande : <b>Si oui, dites la première clause</b> de cette <i>halakha
 La Gemara répond : <b>La dernière clause</b> fait référence <b>au</b> cas contraire, dans <b>une vente vive [<i>ḥarifa</i>],</b> c'est-à-dire une vente où la marchandise suscite un vif intérêt chez les acheteurs potentiels. Par conséquent, l'acheteur y gagne s'il paie le prix du marché. La Gemara demande : <b>Si c'est le cas,</b> que cette dernière clause se réfère à un tel cas, pourquoi celui qui a fait le vœu <b>de l'acheter</b> <b>pour moins</b> que le prix du marché ? <b>Même au prix</b> <b>égal</b> au prix d'achat, il devrait être autorisé, puisque la marchandise se vend bien et que le vendeur n'en tire aucun bénéfice. <b>Au contraire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

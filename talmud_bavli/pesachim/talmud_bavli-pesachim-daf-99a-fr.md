@@ -12,4 +12,4 @@ La mishna aborde la question de savoir ce que doivent faire <b>deux</b> individu
 <b>Rav Ashi a dit : La mishna est aussi précisément</b> formulée conformément à l'opinion de Rabbi Yehuda, <b>comme elle l'enseigne : Et de même, cinq groupes de cinq chacun.</b> Cela indique que si chaque groupe compte <b>cinq personnes, oui,</b> la solution d'envoyer quatre d'entre elles rejoindre les autres groupes est viable, <b>mais</b> s'il y avait quatre groupes <b>de cinq et</b> un cinquième groupe de seulement <b>quatre personnes,</b> il n'y a <b>aucun moyen</b> d'employer la solution de la mishna. <b>Ne serait-ce pas parce qu'aucun des membres originels du groupe ne resterait avec lui</b> si les quatre membres du groupe rejoignaient les quatre autres groupes, et qu'il est interdit de laisser un agneau pascal sans aucun des membres originels de son groupe ? La Gemara conclut : En effet, <b>apprenez-en</b> que la mishna suit l'avis de Rabbi Yehuda.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

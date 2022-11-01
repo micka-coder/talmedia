@@ -45,4 +45,4 @@ La Guemara discute d'un autre cas : Il y a <b>deux tas, l'un de <i>matza</i> et 
 La Gemara rejette cette comparaison : <b>Disons que nous énonçons</b> et appliquons le principe : <b>Comme je le dis,</b> et supposons que tout s'est passé d'une manière qui préserve le produit dans son état autorisé.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

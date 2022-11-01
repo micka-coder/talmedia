@@ -33,4 +33,4 @@ Après avoir mentionné le statut de la Syrie, la Guemara cite une <i>halakha</i
 <b>Et à trois</b> égards, la Syrie est semblable <b>à Eretz Yisrael:</b> Ses produits sont <b>obligés à la dîme et aux</b> mitzvot de <b>l'année sabbatique</b> <b>comme Eretz Yisrael. Et celui qui souhaite y pénétrer</b> tout en restant <b>en</b> état de <b>pureté rituelle peut</b> ainsi <b>entrer,</b> comme si elle faisait partie de Eretz Yisrael. <b>Et celui qui acquiert un champ en Syrie</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

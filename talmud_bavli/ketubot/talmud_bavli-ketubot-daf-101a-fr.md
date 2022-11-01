@@ -54,7 +54,7 @@ Toutefois, <b>les femmes</b> à l'égard de <b>quelles les Sages ont dit : Elles
 La Guemara note : Cette <i>baraïta</i> <b>appuie</b> l'avis <b>du Rav Huna, car le Rav Huna a dit :</b> Une femme qui <b>était licencieuse n'a pas perdu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>La personne qui quitte</b> l'union conjugale <b>par un acte de divorce est tenue d'attendre trois mois</b> avant de se remarier.
 
@@ -110,4 +110,4 @@ Toutefois, <b>les femmes</b> à l'égard de <b>quelles les Sages ont dit : Elles
 La Guemara note : Cette <i>baraïta</i> <b>appuie</b> l'avis <b>du Rav Huna, car le Rav Huna a dit :</b> Une femme qui <b>était licencieuse n'a pas perdu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

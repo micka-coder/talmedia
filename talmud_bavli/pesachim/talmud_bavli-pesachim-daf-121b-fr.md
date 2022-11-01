@@ -6,4 +6,4 @@ La Guemara traite d'un autre cas concernant l'ordre des bénédictions : <b>Rabb
 La Guemara explique les deux côtés du dilemme. On peut suggérer que le <b>prêtre récite la bénédiction, car il bénéficie</b> des cinq <i>sela</i> qu'il reçoit lorsque le garçon est racheté. La bénédiction de <i>sheḥiyanu</i> est généralement récitée par celui qui reçoit le bénéfice. <b>Ou,</b> peut-être que <b>le père du fils récite</b> <i>sheḥeyanu</i>, <b>puisqu'il</b> est celui qui <b>exécute la mitsva.</b> Rabbi Simlaï <b>n'avait pas</b> de réponse facilement disponible, et il <b>allait poser</b> cette question <b>en salle d'étude. </b> Les érudits lui ont <b>répondu</b> que <b>le père du fils récite</b> les <b>deux bénédictions :</b> Sur la rédemption du fils et <i>sheḥeyanu</i>. La Gemara conclut : <b>Et la <i>halakha</i> est</b> que <b>le père du fils récite deux bénédictions.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

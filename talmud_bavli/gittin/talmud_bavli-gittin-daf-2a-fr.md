@@ -18,4 +18,4 @@
 <strong>GEMARA:</strong> La mishna enseigne que celui qui apporte un acte de divorce d'un pays d'outre-mer en Eretz Yisrael doit dire : Il a été écrit en ma présence et il a été signé en ma présence. La Gemara demande : <b>Quelle est la raison</b> de cette déclaration ? <b>Rabba répond :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

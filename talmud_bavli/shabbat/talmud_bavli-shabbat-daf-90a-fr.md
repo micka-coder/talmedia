@@ -33,4 +33,4 @@ Nous avons appris dans la mishna : La mesure qui détermine la responsabilité p
 <strong>MISHNA:</strong> <b>La personne qui exécute le panier d'un marchand, même s'il contient plusieurs types</b> d'épices et de bijoux <b>est obligée</b> d'apporter <b>un seul sacrifice pour le péché,</b> car elle n'a accompli qu'un seul acte d'exécution. La mesure qui détermine la responsabilité pour avoir transporté des <b>graines de jardin</b> le Chabbat est <b>moins d'un figuier. Rabbi Yehuda ben Beteira dit :</b> La mesure de responsabilité est de <b>cinq</b> graines.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

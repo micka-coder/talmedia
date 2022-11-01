@@ -30,4 +30,4 @@ La Guemara demande : <b>Mais</b> si nous ne comparons pas <i>Chavouot</i> à <i>
 La Guemara demande : <b>Et là,</b> en ce qui concerne la Pâque elle-même, <b>d'où déduit-on</b> qu'elle nécessite un hébergement ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

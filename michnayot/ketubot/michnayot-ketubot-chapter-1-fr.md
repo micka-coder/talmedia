@@ -29,5 +29,5 @@ Elle était enceinte et on lui dit : " Quelle est la nature de ce fœtus ? " [El
 ### michna 10
 Rabbi Yose a dit : il est arrivé qu'une jeune fille descende pour puiser de l'eau à une source et qu'elle soit violée. Rabbi Yohanan ben Nuri a dit : si la plupart des habitants de la ville marient [leurs filles] à la prêtrise, cette [fille] peut [aussi] se marier à la prêtrise.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

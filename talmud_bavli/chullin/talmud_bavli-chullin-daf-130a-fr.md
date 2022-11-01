@@ -51,4 +51,4 @@ La Gemara répond que le verset dit : "Et c'est là le dû des prêtres</b> du p
 La Gemara soulève une difficulté : <b>Mais</b> cette dérivation indique que la <b>raison</b> pour laquelle le don de la poitrine et de la cuisse ne s'applique pas aux animaux non sacrés est que <b>le Miséricordieux écrit "ceci"</b>, d'où l'on peut déduire si <b>non</b> pour <b>cela, je dirais</b> que l'on est <b>obligé de</b> donner la <b>poitrine et la cuisse</b> provenant d'animaux <b>non sacrés</b>. <b>Mais</b> la procédure de don du sein et de la cuisse <b>exige un agitation,</b> et <b>où agiterait-on</b> le sein et la cuisse d'un animal non sacré ? <b>Si</b> on suggère de les agiter <b>à l'extérieur</b> du Temple, cela ne peut se faire, car <b>il est écrit :</b> "Pour que la poitrine soit agitée pour une offrande d'onde <b>devant le Seigneur"</b> (Lévitique 7:30), ce qui indique qu'elles doivent être agitées à l'intérieur du Temple.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

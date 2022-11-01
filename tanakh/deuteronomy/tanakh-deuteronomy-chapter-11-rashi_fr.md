@@ -117,5 +117,5 @@
 ### passuk 31
 <b>Parce que vous traverserez le Jourdain, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les miracles au Jourdain présageront, pour vous, que vous entrerez dans le pays et en prendrez possession. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

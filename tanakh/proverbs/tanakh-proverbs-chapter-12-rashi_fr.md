@@ -99,4 +99,4 @@ Heb.  נעוה", comme dans (Isa. 21:3) : "Je suis devenu confus (נעויתי) 
 <b>Il n'y a pas de mort</b> Il ne mourra pas.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara relate encore un autre incident similaire : Il y avait une fois <b>un 
 Ravina a alors demandé à Rava : <b>Mais si le maître ne tient pas selon</b> l'avis de <b>Shmuel,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

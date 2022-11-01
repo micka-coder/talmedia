@@ -42,4 +42,4 @@ La Guemara cite une <i>baraita</i> connexe où <b>il a été enseigné</b> que <
 La Guemara demande : Est-ce que cela veut dire par déduction : Si l'enfant <b>n'a pas</b> encore <b>resté</b> vivant pendant trente jours, <b>il est</b> considéré comme une <b>incertitude</b> s'il s'agit ou non d'un mort-né au regard de plusieurs <i>halakhot</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

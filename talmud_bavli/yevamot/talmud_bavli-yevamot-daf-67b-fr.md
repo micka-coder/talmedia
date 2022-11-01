@@ -45,4 +45,4 @@ Il est enseigné dans la mishna que le même principe s'applique à <b>une <i>ya
 La mishna enseigne que le même principe <b>aussi</b> s'applique à la <b>mise en ménage.</b> La Gemara explique : <b>Si elle est la fille d'un prêtre</b> fiancé <b>à un israélite, il la disqualifie,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara répond : <b>Là,</b> dans le cas des fiançailles, il y a une raison 
 La Gemara commente : Cette déclaration vient <b>exclure</b> l'avis <b>de cette <i>tanna</i>,</b> comme <b>Rav Yehuda a dit</b> que <b>Shmuel a dit au nom de Rabbi Yishmael:</b> Le verset dit à propos d'une femme soupçonnée par son mari d'avoir été infidèle [<i>sota</i>] : <b>"Et elle ne fut pas saisie"</b> (Nombres 5:13), c'est-à-dire qu'elle ne fut pas violée. C'est-à-dire qu'elle est <b>interdite</b> à son mari puisqu'elle a volontairement commis l'adultère avec un autre homme. <b>En conséquence,</b> une femme qui en fait <b>a été saisie</b> est <b>permise</b> à son mari. <b>Et vous avez une autre</b> femme <b>qui, bien que n'ayant pas été saisie</b> mais s'étant plutôt engagée volontairement dans des rapports sexuels, est néanmoins <b>permise</b> à son mari et n'est pas considérée comme une <i>sota</i>. <b>Et qui est-ce ? </b> Il s'agit de celle <b>dont les fiançailles étaient erronées, car même si son fils</b> issu de ce mariage <b>se trouve sur ses épaules,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

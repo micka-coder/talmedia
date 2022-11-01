@@ -18,4 +18,4 @@ La preuve de cette affirmation est la suivante : <b>La classe des cyniques, comm
 <b>La classe des calomniateurs</b> ne saluera pas la Présence Divine, <b>comme il est écrit : "Car Tu n'es pas un dieu qui prend plaisir à la méchanceté, le mal ne séjournera pas auprès de Toi"</b> (Psaumes 5:5), ce qui signifie : <b>Vous, le Seigneur, êtes juste</b> et <b>le mal ne séjournera pas</b> avec Vous <b>dans Votre demeure.</b> "Le mal" fait ici référence aux calomniateurs, comme le montre la suite du chapitre, qui indique : "Car il n'y a pas de sincérité dans leur bouche, leur intérieur est un gouffre béant, leur gorge est un tombeau ouvert, ils rendent leur langue lisse" (Psaumes 5:10).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -45,4 +45,4 @@ Si <b>son contrat de mariage valait</b> <b>quatre cents dinars, et qu'elle a ven
 <b>Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

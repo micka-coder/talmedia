@@ -45,4 +45,4 @@ La Gemara remet en question cette affirmation : Les <b>mesures</b> sont-elles un
 <b>Le blé</b> a été mentionné comme base <b>pour</b> calculer le temps nécessaire pour qu'une personne devienne rituellement impure en entrant dans <b>une maison atteinte de lèpre, comme nous l'avons appris</b> dans une mishna : En ce qui concerne <b>celui qui entre dans une maison affligée de la lèpre</b> de la maison (voir Lévitique, chapitre 14), <b>et ses vêtements</b> sont drapés <b>sur ses épaules, et ses sandales et ses bagues sont dans ses mains,</b> à la fois <b>il et elles,</b> les vêtements, les sandales et les bagues, <b>immédiatement</b> deviennent <b>rituellement impurs.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

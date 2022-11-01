@@ -21,4 +21,4 @@ La mishna enseigne : <b>Ben Azzai dit à</b> Rabbi Akiva : <b>Nous sommes</b> d�
 § Les Sages ont <b>envoyé</b> une décision <b>de là-bas,</b> Eretz Yisrael : En ce qui concerne <b>un fils qui a emprunté</b> de l'argent en se basant <b>sur</b> la garantie des biens de <b>son père du vivant de celui-ci, et</b> dont le père est ensuite <b>décédé, son fils reprend</b> les biens <b>des acheteurs. Et c'est la</b> plus <b>difficile</b> <i>halakha</i> à comprendre <b>en ce qui concerne le droit monétaire.</b> La Gemara clarifie le jugement : Si le fils a <b>emprunté, que reprend-il ? </b> Il doit rembourser une dette, pas percevoir un paiement. <D'ailleurs, quelle est la pertinence des acheteurs</b> dans cette affaire ? Il n'est pas fait mention d'eux dans la prémisse. <b>Au contraire, si</b> cette question <b>a été énoncée,</b> c'est de <b>cette</b> manière .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

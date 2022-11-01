@@ -75,4 +75,4 @@ La Guemara poursuit sa discussion en ce qui concerne les moyens de subsistance d
 <b>Rabbi Yoḥanan dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

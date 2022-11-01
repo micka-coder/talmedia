@@ -48,4 +48,4 @@ Abaye <b>a soulevé une objection à</b> cette explication de l'opinion de Rabbi
 La Guemara répond : <b>Rabbi Shimon a énoncé</b> son opinion <b>à leur égard conformément à la déclaration des rabbins</b> eux-mêmes, comme suit : <b>Selon mon</b> avis, <b>bien qu'il ait subi un procès, le Miséricordieux l'exempte</b> de l'offrande, comme cela découle <b>du verset : <b>"Et traite faussement</b> son prochain dans une affaire de dépôt" (Lévitique 5:21), ce qui indique qu'il n'est responsable que pour une réclamation qui, à l'origine, concernait régulièrement un paiement monétaire. <b>Cependant, selon votre</b> opinion, vous devriez <b>au moins me concéder</b> dans un cas <b>où il n'a pas été jugé, que lorsqu'on réclame</b> l'argent, on <b>réclame une amende</b> et non un paiement monétaire régulier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

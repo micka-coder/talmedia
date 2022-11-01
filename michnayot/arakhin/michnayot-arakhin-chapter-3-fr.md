@@ -14,5 +14,5 @@ La loi du violeur et du séducteur est tantôt clémente, tantôt stricte. Comme
 ### michna 5
 La loi du diffamateur est tantôt indulgente, tantôt stricte, comment cela se fait-il ? Qu'il ait diffamé une fille parmi les meilleurs de la souche sacerdotale ou les plus humbles d'Israël, il doit payer cent sélas. Il s'avère donc que celui qui parle avec sa bouche souffre plus que celui qui commet un acte. Car nous avons aussi constaté que le jugement contre nos pères dans le désert n'a été scellé qu'à cause de leur mauvaise langue, comme il est écrit : "Mais vous m'avez éprouvé ces dix fois, et vous n'avez pas écouté ma voix" (Nombres 14:22).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

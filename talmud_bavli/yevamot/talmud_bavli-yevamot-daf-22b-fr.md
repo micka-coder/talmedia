@@ -63,4 +63,4 @@ La Gemara demande : <b>Donc dire :</b> "La fille de la femme de ton père" vient
 <b>Ici,</b> il est question de la fille d'une femme que l'on a <b>rapée,</b> auquel cas il est permis d'épouser sa fille à condition qu'elle ne soit pas aussi sa fille. <b>Là,</b> il s'agit d'une femme que l'on a <b>mariée,</b> auquel cas il est interdit d'épouser sa fille en toutes circonstances. Cependant, même dans le cas où son père a violé une femme, il est permis d'épouser la fille de cette femme par un autre homme. Si le père a eu une fille avec cette femme, il est interdit d'avoir une relation avec cette fille, car elle est sa demi-sœur paternelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

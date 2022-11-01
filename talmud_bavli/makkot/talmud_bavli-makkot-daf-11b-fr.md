@@ -45,4 +45,4 @@ La Gemara suggère : <b>Disons</b> que ces <i>amora'im</i>, Rabbi Ami et Rabbi Y
 La Guemara explique : Disons que <b>celui qui dit</b> ici que la prêtrise <b>morte</b> tient <b>conformément</b> à l'opinion de <b>Rabbi Yehoshua.</b> Il tient que le Grand Prêtre n'est disqualifié qu'à partir du moment où il est découvert qu'il est disqualifié de la prêtrise et au-delà, tandis que tout service accompli avant cette découverte est valide. La découverte qu'il est disqualifié de la prêtrise est comme la mort du Grand Prêtre, mais sa prêtrise n'est pas invalidée rétroactivement. <b>Et celui qui dit</b> que le sacerdoce est <b>annulé</b> tient <b>conformément</b> à l'opinion de <b>Rabbi Eliezer,</b> et puisque son sacerdoce est annulé rétroactivement, il n'y avait pas de Grand Prêtre remplissant le poste lorsqu'il a été condamné.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

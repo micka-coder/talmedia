@@ -27,4 +27,4 @@ La <i>baraita</i> a déclaré que si le dépositaire a pris un dépôt <b>d'un m
 <b>Rav Pappa s'oppose</b> à l'addendum de Shmuel : Est-ce que <b>nous réclamons au nom des orphelins quelque chose que leur père</b> ne pourrait <b>pas réclamer pour eux ? Mais Rava n'a-t-il pas retiré aux orphelins une paire</b> de ciseaux utilisés <b>pour</b> couper des <b>vêtements et un livre de <i>aggada</i> sans</b> exiger que le propriétaire antérieur qui avait demandé aux orphelins de rendre ces objets apporte une <b>preuve</b> de propriété, et il statuerait de même <b>dans</b> le cas de tous les <b>objets</b> à l'égard desquels il est courant</b> qu'ils <b>soient prêtés,</b> et celui qui les possède n'a pas de présomption de propriété....
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

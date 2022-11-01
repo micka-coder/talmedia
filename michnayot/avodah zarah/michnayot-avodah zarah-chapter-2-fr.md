@@ -20,5 +20,5 @@ Les articles suivants des non-juifs sont interdits mais l'interdiction ne s'éte
 ### michna 7
 Il est permis de manger [à un Israélite] : le lait qu'un non-Juif a trait sous la surveillance d'un Juif ; le miel, les grappes de raisin, même si elles sécrètent de l'humidité ; la loi qui rend les aliments susceptibles d'être souillés par un liquide ne s'applique pas à elles ; les conserves dans lesquelles on n'a pas l'habitude de mettre du vin ou du vinaigre, le hareng mariné qui n'a pas été haché, la saumure contenant du poisson, une feuille d'asafoetida et les gâteaux d'olives roulés. Rabbi Yose dit : les olives dont les noyaux sont prêts à tomber sont interdites. Les criquets qui sortent du panier [d'un commerçant] sont interdits, mais s'ils proviennent d'un stockage, ils sont autorisés. La même règle s'applique à la teroumah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

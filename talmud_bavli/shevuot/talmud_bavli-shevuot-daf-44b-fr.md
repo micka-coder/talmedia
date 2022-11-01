@@ -18,4 +18,4 @@ La Gemara demande : <b>Quel est le sens de la déclaration : L'année sabbatique
 La Guemara rejette cette suggestion : <b>Non, en fait,</b> la déclaration de Rabban Shimon ben Gamliel selon laquelle l'année sabbatique n'abroge pas la dette ne fait référence qu'à la partie de la dette <b>commensurable</b> au collatéral, <b>et ils ne sont pas d'accord en ce qui concerne cette</b> partie de la dette. <b>Le premier <i>tanna</i>,</b> Rabban Shimon ben Gamliel, <b>soutient</b> que l'année sabbatique n'abroge pas la partie de la dette <b>commensurable avec</b> la garantie, <b>et Rabbi Yehuda HaNasi soutient</b> qu'elle <b>abroge</b> la partie de la dette <b>commensurable avec</b> la garantie <b>aussi. Et quant à</b> la question <b>que vous avez posée : Dans quel</b> but <b>il lui a saisi le collatéral</b> du tout, la réponse est qu'il le prend <b>seulement comme un rappel,</b> pour augmenter la probabilité que la dette soit payée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

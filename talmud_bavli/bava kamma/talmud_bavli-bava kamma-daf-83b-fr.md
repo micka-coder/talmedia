@@ -66,4 +66,4 @@ La Gemara poursuit la dérivation : <b>Et si tu disais</b> que <b>dans tous les 
 Les Sages s'opposent à cette dérivation et <b>disent : Quelle</b> est <b>la difficulté</b> de dire que son œil doit être aveuglé ? <b>Peut-être,</b> comme celui qui a causé la blessure a <b>pris</b> la <b>vision de</b> l'œil de la partie lésée, <b>Le Miséricordieux déclare</b> que le tribunal doit <b>prendre</b> la <b>vision de</b> son œil aussi, peu importe la taille de l'œil. <b>Puisque, si vous ne le dites pas,</b> alors par la même logique,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

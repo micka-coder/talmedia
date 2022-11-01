@@ -81,4 +81,4 @@ La Gemara commente : Ces dilemmes <b>doivent</b> tous <b>rester</b> non résolus
 <strong>MISHNA:</strong> <b>L'élément de base, </b> essentiel, <b>d'un acte de divorce est : Vous êtes par la présente autorisée à</b> épouser <b>n'importe quel homme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

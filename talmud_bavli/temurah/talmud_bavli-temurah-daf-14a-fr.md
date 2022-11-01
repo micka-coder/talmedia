@@ -72,4 +72,4 @@ En ce qui concerne l'affirmation de Rav Yosef selon laquelle l'élément : L'off
 Rav Dimi <b>dit</b> à Rav Yirmeya : <b>Si je trouve</b> quelqu'un <b>qui puisse <b>écrire</b> cet avis dans <b>une lettre,</b> je l'enverrai à Rav Yosef</b> en Babylonie,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

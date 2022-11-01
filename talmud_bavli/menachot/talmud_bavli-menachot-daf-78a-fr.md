@@ -45,4 +45,4 @@ La <i>baraita</i> continue : On <b>pourrait</b> avoir pensé que le verset indiq
 La Guemara clarifie : <b>Quelle est la</b> <b>dérivation biblique</b> par laquelle "<i>matza</i>" indique que les pains pochés dans l'eau n'ont pas été apportés ? <b>Rav Pappa dit :</b> Le verset indique que le nazirite apporte <i>matza</i> spécifiquement d'un <b>article dont il a été dit : "<i>Matzot</i>."</b> Cela sert à <b>exclure</b> les pains <b>pâtés dans l'eau, dont il n'est pas dit : <i>Matzot</i>.</b> En outre, <b>l'école de Rabbi Yishmael a enseigné : "Le pain azyme"</b> est <b>une généralisation ; "les pains</b> de fine farine mêlée d'huile, <b>et</b> les <b>pains de mie</b> azymes tartinés d'huile" <b>est un détail. </b> Lorsque la Torah énonce <b>une généralisation et un détail, la généralisation ne comprend que ce qui est dans le détail.</b> Par conséquent, <b>les pains et les galettes</b> sont inclus dans l'offrande de repas du nazirite, tandis que <b>les autres éléments ne le sont pas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

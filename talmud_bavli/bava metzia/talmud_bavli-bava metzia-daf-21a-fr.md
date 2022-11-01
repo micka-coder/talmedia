@@ -15,7 +15,7 @@ La Guemara discute <b>la</b> <i>baraita</i> <b>elle-même</b> citée plus haut :
 La Guemara explique : La raison pour laquelle il est valable s'il <b>émerge de la possession d'un tiers</b> est <b>que</b> le <b>créancier a accordé une crédibilité à</b> la <b>tiers</b> en plaçant le <i>simpon</i> en sa possession. <b>De même,</b> le <i>simpon</i> est valable dans le cas où <b>il émerge après la signature</b> des <b>documents, car, si ce n'était</b> du fait <b>que</b> la dette <b>a été remboursée,</b> le créancier <b>n'aurait pas miné son billet</b> en permettant que le <i>simpon</i> y soit inscrit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Comme nous demandons aux témoins si</b> le prêt a été <b>remboursé</b> ou <b>si</b> il n'a pas été <b>remboursé.</b>
 
@@ -32,4 +32,4 @@ La Guemara discute <b>la</b> <i>baraita</i> <b>elle-même</b> citée plus haut :
 La Guemara explique : La raison pour laquelle il est valable s'il <b>émerge de la possession d'un tiers</b> est <b>que</b> le <b>créancier a accordé une crédibilité à</b> la <b>tiers</b> en plaçant le <i>simpon</i> en sa possession. <b>De même,</b> le <i>simpon</i> est valable dans le cas où <b>il émerge après la signature</b> des <b>documents, car, si ce n'était</b> du fait <b>que</b> la dette <b>a été remboursée,</b> le créancier <b>n'aurait pas miné son billet</b> en permettant que le <i>simpon</i> y soit inscrit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

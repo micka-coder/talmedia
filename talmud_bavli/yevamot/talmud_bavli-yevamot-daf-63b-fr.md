@@ -60,4 +60,4 @@ La Guemara cite des déclarations supplémentaires du livre de Ben Sira : <b>Ne 
 <b>Les Sages ont enseigné</b> à propos de la mitsva d'être fécond et de se multiplier : <b>"Et quand il se reposait, il disait : Retourne, Seigneur, aux dix mille des milliers d'Israël"</b> (Nombres 10:36).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

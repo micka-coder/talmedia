@@ -45,4 +45,4 @@ A ce moment-là, si <b>trente-six</b> juges le <b>acquittent et que trente-cinq<
 <strong>GEMARA:</strong> La Gemara demande : <b>D'où proviennent ces questions</b> ? Quelle est la source de ces sept interrogatoires ? <b>Rav Yehuda répond :</b> C'est <b>comme le dit le verset</b> à propos d'une ville idolâtre : <b>"Et tu t'informeras, tu enquêteras, et tu demanderas diligemment"</b> (Deutéronome 13:15) ; <b>et</b> il <b>déclare</b> à l'égard de celui qui adore les idoles : <b>"Si on te l'a dit et que tu l'as entendu et que tu t'es informé diligemment"</b> (Deutéronome 17:4) ; <b>et</b> il <b>déclare</b> à l'égard des témoins conspirateurs : <b>"Et les juges enquêteront diligemment"</b> (Deutéronome 19:18). Pris ensemble, il y a sept interrogatoires auxquels il est fait allusion dans ces versets par chaque instance des termes enquêter, investiguer, et diligemment.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

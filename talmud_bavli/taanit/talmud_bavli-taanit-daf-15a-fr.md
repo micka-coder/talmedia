@@ -6,4 +6,4 @@
 <b>Rav Naḥman bar Yitzḥak a dit : Je dis aussi</b> une idée similaire. <b>Tous</b> ne sont pas aptes <b>à la lumière, et tous</b> ne sont pas aptes <b>à l'allégresse. Les justes</b> sont aptes à être récompensés <b>par la lumière, et les justes</b> sont aptes à être récompensés <b>par l'allégresse. Les justes</b> sont aptes à être récompensés <b>par la lumière,</b> comme il est écrit : <b>"La lumière est semée pour les justes"</b> (Psaumes 97:11), <b>et les justes</b> sont aptes à être récompensés <b>par l'allégresse, comme il est écrit,</b> dans le même verset : <b>Et l'allégresse pour les cœurs droits.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

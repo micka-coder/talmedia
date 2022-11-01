@@ -27,4 +27,4 @@ Dans ce cas, <b>Beit Shammai disent : Sa femme reste avec lui.</b> La femme qu'i
 <b>Rabbi Avin a dit : Nous aussi, nous apprenons</b> dans la mishna une preuve que les fiançailles léviriennes ne sont pas un acte d'acquisition à part entière, même selon le Beit Shammai. La mishna au début de ce chapitre (26a) enseigne que lorsque deux sœurs qui sont <i>yevamot</i> se présentent devant deux frères pour un mariage lévirat, si les frères ont épousé leurs femmes avant de consulter le tribunal, alors <b>Beit Shammai disent : Ils peuvent les maintenir</b> comme leurs épouses. De là, on peut déduire : S'ils les ont déjà épousées, <b>oui, ils peuvent les entretenir.</b> En revanche, les épouser <b><i>ab initio</i>, non,</b> cela est interdit en raison de l'interdiction d'épouser la sœur d'une femme avec laquelle on a un lien lévirat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ On <b>pourrait</b> avoir pensé <b>que je</b> devrais également <b>inclure un a
 La Gemara demande : <b>Et qu'avez-vous vu</b> comme raison <b>d'inclure ceux-là et d'exclure ceux-ci ?</b> La Gemara répond : <b>Après avoir</b> noté <b>que</b> le verset <b>inclu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

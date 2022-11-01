@@ -39,7 +39,7 @@ La Guemara ajoute : <b>Et même dans un endroit où les caravanes</b> passant pa
 <b>Comme, si vous ne le dites pas,</b> que cette préoccupation n'est prise en compte que dans un lieu où l'on sait qu'il y a deux personnes portant ce même nom, alors il y a une <b>difficulté</b> présentée sous la forme d'une contradiction entre cette déclaration <b>de Rabba et</b> une autre déclaration <b>de Rabba. Comme</b> il y avait <b>un certain acte de divorce qui a été trouvé</b> dans <b>le tribunal de Rav Huna, dans lequel il était écrit</b> que l'acte de divorce a été écrit <b>dans la ville de Sheviri, qui</b> est située <b>sur la rivière Rakhis. Rav Huna a dit</b> à ce sujet :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 alors <b>Qu'est-ce que</b> on entend par la formulation : <b>Elle perçoit tout</b> ce à quoi elle a droit ? <b>Ce qu'elle a est</b> seulement la somme principale du contrat de mariage de <b>cent ou deux cents dinars</b> qu'elle peut percevoir. Il est clair que la mishna fait référence à un cas où le mari a rédigé un contrat de mariage, et elle n'indique pas qu'une veuve fiancée reçoit le paiement de son contrat de mariage.
 
@@ -80,4 +80,4 @@ La Guemara ajoute : <b>Et même dans un endroit où les caravanes</b> passant pa
 <b>Comme, si vous ne le dites pas,</b> que cette préoccupation n'est prise en compte que dans un lieu où l'on sait qu'il y a deux personnes portant ce même nom, alors il y a une <b>difficulté</b> présentée sous la forme d'une contradiction entre cette déclaration <b>de Rabba et</b> une autre déclaration <b>de Rabba. Comme</b> il y avait <b>un certain acte de divorce qui a été trouvé</b> dans <b>le tribunal de Rav Huna, dans lequel il était écrit</b> que l'acte de divorce a été écrit <b>dans la ville de Sheviri, qui</b> est située <b>sur la rivière Rakhis. Rav Huna a dit</b> à ce sujet :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

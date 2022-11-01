@@ -51,4 +51,4 @@ S'il a dit : Sur mon <b>serment je ne mangerai pas, et qu'il a mangé des alimen
 La Gemara explique : <b>Si vous le souhaitez,</b> vous pouvez <b>proposer un argument logique</b> pour cette décision : Il est clair que boire est inclus dans manger à partir du fait <b>qu'une personne dira à une autre : Allons</b> prendre <b>un avant-goût</b> de <b>quelque chose, et ils entrent, mangent et boivent. Et si tu veux, cite un verset</b> comme source de cette décision, <b>comme le dit Reish Lakish : D'où</b> est-il dérivé <b>que boire est inclus dans manger ? C'est</b> dérivé <b>de ce</b> qui <b>est énoncé : "Et tu mangeras devant le Seigneur ton Dieu, dans le lieu qu'il choisira pour y faire résider son nom, la dîme de ton blé, de ton <i>tirosh</i>,</b> et de ton huile" (Deutéronome 14:23).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

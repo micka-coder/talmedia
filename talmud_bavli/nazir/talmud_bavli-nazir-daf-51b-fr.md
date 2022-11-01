@@ -33,4 +33,4 @@ La Guemara déduit de ce passage : <b>La raison</b> pour laquelle la louche de c
 § En relation avec la discussion ci-dessus concernant un corps sans membre, <b>Rava a soulevé un dilemme :</b> Si quelqu'un mange une fourmi entière, même si elle a un volume inférieur à une botte d'olive, il est responsable de manger un animal rampant car il s'agit d'une créature entière. Le dilemme de Rava était le suivant : Si l'on mange <b>une fourmi à laquelle il manque</b> une partie, par exemple une patte, <b>quelle est</b> la <i>halakha</i> ? Cet individu est-il susceptible de recevoir des coups de fouet ? Les deux possibilités sont les suivantes : <b>Est-ce</b> qu'il est <b>appris</b> comme tradition que <b>la quantité</b> dont on est passible est une fourmi entière, <b>et celle-ci fait défaut ? Ou</b> a-t-on <b>appris</b> qu'il est puni pour une <b>entité viable, et il y a</b> une entité viable ici, malgré le membre manquant ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

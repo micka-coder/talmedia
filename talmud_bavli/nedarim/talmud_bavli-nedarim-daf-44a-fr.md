@@ -15,4 +15,4 @@ La Guemara demande : <b>Si c'est le cas,</b> alors <b>laissons</b> les Sages ins
 La Gemara demande : Les Sages ont institué que l'on ne peut pas rétracter sa déclaration de statut de sans propriétaire une fois que trois jours se sont écoulés. <b>Cependant, selon la loi de la Torah, l'objet n'est-il pas <b>sans propriétaire</b> selon Rabbi Yosei, indépendamment du moment où il a rétracté sa déclaration, tant qu'aucune autre personne ne l'a acquis ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

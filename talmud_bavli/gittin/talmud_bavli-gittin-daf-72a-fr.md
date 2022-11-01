@@ -57,4 +57,4 @@ La Gemara conteste : <b>Si</b> la déclaration de Rav Huna est conforme à l'opi
 Rav Naḥman <b>demanda à</b> Rabba bar Avuh ce qu'est la <i>halakha</i>. Rabba bar Avuh <b>lui répondit : Ainsi dit Rav :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Yosei. Après son départ</b> Rav Huna <b>a dit à</b> Rav Naḥman : <b>C'est la raison</b> de l'avis <b>de Rabbi Yosei, tel qu'il le tient : La date</b> écrite <b>dans un document prouve</b> quand <b>il</b> prend effet. De cet incident, il est clair que Rav Huna tient que la <i>halakha</i> est en accord avec Rabbi Yosei, car Rav Huna a certainement accepté l'avis que Rabba bar Avuh a dit au nom du Rav. <b>Au contraire,</b> il faut dire que Rav Huna <b>est incertain</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

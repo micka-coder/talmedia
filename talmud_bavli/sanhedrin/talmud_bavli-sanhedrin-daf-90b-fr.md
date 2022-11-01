@@ -63,4 +63,4 @@ La Guemara demande : Selon <b>Rabbi Yishmael et Rabbi Akiva, que font-ils avec,<
 L'<b>empereur romain dit à Rabban Gamliel : Vous dites que les morts vivront. Ne sont-ils pas de la poussière ? Et la poussière revient-elle à la vie ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

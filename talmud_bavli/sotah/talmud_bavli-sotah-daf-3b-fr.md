@@ -69,4 +69,4 @@ La Guemara commente : <b>Et</b> en ce qui concerne <b>la souillure en général,
 <b>Les Sages ont enseigné</b> (<i>Tosefta</i> 1:1) : Dans la mishna citée ci-dessus, <b>Quel est le premier témoignage ? Ceci</b> fait référence au <b>témoignage de la réclusion.</b> Quel est <b>le dernier témoignage ? Ceci</b> fait référence au <b>témoignage de la souillure.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

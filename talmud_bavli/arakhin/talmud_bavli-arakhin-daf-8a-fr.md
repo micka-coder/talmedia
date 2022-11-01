@@ -42,4 +42,4 @@ Si elle a dit : <b>J'ai vu neuf jours impurs,</b> c'est-à-dire que j'ai eu une 
 Si elle a dit : <b>J'ai vu dix jours impurs,</b> c'est-à-dire que j'ai eu des écoulements de sang pendant dix jours, la <b>allévation</b> de son état d'incertitude intervient après qu'elle ait connu <b>dix</b> jours propres, pour rendre compte de la possibilité que les deux premiers jours d'écoulement se soient produits les deux derniers des onze jours de <i>ziva</i> et que les huit autres se soient produits les sept jours de son cycle menstruel et un jour supplémentaire. Si elle a dit : J'ai vu <b>onze</b> jours impurs, c'est-à-dire que j'ai eu un écoulement de sang pendant onze jours, la <b>allocation</b> de son état d'incertitude se produit après qu'elle ait connu <b>neuf</b> jours propres, pour tenir compte du scénario le plus défavorable selon lequel les deux premiers jours d'écoulement se sont produits les deux derniers des onze jours de <i>ziva</i> et les neuf autres se sont produits les sept jours de son cycle menstruel, suivis de deux jours supplémentaires.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

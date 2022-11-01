@@ -72,4 +72,4 @@ La Gemara objecte : <b>Si c'est le cas,</b> alors <b>même</b> si <b>on sectionn
 La Gemara objecte : <b>Si c'est ainsi,</b> que la <i>halakha</i> est dérivée du terme "et de chaque animal", alors même dans le cas de <b>celui qui abat un animal et y trouve un fœtus en forme de colombe</b>, cela devrait être permis. Pourquoi, </b> alors, <b>Rabbi Yoḥanan dit : Celui qui abat un animal et trouve un fœtus en forme de colombe</b> dedans,</b> ce fœtus est <b>interdit à la consommation ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

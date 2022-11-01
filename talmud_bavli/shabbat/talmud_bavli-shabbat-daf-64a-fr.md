@@ -69,4 +69,4 @@ Plus loin dans ce chapitre, il est écrit : <b>"Et Moïse s'irrita contre les of
 Le Sage <b>de l'école de Rabbi Yishmael a enseigné : Pour quelle</b> raison <b>Israël, dans cette génération, avait-il besoin d'une expiation ? Parce que</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

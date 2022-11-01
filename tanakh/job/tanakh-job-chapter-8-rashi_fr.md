@@ -69,4 +69,4 @@
 <b>Veuillez que Dieu ne rejette pas l'innocent</b> et qu'Il ne soutienne pas vos ennemis qui vous font du mal, jusqu'à ce qu'Il revienne pour vous accorder sa clémence, et [alors] Il remplira votre bouche de rires.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

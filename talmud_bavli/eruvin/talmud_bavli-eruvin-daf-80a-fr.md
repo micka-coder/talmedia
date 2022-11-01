@@ -75,4 +75,4 @@ La Guemara en déduit : S'il était <b>habitué</b> à participer à leur fusion
 La Gemara suggère : <b>Disons</b> que la <i>baraïta</i> suivante <b>le soutient.</b> Les habitants d'une ruelle peuvent <b>contraindre</b> quiconque vit dans la ruelle <b>à ériger un poteau latéral et une</b> traverse <b>poutre pour la ruelle.</b> Cet enseignement indique qu'en ce qui concerne ces édits de Chabbat, les souhaits d'une personne ne sont pas pris en compte ; au contraire, d'autres peuvent agir en son nom même contre sa volonté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

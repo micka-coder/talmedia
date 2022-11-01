@@ -30,4 +30,4 @@ La Gemara soulève une difficulté : <b>Mais</b> si c'est le cas, <b>qu'est-ce q
 <b>Rava soulève une objection</b> à partir d'un <i>baraita</i> qui discute d'un verset décrivant un holocauste : <b>"Et les fils d'Aaron, les prêtres, présenteront le sang et l'aspergeront"</b> (Lévitique 1:5). La seconde mention superflue du sang enseigne qu'il est toujours appelé sang d'un holocauste même après avoir été mélangé à d'autres sangs, et qu'il doit donc être aspergé de la manière qui lui est propre. <b>Qu'est-ce que</b> cela signifie lorsque...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

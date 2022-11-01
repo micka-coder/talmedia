@@ -39,4 +39,4 @@ La Gemara explique la phrase suivante du verset : <b>Et il la sortira</b> à l'e
 <b>Et</b> même selon <b>le premier <i>tanna,</i> n'est-il</b> pas <b>écrit "il" ? </b> Pourquoi ne dérive-t-il pas la <i>halakha</i> du mot "il" ? La Gemara explique : <b>Qui est le premier <i>tanna</i> ? C'est Rabbi Shimon, qui interprète le raisonnement</b> de la mitsva <b>dans le verset</b> et tire des conclusions halakhiques basées sur cette interprétation. Par conséquent, il accepte que la <i>halakha</i> soit dérivée du mot "il", mais il fournit également une justification pour la <i>halakha</i>. Si tel est le cas, <b>quelle</b> est la différence pratique <b>entre eux ? La</b> différence pratique <b>entre eux est</b> dans un cas .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

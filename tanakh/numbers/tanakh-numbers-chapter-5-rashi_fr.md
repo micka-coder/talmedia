@@ -128,5 +128,5 @@
 ### passuk 31
 <b>L'homme est purifié du péché.</b> Si l'eau l'a affectée, qu'il ne soit pas tourmenté en disant : "J'étais responsable de sa mort." Il est purifié du châtiment. Autre interprétation : Après qu'il (le <i>Cohen</i>) l'ait fait boire, il lui est permis d'être avec lui (son mari), et il est purifié du péché. En effet, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la <i>sotah</i> [non testée] est interdite [d'avoir des relations intimes avec] son mari. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

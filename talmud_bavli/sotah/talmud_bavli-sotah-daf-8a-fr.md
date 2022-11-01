@@ -42,4 +42,4 @@ La mishna poursuit en citant que <b>Rabbi Yehuda dit : Si son cœur était</b> a
 <b>Rava dit :</b> La contradiction entre une déclaration <b>de Rabbi Yehuda</b> et l'autre déclaration <b>de Rabbi Yehuda est-elle difficile,</b> alors que la contradiction entre une déclaration <b>des Rabbins</b> et l'autre déclaration <b>des Rabbins</b> n'est <b>pas difficile ? </b> Il y a également une contradiction apparente entre les deux décisions des rabbins, car en ce qui concerne une <i>sota</i>, ils ne sont pas concernés par les pensées sexuelles, mais en ce qui concerne une femme qui est lapidée, ils le sont. <b>Rava dit plutôt :</b> La contradiction entre une déclaration <b>de Rabbi Yehuda</b> et l'autre déclaration <b>de Rabbi Yehuda</b> n'est <b>pas difficile, comme nous l'avons répondu</b> ci-dessus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

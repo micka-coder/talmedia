@@ -47,4 +47,4 @@
 <b>Il souffle Son vent</b> Le vent d'ouest, pour se débarrasser de la glace, et l'eau coule.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

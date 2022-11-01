@@ -42,4 +42,4 @@ La Gemara conteste cette affirmation : <b>Raven Yosef n'a-t-il pas dit :</b> En 
 <b>Et si vous voulez dire</b> que le <b>témoignage</b> que le mari d'une <b>femme</b> est mort <b>est différent, car les Sages ont statué avec indulgence</b> en la matière et ont peut-être accepté le témoignage d'un mauvais témoin dans de tels cas, <b>Rav Menashe n'a-t-il pas dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

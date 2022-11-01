@@ -30,4 +30,4 @@ La Gemara demande : <b>Mais ici,</b> en ce qui concerne le deuil, <b>nous avons 
 La Gemara demande : Mais <b>ne dit-il pas : Et de même,</b> indiquant que le statut juridique de la personne en deuil et le statut juridique du marié dont la femme a ses menstruations sont les mêmes ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

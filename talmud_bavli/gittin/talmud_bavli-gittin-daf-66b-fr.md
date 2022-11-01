@@ -45,4 +45,4 @@ Les Sages <b>Disent</b> en réponse que <b>si nous tenons</b> que la phrase : <b
 <b>Et s'il vous vient à l'esprit</b> de dire que <b>Rabbi Yosei concède dans</b> le cas de celui qui <b>dit : Dis</b> à un autre de l'écrire, <b>un écueil en résultera. Comme parfois,</b> il arrive <b>que l'on dise à deux</b> personnes :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

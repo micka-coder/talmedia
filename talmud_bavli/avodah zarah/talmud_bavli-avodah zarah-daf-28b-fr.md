@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle</b> affection de l'œil, <b>par exemple,</b> est 
 <b>Rav Yehuda dit :</b> En ce qui concerne celui qui souffre de la piqûre d'un <b>frelon, ou de la piqûre d'une épine [<i>silva</i>], ou d'un abcès, ou celui dont l'œil lui fait mal, ou</b> celui qui est <b>vaincu par la fièvre,</b> se baigner dans <b>un établissement de bains est</b> un <b>danger de mort</b> pour <b>toutes ces personnes. </b> En outre, manger du <b>radis [<i>ḥamma</i>]</b> est bon <b>pour une fièvre [<i>ḥamma</i>], et</b> manger des <b>bets [<i>silka</i>]</b> est bon <b>pour des frissons [<i>tzina</i>], mais l'inverse,</b> c'est-à-dire, manger du radis quand on a des frissons ou des betteraves quand on a de la fièvre, pose <b>un danger.</b> De même, manger des aliments <b>chauds</b> est bon <b>pour</b> la piqûre d'un <b>scorpion, et les aliments froids</b> sont bons <b>pour une piqûre de frelon</b>, <b>mais l'inverse</b> pose <b>un danger. L'eau chaude</b> est bonne <b>pour une épine</b> enfoncée dans la peau, <b>et l'eau froide</b> est bonne....
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

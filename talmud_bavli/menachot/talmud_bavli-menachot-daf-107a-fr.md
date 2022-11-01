@@ -63,7 +63,7 @@ La mishna enseigne que celui qui dit : <b>J'ai spécifié</b> combien de <i>log<
 Celui qui dit : J'ai fait vœu d'apporter un holocauste, et <b>J'ai spécifié</b> que ce serait <b>du troupeau, mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle,</b> car un holocauste n'est apporté que par des animaux mâles. Celui qui dit : J'ai fait vœu d'apporter un holocauste et j'ai spécifié qu'il serait <b>parmi les animaux mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle, un bélier, un grand bouc mâle, un petit bouc mâle et un agneau mâle.</b> Celui qui dit : J'ai fait vœu d'apporter un holocauste et <b>j'ai spécifié</b> quel type d'holocauste ce serait, <b>mais je ne sais pas ce que j'ai spécifié,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>La récolte et les plumes,</b> qui sont jetées sur le sol à côté de l'autel et ne sont pas brûlées.
 
@@ -128,7 +128,7 @@ La mishna enseigne que celui qui dit : <b>J'ai spécifié</b> combien de <i>log<
 Celui qui dit : J'ai fait vœu d'apporter un holocauste, et <b>J'ai spécifié</b> qu'il serait <b>du troupeau, mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle,</b> car un holocauste n'est apporté que des animaux mâles. Celui qui dit : J'ai fait vœu d'apporter un holocauste et j'ai spécifié qu'il serait <b>parmi les animaux mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle, un bélier, un grand bouc mâle, un petit bouc mâle et un agneau mâle.</b> Celui qui dit : J'ai fait vœu d'apporter un holocauste et <b>j'ai spécifié</b> quel type d'holocauste ce serait, <b>mais je ne sais pas ce que j'ai spécifié,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>La récolte et les plumes,</b> qui sont jetées sur le sol à côté de l'autel et ne sont pas brûlées.
 
@@ -193,4 +193,4 @@ La mishna enseigne que celui qui dit : <b>J'ai spécifié</b> combien de <i>log<
 Celui qui dit : J'ai fait vœu d'apporter un holocauste, et <b>J'ai spécifié</b> qu'il serait <b>du troupeau, mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle,</b> car un holocauste n'est apporté que des animaux mâles. Celui qui dit : J'ai fait vœu d'apporter un holocauste et j'ai spécifié qu'il serait <b>parmi les animaux mais je ne sais pas quel</b> animal <b>j'ai spécifié, doit apporter un taureau et un veau mâle, un bélier, un grand bouc mâle, un petit bouc mâle et un agneau mâle.</b> Celui qui dit : J'ai fait vœu d'apporter un holocauste et <b>j'ai spécifié</b> quel type d'holocauste ce serait, <b>mais je ne sais pas ce que j'ai spécifié,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

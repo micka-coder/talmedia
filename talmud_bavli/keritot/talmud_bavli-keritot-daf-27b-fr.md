@@ -72,4 +72,4 @@ Le <i>baraita</i> fournit la source de toute cette <i>halakha</i> : <b>C'est pou
 <b>Rabbi Elazar dit</b> que <b>Rabbi Oshaya dit : Une personne riche qui souille le Temple,</b> c'est-à-dire qu'elle entre dans le Temple alors qu'elle est rituellement impure, est obligée d'apporter comme offrande un agneau ou une chèvre femelle en fonction de sa richesse. Si <b>il a désigné un nid,</b> c'est-à-dire un couple d'oiseaux,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

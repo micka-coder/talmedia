@@ -63,4 +63,4 @@ Rav Pappa explique : <b>Accordé, si l'on dit</b> que le mari <b>est</b> consid�
 <b>Abaye a dit : Si Ravin n'avait pas envoyé</b> cette lettre, <b>n'aurions-nous pas su</b> que le mari a le statut d'acquéreur ? <b>Mais n'avons-nous pas appris</b> dans la mishna (<i>Bekhorot</i> 52b) : <b>Ces</b> propriétés <b>ne retournent pas</b> à leurs propriétaires initiaux <b>lors de l'année du Jubilé</b> (voir Lévitique 25, 13-24) : La portion du <b>premier-né,</b> c'est-à-dire qu'elle ne retourne pas à la propriété commune des frères pour être partagée équitablement comme le reste de l'héritage, mais reste en possession du premier-né ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Rabbi Shimon ben Yoḥai développe : En ce qui concerne <b>les diverses sortes,
 <b>Rabbi Elazar, fils de Rabbi Shimon, dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

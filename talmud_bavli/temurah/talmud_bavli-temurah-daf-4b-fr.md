@@ -42,4 +42,4 @@ La Gemara répond : <b>Il l'exige pour ce que nous avons appris</b> dans une mis
 § <b>Abaye a dit :</b> En ce qui concerne <b>tout ce que le Miséricordieux déclare</b> dans la Torah <b>ne pas accomplir, si quelqu'un l'a accompli</b>, son action <b>est effective,</b> mais le violateur est fouetté. <b>Aussi, s'il entre dans votre esprit</b> que <b>ce n'est pas efficace, pourquoi</b> serait-il <b>flagellé</b> pour n'avoir rien accompli ? <b>Rava a dit :</b> Si on l'a accompli, <b>il n'est pas du tout efficace. Et c'est</b> la raison pour laquelle il est <b>flagellé : Parce qu'il a transgressé la déclaration du Miséricordieux.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

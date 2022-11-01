@@ -63,4 +63,4 @@ Il existe un principe établi selon lequel on ne peut rendre interdit un objet q
 § <b>Rami bar Ḥama soulève un dilemme :</b> Dans le cas de <b>celui qui s'incline devant une montagne, quelle est</b> la <i>halakha</i> en ce qui concerne la permission d'utiliser <b>ses pierres pour</b> construire <b>l'autel</b> dans le Temple ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

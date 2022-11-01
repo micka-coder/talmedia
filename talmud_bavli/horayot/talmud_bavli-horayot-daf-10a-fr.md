@@ -63,4 +63,4 @@ Rabban Gamliel lui <b>dit : Tant</b> de sagesse est <b>à ta disposition</b>, <b
 <b>Lorsque</b> Rabban Gamliel <b>sortait</b> sur la terre ferme, <b>il envoya</b> un messager <b>vers eux</b> pour leur dire de venir afin qu'il puisse les nommer <b>et ils ne vinrent pas. Il leur envoya de nouveau</b> un messager <b>et ils vinrent.</b> Rabban Gamliel <b>leur dit : Vous vous imaginez que je vous accorde une autorité,</b> et comme vous n'avez pas voulu accepter cet honneur, vous n'êtes pas venus quand je vous ai envoyés chercher ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@
 <b>Je les ai gardés pour toi.</b> Pour ton nom et pour ton service, je les ai gardés dans mon cœur.Autre explication, je les ai gardés pour Te montrer que je les ai accomplis. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

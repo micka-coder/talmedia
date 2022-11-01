@@ -69,4 +69,4 @@ La Gemara répond : <b>Au contraire,</b> Rabbi Chimon <b>doit faire dériver</b>
 En outre, la mitzva de la première laine tondue et la mitzva du premier né s'appliquent toutes deux à un animal possédé <b>en association,</b> contrairement à la dîme animale. Les deux s'appliquent également à un animal que l'on <b>a donné</b> à un autre en cadeau, alors que la dîme animale ne s'applique pas dans le cas d'un don. De même, les deux s'appliquent même lorsqu'on n'est pas <b>en présence</b> du Temple, alors que la dîme animale n'est en vigueur que lorsque le Temple est debout. De plus, tant la première laine tondue que les premiers-nés sont donnés à <b>un prêtre,</b> alors que la dîme animale est consommée par le propriétaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

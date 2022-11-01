@@ -33,4 +33,4 @@ Le Reish Lakish explique : La saumure est pure <b>quelle que soit la manière do
 <b>Rabbi Yirmeya dit :</b> Les Sages <b>ont enseigné</b> qu'il faut utiliser cette méthode de purification <b>seulement</b> s'il souhaite <b>tremper son pain dans</b> la saumure. <b>Mais pour</b> cuisiner dans <b>une marmite</b> avec une autre eau, cette méthode n'est <b>pas</b> efficace, car le liquide du <b>type</b> qui a été annulé, c'est-à-dire l'eau de la saumure, <b>trouve son</b> propre <b>type, </b> l'eau de la marmite, <b>et est ravivé</b> dans son état impur, car l'eau qui n'était auparavant qu'une minorité du mélange est maintenant majoritaire. <b>Rav Dimi était assis et disait cette <i>halakha</i>. Abaye dit à</b> Rav Dimi : <b>Mais l'impureté annulée revient-elle et revit-elle</b> dans son état impur ? Rav Dimi</b> lui a répondu : Et toi, ne tiens-tu pas</b> que c'est la <i>halakha</i> ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Teruma</i> 5:2) : En ce qui concerne <b>une <i>se'a</i> de <i>teruma</i> impure qui est tombée</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

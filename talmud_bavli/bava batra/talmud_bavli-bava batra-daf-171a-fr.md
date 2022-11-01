@@ -30,4 +30,4 @@ La Guemara est perplexe face à la réponse de Rabbi Yosseï à la fin de la <i>
 <b>Rabbi Pedat dit : Toutes</b> les parties à ce litige <b>sont d'accord pour dire que si nous nous engagions dans</b> une enquête sur <b>la date du document, et que sa date s'avérait être exactement le Chabbat ou le dixième de Tishrei,</b> il est évident <b>que c'est un billet à ordre <b>postdaté</b> et qu'il est valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara soulève une difficulté contre l'avis de Rami bar Ḥama : <b>Mais n
 <b>Et si vous disiez</b> que cela n'est pas difficile, car <b>les rabbins ne sont pas d'accord avec Rabbi Yehuda,</b> cela poserait également un problème. <b>Mais Rabbi Yehoshua ben Levi ne dit-il pas : Tout endroit où Rabbi Yehuda dit</b> dans le corpus de la Mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

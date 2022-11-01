@@ -45,4 +45,4 @@ La Gemara répond : <b>Lisez</b> Ḥiyya bar Rav's ruling comme suit : <b>Il ne 
 <b>Rav Naḥman a dit à Rav Huna : Ne discutez pas</b> l'avis <b>de Shmuel</b> cité par Rav Naḥman concernant un champ entouré d'une cloison le Chabbat, <b>comme cela a été enseigné</b> dans une <i>baraita</i> <b>conforme à son</b> avis. <b>Comme il a été enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

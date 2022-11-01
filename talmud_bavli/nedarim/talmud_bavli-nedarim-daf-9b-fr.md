@@ -33,4 +33,4 @@ La Guemara demande : <b>Si c'est le cas,</b> alors Shimon HaTzaddik aurait dû s
 La Guemara suggère une réponse différente à la question de l'identité du <i>tanna</i> dont l'avis est exprimé dans la mishna. <b>Et si vous le souhaitez, dites :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

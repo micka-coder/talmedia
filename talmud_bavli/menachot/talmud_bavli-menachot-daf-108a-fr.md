@@ -66,7 +66,7 @@ Rav Naḥman en déduit : <b>Et puisqu'elle n'est pas appelée offrande pour le 
 Dans un cas où l'on a dit : <b>Ce bélier est</b> par la présente <b>un holocauste, et il s'est taché, s'il le souhaite, il peut apporter un agneau avec sa <b>monnaie de rachat.</b> Dans un cas où l'on a dit : <b>Cet agneau est</b> par la présente <b>un holocauste, et il s'est terni, s'il le souhaite, il peut apporter un bélier avec son</b> rachat <b>monnaie. Et Rabbi</b> Yehuda HaNasi <b>estime</b> qu'il est <b>interdit</b> d'apporter un type d'animal avec la monnaie de rachat d'un autre type d'animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et</b> un était pour la valeur des <b>agneaux</b> apportés comme offrande de culpabilité d'un nazirite ou d'un lépreux. <b>Et</b> une était pour la valeur des <b>chèvres</b> apportées en offrande de péché communautaire lors des Fêtes. <b>Et</b> une était pour <b>le surplus</b> des pièces de monnaie de celui qui a désigné de l'argent pour acheter une de ces offrandes et qui avait de l'argent restant après avoir acheté l'animal. <b>Et</b> une était pour <b>l'argent</b> supplémentaire <b><i>ma'a</i></b> payé comme prime dans le cas où deux personnes apportaient leur demi-shekel conjointement comme un seul shekel.
 
@@ -134,7 +134,7 @@ Rav Naḥman en déduit : <b>Et puisqu'elle n'est pas appelée offrande pour le 
 Dans un cas où l'on a dit : <b>Ce bélier est</b> par la présente <b>un holocauste, et il s'est taché, s'il le souhaite, il peut apporter un agneau avec sa <b>monnaie de rachat.</b> Dans un cas où l'on a dit : <b>Cet agneau est</b> par la présente <b>un holocauste, et il s'est terni, s'il le souhaite, il peut apporter un bélier avec son</b> rachat <b>monnaie. Et Rabbi</b> Yehuda HaNasi <b>estime</b> qu'il est <b>interdit</b> d'apporter un type d'animal avec la monnaie de rachat d'un autre type d'animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et</b> un était pour la valeur des <b>agneaux</b> apportés comme offrande de culpabilité d'un nazirite ou d'un lépreux. <b>Et</b> une était pour la valeur des <b>chèvres</b> apportées en offrande de péché communautaire lors des Fêtes. <b>Et</b> une était pour <b>le surplus</b> des pièces de monnaie de celui qui a désigné de l'argent pour acheter une de ces offrandes et qui avait de l'argent restant après avoir acheté l'animal. <b>Et</b> une était pour <b>l'argent</b> supplémentaire <b><i>ma'a</i></b> payé comme prime dans le cas où deux personnes apportaient leur demi-shekel conjointement comme un seul shekel.
 
@@ -202,4 +202,4 @@ Rav Naḥman en déduit : <b>Et puisqu'elle n'est pas appelée offrande pour le 
 Dans un cas où l'on a dit : <b>Ce bélier est</b> par la présente <b>un holocauste, et il s'est taché, s'il le souhaite, il peut apporter un agneau avec sa <b>monnaie de rachat.</b> Dans un cas où l'on a dit : <b>Cet agneau est</b> par la présente <b>un holocauste, et il s'est terni, s'il le souhaite, il peut apporter un bélier avec son</b> rachat <b>monnaie. Et Rabbi</b> Yehuda HaNasi <b>estime</b> qu'il est <b>interdit</b> d'apporter un type d'animal avec la monnaie de rachat d'un autre type d'animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara exprime son étonnement face à cette réponse : Comment peut-on pens
 <b>Les Sages ont enseigné</b> la <i>baraita</i> suivante : En ce qui concerne <b>un premier-né non souillé qui est tombé dans une citerne</b> lors d'une fête, <b>Rabbi Yehuda HaNasi dit : Un expert</b> en ces matières <b>descend</b> dans la citerne <b>et examine</b> l'animal. <b>Si celui-ci</b> présente maintenant <b>une tare</b> permanente suite à la chute, <b>il</b> peut le <b>relever</b> de la citerne <b>et l'abattre</b> ; <b>mais si ce n'est pas le cas,</b> alors même s'il procède à son relèvement, <b>il</b> ne peut <b>pas l'abattre</b>, même si par la suite il développe une tare. <b>Rabbi Shimon ben Menasya lui a dit :</b> Les Sages des générations précédentes ont <b>déjà dit</b> que <b>on</b> ne peut <b>pas examiner les taches sur une Fête. Comment cela ? Si une tare est apparue la veille d'une fête, on ne peut pas l'examiner le jour même de la fête pour voir si elle est du type qui permet l'abattage de l'animal. Et si le <b>blemish est apparu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

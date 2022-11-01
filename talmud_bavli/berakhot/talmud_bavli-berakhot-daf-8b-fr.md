@@ -69,4 +69,4 @@ La Guemara repond : <b>Non,</b> il n'y a pas de contradiction. <b>En fait,</b> l
 <b>Ce</b> <i>baraita</i> <b>est auto-contradictoire.</b> Initialement, <b>vous avez dit : <b>Il arrive qu'on recite <i>Shema</i> deux fois dans la journee.</b> Apparemment,</b> le moment juste <b>avant le lever du soleil est</b> considere comme <b>la journee. Et ensuite vous avez enseigne :" Il remplit ainsi sa</b> double <b>obligation</b> de reciter <i>Shema</i>, <b>une du jour et une de la nuit.A" Apparemment,A </b> le temps en question <b>est</b> considere comme <b>nuit,A </b> car sinon, il ne pourrait pas ainsi remplir son obligation de reciter <i>Shema</i> pendant la nuit.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

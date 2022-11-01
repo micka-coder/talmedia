@@ -23,5 +23,5 @@ Si on pince un oiseau [offrande] à l'intérieur et qu'on l'offre à l'extérieu
 ### michna 8
 Quant à une hatat dont le sang a été reçu dans un gobelet : Si l'on a [d'abord] aspergé [le sang] à l'extérieur, puis à l'intérieur ; [Ou] à l'intérieur, puis à l'extérieur, on est responsable, car la totalité du sang était admissible à l'intérieur. Si le sang a été reçu dans deux gobelets : S'il a aspergé les deux à l'intérieur, il est exempt ; les deux à l'extérieur, il est responsable. Un à l'intérieur et un à l'extérieur, il est exempt ; un à l'extérieur et un à l'intérieur, il est responsable à cause de celui qui est à l'extérieur, tandis que celui qui est à l'intérieur fait l'expiation. A quoi cela peut-il être comparé ? A celui qui a mis de côté [un animal pour] une hatat, puis il s'est perdu, et il en a mis un autre de côté à sa place ; puis le premier a été retrouvé, et [ainsi] les deux sont présents. S'il les a abattus tous les deux à l'intérieur, il est exempté ; s'il les a abattus tous les deux à l'extérieur, il est responsable. S'il a égorgé] l'un à l'intérieur et l'autre à l'extérieur, il est exempt ; l'un à l'extérieur et l'autre à l'intérieur, il est responsable à cause de celui qui est à l'extérieur, tandis que celui qui est à l'intérieur fait l'expiation. De même que le sang exempte sa propre chair, de même il exempte la chair de son compagnon [l'autre animal].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

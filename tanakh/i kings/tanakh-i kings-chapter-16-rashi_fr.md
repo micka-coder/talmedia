@@ -80,4 +80,4 @@
 <b>Avec Avirom, son premier né, il posa les fondations.</b> Lorsqu'il posa ses fondations, son fils aîné mourut, et il l'enterra [lui] et continua à enterrer tous ses fils jusqu'à ce que le dernier meurt alors qu'il installait ses portes. Et, voici les malédictions de Yehoshua : "C'est avec [la perte de] son premier-né qu'il posera ses fondations, et c'est avec [la perte de] son plus jeune enfant qu'il installera ses portes."<sup>13</sup><i class="footnote">Yehoshua 6:26. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ Quelles sont les choses qui appartiennent à ceux qui sont venus de Babylone [à
 ### michna 6
 Si un vœu interdit à quelqu'un de profiter de son voisin et qu'il n'a rien à manger, il peut le donner [la nourriture] à un tiers, et il lui est permis de l'utiliser. Il est arrivé à quelqu'un à Beth Horon que son père n'ait pas le droit de profiter de lui. Or, il [le fils] donnait son fils en mariage et il dit à son voisin : "La cour et le banquet te sont donnés en cadeau, mais ils ne sont à toi que pour que mon père vienne festoyer avec nous au banquet." Il lui dit : "S'ils sont à moi, qu'ils soient dédiés au ciel !" [Le fils] répondit : "Mais je ne t'ai pas donné mon bien pour le dédier au ciel. "[L'autre] répondit : "Tu m'as donné le tien pour que toi et ton père puissiez manger et boire ensemble et vous réconcilier l'un avec l'autre, alors que le péché [d'un vœu non respecté] devrait retomber sur sa tête. "Lorsque l'affaire fut portée devant les Sages, ils statuèrent : tout cadeau qui n'est pas [donné] de telle sorte que s'il [le bénéficiaire] le dédie, il est dédié, n'est pas un cadeau [du tout].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

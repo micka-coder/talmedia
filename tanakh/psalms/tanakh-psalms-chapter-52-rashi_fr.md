@@ -34,4 +34,4 @@
 <b>Quand tu auras fait [ceci]</b> Quand tu feras ceci pour moi. Ce verset est adressé au Saint, béni soit-il.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -32,5 +32,5 @@ Si une bête est morte de mort naturelle, cela compte comme un accident inévita
 ### michna 11
 Si quelqu'un fait une stipulation contraire à ce qui est écrit dans la Torah, cette stipulation est nulle. Toute stipulation qui mentionne d'abord l'action est nulle. Toute stipulation qui peut être remplie à la fin et qui a été établie comme condition dès le début, une telle condition est valide.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

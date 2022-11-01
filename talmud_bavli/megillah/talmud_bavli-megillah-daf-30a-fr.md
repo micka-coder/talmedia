@@ -75,4 +75,4 @@ La Guemara commente : <b>Et</b> ces deux déclarations <b>ne sont pas en désacc
 <b>Le troisième</b> Chabbat, on lit la portion de la <b>Génisseuse rouge [<i>Para</i>], et on lit comme <i>haftara</i></b> la portion de <b>"C'est alors que j'aspergerai</b> une eau pure <b>sur toi"</b> (Ezéchiel 36:25""38). <b>Et quel est le troisième Chabbat ? Celui qui est adjacent à Pourim et après lui. Le quatrième</b> Chabbat, on lit la portion de <b>"Ce mois [<i>haḥodesh</i>]</b> sera pour vous,</b> et on lit comme <i>haftara</i></b> la portion de <b>"Ceci dit le Seigneur Dieu : Au premier mois, le premier jour du mois"</b> (Ezéchiel 45:18""46:18).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

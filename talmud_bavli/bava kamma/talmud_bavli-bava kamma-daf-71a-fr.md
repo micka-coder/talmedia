@@ -69,4 +69,4 @@ La Guemara développe : <b>Celui qui dit</b> que c'est interdit <b>par la loi de
 La Gemara demande : <b>Grâce, selon celui qui a dit</b> que les produits d'un acte interdit sont interdits <b>par la loi de la Torah, c'est pour</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

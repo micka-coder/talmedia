@@ -45,4 +45,4 @@ De meme, la Guemara relate : <b>Rav et Rabbi Hiyya etaient assis a un repas deva
 La Guemara continue a aborder le sujet du lavage apres le repas. <b>Les Sages ont enseigne :</b> Bien qu'il soit habituel de deferer aux personnes plus importantes, neanmoins, <b>on ne fait preuve de deference ni sur les routes ni sur les ponts,</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

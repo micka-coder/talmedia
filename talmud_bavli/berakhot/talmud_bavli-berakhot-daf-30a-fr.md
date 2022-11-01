@@ -57,4 +57,4 @@ Dans des circonstances similaires, <b>Rav Ashi priait avec la congregation indiv
 <b>Rav Huna bar Hinnana a dit</b> que <b>Hiyya bar Rav a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehuda, qui l'a dit</b> <b>au nom de</b> son mentor, <b>Rabbi Elazar ben Azarya. Rav Hiyya bar Avin lui dit : Tu as bien parle, comme</b> le prouve ce qu'a dit <b>Shmuel : De tous mes jours, je n'ai jamais prie la priere additionnelle a titre individuel</b>.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

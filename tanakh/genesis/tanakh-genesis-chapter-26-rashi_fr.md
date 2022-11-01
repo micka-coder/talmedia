@@ -104,5 +104,5 @@
 ### passuk 35
 <b>Rebelleux d'esprit.</b> Expression signifiant : un esprit de rébellion, comme dans : "[מַמְרִים] Tu étais rebelle." Tous leurs actes étaient de nature à mettre en colère et à causer du chagrin à Yitshak et à Rivkah, car ils adoraient des idoles. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

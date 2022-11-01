@@ -72,4 +72,4 @@ La Gemara rejette cette suggestion : <b>Tout le monde est d'accord</b> que <b>se
 La Gemara suggère : <b>Devons-nous dire</b> que <b>la dispute</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

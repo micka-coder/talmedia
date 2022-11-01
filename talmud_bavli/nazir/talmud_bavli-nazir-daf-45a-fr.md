@@ -45,4 +45,4 @@ La Gemara demande : <b>Et d'où déduit-on</b> que celui qui manque d'expiation 
 <b>Rabbi Shimon Shezuri dit :</b> La phrase <b>"Et le nazirite rasera</b> sa tête consacrée <b>à l'entrée de la Tente de la Rencontre"</b> ne fait pas référence au lieu de son rasage. Plutôt, la forme masculine du mot nazirite sert à souligner que cela s'applique à un nazirite masculin <b>et non à un nazirite féminin.</b> Une femme ne se rase pas la tête dans le Sanctuaire,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

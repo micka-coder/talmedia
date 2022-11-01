@@ -8,5 +8,5 @@ La hatat d'un individu dont les propriétaires ont été expiés est laissée po
 ### michna 3
 D'une certaine manière, [les lois relatives aux] dédicaces sont plus strictes que [celles relatives à] un substitut, et d'une certaine manière [celles relatives à] un substitut sont plus strictes que [celles relatives aux] dédicaces. À certains égards, [les lois relatives aux] dédicaces sont plus strictes que [celles relatives aux] substituts. En effet, les animaux dédicacés peuvent faire un substitut alors qu'un substitut ne peut pas faire un autre substitut. Une congrégation ou des partenaires peuvent faire une dédicace mais ne peuvent pas faire un substitut. On peut dédier des embryons et des membres, mais on ne peut pas en faire un substitut. Les lois relatives aux substituts sont plus strictes que celles relatives aux dédicaces, car un substitut s'applique à un animal taché de façon permanente et il ne devient pas hullin pour être tondu ou travaillé. Rabbi Yose fils de Rabbi Judah dit : ils ont fait une erreur pour être identiques à l'intention quand il s'agit d'un substitut, mais ils n'ont pas fait une erreur pour être identiques à l'intention quand il s'agit d'une dédicace. Rabbi Elazar dit : kilayim, terefah, un fœtus extrait par césarienne, un tumtum et un hermaphrodite, ne peuvent devenir sacrés ni rendre sacrés.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La discussion ci-dessus est issue de la difficulté du cas de la mishna où l'on
 <strong>GEMARA:</strong> La Gemara demande : <b>Pourquoi ai-je</b> besoin de la mishna <b>pour enseigner tous ces</b> cas plutôt que de donner un seul exemple du principe de la mishna ? La Guemara explique : Tous les cas <b>sont nécessaires, comme, si</b> le mishna avait <b>enseigné</b> seulement le cas où l'on dit : <b>Je suis par la présente un nazirite et un jour,</b> on aurait pu penser : <b>C'est ici qu'on dit</b> qu'il n'y a pas de naziréat pour un jour,</b> et <b>par conséquent il doit compter deux</b> termes de naziréat. <b>Cependant,</b> s'il a dit : <b>Je suis par la présente nazirite et une heure, qu'il compte trente et un jours.</b> La mishna nous <b>enseigne donc</b> que même dans ce dernier cas, il doit conserver deux termes de nazirite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

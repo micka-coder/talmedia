@@ -26,5 +26,5 @@ Si l'on louait une maison à son compagnon à l'année et que l'année était bi
 ### michna 9
 Si quelqu'un loue une maison à son compagnon et qu'elle s'écroule, le propriétaire doit lui construire une nouvelle maison. Si elle était petite, il ne pourra pas l'agrandir, et si elle était grande, il ne pourra pas la réduire. Si c'était une maison, il ne peut pas en faire deux ; si c'était deux maisons, il ne peut pas en faire une. Il ne peut pas réduire ou augmenter le nombre de fenêtres, à moins que ce ne soit avec le consentement des deux parties.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

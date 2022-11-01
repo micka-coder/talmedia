@@ -36,4 +36,4 @@ Par conséquent, la question initiale demeure : Pourquoi la petite quantité de 
 <b>Rava dit</b> une raison différente : <b>Les épices sont fabriquées</b> afin de <b>donner</b> du <b>goût</b> aux aliments, et le <b>goût n'est pas annulé,</b> même si la quantité de substance réelle est infime. La nullité indique qu'une petite quantité d'aliment peut être considérée comme insignifiante et donc nulle, mais si un ingrédient est ajouté avec l'intention spécifique que son goût soit remarqué, il ne peut y avoir de nullité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

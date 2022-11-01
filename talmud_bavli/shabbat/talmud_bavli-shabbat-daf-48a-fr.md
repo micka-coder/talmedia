@@ -39,4 +39,4 @@ Ayant soulevé la question de l'ouverture d'un col, la Gemara cite que <b>Rav Ye
 <b>Rav Kahana s'oppose fermement à ceci:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

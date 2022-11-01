@@ -76,4 +76,4 @@
 <b>Et leurs villages.</b> Désignant les villes ouvertes sans murs.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

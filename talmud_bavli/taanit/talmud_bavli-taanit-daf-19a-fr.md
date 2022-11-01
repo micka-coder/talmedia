@@ -45,4 +45,4 @@ La mishna relate : <b>Un incident</b> s'est produit dans <b>lequel</b> le tribun
 La mishna enseigne en outre : <b>Et de même,</b> si la <b>pluie a cessé</b> pendant une période de <b>quarante jours</b> entre <b>une pluie et une autre,</b> on crie à ce sujet, car c'est un fléau de sécheresse. La Gemara demande : <b>Quel est</b> le sens de la phrase : <b>Une plaie de sécheresse?</b> N'est-ce pas simplement une sécheresse ? <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> La mishna veut dire qu'une période de quarante jours entre une pluie et la suivante <b>est un fléau qui</b> peut <b>causer une sécheresse.</b> A cet égard, <b>Rav Naḥman a dit :</b> Lorsque les cultures ne poussent pas à un endroit en raison du manque de pluie et qu'il faut les importer au moyen d'un <b>fluvial vers</b> un autre <b>fluvial,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

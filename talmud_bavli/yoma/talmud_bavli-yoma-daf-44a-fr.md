@@ -33,4 +33,4 @@ La Guemara défend son opinion : <b>Non,</b> il fait référence à <b>lors de l
 La Gemara explique : <b>C'est</b> en fait ce que la <i>baraita</i> <b>enseigne : </b> Elle enseigne <b>seulement que</b> ceux qui sont <b>dans le Sanctuaire se retirent</b> à la fois pendant la combustion</b> de l'encens <b>et aussi</b> pendant les présentations du sang, qui n'est <b>pas pendant la combustion</b> de l'encens ; <b>de la zone <b>entre le Hall d'entrée et l'autel, ils ne se retirent pas</b>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

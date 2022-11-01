@@ -63,4 +63,4 @@ La Guemara poursuit son propos : <b>Au contraire, en raison</b> du fait <b>que l
 § La mishna (87a) enseigne : En ce qui concerne <b>un sourd-muet, un imbécile ou un mineur, une rencontre avec eux est désavantageuse,</b> car celui qui les blesse est responsable. Mais si ce sont eux qui se sont blessés, ils sont exemptés. La Gemara relate un incident : <b>La mère de Rav Shmuel bar Abba de</b> la ville de <b>Hagroneya était mariée à Rabbi Abba. Elle a écrit,</b> c'est-à-dire cédé, ses <b>biens à Rav Shmuel bar Abba, son fils. Après sa mort,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

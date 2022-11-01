@@ -51,4 +51,4 @@ La Guemara pose une question par rapport aux changements de nom : <b>Mais</b> qu
 Cette mishna indique que <b>la</b> seule <b>raison</b> pour laquelle le voleur n'a pas à rendre la poutre elle-même est <b>à cause</b> de cette <b>ordonnance</b> instituée <b>pour le pénitent.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

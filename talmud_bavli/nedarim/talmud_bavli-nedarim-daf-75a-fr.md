@@ -21,4 +21,4 @@ Les rabbins lui ont <b>dit</b> en réponse : Le verset <b>déclare :</b> "Tout v
 <strong>GEMARA :</strong> <b>Un dilemme a été soulevé devant</b> les Sages : <b>Selon Rabbi Eliezer,</b> les vœux que le mari annule à l'avance <b>prennent effet</b> momentanément <b>et sont</b> ensuite <b>annulés</b> immédiatement après ? <b>Ou peut-être ne prennent-ils pas du tout effet.</b> La Gemara s'interroge : <b>Dans quel cas y a-t-il <b>une différence</b> entre ces possibilités ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Si ces membres de deux nations différentes <b>se sont convertis, suivre le lign
 La Guemara revient sur un point antérieur : <b>Qu'est-ce que cette</b> prétention, que la mishna est en accord avec l'opinion de Rabbi Yosei ? <b>Accordé, si vous dites que la mishna est</b> conforme à l'opinion de <b>Rabbi Yehuda,</b> on peut expliquer que la phrase : <b>Tout cas, de la première clause,</b> sert <b>à inclure un israélite qui a épousé une <i>ḥalala</i>,</b> car l'enfant suit le père dans ce cas aussi, <b>et</b> aussi à inclure la décision de <b>Rabba bar Ḥana</b> selon laquelle le fils d'un égyptien de deuxième génération qui a épousé une égyptienne de première génération est un égyptien de troisième génération. En outre, l'expression : Dans <b>quel</b> cas <b>c'est</b> applicable, sert <b>à exclure</b> la décision de <b>Rav Dimi</b> que son fils est un égyptien de deuxième génération, <b>et</b> la déclaration de <b>Ravin</b> citant Rabbi Yoḥanan.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

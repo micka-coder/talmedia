@@ -42,4 +42,4 @@ Rabbi Zeira lui <b>dit :</b> Les deux cas ne sont pas comparables ; <b>là,</b> 
 Rava <b>lui dit</b> en réponse que <b>Voici ce que je te dis :</b> Dans le cas où l'on construit une <i>sukka</i> <b>jusqu'à vingt coudées</b> de hauteur, une hauteur <b>qu'une personne</b> construit généralement <b>une résidence temporaire, lorsqu'elle construit</b> une structure de cette hauteur qui est robuste comme <b>une résidence permanente, elle remplit également</b> son obligation. Cependant, dans le cas où l'on construit une <i>sukka</i> <b>de plus de vingt coudées de haut,</b> une hauteur <b>qu'une personne</b> construit généralement <b>une résidence permanente,</b> même <b>quand il la construit</b> de façon moins robuste <b>comme une résidence temporaire, il ne remplit pas son obligation.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

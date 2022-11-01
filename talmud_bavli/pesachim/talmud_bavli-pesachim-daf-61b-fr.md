@@ -33,4 +33,4 @@ Afin de résoudre cette question, <b>le verset indique : "Ceci,"</b> comme il es
 <b>Rav Ashi s'oppose fermement à cette</b> méthode d'interprétation : <b>D'où</b> déduisez-vous <b>que cette</b> expression <b>"et tous les mâles incirconcis</b>" <b>signifie que tous</b> les membres du groupe sont incirconcis ? <b>Peut-être que cette</b> expression <b>"et tous les [<i>kol</i>] mâles incirconcis</b> <b>signifie que n'importe lequel</b> de ses membres <b>est incirconcis.</b> Par conséquent, <b>Le Miséricordieux dit</b> dans la Torah : <b>Ceci,</b> pour enseigner que l'offrande <b>n'est pas disqualifiée à moins que tous ses</b> membres soient <b>incirconcis,</b> et <b>qu'il n'y a pas de différence entre l'abattage et l'aspersion.</b> Par conséquent, la dispute entre Rabba et Rav Ḥisda doit être basée sur un autre texte de preuve et une autre question. <b>Au contraire, Rav Ashi a dit : Rav Ḥisda et Rabba</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rav Ashi <b>lui a dit : Là,</b> dans le cas d'un créancier qui a vicié son bi
 La Guemara soulève une objection à la déclaration de Rav Asi : <b>Nous avons appris</b> dans la mishna que dans un cas où le demandeur a dit : <b>J'ai cent dinars en votre possession,</b> et ce dernier <b>lui a dit : Oui,</b> et <b>le lendemain</b> le demandeur lui <b>dit : Donne</b> l'argent <b>à moi,</b> si le défendeur a répondu : <b>Je te l'ai donné,</b> il est <b>exonéré.</b> La Gemara en déduit : <b>Et ici, puisque</b> le demandeur <b>réclamait</b> la dette au défendeur <b>en</b> présence de <b>témoins,</b> et que ce dernier a admis la dette, <b>il est semblable à celui qui lui a prêté</b> l'argent <b>en</b> présence de <b>témoins, et</b> néanmoins, la mishna <b>enseigne</b> que le défendeur est <b>exempté.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

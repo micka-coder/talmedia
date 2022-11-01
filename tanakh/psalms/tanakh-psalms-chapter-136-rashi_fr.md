@@ -60,4 +60,4 @@
 <b>Rendons grâce au Dieu du ciel</b> Qui y prépare la nourriture pour toute créature. L'expression "car Sa bonté est éternelle" apparaît vingt-six fois dans ce psaume, correspondant aux vingt-six générations où le monde était sans Torah et existait par la bonté du Saint, béni soit-Il.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

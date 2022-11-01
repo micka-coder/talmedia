@@ -50,4 +50,4 @@
 <b>Les deux oints</b> Le bon penchant et le mauvais penchant, qui se convertit en bien dans le mérite de la Torah.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

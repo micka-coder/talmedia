@@ -95,5 +95,5 @@
 <b>Tu veilleras sur Moi -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour avertir la Cour à ce sujet.
 <b>Et vous ne vous souillerez pas par eux ; Je suis Hachem votre Dieu.</b> Ainsi, si vous vous souillez, Je ne suis pas votre Dieu, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> et vous êtes retranchés de Moi, et quel bénéfice ai-je de vous [alors] si vous êtes passibles de destruction ? C'est pourquoi il est dit : "Je suis Hachem votre Dieu." 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

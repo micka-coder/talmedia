@@ -39,7 +39,7 @@ Ils <b>comprennent de</b> la discussion ci-dessus que ces deux Sages <b>ne sont 
 La Gemara aborde une autre question : Si un champ était en privilège pour un prêt et que le débiteur est décédé, et que <b>les orphelins</b> qui ont hérité du champ <b>disent : Nous avons amélioré</b> le terrain après en avoir hérité, et donc le créancier n'a pas droit à la valeur de cette amélioration, <b>et le créancier dit : Votre père l'a amélioré,</b> et j'ai droit au terrain tel qu'il est, <b>sur qui</b> pèse la charge <b>d'apporter la preuve</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 ces arbres <b>sont vendus comme bois et un terrain est acquis avec eux, et</b> son mari <b>consomme le produit,</b> alors que le terrain lui-même appartient à la femme. La Gemara répond que le texte doit être amendé pour <b>dire : Et ils vieillirent,</b> ce qui signifie que les arbres n'étaient pas vieux lorsqu'elle en a hérité mais qu'ils ont vieilli avec le temps.
 
@@ -80,4 +80,4 @@ Ils <b>comprennent de</b> la discussion ci-dessus que ces deux Sages <b>ne sont 
 La Gemara aborde une autre question : Si un champ était en privilège pour un prêt et que le débiteur est décédé, et que <b>les orphelins</b> qui ont hérité du champ <b>disent : Nous avons amélioré</b> le terrain après en avoir hérité, et donc le créancier n'a pas droit à la valeur de cette amélioration, <b>et le créancier dit : Votre père l'a amélioré,</b> et j'ai droit au terrain tel qu'il est, <b>sur qui</b> pèse la charge <b>d'apporter la preuve</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

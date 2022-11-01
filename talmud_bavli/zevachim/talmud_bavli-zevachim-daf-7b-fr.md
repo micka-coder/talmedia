@@ -78,4 +78,4 @@ La Guemara répond : Ceci est écrit pour enseigner que cette exigence est indis
 La Guemara demande : <b>Nous avons trouvé</b> une source en ce qui concerne <b>l'abattage. D'où dérive-t-on</b> ceci en ce qui concerne la <b>collecte</b> du sang ? La Gemara répond : On le tire de ce verset, <b>comme il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

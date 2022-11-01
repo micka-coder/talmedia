@@ -39,4 +39,4 @@ La Guemara persiste : La <i>baraïta</i> ci-dessus indique qu'à partir du trois
 La Gemara demande : Cette déclaration est dite <b>pour exclure quoi ? Si l'on dit</b> que c'est <b>pour exclure</b> l'usage du <b>vin</b> frais <b>de son pressoir,</b> c'est-à-dire du jus de raisin, qui n'a pas encore fermenté, cela est difficile. <b>Mais Rabbi Ḥiyya n'a-t-il pas enseigné : On ne peut pas apporter du vin</b> frais <b>de son pressoir</b> comme libation <i>ab initio</i>, <b>mais si on l'a apporté</b> comme libation, <b>il est valable</b> après coup. <b>Et puisque si on l'a apporté</b> comme libation <b>elle est valable</b> après coup, <b>nous</b> devrions <b>également</b> pouvoir l'utiliser pour la sanctification du jour du Shabbat, <b>même <i>ab initio</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

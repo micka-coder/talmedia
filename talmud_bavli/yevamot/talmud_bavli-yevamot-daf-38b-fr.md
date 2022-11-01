@@ -66,4 +66,4 @@ La Gemara répond : <b>Voici ce que</b> cette mishna <b>dit :</b> Si elle <b>dé
 La Gemara présente une troisième résolution à l'apparente incohérence des décisions de Beit Shammai dans la mishna : <b>Abaye a dit : La première clause</b> concerne un cas dans lequel <b>un bien</b> lui a été légué alors qu'elle était</b> encore <b>veuve en attendant que son <i>yavam</i></b> effectue le mariage lévirat ou <i>ḥalitza</i>, et <b>la dernière clause</b> concerne un cas dans <b>où</b> des biens <b>lui ont été légués alors qu'elle était</b> encore <b>en dessous,</b> soit. e., mariée à, <b>son</b> premier <b>mari,</b> avant sa mort.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

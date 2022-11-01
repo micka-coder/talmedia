@@ -45,4 +45,4 @@ La Gemara objecte : <b>Si donc,</b> que l'on doive s'inquiéter qu'un animal ram
 § En ce qui concerne l'interdiction de consommer des animaux rampants, <b>Shmuel dit : Un concombre qui s'est infesté de vers</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

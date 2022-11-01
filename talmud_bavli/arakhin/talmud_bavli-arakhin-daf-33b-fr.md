@@ -72,4 +72,4 @@ Le <i>baraita</i> continue : On <b>pourrait</b> penser que <b>même</b> si les <
 <b>Rav Yosef, fils de Rav Sala Ḥasida, a interprété</b> la <i>baraita</i> <b>avant Rav Pappa:</b> En fait, la première <i>baraita</i> fait référence à une ville qui a été initialement entourée d'un mur et ensuite colonisée par des Lévites. Et quant à la <i>baraita</i> qui enseigne que les villes lévites ne peuvent être entourées d'un mur, il est néanmoins possible qu'une ville lévite ait été initialement entourée d'un mur dans un cas <b>où,</b> lorsque Eretz Yisrael a été divisé entre les tribus d'Israël, les villes fortifiées <b>furent</b> par tirage au sort <b>aux lévites,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -98,4 +98,4 @@
 <b>Comme les troupeaux désignés pour les offrandes saintes</b> qui viennent à Jérusalem au moment des sacrifices de la Pâque. Une autre explication suit le Targum : Je vous multiplierai en hommes, et je les ferai prospérer en bétail, c'est-à-dire que leurs iniquités ne seront pas rappelées contre eux.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

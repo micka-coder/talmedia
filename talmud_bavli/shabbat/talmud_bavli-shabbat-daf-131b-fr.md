@@ -54,4 +54,4 @@ La Gemara demande : <b>Et</b> selon l'approche de Rabbi Eliezer, <b>laissons la 
 Plus tôt, il a été enseigné que <b>le Maître a dit</b> dans la <i>baraita</i> : La mitzva de la <b>circoncision et tous ses facilitateurs priment sur Shabbat;</b> c'est <b>la déclaration de Rabbi Eliezer.</b> La Guemara demande : <b>D'où Rabbi Eliezer</b> tire-t-il <b>cette</b> <i>halakha</i> ? <b>S'il la dérive de toutes</b> les autres mitzvot citées plus haut, nous pouvons la réfuter, <b>puisque nous avons</b> déjà <b>dit</b> que chacune d'entre elles comporte un aspect unique de gravité ou de signification. <b>Et en outre,</b> il existe une autre difficulté : <b>Qu'est-ce</b> qui est unique à propos de <b>ces</b> mitzvot...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

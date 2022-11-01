@@ -58,4 +58,4 @@
 <b>Ils me garderont</b> Héb.  יצרוני, me surveilleront.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

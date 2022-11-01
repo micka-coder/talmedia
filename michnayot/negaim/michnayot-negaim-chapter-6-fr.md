@@ -23,5 +23,5 @@ Il y a vingt-quatre extrémités de membres dans le corps humain qui ne devienne
 ### michna 8
 Les endroits suivants d'une personne ne deviennent pas impurs à cause d'un point lumineux : l'intérieur de l'œil, l'intérieur de l'oreille, l'intérieur du nez et l'intérieur de la bouche, les rides, les rides du cou, sous la poitrine et l'aisselle, la plante du pied, les ongles, la tête et la barbe ; et un furoncle, une brûlure et une ampoule qui suppurent. Tout cela : Ne deviennent pas impurs à cause des négaims Ne se combinent pas avec d'autres négaims, On ne considère pas qu'un néga se propage en eux, Ne deviennent pas impurs à cause de la chair vive, Et ils n'agissent pas pour empêcher qu'une personne soit considérée comme étant devenue complètement blanche. Si par la suite une tache chauve est apparue sur la tête ou la barbe, ou si un furoncle, une brûlure ou une ampoule a formé une cicatrice : Ils peuvent devenir impurs par des negaim, Mais ils ne se combinent pas avec d'autres negaim, Un nega n'est pas considéré comme se répandant en eux, Et ils ne deviennent pas impurs à cause de la chair vive. Mais ils agissent pour empêcher qu'une personne soit considérée comme ayant tout blanchi. La tête et la barbe avant qu'elles n'aient poussé des poils, et les verrues à collet mince sur la tête ou la barbe, sont traitées comme la peau de la chair.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

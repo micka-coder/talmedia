@@ -24,4 +24,4 @@ La Guemara déduit de la déclaration de Rav : <b>La raison</b> de cette décisi
 § La Guemara revient sur la question des offrandes d'un nazirite : <b>Le Maître,</b> Rabbi Yoḥanan, <b>a dit</b> précédemment : <b>C'est une <i>halakha</i> à l'égard d'un nazirite</b> que ses fonds non alloués, y compris la valeur de son offrande pour le péché, soient utilisés pour l'achat d'offrandes. La Guemara demande : Cette formulation indique que cette <i>halakha</i> ne concerne qu'un nazirite, <b>mais n'y a-t-il pas d'autre</b> cas où le surplus sert à l'achat d'offrandes ? <b>Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Et le reste de ceux qui sont tenus</b> d'apporter des <b>nids par la loi de la Torah,</b> c'est-à-dire les indigents qui ne sont obligés d'apporter qu'une offrande d'oiseau, par exemple un pauvre lépreux, qui doit apporter deux tourterelles, une pour l'holocauste et une pour le sacrifice pour le péché, au lieu d'un mouton ou d'une brebis,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

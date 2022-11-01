@@ -1,4 +1,4 @@
 
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -96,4 +96,4 @@ La Guemara demande : En ce qui concerne l'<b>encens,</b> on doit dire de même, 
 La Guemara répond : L'<b>encens est différent,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

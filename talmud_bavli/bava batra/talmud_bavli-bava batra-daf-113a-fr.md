@@ -27,4 +27,4 @@ La Gemara commente : <b>En tout état de cause,</b> selon <b>tous,</b> c'est-à-
 § La mishna enseigne : <b>Et les fils de sœurs,</b> c'est-à-dire les neveux nés des sœurs du défunt, héritent de leurs oncles maternels mais ne leur lèguent pas. <b>Il est enseigné</b> dans un <i>baraita</i> : Cette <i>halakha</i> s'applique aux <b>fils de sœurs mais pas</b> aux <b>filles de sœurs.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

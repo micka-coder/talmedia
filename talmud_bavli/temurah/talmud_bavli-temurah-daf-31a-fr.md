@@ -33,4 +33,4 @@ En revanche, <b>selon celui qui dit</b> qu'une <b>térifa</i> ne peut pas surviv
 <b>Il y a</b> ceux <b>qui affirment</b> une version différente : <b>"Vous pouvez abattre et manger"</b>, celle-ci enseigne que <b>vous avez la permission</b> de tirer un bénéfice <b>d'eux seulement à partir du moment de l'abattage et au-delà,</b> c'est-à-dire que les bénéfices qui viennent après l'abattage, comme la consommation de sa chair, sont autorisés. Mais on ne peut pas tirer de bénéfice de leur tonte ou de leur lait, car ceux-ci se produisent même lorsque l'animal est vivant. On peut en déduire que le <i>tanna</i> de ce <i>baraita</i> <b>maintient</b> que <b>on peut racheter les animaux sacrifiés</b> <b>pour les donner à manger aux chiens,</b> car cela se produit après l'abattage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

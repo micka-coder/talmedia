@@ -42,4 +42,4 @@ La Gemara cite une autre <i>halakha</i> : Si <b>une personne dit à deux</b> per
 Plusieurs autres <i>amora'im</i> contestent cette question. <b>Rav Naḥman dit :</b> C'est <b>valide ; cependant, cela ne doit pas être fait</b> <i>ab initio</i>. <b>Rav Sheshet dit :</b> C'est <b>valide et cela peut être fait</b> <i>ab initio</i>. <b>Rabba dit :</b> C'est <b>valide ; cependant, cela ne doit pas être fait. Rav Yosef dit :</b> C'est <b>valide et cela peut être fait.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara répond : <b>Oui, comme nous l'avons appris</b> dans une mishna (<i>S
 <strong>MISHNA:</strong> Il existe <b>sept substances</b> que <b>l'on applique sur la tache</b> d'un vêtement pour vérifier s'il s'agit d'une tache de sang ou d'une teinture, car ces sept substances éliminent le sang. Ce sont : <b>Salive sans goût, et liquide de haricots fendus, et urine, et natron, et <i>borit</i>,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

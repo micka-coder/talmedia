@@ -45,4 +45,4 @@ La Guemara rejette cet argument : <b>Si c'est à cause de cette</b> raison, <b>i
 <strong>MISHNA :</strong> Si <b>un homme était marié à deux orphelins mineurs et qu'il est décédé, et qu'un <i>yavam</i> a eu des rapports avec le premier</b> d'entre eux pour consommer le mariage lévirien, <b>puis a eu des rapports avec le second, ou si son frère</b> qui est aussi leur <i>yavam</i> <b>a eu des rapports avec le second,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

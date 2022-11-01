@@ -51,4 +51,4 @@ La Gemara conteste : Si c'est le cas, <b>disons</b> qu'elle ajoute qu'une offran
 <b>Rabbi Avin dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

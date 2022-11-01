@@ -63,4 +63,4 @@ Le peuple juif a également mis Dieu à l'épreuve <b>à Rephidim, comme il est 
 La Guemara poursuit : <b>Deux avec de la manne, comme il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

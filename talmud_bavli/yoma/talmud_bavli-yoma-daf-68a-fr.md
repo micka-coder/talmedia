@@ -30,4 +30,4 @@ La Guemara demande : <b>Et que fait Rabbi Chimon</b> l'expression <b>hors du cam
 La Gemara demande : <b>Et selon les sages, où les brûle-t-on ?</b> La Gemara répond : <b>Comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Où les brûle-t-on ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

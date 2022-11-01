@@ -54,4 +54,4 @@ La Guemara soulève une autre difficulté : <b>Si c'est le cas,</b> alors si un 
 La Guemara soulève une difficulté : <b>Le feu est-il écrit</b> dans le verset ? Il n'y a pas du tout de mention du feu dans le verset. Comment peut-on supposer qu'il s'agit de la similitude entre l'eau et la nourriture ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

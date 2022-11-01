@@ -32,5 +32,5 @@ Celui qui incite [les individus à l'idolâtrie] - il s'agit d'une personne ordi
 ### michna 11
 Un sorcier, s'il fait réellement de la magie, est passible [de mort], mais pas s'il ne fait que créer des illusions. Rabbi Akiva dit au nom de Rabbi Joshua : "Si deux personnes ramassent des concombres [par magie], l'une peut être punie et l'autre exemptée : celle qui les ramasse réellement est punie, tandis que celle qui produit une illusion est exemptée".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara analyse ce point : <b>Ils ne sont en désaccord que par rapport</b> �
 La Guemara rapporte une discussion sur les raisons des jugements de Rabbi Meir et de Rabbi Yehuda. <b>Rav dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

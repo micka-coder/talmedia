@@ -72,4 +72,4 @@ Ce sont <b>Rabba et Rav Yosef qui ont tous deux dit : Il n'y a pas</b> d'interdi
 Une fois que <b>l'utérus s'est refermé</b> après la naissance, <b>si la femme qui a accouché <b>a dit :</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

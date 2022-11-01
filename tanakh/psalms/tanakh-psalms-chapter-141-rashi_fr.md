@@ -36,4 +36,4 @@
 <b>Que le méchant tombe...dans ses filets</b> Que le méchant lui-même tombe dans ses filets qu'il étend à mes pieds.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

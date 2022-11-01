@@ -32,5 +32,5 @@ Le serment de prononciation s'applique aux hommes et aux femmes, aux parents et 
 ### michna 11
 Un serment vain s'applique aux hommes et aux femmes, aux parents et aux non-parents, à ceux qui sont qualifiés [pour témoigner] et à ceux qui ne le sont pas, [qu'il soit prononcé] devant le tribunal ou non, [mais il doit être prononcé] de la propre bouche d'un homme. Et il est responsable, pour une transgression intentionnelle, des coups, et pour une transgression non intentionnelle, il est exempté. Pour ce qui est de ce serment et de celui-là, s'il a été prononcé par la bouche d'autrui, il est responsable. Comment cela ? S'il a dit : "Je n'ai pas mangé aujourd'hui" ou "Je n'ai pas mis les tefillin aujourd'hui" et qu'une autre personne a dit : "Je t'adjure" et qu'il a dit : "Amen !", il est responsable [si son serment était faux].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

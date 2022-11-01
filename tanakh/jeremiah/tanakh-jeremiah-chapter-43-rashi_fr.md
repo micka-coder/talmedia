@@ -30,7 +30,7 @@
 <b>Les monuments de Beth-Shémesh</b> Les autels que ceux qui faisaient du prosélytisme au temps d'Ezéchias y avaient dressés Les captifs de Sennacherib qu'il fit venir de Cush et d'Egypte devant Jérusalem le jour de sa chute, comme il est dit "En ce jour-là, il y aura cinq villes dans le pays d'Egypte parlant la langue de Canaan et jurant au Seigneur des armées, l'une d'elles sera appelée "la ville de Hérès"" (Esaïe 19.18). Jonathan rend : La ville de Beth-Shémesh, destinée à être détruite, sera dite l'une d'entre elles.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -62,4 +62,4 @@
 <b>Les monuments de Beth-Shémesh</b> Les autels que ceux qui faisaient du prosélytisme au temps d'Ezéchias y avaient dressés Les captifs de Sennacherib qu'il fit venir de Cush et d'Egypte devant Jérusalem le jour de sa chute, comme il est dit "En ce jour-là, il y aura cinq villes dans le pays d'Egypte parlant la langue de Canaan et jurant au Seigneur des armées, l'une d'elles sera appelée "la ville de Hérès"" (Esaïe 19.18). Jonathan rend : La ville de Beth-Shémesh, destinée à être détruite, sera dite l'une d'entre elles.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

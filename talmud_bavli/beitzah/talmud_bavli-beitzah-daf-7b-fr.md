@@ -72,4 +72,4 @@ Rav Yosef <b>dit à</b> Abaye : Il n'en est rien ; au contraire, <b>tous deux</b
 § Cette mishna indique : <b>Et</b> Beit Hillel <b>convient que si quelqu'un</b> a transgressé et <b>abattu un</b> animal, <b>alors il creuse avec une pelle et couvre</b> le sang. <b>Rabbi Zerika a dit</b> que <b>Rav Yehuda a dit : Et c'est</b> la <i>halakha</i> spécifiquement <b>quand on a une pelle</b> déjà <b>enfoncée</b> dans le sol <b>alors qu'il faisait encore jour,</b> avant le début de la Fête. La Gemara demande : <b>Mais</b> à quoi sert une pelle encastrée ; <b>ne fait-il pas</b> encore <b>l'acte de <b>écrasement,</b> comme on doit écraser les mottes de terre pour rendre le sol apte à être recouvert ? <b>Rav Ḥiyya bar Ashi dit</b> que <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

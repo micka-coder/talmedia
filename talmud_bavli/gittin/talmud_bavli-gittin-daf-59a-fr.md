@@ -63,4 +63,4 @@ Les Sages ont <b>inversé</b> les attributions de ces deux déclarations <b>et o
 <strong>MISHNA :</strong> Après avoir mentionné une série de textes de loi institués par les Sages dans le but d'améliorer le monde, la Gemara poursuit : <b>Voici les questions</b> que les Sages ont <b>instituées en raison des voies de la paix,</b> c'est-à-dire pour favoriser la paix et prévenir les querelles et les controverses : Lors des lectures publiques de la Torah, <b>un prêtre lit en premier, et après lui un Lévite, et après lui un Israélite.</b> Les Sages ont institué cet ordre <b>en raison des voies de la paix,</b> afin que les gens ne se disputent pas pour savoir qui est le membre le plus distingué de la communauté. De même, les Sages ont édicté qu'une <b>jonction</b> de cours <b>soit placée dans une vieille maison</b> où elle avait été régulièrement placée <b>en raison des voies de la paix,</b> comme cela sera expliqué dans la Gemara.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

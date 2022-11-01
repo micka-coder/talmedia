@@ -60,4 +60,4 @@ La Guemara rejette cet avis : <b>Vous</b> pouvez <b>même dire</b> qu'ils tienne
 <Rabbi Yosei dit : Toutes les femmes peuvent être fiancées</b> dans un délai de trois mois même si elles ont été précédemment mariées, <b>sauf pour une veuve,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

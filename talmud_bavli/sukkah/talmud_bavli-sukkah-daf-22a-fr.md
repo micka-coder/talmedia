@@ -30,4 +30,4 @@ La Gemara relate : <b>Rav Kahana s'est assis</b> dans la salle d'étude <b>et a 
 Cependant, <b>Rabban Shimon ben Gamliel,</b> qui soutient que le principe du <i>lavud</i> s'applique à un écart allant jusqu'à quatre centimètres de large, <b>dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

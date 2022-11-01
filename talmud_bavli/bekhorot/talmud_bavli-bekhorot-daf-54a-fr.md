@@ -15,4 +15,4 @@ La Gemara demande : On peut déduire de cette manière qu'on ne peut pas sépare
 <b>Rava bar Rav Ḥanan dit à Abaye : Si c'est ainsi,</b> alors <b>en ce qui concerne la dîme des animaux, où il n'est pas écrit</b> dans la Torah : <b>Et toute la dîme du troupeau ou la dîme du bétail,</b> avec le mot "dîme" mentionné deux fois, une fois en référence au troupeau et une fois en référence au bétail, mais le verset dit plutôt : "Et toute la dîme du troupeau ou du bétail, tout ce qui passe sous la verge, le dixième sera sacré pour le Seigneur" (Lévitique 27:32),
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

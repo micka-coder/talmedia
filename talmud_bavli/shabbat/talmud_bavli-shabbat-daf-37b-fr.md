@@ -27,4 +27,4 @@ Rav Shmuel bar Yehuda lui <b>dit : Est-ce à dire</b> que <b>Je ne sais pas</b> 
 <b>Ils ont soulevé</b> un <b>dilemme devant Rabbi Ḥiyya bar Abba :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -7,4 +7,4 @@
 <b>Comme un nourrisson mon âme était avec moi</b> Mon âme en moi était devant Toi comme un nourrisson qui suce les seins de sa mère.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

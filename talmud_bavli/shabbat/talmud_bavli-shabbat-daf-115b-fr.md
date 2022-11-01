@@ -21,4 +21,4 @@ Rav Huna bar Ḥaluv <b>souleva une objection à son</b> avis à partir de ce qu
 A propos de la portion : " Et quand l'Arche voyageait ", la Guemara cite ce que <b>les Sages ont enseigné</b> dans une <i>baraita</i>. Il est dit : <b>Et quand l'Arche a voyagé et que Moïse a proclamé : </b> Lève-toi, Dieu, et Tes ennemis se disperseront et ceux qui Te haïssent fuiront devant Toi.</b> <b>Et le Saint, Béni soit-Il, a fait des signes</b> dans la Torah <b>pour cette portion, au-dessus et au-dessous,</b> c'est-à-dire avant et après elle, afin de <b>dire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

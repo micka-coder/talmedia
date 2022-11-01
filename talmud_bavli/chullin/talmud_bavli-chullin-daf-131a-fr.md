@@ -51,4 +51,4 @@ La <i>halakha</i> selon laquelle la mitsva de <b><i>pe'a</i></b> s'applique à s
 La Guemara poursuit : La <i>baraita</i> enseigne que <b>trois</b> dons sont laissés aux pauvres <b>à partir des céréales : Les glanages,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

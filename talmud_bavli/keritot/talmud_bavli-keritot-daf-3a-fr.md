@@ -96,4 +96,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> d'accomplir un acte <b
 La Guemara commente : <b>Cela fonctionne bien selon Abaye, qui dit :</b> Celui qui s'incline devant une idole par amour ou par crainte est <b>libre</b> d'apporter une offrande pour le péché. <b>Mais selon Rava, qui dit :</b> Celui qui s'incline devant une idole par amour ou par crainte est <b>exempté</b> d'apporter une offrande pour le péché, <b>que peut-on dire ?</b> Quelles sont les circonstances d'une transgression involontaire en ce qui concerne le culte des idoles ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

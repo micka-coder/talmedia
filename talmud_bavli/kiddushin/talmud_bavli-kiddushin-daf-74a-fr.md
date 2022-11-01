@@ -45,4 +45,4 @@ La Guemara répond : La déclaration <b>de Abba Shaul</b> est <b>préférable</b
 <b>Rav Yehuda dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

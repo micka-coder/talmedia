@@ -12,4 +12,4 @@ La Gemara commente : En tout état de cause, <b>il est raisonnable</b> de dire q
 <b>Et nous résolvons</b> la contradiction en nous basant sur ce que <b>Rav Huna, fils de Rav Yehoshua, a dit : Le Maître</b> dans le traité <i>Middot</i> <b>envisage</b> les chambres comme une venant <b>via</b> la <b>droite,</b> du sud vers l'est, puis vers le nord et enfin vers l'ouest. Et <b>le Maître</b> dans le tractat <i>Tamid</i> <b>envisage</b> les chambres comme venant <b>via</b> la <b>gauche,</b> du sud à l'ouest, puis au nord et ensuite à l'est. Les deux s'accordent sur l'emplacement de la chambre dans laquelle les pains de mie étaient préparés ; ils décrivent simplement cet emplacement selon des perspectives différentes.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

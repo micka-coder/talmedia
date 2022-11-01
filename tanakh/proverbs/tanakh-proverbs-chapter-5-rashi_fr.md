@@ -70,4 +70,4 @@
 <b>Il mourra sans discipline</b> Parce qu'il n'a pas accepté la discipline.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

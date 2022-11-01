@@ -36,4 +36,4 @@ La Guemara analyse le texte de la <i>baraita</i> : <b>Le premier <i>tanna</i> a 
 La Gemara raconte : <b>La sœur de Rami bar Ḥama était mariée à Rav Avya.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

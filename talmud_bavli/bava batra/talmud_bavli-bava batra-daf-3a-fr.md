@@ -72,4 +72,4 @@ La Guemara demande : <b>Et quelle est la raison</b> que <b>dans le Second Temple
 La Guemara commente : <b>Et d'où tirons-nous</b> <b>que</b> le Second Temple <b>était plus grand</b> que le Premier Temple ? <b>Comme il est écrit : "La gloire de cette dernière maison sera plus grande que celle de la première"</b> (Aggée 2:9). <b>Rav et Shmuel</b> ne sont pas d'accord sur le sens de ce verset, <b>et certains disent</b> que ce sont <b>Rabbi Yoḥanan et Rabbi Elazar</b> qui étaient en désaccord sur sa signification. <b>L'un</b> d'entre eux <b>dit</b> qu'elle signifie que le Second Temple sera plus grand <b>en</b> taille de sa <b>structure,</b> c'est-à-dire plus grand. <b>Et l'un</b> d'entre eux <b>a dit</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara demande : <b>Est-ce à dire que Rabbi Meir soutient</b> que <b>un pou
 Cependant, <b>ici,</b> dans les cas du levain et des aliments consacrés, <b>ils sont en désaccord</b> non pas en ce qui concerne l'interprétation des versets mais <b>en ce qui concerne le raisonnement logique, comme le soutient Rabbi Meir :</b> L'obligation de <b>retourner</b> les aliments consacrés <b>est analogue à leur impureté rituelle. De même que sa</b> susceptibilité à l'impureté rituelle n'est</b> que lorsqu'il a la taille d'un <b>pain d'œufs, de même,</b> l'obligation de le <b>retourner n'est</b> que lorsqu'il a la taille d'un <b>pain d'œufs. Et Rabbi Yehuda soutient :</b> L'exigence de <b>retourner</b> les aliments consacrés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Rava poursuit : Si <b>on verse trois</b> cruches d'eau sur du marc, <b>et</b> le
 La Gemara demande : <b>Et lorsque</b> le volume du breuvage obtenu <b>est supérieur à la quantité</b> d'eau qui a été versée sur le marc, <b>les Sages sont-ils jamais <b>en désaccord</b> ? Mais n'a-t-on pas appris</b> dans une mishna (<i>Ma'asrot</i> 5:6) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

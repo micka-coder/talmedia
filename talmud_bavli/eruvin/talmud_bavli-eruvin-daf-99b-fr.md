@@ -69,4 +69,4 @@ Si <b>ses racines</b> étaient <b>trois brins de main plus hauts que le sol, on<
 <strong>GEMARA:</strong> <b>Rav Huna, fils de Rav Yehoshua, a dit : On</b> peut <b>ne pas déplacer</b> les objets dans la zone <b>sous</b> l'arbre s'il est <b>de plus de deux <i>se'a</i>. Quelle est la raison</b> de cette interdiction ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

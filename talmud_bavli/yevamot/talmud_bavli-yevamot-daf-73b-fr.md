@@ -48,4 +48,4 @@ Il a encore été dit plus haut que <b>celui qui mange</b> la seconde dîme et l
 La Guemara a démontré précédemment qu'aucune preuve ne peut être apportée à partir de la mishna citée par Rav Sheshet, car la <i>tanna</i> de cette mishna n'enseignait que certaines des différences entre la seconde dîme et la <i>teruma</i>. <b>Rav Ashi a dit : A partir de la première partie</b> de la mishna <b>aussi, vous</b> pouvez <b>conclure qu'il a enseigné</b> certaines différences <b>et omis</b> d'autres, <b>à partir</b> du fait qu'il <b>n'enseigne pas</b> la différence supplémentaire suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

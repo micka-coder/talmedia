@@ -148,7 +148,7 @@
 <b>Ils tomberont par un puissant</b> Par un ange, ils tomberont. Ou bien, par un puissant, au mérite d'Ezéchias qui est le puissant et des chefs d'Israël, comme il est dit (Jér. 30, 21) : "Et leur chef sera d'eux-mêmes."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Gravures d'injustice</b> Notes d'injustice, notes falsifiées.
 <b>Lettres</b> Heb. מְכַתְּבִים. C'est de l'arabe, comme מִכְתָּבִים en hébreu.
@@ -298,4 +298,4 @@
 <b>Ils tomberont par un puissant</b> Par un ange, ils tomberont. Ou bien, par un puissant, au mérite d'Ezéchias qui est le puissant et des chefs d'Israël, comme il est dit (Jér. 30, 21) : "Et leur chef sera d'eux-mêmes."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

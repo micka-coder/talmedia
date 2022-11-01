@@ -39,4 +39,4 @@ La Guemara répond : <b>Lorsque Rav Adda bar Ahava a dit</b> sa <i>halakha</i>, 
 La Gemara répond : <b>Lorsque Rav Adda a fait</b> sa déclaration, il faisait plutôt référence <b>à un nouveau</b> bain qui n'avait pas encore été utilisé pour se baigner. La Gemara demande : <b>Ravina n'a-t-il pas soulevé un dilemme</b> devant Rav Adda à propos de cette question : Un lieu que l'on <b>désigne comme salle de bain,</b> quel est son statut juridique en ce qui concerne le fait d'y prier ? La <b>désignation</b> est-elle un facteur significatif et déterminant dans ce cas ? Ou bien, la <b>désignation n'est-elle pas une</b> <b>matière halakhique significative ? Et</b> le dilemme <b>n'a pas été résolu pour lui. N'en est-il pas de même en ce qui concerne les bains publics ?</b> Le même dilemme n'y existe-t-il pas ? La Gemara répond : <b>Non, peut-être</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

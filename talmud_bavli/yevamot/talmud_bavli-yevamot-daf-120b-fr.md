@@ -45,4 +45,4 @@ La Guemara conteste cette conclusion : <b>Est-ce le cas ? Mais Rav Yehuda n'a-t-
 La Gemara demande : <b>Si c'est ainsi,</b> qu'une telle blessure est définitivement mortelle, celui qui blesse involontairement un autre de cette manière <b>doit être exilé à son compte,</b> conformément à la <i>halakha</i> de celui qui tue involontairement un autre. <b>Pourquoi est-ce</b> qu'il est <b>enseigné</b> dans un <i>baraita</i> : <b>Si</b> on <b>coupe</b> involontairement les <b>deux</b> passages d'une autre personne, <b>ou la majeure partie</b> de l'épaisseur des <b>deux, il n'est pas exilé ?</b> La Gemara répond : <b>Mais il a été dit à propos</b> de cette <i>baraita</i> que <b>Rav Hoshaya a dit : Nous craignons que peut-être le vent ait aggravé son</b> état et ait effectivement causé sa mort, auquel cas l'auteur n'est pas coupable de la mort et ne doit pas être exilé. <b>Alternativement, peut-être que lui,</b> la personne mutilée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

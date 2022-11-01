@@ -33,7 +33,7 @@ La Gemara demande : <b>Mais</b> s'il l'a épousée <b>sans spécification, quel<
 La Guemara explique : <b>Rav Huna a été induit en erreur par</b> le langage de <b>la mishna</b> et a fait une déduction qui l'a amené à dire quelque chose qui n'est pas conforme à la <i>halakha</i>. <b>Il a pensé que puisque</b> la mishna <b>différencie</b> entre un cas où le mari était au courant de sa situation et un cas où il n'était pas au courant <b>avec</b> en ce qui concerne <b>une <i>ailonit</i>, mais</b> la mishna <b>ne fait pas de différence avec</b> en ce qui concerne <b>une veuve, par déduction</b> on peut dire <b>que</b> en ce qui concerne <b>une veuve, même lorsque</b> on l'épouse simplement sans savoir qu'elle est veuve, <b>elle a droit</b> au paiement de son contrat de mariage. En vérité, cependant, <b>il n'en est pas ainsi. Lorsque</b> la mishna <b>enseigne</b> la <i>halakha</i> <b>de la veuve, elle</b> se base <b>sur la différenciation</b> énoncée <b>auprès</b> de <b>la <i>ailonit</i>. </b> La mishna a voulu que la distinction selon que le mari était ou non au courant de sa situation avant le mariage, qui a été énoncée dans le cas d'une <i>ailonit</i>, s'applique également dans le cas de la veuve.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 son droit à <b>ses vêtements usés</b> qui sont en <b>existence.</b> Elle conserve la possession de ses vêtements et de tous les autres objets qu'elle a apportés avec elle au mariage et qui n'ont pas été usés.
 
@@ -68,4 +68,4 @@ La Gemara demande : <b>Mais</b> s'il l'a épousée <b>sans spécification, quel<
 La Guemara explique : <b>Rav Huna a été induit en erreur par</b> le langage de <b>la mishna</b> et a fait une déduction qui l'a amené à dire quelque chose qui n'est pas conforme à la <i>halakha</i>. <b>Il a pensé que puisque</b> la mishna <b>différencie</b> entre un cas où le mari était au courant de sa situation et un cas où il n'était pas au courant <b>avec</b> en ce qui concerne <b>une <i>ailonit</i>, mais</b> la mishna <b>ne fait pas de différence avec</b> en ce qui concerne <b>une veuve, par déduction</b> on peut dire <b>que</b> en ce qui concerne <b>une veuve, même lorsque</b> on l'épouse simplement sans savoir qu'elle est veuve, <b>elle a droit</b> au paiement de son contrat de mariage. En vérité, cependant, <b>il n'en est pas ainsi. Lorsque</b> la mishna <b>enseigne</b> la <i>halakha</i> <b>de la veuve, elle</b> se base <b>sur la différenciation</b> énoncée <b>auprès</b> de <b>la <i>ailonit</i>. </b> La mishna a voulu que la distinction selon que le mari était ou non au courant de sa situation avant le mariage, qui a été énoncée dans le cas d'une <i>ailonit</i>, s'applique également dans le cas de la veuve.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

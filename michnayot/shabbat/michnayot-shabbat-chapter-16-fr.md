@@ -24,4 +24,4 @@ On peut renverser un bol au-dessus d'une lampe afin que le feu ne prenne pas dan
 Si un Gentil allume une lampe le Chabbat pour son propre usage, un Juif utilise également sa lumière ; et si le Gentil l'allume pour un Juif, les Sages ont interdit d'utiliser sa lumière. De même, si un Gentil a tiré de l'eau d'un puits du domaine public pour donner à boire à son animal, un Juif donne à boire à son propre animal après lui de la même eau ; et s'il a tiré l'eau initialement au profit d'un Juif, il est interdit à un Juif de donner à boire à son animal de cette eau. De même, si un Gentil a fait une rampe le Chabbat pour débarquer d'un bateau, un Juif débarque après lui ; et s'il a fait la rampe pour un Juif, c'est interdit. Un incident s'est produit lorsque Rabban Gamliel et les Anciens voyageaient sur un bateau et qu'un Gentil a fabriqué une rampe le jour de Chabbat afin de débarquer du bateau sur cette rampe, et Rabban Gamliel et les Anciens ont débarqué sur cette rampe également.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara cite un autre cas qui repose sur le même principe. <b>Ilfa a soulev�
 La Guemara demande : <b>Et lorsqu'il y a un liquide</b> qui a rendu la main de quelqu'un <b>humide, qu'en est-il ?</b> Est-ce un facteur pertinent ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Teharot</i> 8:9) :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

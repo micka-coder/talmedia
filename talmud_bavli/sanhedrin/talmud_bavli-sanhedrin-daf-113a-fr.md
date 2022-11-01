@@ -48,4 +48,4 @@ Il est écrit au sujet d'Elie : <b>"Et la parole du Seigneur lui fut adressée, 
 <b>Rabbi Yosei de Tzippori a enseigné : Père Elijah,</b> une caractérisation déférente et affectueuse pour Elijah le prophète,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La mishna cite une autre raison pour laquelle Adam le premier homme a été cré
 Le tribunal dit aux témoins : <b>Et peut-être direz-vous :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

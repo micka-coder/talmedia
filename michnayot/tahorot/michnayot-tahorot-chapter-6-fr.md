@@ -26,5 +26,5 @@ Une basilique : est un domaine privé en ce qui concerne les lois du Shabbat, ma
 ### michna 9
 Un forum couvert: : est un domaine privé en ce qui concerne Chabbat et un domaine public en ce qui concerne les lois de l'impureté ; ainsi que les côtés. Rabbi Meir dit : les côtés sont considérés comme un domaine privé dans les deux cas. Les colonnades : sont un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de l'impureté. Une cour dans laquelle de nombreuses personnes entrent par une porte et sortent par une autre, est un domaine privé en ce qui concerne le Chabbat et un domaine public en ce qui concerne les lois de la propreté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

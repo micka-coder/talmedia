@@ -27,4 +27,4 @@ La Guemara répond : Elle <b>nous enseigne ceci : Puisque s'il le désire il peu
 <b>Rav Aḥa dit à Rav Ashi :</b> Si <b>il a été excommunié et</b> l'excommunication a été <b>dissoute pour lui dans son rêve, quelle est</b> la <i>halakha</i> ? Rav Ashi lui <b>dit : De même qu'il est impossible que le grain</b> pousse <b>sans paille</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

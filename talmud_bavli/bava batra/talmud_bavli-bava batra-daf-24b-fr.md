@@ -57,4 +57,4 @@ La Guemara <b>souleve une objection</b> contre l'avis de Abaye à partir d'une <
 La Guemara demande à propos de la <i>baraita</i> : <b>Accordé,</b> on doit éloigner son aire de battage <b>des <b>concombres et des courges</b> de son voisin, car la balle</b> de l'aire de battage <b>allait</b> et pénétrait <b>au cœur</b> de la fleur <b>et la desséchait. Mais pourquoi</b> doit-on éloigner l'aire de battage <b>du champ labouré</b> d'un autre ? Rabbi Abba bar Zavda a dit, et certains disent</b> que c'est <b>Rabbi Abba bar Zutra :</b> C'est <b>parce que</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

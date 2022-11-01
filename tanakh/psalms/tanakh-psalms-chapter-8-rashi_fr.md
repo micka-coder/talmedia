@@ -24,4 +24,4 @@
 <b>Boeufs et bétail</b> Heb.  צנה ואלפים  [équivalent à]  צאן ובקר, comme (Deut. 7:13), "les jeunes de ton bétail (אלפך" est une expression d'industrie, comme (dans Num. 32:24), "et des enclos pour vos troupeaux ( צנה )" ; oveyledic en ancien français, enclos pour parquer le petit bétail. Il existe de nombreux midrashim aggadiques, mais ils ne correspondent pas aux versets.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Que</b> Rabbi Yoḥanan voulait dire en disant que la fo
 La Gemara explique : <b>Quelles sont les circonstances</b> dans lesquelles il est évident que <b>il augmentait son</b> <b>pouvoir légal ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

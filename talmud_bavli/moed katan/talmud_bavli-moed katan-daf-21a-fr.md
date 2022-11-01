@@ -48,4 +48,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez</b> ce que <b>Ulla a dit</b> ex
 <b>Rava dit : Une fois qu'il a revêtu</b> ses phylactères, <b>il ne les enlève pas</b> <b>de nouveau.</b> La Gemara demande : <b>Mais n'est-ce pas Rava</b> lui-même qui <b>a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>la <i>tanna</i></b> de <b>notre</b> mishna, qui <b>a dit</b> que la période de deuil la plus grave est de <b>trois</b> jours ? Comment alors statue-t-il conformément à la <i>baraita</i> qu'une personne en deuil peut revêtir des phylactères pendant ces jours ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

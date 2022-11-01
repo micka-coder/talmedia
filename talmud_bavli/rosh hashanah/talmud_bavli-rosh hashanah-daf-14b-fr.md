@@ -33,4 +33,4 @@ La Guemara clarifie davantage la <i>baraita</i>, qui stipule : <b>Rabbi Yosei ba
 La Gemara <b>souleve une objection</b> à partir de la <i>baraita</i> suivante : <b>Rabbi Shimon ben Elazar dit : </b> Si <b>on a cueilli</b> le fruit d'un <b>arbre à cèpes</i></b> <b>la veille du quinze de Shevat avant que le soleil ne se soit couché, et</b> ensuite <b>il a cueilli d'autres</b> fruits <b>après le coucher du soleil, on ne peut mettre en réserve <i>teruma</i> et les dîmes de l'un pour l'autre, comme on ne peut mettre en réserve <i>teruma</i> et les dîmes de la nouvelle</b> récolte <b>pour l'ancienne ou de l'ancienne</b> récolte <b>pour la nouvelle. </b> S'il a fait cela alors que c'était la <b>troisième</b> année du cycle sabbatique <b>entrant dans la quatrième</b> année, la <i>halakha</i> est la suivante : De ce qu'il a récolté la <b>troisième</b> année, il doit mettre de côté <b>la première dîme et la dîme du pauvre,</b> et de ce qu'il a récolté la <b>quatrième année</b>, il doit mettre de côté <b>la première dîme et la deuxième dîme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

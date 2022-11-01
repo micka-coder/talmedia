@@ -123,4 +123,4 @@
 <b>Et ils frappèrent le reste... qui avait échappé</b> à l'anéantissement par David, car David avait détruit tous les mâles d'Edom.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

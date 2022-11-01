@@ -21,4 +21,4 @@ La Guemara demande : Si Rabbi Natan soutient qu'un <b>bateau</b> est acquis <b>p
 La Gemara demande : <b>Selon quel</b> avis <b>vous avez interprété</b> l'avis de la première <i>tanna</i> de la <i>baraita</i> précitée ? Si c'est <b>conformément</b> à l'opinion de <b>Rabbi</b> Yehuda HaNasi, alors <b>qu'un navire soit acquis aussi par le passage,</b> et non seulement par la traction, comme il est dit dans la <i>baraita</i> suivante. <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>Un navire est acquis en passant;</b> c'est <b>la déclaration de Rabbi</b> Yehuda HaNasi. <b>Et les rabbins disent :</b> L'acheteur <b>n'acquiert pas</b> il...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

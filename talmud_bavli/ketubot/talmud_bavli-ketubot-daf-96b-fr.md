@@ -21,4 +21,4 @@ La Gemara rejette cette preuve : <b>D'où</b> arrivez-vous à cette conclusion ?
 <b>Alternativement,</b> on peut dire le contraire : <b>Tout le monde</b> s'accorde à dire que <b>le bien est en possession des orphelins, et c'est le raisonnement</b> de <b>Rabbi Yosei, tel que</b> expliqué par <b>Abaye l'Ancien, car Abaye l'Ancien a dit une parabole pour</b> illustrer l'opinion de <b>Rabbi Yosei : A quoi cette affaire est-elle comparable ? A</b> une personne <b>sur son lit de mort qui a dit : Donne deux cents dinars à untel, mon créancier.</b> Comme le mot donner est généralement utilisé dans le contexte d'un don, le créancier peut décider : Si <b>il le désire, il prend</b> l'argent <b>en paiement</b> de la <b>dette</b> qui lui est due.</b> Le créancier a ainsi l'avantage de pouvoir recouvrer sa dette sur des biens grevés de privilèges qui ont été vendus à un tiers. Ou, s'il le <b>souhaite, il prend</b> l'argent <b>comme un don.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

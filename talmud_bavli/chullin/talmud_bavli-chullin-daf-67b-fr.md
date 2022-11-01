@@ -45,4 +45,4 @@ Ravina <b>s'est adressé à lui : Comment</b> ces cas peuvent-ils <b>être compa
 <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yosei ben Durmaskit dit :</b> Le <b>léviathan</b> mentionné dans la Bible <b>est un poisson casher, comme il est dit : "Son armure est son orgueil"</b> (Job 41:7), et : <b>"Les tessons les plus tranchants sont sous lui"</b> (Job 41:22). L'expression <b>"sa cuirasse"</b> fait référence à <b>ses écailles,</b> qui le protègent comme une armure. L'expression <b>"les tisons les plus aigus sont sous lui"</b> fait référence aux <b>pins avec lesquels il nage,</b> qui sont pointus et dépassent de son dessous.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

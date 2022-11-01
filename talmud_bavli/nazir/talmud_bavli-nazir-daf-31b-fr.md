@@ -36,4 +36,4 @@ Sur la base de cette <i>halakha</i>, et poursuivant leur discussion dans la mish
 <b>Beit Hillel leur dit :</b> Ce n'est <b>pas la baguette</b> qui le <b>consacre.</b> Le toucher de la baguette ne consacre pas l'animal, ni le fait qu'il ait dit : Dixième, par erreur. Toutes les erreurs ne provoquent pas la consécration de la dîme, et la preuve en est la suivante : <b>Et quelle</b> serait la <i>halakha</i> <b>s'il avait commis une erreur et placé la baguette sur le huitième ou sur le douzième,</b> et les avait étiquetés : Dixième ? Peut-on suggérer que <b>peut-être il a effectué quelque chose</b> de conséquent ? La <i>halakha</i> est que le huitième ou le douzième animal ne peut être consacré comme dîme. <b>Au contraire,</b> pourquoi le neuvième ou le onzième animal est-il consacré ? Il y a une raison spécifique à cette <i>halakha</i>, car le même <b>verset qui a consacré le dixième</b> a également <b>consacré le neuvième</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

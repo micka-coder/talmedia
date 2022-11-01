@@ -44,5 +44,5 @@
 <b>Et pour tout le grand déploiement.</b> Les miracles et les actes puissants dans le désert immense et impressionnant. 
 <b>Au vu de tout Israël.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quand il prit la liberté de briser les tablettes sous leurs yeux, comme il est dit : "Je les ai brisées sous vos yeux." <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le Saint, Béni soit-Il consentit à son avis, comme il est dit : "que tu as brisées" - "Plus de pouvoir à toi pour les avoir brisées !". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

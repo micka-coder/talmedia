@@ -66,4 +66,4 @@ La Guemara analyse le début de la <i>baraita</i>. <b>Le Maître dit :</b> Si un
 La Guemara analyse le début de cette section de la <i>baraita</i>. <b>Le Maître dit :</b> S'il est écrit dans un document que quelqu'un doit de l'<b>or,</b> le montant doit être <b>non inférieur à un dinar d'or.</b> La Gemara demande : Mais pourquoi ne pas <b>savoir</b> que l'intention du mot or ne porte pas du tout sur une pièce de monnaie, mais sur une petite <b>pièce</b> d'or ? <b>Rabbi Elazar dit :</b> Le cas de la <i>baraita</i> est <b>lorsque</b> le mot <b>pièce de monnaie est écrit</b> dans le document .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

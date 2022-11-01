@@ -42,4 +42,4 @@ La Gemara demande : <b>Et</b> en quoi est-il <b>différent de ce qui a été én
 La Gemara répond : Il y a une différence entre une <i>crogue</i> et une <i>sukka</i>. <b>Là,</b> en ce qui concerne un <i>etrog</i>, les <b>nuits sont divisées des jours,</b> car la mitsva du <i>etrog</i> ne s'applique que le jour et non la nuit. Cela signifie que <b>chaque jour est sa propre mitsva,</b> et donc qu'un objet sanctifié pour un jour ne l'est pas forcément pour le jour suivant. Cependant, <b>ici,</b> en ce qui concerne une <i>sukka</i>, <b>où</b> les <b>nuits ne sont pas divisées des jours,</b> car la mitsva de <i>sukka</i> s'applique également la nuit, <b>tous</b> les sept <b>jours sont considérés comme un seul long jour. </b> Tout au long de la Fête, il n'y a aucun moment durant lequel la sainteté de la <i>sukka</i> quitte le bois ; elle ne le quitte qu'à la conclusion de la Fête.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

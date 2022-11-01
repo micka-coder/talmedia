@@ -67,4 +67,4 @@
 <b>Pour briser les faibles</b> Pour écraser et briser les faibles et les malades.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

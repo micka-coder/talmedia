@@ -33,4 +33,4 @@ La Gemara demande : <b>Où a-t-il mangé</b> le gâteau ? <b>Si l'on dit qu'il l
 § La Gemara suggère : A partir de là, il est possible de <b>résoudre</b> un dilemme et de prouver <b>que</b> la <b>bouche d'une vache</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara relate : <b>Rabbi Yannai,</b> qui avait déjà vieilli et dont les yeu
 Lorsque Rabbi Yehuda Nesia rencontra Rabbi Yannai, il lui <b>demanda : D'où</b> provient-il <b>que le fils précède la fille en ce qui concerne les biens de la mère ?</b> Rabbi Yannai <b>lui répondit : Comme il est écrit :</b> "Et toute fille qui possède un héritage des <b>tribus</b> des enfants d'Israël" (Nombres 36:8). Le verset <b>juxtapose</b> la <b>tribu de la mère à</b> la <b>tribu du père.</b> Cela enseigne que <b>de même que</b> par rapport à la <b>tribu du père, un fils précède une fille, de même,</b> par rapport à la <b>tribu de la mère, un fils précède une fille.</b> Rabbi Yehuda Nesia <b>lui a dit : Si</b> donc, si ces deux <i>halakhot</i> sont effectivement juxtaposées, il faut aussi en déduire ce qui suit : <b>De même que</b> en ce qui concerne l'héritage de <b>la tribu du père, un premier-né prend une double</b> portion, <b>de même,</b> en ce qui concerne l'héritage de <b>la tribu de la mère,</b> lorsqu'il hérite de sa mère <b>un premier-né prend une double</b> portion.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

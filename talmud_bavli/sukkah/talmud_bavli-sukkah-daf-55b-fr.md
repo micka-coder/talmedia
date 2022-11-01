@@ -48,4 +48,4 @@ La Guemara cite <b>une parabole</b> à propos d'un <b>roi de chair et de sang qu
 La mishna poursuit : <b>Et dans la distribution des pains de mie</b> lors des trois Fêtes de pèlerinage, les vingt-quatre montres sacerdotales ont un statut égal. <b>Les Sages ont enseigné : D'où</b> provient-il <b>que tous les quarts sacerdotaux</b> ont <b>un statut égal</b> <b>dans la distribution des pains de mie ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

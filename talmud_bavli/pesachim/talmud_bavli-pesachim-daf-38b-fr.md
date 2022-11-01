@@ -39,4 +39,4 @@ La Guemara demande à nouveau : <b>Et qu'il dérive</b> cette <i>halakha</i>, qu
 La Gemara demande : <b>Et</b> en effet, <b>quelle est la raison</b> de cette distinction entre ces pains que l'on préparait pour soi et ceux qu'on avait l'intention de vendre au marché ? <b>Rabba a dit :</b> En ce qui concerne <b>tout ce qui est vendu</b> <b>au marché,</b> le marchand peut <b>changer d'avis</b> à son sujet. <b>Il</b> pourrait <b>dire : Si elle est vendue, elle est vendue;</b> mais <b>si elle n'est pas vendue</b> pour une offrande, <b>je remplirai</b> mon obligation de manger de la <i>matza</i> <b>avec elle.</b> Puisque le marchand avait en tête dès le départ que ces <i>matzot</i> pourraient être utilisées pour la mitzva de Pessah, il lui est permis de les utiliser pour remplir son obligation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

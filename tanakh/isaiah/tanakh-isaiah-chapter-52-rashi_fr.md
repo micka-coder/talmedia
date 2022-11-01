@@ -56,7 +56,7 @@
 <b>ils ont regardé</b> Heb. הִתְבּוֹנָנוּ, ils ont regardé.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -114,4 +114,4 @@
 <b>ils ont regardé</b> Heb. הִתְבּוֹנָנוּ, ils ont regardé.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

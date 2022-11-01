@@ -63,4 +63,4 @@ La Guemara répond : <b>En fait,</b> le problème ici est celui de <b>diverses s
 <b>Abaye a dit : Maintenant que Shmuel a dit un pouce carré, et</b> un Sage <b>de l'école de Shmuel a enseigné deux pouces carrés</b>, il est raisonnable de conclure que <b>Shmuel est venu nous enseigner la <i>halakha</i> pratique. </b> Même si les <i>tanna'im</i> ont permis de tirer le chameau tant qu'il y a moins de deux brins de corde qui pendent sous sa main, en pratique, il faut être rigoureux et ne pas laisser pendre un seul brin de corde.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

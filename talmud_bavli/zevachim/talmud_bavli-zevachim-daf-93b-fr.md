@@ -60,4 +60,4 @@ On <b>pourrait</b> avoir pensé <b>que j'allais</b> <b>inclure une peau</b> mêm
 <b>Rabbi Elazar</b> soutient que, même après avoir été écorchée, la peau n'a pas besoin d'être blanchie. En interprétant le verset, il <b>dit :</b> Le verset dit : <b>"Vêtement"</b> et de cela <b>j'ai</b> dérivé <b>uniquement un vêtement ; d'où</b> dois-je <b>inclure le sac</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

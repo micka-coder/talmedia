@@ -51,4 +51,4 @@ Si tel est le raisonnement de Rabbi Shimon ben Menasya, alors sa décision selon
 <b>Au contraire, Reish Lakish dit</b> que le raisonnement de Rabbi Shimon ben Menasya est le suivant : En principe, <b>tous</b> les cas de dommages <b>étaient inclus</b> parmi ceux <b>dans</b> lesquels le propriétaire paie la <b>totalité</b> du coût du <b>dommage. </b> La <i>halakha</i> selon laquelle, dans le cas d'un bœuf inoffensif, le propriétaire ne paie que la moitié du coût du dommage est une exception à la règle, et <b>lorsque le verset a spécifié</b> le terme <b>"d'un autre" à propos d'un bœuf inoffensif</b>, il entendait <b>que</b> c'est <b>spécifiquement lorsque son <b>bœuf inoffensif</b> éventre le bœuf d'un <b>autre</b> que le propriétaire <b>paye</b> seulement <b>la moitié</b> du coût du <b>dommage. </b> Et <b>par déduction,</b> s'il encorne <b>un bœuf consacré</b>, <b>que</b> le bœuf belligérant <b>soit inoffensif ou prévenu</b> son propriétaire <b>paye la totalité</b> du coût du <b>dommage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

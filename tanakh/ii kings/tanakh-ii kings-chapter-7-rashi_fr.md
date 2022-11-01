@@ -44,7 +44,7 @@
 <b>La main de qui il s'est appuyé.</b> La veille, quand il est venu chez Elisée.</sup>5</sup><i class="footnote">Voir ci-dessus v. 2. Au début, il se moquait de la prophétie d'Elisée. Le roi l'a chargé de monter la garde à la porte pour empêcher le pillage du camp. Cela aurait permis de maintenir le prix du grain plus élevé que celui prédit par le prophète. Cependant, il fut piétiné par le peuple à la porte et il mourut, pour accomplir la prophétie d'Elisée.-Malbim </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -90,4 +90,4 @@
 <b>La main de qui il s'est appuyé.</b> La veille, quand il est venu chez Elisée.</sup>5</sup><i class="footnote">Voir ci-dessus v. 2. Au début, il se moquait de la prophétie d'Elisée. Le roi l'a chargé de monter la garde à la porte pour empêcher le pillage du camp. Cela aurait permis de maintenir le prix du grain plus élevé que celui prédit par le prophète. Cependant, il fut piétiné par le peuple à la porte et il mourut, pour accomplir la prophétie d'Elisée.-Malbim </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

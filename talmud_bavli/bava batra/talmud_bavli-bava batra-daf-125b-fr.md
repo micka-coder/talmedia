@@ -21,4 +21,4 @@ La Gemara demande : <b>Par déduction, est-ce que Rav Huna,</b> qui a jugé que 
 En conclusion, <b>Rav Pappa dit</b> que <b>la <i>halakha</i></b> est que <b>le mari ne prend pas</b> en héritage les biens <b>duits</b> à sa femme <b>comme</b> il le fait des biens qu'elle <b>possédait ; et un premier-né ne prend pas</b> une double portion des biens <b>duits</b> à son père <b>comme</b> il fait les biens que son père <b>possédait ; et un premier-né ne prend pas une double</b> portion <b>de</b> paiement pour <b>un prêt, que</b> les frères <b>collectent des terres</b> ou <b>qu'ils collectent de l'argent. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

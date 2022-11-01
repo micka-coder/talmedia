@@ -18,4 +18,4 @@ Le Rav Aḥa conteste : <b>Mais</b> une mishna enseigne (<i>Arakhin</i> 2a) : <b
 <b>Et il est écrit : "Il vaut mieux que tu ne fasses pas de vœu, que de faire un vœu et de ne pas payer"</b> (Ecclésiaste 5:4) ; <b>et il est enseigné</b> dans une <i>baraita</i> à propos de ce verset : <b>Mieux que</b> à la fois <b>cette</b> personne, qui fait un vœu et ne paie pas, <b>et celle-là</b>, qui fait un vœu et paie, est <b>celle qui ne fait pas de vœu du tout;</b> c'est <b>la déclaration de Rabbi Meir. Rabbi Yehuda dit : Mieux que</b> à la fois <b>cette</b> personne, qui fait un vœu et ne paie pas, <b>et celle-là</b>, qui ne fait pas de vœu du tout, est <b>celle qui fait un vœu et paie</b> en accomplissement de ce vœu. Le Rav Aḥa commente : <b>Et même Rabbi Yehouda énonce</b> son avis <b>uniquement dans</b> un cas où l'on fait un vœu et <b>dit : Cet</b> animal <b>est</b> désigné pour le sacrifice, car dans ce cas, on ne craint pas de manquer à son engagement, puisque même si l'animal est volé ou perdu, il n'est pas tenu d'en apporter un autre à sa place.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

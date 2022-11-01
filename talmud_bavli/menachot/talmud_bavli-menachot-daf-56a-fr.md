@@ -60,4 +60,4 @@ La Gemara répond : Ceci n'est <b>pas difficile,</b> car <b>cette</b> déclarati
 <b>Et les rabbins disent : On peut même laisser</b> le sang de l'animal en le coupant <b>à un endroit où</b> l'incision <b>cause</b> une <b>tache permanente, à condition de ne pas abattre</b> l'animal <b>sur la base <b>de cette tache,</b> même si, en général, un animal premier-né peut être abattu dès qu'il développe une tache permanente. Les rabbins soutiennent que dans ce cas, puisqu'il a lui-même causé la tare, il ne peut pas l'abattre jusqu'à ce qu'il développe une tare différente, sans rapport avec celle-ci. Rabbi Shimon dit : <b>Rabbi Shimon dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

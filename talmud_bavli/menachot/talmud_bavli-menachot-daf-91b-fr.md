@@ -72,4 +72,4 @@ La Gemara demande : <b>Pourquoi</b> le verset doit-il dire : "Ou des chèvres" ?
 § Ayant mentionné les libations d'une brebis, la Gemara relate que <b>Rav Pappa a dit : Rava nous a testés</b> en posant la question suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

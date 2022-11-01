@@ -57,4 +57,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez, comme Rav Idi bar Avin dit</b
 La Guemara demande : <b>Et combien doit-on le nourrir ? Rabbi Yoḥanan dit au nom de Rabbi Pineḥas ben Arova :</b> On le nourrit de la quantité <b>d'une figue-bulk. Rava dit : Ils soulèvent un dilemme en Occident,</b> Eretz Yisrael : Est-ce que cela signifie qu'on lui donne la quantité <b>d'une figue-bulk à</b> son <b>premier repas</b> chaque jour,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

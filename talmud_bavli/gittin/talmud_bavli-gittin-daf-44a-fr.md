@@ -57,4 +57,4 @@ La Gemara conteste : <b>Au contraire, quelle est la raison</b> pour laquelle il 
 <b>Rabbi Yirmeya a soulevé un dilemme devant Rabbi Asi :</b> Si quelqu'un <b>vendait son esclave</b> à un Gentil <b>et mourait, quelle est</b> la <i>halakha</i> : <b>Son fils est-il pénalisé après lui ?</b> Le fils est-il également tenu de racheter l'esclave, ou la pénalité s'applique-t-elle uniquement au vendeur ? La Guemara compare cela à d'autres pénalités évaluées par les Sages. <b>Si vous dites,</b> conformément à l'opinion qui veut que si l'on <b>fend</b> l'<b>oreille</b> d'un animal <b>premier-né</b> et que, ce faisant, on le souille intentionnellement afin qu'il puisse être mangé, <b>et</b> alors cette personne <b>morte,</b> alors <b>son fils est pénalisé après lui</b> et son fils ne peut pas l'abattre et le manger, peut-être est-ce <b>parce que c'est une interdiction de la loi de la Torah. Ici, cependant,</b> en ce qui concerne la vente d'un esclave, c'est <b>une interdiction</b> seulement <b>par la loi rabbinique</b> et peut-être que le fils n'est pas pénalisé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

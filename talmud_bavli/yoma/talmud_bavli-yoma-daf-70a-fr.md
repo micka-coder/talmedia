@@ -69,4 +69,4 @@ Après avoir sacrifié ces offrandes, <b>il s'est sanctifié les mains et les pi
 <b>Quel est l'avis de Rabbi Akiva's</b> tel qu'enseigné dans la <b><i>Tosefta</i> ? Comme il a été enseigné</b> que <b>Rabbi Akiva dit : Le taureau</b> de l'holocauste de Yom Kippour <b>et les sept agneaux étaient sacrifiés avec l'offrande quotidienne du matin, comme il est dit</b> à propos des offrandes supplémentaires des autres Fêtes : <b>"En dehors de l'holocauste du matin qui est l'holocauste quotidien</b> tu sacrifieras ceux-ci" (Nombres 28:23), indiquant que les offrandes supplémentaires du jour devaient être sacrifiées avec l'offrande quotidienne. <b>Et ensuite, le service du jour,</b> qui est propre à Yom Kippour, est accompli.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

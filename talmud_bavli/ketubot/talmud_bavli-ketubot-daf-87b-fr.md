@@ -45,4 +45,4 @@ La Gemara demande : Si sa demande est acceptée, <b>avec quoi perçoit-elle</b> 
 <b>Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

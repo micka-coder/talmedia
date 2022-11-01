@@ -33,4 +33,4 @@ La Guemara explique cette apparente contradiction : <b>Et s'il te vient à l'esp
 <b>Abaye a dit,</b> en réponse : <b>Vous trouvez</b> que le terme : <b>A la place de [<i>taḥat</i>], est</b> parfois <b>un terme qui</b> indique l'<b>association</b> d'une sainteté à une autre, <b>et</b> il <b>est</b> parfois <b>un terme qui</b> indique la <b>désacralisation. </b> C'est <b>un terme qui</b> indique l'<b>association</b> d'une sainteté à une autre, <b>comme il est écrit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara répond : <b>Au contraire, il est</b> plus <b>raisonnable de dériver
 <b>Au contraire,</b> la <i>halakha</i> de <i>notar</i> est dérivée <b>de celle</b> que <b>Levi a enseignée</b> à propos du verset : "Qu'ils se séparent des objets sacrés des enfants d'Israël, qu'ils me consacrent, et qu'ils ne profanent pas mon saint nom" (Lévitique 22:2), qui fait référence à la consommation d'aliments consacrés dans un état d'impureté rituelle. <b>Comme l'a enseigné Lévi : D'où</b> est-il tiré <b>que le verset parle même d'une disqualification</b> causée par le <b>temps,</b> et pas seulement de l'impureté rituelle ? <b>Le verset énonce</b> la profanation ailleurs : <b>"Et ils ne profaneront pas les objets sacrés des enfants d'Israël"</b> (Lévitique 22:15).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

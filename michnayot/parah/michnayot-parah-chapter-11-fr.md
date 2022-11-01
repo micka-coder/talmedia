@@ -26,5 +26,5 @@ L'hysope qui a été utilisée pour l'aspersion [des eaux de hatat] est égaleme
 ### michna 9
 La mitsva de l'hysope [consiste à prendre idéalement] trois tiges centrales portant trois branches. Rabbi Judah dit : [idéalement] chaque tige doit avoir trois branches. L'hysope qui consiste en une croissance de trois tiges, [ces dernières] doivent être séparées [c.a.d coupées] et ensuite liée ensemble. Si les tiges ont été coupées mais n'ont pas été liées ensemble, ou si elles ont été liées ensemble mais n'ont pas été coupées, ou si elles n'ont été ni coupées ni liées ensemble, elles sont néanmoins valables. Rabbi Yose dit : la mitsva de l'hysope [consiste à prendre obligatoirement] trois tiges, et sur celles-ci trois branche, mais ses restes [ensuite peuvent n'être] que de deux, tandis que les souches des branches peuvent être de la plus petite taille.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

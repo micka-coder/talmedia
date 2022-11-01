@@ -47,4 +47,4 @@
 <b>Et un officier sur les terres.</b> Rav et Chmouel ont des opinions divergentes, l'un dit, un a été nommé sur tous, et c'était Azaryoh[u] le fils de Noson, qui a été mentionné précédemment,<sup>6</sup><i class="footnote">Avant le v. 5.</i> et l'un dit qu'il a été [nommé] pour le treizième mois.<sup>7</sup><i class="footnote">I.e., le but de la nomination d'un treizième officier était de prendre soin du roi pour le treizième mois d'une année bissextile. Voir Masehet Sanhedrin 12a. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara demande : <b>Et</b> comment <b>les rabbins</b> répondent-ils à cette
 <b>Rabbi Yehuda ben Agra dit au nom de Rabbi Yosei : A la fois</b> dans <b>cette</b> cas, où elle a vu une tache assez grande pour être divisée en trois parties, où la surface totale est de la taille de trois haricots fendus, <b>et ce</b> cas, où la tache n'était pas si grande, elle doit être <b>concernée</b> par le fait qu'elle pourrait être une <i>zava</i>. Cela est dû au fait qu'elle n'a peut-être vu des taches de taille suffisante qu'à deux occasions, mais l'une d'elles était au crépuscule, ce qui compte pour deux jours, ce qui fait un total de trois jours.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -48,4 +48,4 @@ Une décision <b>a été envoyée</b> d'Eretz Yisrael <b>à Mar Ukva,</b> l'Exil
 <b>Rav Naḥman a soulevé une objection</b> de ce qui a été enseigné dans une mishna : Les témoins qui ont vu la nouvelle lune <b>peuvent profaner Chabbat pour</b> la fixation de la nouvelle lune de <b>deux mois, pour</b> le mois de <b>Nisan et pour</b> le mois de <b>Tishrei,</b> en raison des Fêtes importantes qui s'y déroulent. <b>Accordé, si vous dites</b> que l'Adar précédant immédiatement Nisan est <b>parfois plein et parfois court, pour cette</b> raison les témoins <b>peuvent profaner</b> le Chabbat, car si les témoins viennent le trentième, le mois sera rendu court et ce jour sera déclaré Nouvelle Lune ; sinon, le mois sera rendu plein et le jour suivant sera déclaré Nouvelle Lune.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -14,5 +14,5 @@ L'[absence des] offrandes quotidiennes (tamidin) n'invalide pas les offrandes su
 ### michna 5
 Les pains de mie du grand prêtre ne peuvent pas être apportés en [deux] moitiés. Il doit plutôt apporter un dixième entier, puis le diviser, en offrant une moitié le matin et une moitié vers le soir. Si un [grand] prêtre a offert la moitié le matin, puis est mort et qu'on a nommé un autre prêtre à sa place, [le successeur] ne peut pas apporter un demi-dixième de sa maison, ni [utiliser] le demi-dixième restant du premier [grand prêtre]. Il doit plutôt apporter un dixième entier et le diviser, et en offrir une moitié en laissant l'autre moitié en pure perte. Il s'avère que deux moitiés sont offertes et que deux moitiés sont gaspillées. S'ils n'ont pas nommé un autre prêtre à sa place, aux frais de qui était-il offert ? Rabbi Shimon dit : aux frais de la communauté ; mais Rabbi Juda dit : aux frais de ses héritiers, et un dixième entier a été offert.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -151,5 +151,5 @@
 <b>Blocks multiplicateurs.</b> [רַבוֹת signifie] qui sont féconds et se multiplient plus que les autres troupeaux.
 <b>Esclaves femelles et esclaves mâles.</b> Il vendait son troupeau à un prix élevé et s'achetait tout cela.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

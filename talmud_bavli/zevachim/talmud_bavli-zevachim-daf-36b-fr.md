@@ -42,4 +42,4 @@ La Guemara rejette la preuve de Rava : <b>Mais ce n'est pas le cas,</b> car <b>l
 La Gemara présente <b>une autre version</b> de la preuve et son rejet : <b>Mais</b> les <b>portions sacrificielles</b> sont <b>non conformes,</b> et pourtant on est responsable si on les consomme en étant impur. La Guemara répond : <b>Mais il n'en est pas ainsi,</b> puisque <b>ces portions sacrificielles sont <b>adaptées à leurs matières, et celles-ci,</b> c'est-à-dire la viande d'une offrande pascale qui n'a pas été rôtie et les pains d'une offrande de remerciement dont la portion des prêtres n'a pas été séparée, <b>ne sont pas du tout adaptées.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

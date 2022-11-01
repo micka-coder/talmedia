@@ -59,4 +59,4 @@
 <b>afin que personne d'impur n'entre pour quelque raison que ce soit</b> Il y avait également des personnes nommées [dont la tâche était] de ne pas permettre à une personne impure d'entrer dans le parvis pour quelque raison que ce soit.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

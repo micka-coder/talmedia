@@ -48,4 +48,4 @@ La Gemara demande : <b>Si c'est le cas,</b> alors à partir du verset : <b>"Tu n
 <b>Et</b> la Torah <b>indique</b> qu'elle est interdite <b>que ce soit <b>la femme de son père qui est sa mère</b> ou <b>que ce soit</b> la femme de son père qui n'est pas sa mère. D'où</b> provient que celui qui a des rapports sexuels avec <b>sa mère qui n'est pas la femme de son père</b> est responsable ? <b>Le verset indique</b> par la suite : <b>"La nudité de ta mère, tu ne la découvriras pas"</b> Et de la phrase suivante : <b>"Elle est ta mère"</b>, on en déduit que dans le cas où sa mère est également la femme de son père, <b>vous le rendrez responsable en raison</b> du fait qu'elle est <b>sa mère, mais vous ne le rendrez pas responsable en raison</b> du fait qu'elle est <b>la femme de son père.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

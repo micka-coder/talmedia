@@ -27,4 +27,4 @@ La Guemara ajoute : <b>Et</b> il était <b>nécessaire</b> que la mishna enseign
 <b>Rava dit</b> une réponse alternative à la contestation de la déclaration du Rav Safra :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

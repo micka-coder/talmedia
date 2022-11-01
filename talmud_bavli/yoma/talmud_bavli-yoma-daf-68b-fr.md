@@ -30,4 +30,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre l'avis du
 <strong>GEMARA:</strong> <b>Abaye a dit : Apprends de ceci</b> que <b>Beit Ḥiddudo est situé dans le désert, et ceci</b> vient nous <b>enseigner que Rabbi Yehouda soutient qu'une fois que la chèvre a atteint le désert, sa mitzva est complète</b> avant même qu'elle ne soit poussée de la falaise, et qu'il n'est pas nécessaire d'attendre plus longtemps.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

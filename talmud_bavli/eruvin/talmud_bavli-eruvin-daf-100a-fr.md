@@ -69,4 +69,4 @@ La Guemara réfute cette comparaison : <b>Peut-être que ce n'est pas</b> le cas
 <b>Alternativement,</b> la comparaison peut être rejetée d'une manière différente : <b>Rabbi Yehoshua</b> a pu <b>déclarer</b> son opinion selon laquelle <b>il est préférable de s'asseoir et de ne pas agir uniquement</b> dans le cas traité <b>là,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

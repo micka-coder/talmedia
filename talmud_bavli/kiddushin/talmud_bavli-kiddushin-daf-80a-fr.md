@@ -33,4 +33,4 @@ La Guemara commente : Il <b>est enseigné</b> dans une <i>baraita</i> <b>conform
 Le cas d'un <b>enfant</b> est <b>ce que nous avons dit</b> à propos d'un enfant tenant un peu de pâte découverte à côté d'un morceau de pâte plus grand. Toute la pâte est réputée impure, puisqu'on ne peut demander à l'enfant s'il a rendu la pâte impure ou non. <b>Et quel est l'additionnel</b> ? Si de la pâte pure, <b>amorcée</b> se trouvait <b>à l'intérieur de la maison, et que des poulets et des liquides impurs</b> y étaient présents <b>et qu'on y a trouvé</b> .
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

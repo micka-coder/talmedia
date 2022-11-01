@@ -45,4 +45,4 @@
 <b>Mais</b> qu'il se hâte et le fasse afin que les justes remercient Son nom.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

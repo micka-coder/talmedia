@@ -60,4 +60,4 @@ La Gemara demande : <b>Au contraire, d'où tirons-nous</b> que dans les généra
 § La mishna enseigne que la sanction de la rébellion est infligée à <b>un fils, mais pas</b> à <b>une fille. Il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon dit : Il serait raisonnable</b> que <b>une fille soit apte à être</b> traitée <b>comme un fils têtu et rebelle,</b> et à être punie comme lui si elle pèche de la même manière que lui.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

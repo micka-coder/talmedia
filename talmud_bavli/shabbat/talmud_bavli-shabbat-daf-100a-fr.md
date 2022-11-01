@@ -33,4 +33,4 @@ Cependant, en ce qui concerne l'<b>huile</b> flottant <b>sur le vin,</b> il y a 
 <b>Rava a dit :</b> Malgré le principe du <i>lavud</b>, qui stipule que <b>dans un rayon de trois</b> coudées du sol, un objet est considéré comme attaché à celui-ci, <b>selon les Rabbins,</b> qui soutiennent qu'un objet dans l'espace aérien n'est pas considéré comme au repos, l'objet <b>doit venir se poser sur quelque chose</b> pour établir la responsabilité. La Guemara relate que <b>Mareimar s'est assis et a énoncé cette <i>halakha</i>. Ravina dit à Mareimar :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

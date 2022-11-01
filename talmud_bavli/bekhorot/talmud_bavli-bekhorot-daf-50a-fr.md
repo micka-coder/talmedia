@@ -30,4 +30,4 @@ En ce qui concerne les dinars usés d'Hadrien et de Trajan mentionnés précéde
 La Gemara demande : <b>Et Jérusalem est-elle la majorité du monde</b> telle que tout l'argent et l'or du monde devraient être interdits en raison d'une préoccupation qu'ils proviennent de Jérusalem ? <b>Abaye répond plutôt :</b> Les Sages <b>voulaient séquestrer tous les dinars usés d'Hadrien et de Trajan à cause des pièces de Jérusalem,</b> car ces pièces contenaient une grande quantité de l'or et de l'argent du trésor du Temple, <b>jusqu'à ce qu'ils trouvent un verset dans la Torah</b> indiquant <b>que c'est permis, comme il est dit : "Et les voleurs y entreront, et le profaneront."</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

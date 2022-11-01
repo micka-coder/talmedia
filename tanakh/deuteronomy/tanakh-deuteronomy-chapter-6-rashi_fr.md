@@ -62,5 +62,5 @@
 ### passuk 20
 <b>Quand ton fils te demande demain.</b> Le mot מָחָר (demain) est parfois utilisé en référence à un futur lointain.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

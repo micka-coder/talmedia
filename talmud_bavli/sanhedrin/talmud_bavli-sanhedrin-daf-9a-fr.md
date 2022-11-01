@@ -18,4 +18,4 @@ En outre, cela enseigne que <b>comme</b> dans le cas de <b>deux témoins</b>, si
 Les <i>tanna'im</i> ont discuté de la manière dont il faut comprendre l'avis de Rabbi Akiva. <b>Rabbi Yosei dit : Dans quelle</b> situation <b>cette déclaration,</b> selon laquelle si l'un d'eux se révèle être un proche parent ou un témoin disqualifié, leur témoignage est annulé, <b>dit ? Dans</b> les cas de <b>droit capital. Mais dans</b> les cas de <b>droit monétaire, le témoignage</b> peut être <b>soutenu avec les autres</b> témoins. <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> L'opinion de Rabbi Akiva s'applique aux <b>mêmes</b> cas de <b>droit monétaire et</b> cas de <b>droit capital. Et quand</b> c'est le cas ? <b>Lorsque</b> les proches ou les témoins disqualifiés ont également <b>averti</b> les transgresseurs et se sont donc activement inclus dans le groupe des témoins ; <b>mais lorsque</b> ils n'ont <b>pas averti</b> les transgresseurs, ils ne sont pas du tout comptés comme témoins.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

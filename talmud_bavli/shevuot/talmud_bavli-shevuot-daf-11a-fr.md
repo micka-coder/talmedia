@@ -30,4 +30,4 @@ La Guemara note : <b>Dans tous les cas,</b> la question initiale de Rav Ḥisda 
 <b>Abaye soulève une objection à</b> la suggestion de Rabba à partir de ce qui est enseigné dans une <i>baraita</i> : En ce qui concerne le <b>taureau et</b> le <b>chèvre de Yom Kippour qui ont été perdus, et on a séparé</b> et sacrifié <b>d'autres à leur place,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

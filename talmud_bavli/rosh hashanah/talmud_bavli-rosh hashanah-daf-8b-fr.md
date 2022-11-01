@@ -36,4 +36,4 @@ La Guemara demande : <b>Et les sages</b> qui ne sont pas d'accord avec Rabbi Yis
 <b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> : <b>Quel est le sens</b> lorsque <b>le verset dit : "Il y aura une année jubilaire"</b> (Levitique 25.11) ? <b>Puisqu'il est précisé : "Et tu sanctifieras la cinquantième année"</b>, on <b>pourrait</b> penser que <b>comme</b> l'année jubilaire <b>est sanctifiée dès son début, de même, elle est sanctifiée dès sa fin</b>, c'est-à-dire qu'elle reste sanctifiée jusqu'à Yom Kippour de la cinquante et unième année. <b>Et ne vous demandez pas</b> pourquoi on pourrait penser cela, <b>puisque n'avons-nous pas</b> régulièrement <b>additionné du profane au sacré,</b> prolongeant une période sacrée en y ajoutant avant et après une période profane ? <b>C'est pourquoi le verset dit : "Ce sera une année jubilaire, la cinquantième année,</b> pour enseigner que <b>on sanctifie la cinquantième année, mais on ne sanctifie pas la cinquante et unième année,</b> même partiellement.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara demande : <b>D'où</b> provient cette <i>halakha</i> que Rabbi Ulla a
 La Gemara rétorque : <b>Si c'est le cas, laissons</b> la mishna <b>l'enseigner : Si elle était malade. Quelle</b> est la raison pour laquelle il précise : <b>Si elle allaitait ?</b> La raison de cette <i>halakha</i> doit certainement être due à l'enfant. La Guemara rejette à nouveau cette réponse : <b>Mais peut-être</b> la mishna <b>nous enseigne ceci,</b> que dans une situation <b>ordinaire</b>, les <b>femmes allaitantes sont</b> considérées comme <b>malades,</b> et qu'un mari doit augmenter la subsistance d'autant plus si sa femme est réellement malade. Par conséquent, cela ne prouve pas qu'un père soit obligé de subvenir aux besoins de son très jeune enfant. <b>Il a été dit</b> que <b>Rabbi Yehoshua ben Levi a dit : Le vin est ajouté pour</b> une femme qui allaite, <b>comme le vin est bon pour le lait.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

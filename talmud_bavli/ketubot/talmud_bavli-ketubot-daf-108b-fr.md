@@ -45,7 +45,7 @@ La Guemara en déduit : <b>La raison</b> de la décision des rabbins <b>est</b> 
 <strong>MISHNA:</strong> La mishna énonce un autre cas impliquant une décision d'Admon. A l'égard de celui qui promet et <b>apporte de l'argent pour son gendre</b> comme dot, <b>et il a fait faillite,</b> et il prétend maintenant qu'il n'a pas l'argent pour remplir ses obligations financières,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>N'a-t-il pas honte</b> du fait de son incapacité à rembourser la dette ? <b>Là aussi,</b> dans le cas de celui qui est interdit par un vœu, <b>il a un bénéfice;</b> à savoir, le <b>bénéfice qu'il a honte devant lui</b> jusqu'au remboursement du prêt.
 
@@ -92,4 +92,4 @@ La Guemara en déduit : <b>La raison</b> de la décision des rabbins <b>est</b> 
 <strong>MISHNA:</strong> La mishna énonce un autre cas impliquant une décision d'Admon. A l'égard de celui qui promet et <b>apporte de l'argent pour son gendre</b> comme dot, <b>et il a fait faillite,</b> et il prétend maintenant qu'il n'a pas l'argent pour remplir ses obligations financières,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

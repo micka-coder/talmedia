@@ -69,4 +69,4 @@ La Guemara discute de la <i>baraita</i>. <b>Le maître a dit</b> que <b>le</b> b
 Il est enseigné dans le <i>baraita</i> que si un billet à ordre <b>est tombé en possession d'un juge, il ne peut jamais être retiré</b> de sa possession jusqu'à ce qu'une preuve soit fournie.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

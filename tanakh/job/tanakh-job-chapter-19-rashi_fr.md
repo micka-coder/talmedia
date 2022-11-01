@@ -80,4 +80,4 @@
 <b>afin que tu saches</b> et comprennes le secret du châtiment qui s'abattra sur les méchants. Aussi, la mésorah fait autorité et שדין est écrite, comme si elle disait qu'il y a une justice (שיש דין) dans le monde, comme (Jud. 5:7), "Moi, Déborah, je me suis levée (שַׁקַמְתִּי), [comme שֶׁקַמְתִּי]." J'ai vu ceci dans le Tanchuma (Mishpatim 3) .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

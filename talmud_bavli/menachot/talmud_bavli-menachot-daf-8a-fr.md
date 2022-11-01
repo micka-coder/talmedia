@@ -54,4 +54,4 @@ Enfin, une offrande de repas standard est sanctifiée par un récipient de servi
 Le Rav poursuit : <b>Et l'huile et l'encens sont</b> chacun <b>sanctifiés</b> par des vases de service, <b>cette</b> substance <b>sans celle-là</b>, <b>et cette</b> substance <b>sans celle-là</b>. <b>L'huile</b> est sanctifiée par elle-même, <b>comme on trouve</b> une telle <i>halakha</i> <b>en ce qui concerne le <i>logue</i> d'huile d'un lépreux,</b> qui est sanctifié par lui-même. <b>L'encens</b> est sanctifié par lui-même, <b>comme on trouve</b> un tel <i>halakha</i> <b>en ce qui concerne l'encens qui vient dans les coupes</b> qui sont apportées avec les pains de proposition ; il n'y a pas d'huile dans ce cas et pourtant l'encens est sanctifié dans les coupes. <b>Et Rabbi Ḥanina dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

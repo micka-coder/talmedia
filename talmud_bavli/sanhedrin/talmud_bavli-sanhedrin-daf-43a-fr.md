@@ -78,4 +78,4 @@ Alors <b>ils ont amené Buni</b> pour qu'il soit jugé. Buni <b>a dit</b> aux ju
 Alors <b>ils ont amené Toda</b> pour qu'il soit jugé. Toda <b>a dit</b> aux juges : <b>Doit-on exécuter Toda ?</b> Mais <b>n'est-il pas écrit : "Un psaume d'action de grâce [<i>toda</i>]"</b> (Psaumes 100, 1) ? <b>Ils lui ont dit : Oui, le Toda sera exécuté, comme il est écrit : "Quiconque égorge une offrande de reconnaissance [<i>toda</i>] m'honore"</b> (Psaumes 50:23).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

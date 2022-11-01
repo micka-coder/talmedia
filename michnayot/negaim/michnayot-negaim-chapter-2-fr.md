@@ -14,5 +14,5 @@ Quelle est [la posture] pour examiner les negaim ? Un homme est inspecté dans l
 ### michna 5
 Tous les negaim peuvent être examinés par une personne, sauf le sien. Rabbi Meir a statué : pas même les negaim de ses proches. Tous les vœux peuvent être libérés par une personne, sauf les siens. Rabbi Juda dit : pas même les vœux de sa femme qui affectent les relations entre elle et les autres. Tous les enfants premiers peuvent être examinés par une personne, sauf les siens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

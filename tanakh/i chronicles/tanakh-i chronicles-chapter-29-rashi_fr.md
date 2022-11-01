@@ -128,4 +128,4 @@
 <b>Et sur tous les royaumes des pays</b> qui sont passés sur Israël. Un exemple de ceci est dans I Samuel (7:10) : "Le Seigneur tonna avec un grand bruit, etc. sur les Philistins et les jeta dans la panique, etc.". Il en est de même pour Josaphat : (II Chron. 20:22) : "Et au moment où ils commencèrent à chanter et à louer, l'Éternel se posa, etc.", et ainsi avec Sannecherib, (Isa. 37:36) : "Et ils se levèrent le matin, et voici qu'ils étaient tous des cadavres." ("Et quand les méchants périssent, il y a des chants" Prov. 11:10).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

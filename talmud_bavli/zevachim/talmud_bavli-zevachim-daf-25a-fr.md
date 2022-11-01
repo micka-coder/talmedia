@@ -39,4 +39,4 @@ La Gemara demande : <b>Et avec quoi essuie-t-il</b> le <b>sang</b> du <b>couteau
 <b>Rav Ḥisda dit</b> que <b>Rav Yirmeya bar Abba dit : Celui qui égorge</b> l'offrande <b>doit placer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

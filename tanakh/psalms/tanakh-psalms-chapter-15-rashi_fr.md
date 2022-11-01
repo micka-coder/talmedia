@@ -20,4 +20,4 @@
 <b>Il ne vacillera pas éternellement</b> S'il vacille, sa vacillation ne sera pas une vacillation permanente, mais il vacillera et remontera.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

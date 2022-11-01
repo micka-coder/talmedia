@@ -60,4 +60,4 @@ La Guemara soulève un dernier défi : <b>N'est-il pas écrit :</b> <b>Les fils 
 <b>Rabbi Shmuel bar Naḥmani a dit</b> que <b>Rabbi Yonatan a dit : Quiconque dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

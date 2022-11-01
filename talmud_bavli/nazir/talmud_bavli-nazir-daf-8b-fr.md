@@ -33,4 +33,4 @@ La Guemara répond : <b>Rabbi Yehouda tient conformément</b> à l'opinion de Ra
 La Guemara cite une autre <i>baraita</i> traitant de ces mêmes expressions : <b>Les Sages ont enseigné : Une maison ronde, une maison à deux côtés</b>, <b>une maison en forme de triangle</b> et <b>une maison en forme de pentagone</b> <b>ne peuvent pas devenir impures avec la lèpre,</b> alors qu'une maison en forme de <b>quadrilatère</b> peut <b>devenir impure avec la lèpre. Quelle est la raison</b> de cette situation ? Dans le verset <b>ci-dessous, il est indiqué,</b> en se référant à <b>un mur,</b> le terme pluriel <b>murs:</b> "Et voici, si la plaie s'est répandue dans les murs de la maison" (Lévitique 14:39). De plus, dans le verset <b>supérieur, il est dit,</b> en se référant à <b>un mur,</b> le terme pluriel <b>murs:</b> "Et voici, si la peste est dans les murs de la maison" (Lévitique 14:37). Ces termes pluriels sont inutiles, et il est donc entendu qu'il y a quatre</b> murs mentionnés <b>ici</b> afin d'indiquer qu'une maison ne peut devenir impure par la lèpre que si elle a quatre côtés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

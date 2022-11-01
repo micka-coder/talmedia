@@ -27,7 +27,7 @@
 Rava demande : <b>Mais</b> ceci a eu lieu à <b>Ashkelon, qui</b> est un lieu <b>où l'autorité des nations du monde est dominante sur elles-mêmes,</b> car c'était une ville de gentils, <b>et il est enseigné:</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Et</b> donc <b>on l'a élevé</b> à nouveau à la prêtrise, car un seul témoin suffit pour annuler la rumeur. <b>Et</b> alors <b>deux</b> témoins <b>sont venus et ont dit : Il est le fils d'une femme divorcée ou le fils d'une <i>ḥalutza</i>, et</b> alors <b>on le déclasse</b> de la prêtrise, car deux témoins annulent le témoignage d'un seul témoin. Puis <b>un</b> témoin <b>est venu et a dit : Je sais qu'il est un prêtre</b> de lignée irréprochable. <b>Et tout le monde est d'accord</b> que les deux témoins uniques <b>s'unissent</b> et constituent deux témoins <b>pour</b> le but de <b>témoignage</b> qu'il est un prêtre de lignée non viciée, et fondamentalement son statut présumé de prêtrise doit être restauré.
 
@@ -56,4 +56,4 @@ Rava demande : <b>Mais</b> ceci a eu lieu à <b>Ashkelon, qui</b> est un lieu <b
 Rava demande : <b>Mais</b> ceci a eu lieu à <b>Ashkelon, qui</b> est un lieu <b>où l'autorité des nations du monde est dominante sur elles-mêmes,</b> car c'était une ville de gentils, <b>et il est enseigné:</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

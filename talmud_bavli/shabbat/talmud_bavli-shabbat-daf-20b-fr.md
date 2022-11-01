@@ -9,4 +9,4 @@ Sur une note similaire, <b>Rav Kahana a dit : Les roseaux qu'on a attachés</b> 
 <b>Rabbi Yoḥanan a dit : Le bois de Babylone ne nécessite pas</b> que la <b>majorité</b> de celui-ci prenne feu. <b>Rav Yosef</b> le bois de Babylone <b>s'enflamme : Quel est ce</b> bois qu'on utilise en Babylonie et qui brûle si bien ? <b>Si vous dites</b> qu'il s'agit du bois <b>des éclats</b> utilisés pour brûler et éclairer, <b>maintenant</b> qu'en ce qui concerne <b>une mèche, Ulla a dit</b> que <b>celui qui l'allume</b> pour une lampe de Chabbat <b>doit allumer la plus grande partie de ce qui sort</b> du récipient ; <b>est-il nécessaire</b> de mentionner en ce qui concerne le bois <b>des éclats</b> que la plus grande partie doit être allumée ? <b>Au contraire, Rav Yosef a dit :</b> Certes, la référence est faite à <b>la branche de</b> un <b>cèdre</b>. Et <b>Rami bar Abba a dit :</b> La référence ici est à une <b>hysope</b> [<b><i>zaza</i></b>].
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

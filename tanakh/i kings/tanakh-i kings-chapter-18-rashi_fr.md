@@ -125,4 +125,4 @@
 <b>Et il se ceignit les reins.</b> [וישנס signifie] la même chose que ויאזור [=et il se ceignit], mais il n'y a pas de mot similaire [dans l'Écriture], et il est venu seulement pour nous enseigner une expression pour agir rapidement, [c'est-à-dire] il était aussi rapide qu'un homme puissant.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

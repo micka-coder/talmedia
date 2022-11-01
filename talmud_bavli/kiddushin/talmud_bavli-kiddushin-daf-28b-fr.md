@@ -33,4 +33,4 @@ La Guemara demande : <b>Et</b> comment explique-t-on la mishna <b>selon</b> l'av
 <b>En quoi la déclaration que l'on fait au Très-Haut équivaut à la cession</b> d'un objet <b>à un homme du peuple ?</b> A l'égard de <b>celui qui dit : Ce bœuf est un holocauste,</b> ou : <b>Cette maison est un bien consacré</b>, le trésor du Temple <b>acquiert</b> ceux-ci <b>même</b> s'ils se trouvent <b>à l'autre <b>extrémité du monde.</b> Il n'y a pas besoin d'un autre acte d'acquisition, car cette seule déclaration est suffisante. Alors que <b>en ce qui concerne un roturier, il n'acquiert pas</b> de propriété de cette manière.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

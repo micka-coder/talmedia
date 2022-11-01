@@ -63,4 +63,4 @@ La Guemara rejette cette idée : <b>Non. Selon</b> l'avis <b>de Rabban Shimon be
 <b>Lorsque Ravin est venu</b> d'Eretz Yisrael, il a dit que <b>Rabbi Yoḥanan dit</b> une interprétation différente de la dispute : <b>La première clause,</b> où Rabbi Meir juge qu'un plaideur peut disqualifier un juge,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

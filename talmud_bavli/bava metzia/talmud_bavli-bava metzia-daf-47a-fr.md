@@ -54,4 +54,4 @@ En ce qui concerne la phrase <b>"Pour confirmer toutes les choses ; un homme a r
 <b>Rav Sheshet, fils de Rav Idi, a dit : Conformément à l'avis de qui</b> <b>on écrit aujourd'hui</b> dans les documents que la transaction a été effectuée <b>avec un navire apte à acquérir</b> des objets <b>avec lui ?</b> La Gemara explique : Le terme <b>avec un navire</b> sert <b>à exclure</b> l'opinion <b>du Rav Sheshet,</b> qui <b>dit : On acquiert</b> un objet par une transaction d'échange symbolique <b>en</b> utilisant des <b>produits.</b> Le terme <b>qui convient</b> sert <b>à exclure</b> l'opinion <b>de Shmuel, qui dit : On acquiert</b> un objet
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

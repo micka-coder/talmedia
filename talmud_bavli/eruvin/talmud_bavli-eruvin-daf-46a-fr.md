@@ -60,4 +60,4 @@ La Guemara commente : <b>Quel est</b> le sens de : <b>Après qu'il se soit souve
 De là, la Guemara déduit : <b>C'est</b> seulement <b>en ce qui concerne les pratiques de deuil</b> <b>que les Sages étaient indulgents, mais en général,</b> en ce qui concerne les autres domaines de la <i>halakha</i>, <b>même dans le cas des lois rabbiniques</b> <b>il y a une différence</b> entre un désaccord d'une <b>autorité unique</b> <b>avec une seule</b> autorité et un désaccord d'une <b>autorité unique</b> <b>avec plusieurs</b> autorités. Ceci étant, Rabbi Yehoshua ben Levi a bien fait de statuer explicitement que la <i>halakha</i> est conforme à l'opinion de Rabbi Yoḥanan ben Nuri, même s'il s'agit d'une seule autorité qui a statué avec indulgence en désaccord avec les sages.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

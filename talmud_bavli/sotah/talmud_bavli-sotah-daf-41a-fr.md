@@ -75,4 +75,4 @@ La Guemara répond : Tous ces détails <b>sont nécessaires, car, si le Miséric
 <b>Et si le Miséricordieux avait écrit</b> seulement : <b>"Dans la fête de <i>Sukkot</i>, j'aurais dit</b> que cela pouvait faire référence <b>même</b> au <b>dernier</b> jour de la <b>Fête.</b> Par conséquent, <b>Le Miséricordieux</b> écrit aussi <b> : "Quand tout Israël viendra"</b> (Deutéronome 31:11),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara demande : <b>Si c'est le cas, dites la dernière clause</b> de la mis
 La Guemara demande : Si le chameau <b>s'est tenu</b> sans bouger d'un endroit à l'autre, mais qu'il a déplacé la charge sur son dos et a ainsi <b>allumé</b> tout le bâtiment, <b>d'autant plus</b> qu'il devrait être <b>exempté</b> de toute responsabilité <b>et le propriétaire du</b> <b>chameau</b> devrait être <b>responsable,</b> car il lui incombait d'éloigner le chameau de cet endroit. <b>Rav Huna bar Manoah a dit au nom de Rav Ika : De quoi s'agit-il ici ? </b> Nous avons affaire à un cas <b>où le chameau <b>est resté</b> immobile pour <b>uriner</b> et en le faisant a mis le feu au bâtiment ; dans ce cas, l'incident est considéré comme un accident car le propriétaire n'aurait pas pu déplacer le chameau de l'endroit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

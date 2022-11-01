@@ -48,4 +48,4 @@
 <b>Qu'ils égorgent la chair et la mangent</b> Pourquoi ai-je besoin qu'ils les apportent ? Qu'ils égorgent afin d'avoir de la chair à manger et qu'ils les mangent, car je ne les désire pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

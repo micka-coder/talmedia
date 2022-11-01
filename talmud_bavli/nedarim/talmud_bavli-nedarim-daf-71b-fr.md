@@ -9,4 +9,4 @@ La Gemara répond : <b>Beit Shammai soutient : Même</b> en ce qui concerne les 
 La Gemara demande : <b>Quelle est</b> la <b>différence</b> entre ces deux possibilités ? De toute façon, il n'a pas annulé son vœu avant le divorce, et une fois qu'il a divorcé d'elle, il ne peut plus le faire. La Guemara répond : Il y a une différence <b>dans</b> un cas <b>où elle a fait un vœu, et son mari a entendu</b> le vœu, <b>et a divorcé, et il s'est remarié le même jour. Si le Maître dit</b> que le divorce est <b>comme le silence,</b> le mari <b>peut</b> maintenant <b>annuler</b> le vœu <b>pour elle,</b> puisque c'est le même jour. <b>Mais si le Maître dit</b> que le divorce est <b>comme une ratification, il ne peut pas annuler</b> le vœu <b>pour elle,</b> puisqu'il l'a ratifié en divorçant.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

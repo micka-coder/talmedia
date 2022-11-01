@@ -42,4 +42,4 @@ Un Sage <b>enseignant</b> dans une <i>baraita</i> : De même qu'un bailli peut �
 <b>Rav Naḥman dit</b> que <b>Rav dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Yehuda ben Teima. Rav Naḥman bar Yitzḥak a dit : La mishna est également précisément</b> formulée conformément à cette opinion, <b>car elle enseigne :</b> En ce qui concerne <b>toute</b> condition <b>qu'il peut finalement remplir, et qu'il a stipulée à son égard initialement, sa condition est valide.</b> Cela indique que si <b>il ne peut pas la remplir, sa condition est nulle.</b> La Gemara affirme : On peut <b>apprendre de cette formulation</b> que la mishna non attribuée représente en fait l'opinion de Rabbi Yehuda ben Teima.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -12,4 +12,4 @@ De même, ils ont rendu <b>celui qui</b> s'engage <b>intentionnellement</b> dans
 La Guemara conclut : Il <b>a été déterminé</b> que <b>celui qui</b> s'engage dans un rapport sexuel <b>intentionnel ou s'engage</b> dans la <b>étape initiale du rapport sexuel avec</b> une <b>servante épousée est comme celui qui</b> le fait <b>inintentionnellement avec tous ceux avec qui les relations sont interdites,</b> ce qui signifie qu'il est exempt. De même, <b>celui qui</b> a des rapports sexuels avec une <b>servante épousée <b>de manière typique</b> pendant qu'il <b>dort est comme celui qui</b> le fait, pendant qu'il <b>dort, avec</b> tous <b>ceux</b> d'autres <b>avec qui les relations sont interdites,</b> et il est de même exempt. En outre, il a également été <b>déterminé</b> que <b>celui qui</b> a des rapports <b>atypiques</b> <b>avec</b> une <b>servante</b> épousée alors qu'il est <b>éveillé est comme celui qui</b> le fait <b>avec tous ceux avec qui les rapports sont interdits, alors qu'il dort,</b> et il est également exempt.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

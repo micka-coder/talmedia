@@ -45,4 +45,4 @@ La Guemara explique : La question <b>est dérivée</b> au moyen d'une analogie v
 § <b>Rava bar Adda dit</b> que <b>Rabbi Yitzḥak dit :</b> En ce qui concerne les <b>premiers fruits,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

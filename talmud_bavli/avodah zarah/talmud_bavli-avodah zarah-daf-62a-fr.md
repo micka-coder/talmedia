@@ -21,4 +21,4 @@ La Gemara demande : <b>Qu'est-ce que ça veut dire quand on dit que <b>leur sala
 <b>Abaye a dit : En fait,</b> la déclaration de Rabbi Yoḥanan doit être interprétée comme disant que <b>on lui donne</b> son <b>salaire provenant de la <b>production de l'année sabbatique</b>. Et</b> quant à <b>ce qui</b> semble vous <b>poser une difficulté,</b> que le verset désigne ces produits <b>"pour la nourriture" mais pas pour le commerce,</b> cela peut être résolu en expliquant <b>qu'on lui donne</b> son salaire <b>de manière permise,</b> c'est-à-dire comme un don plutôt que comme un salaire. C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Ma'aser Sheni</i> 3:1) que <b>une personne ne doit pas dire à une autre:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

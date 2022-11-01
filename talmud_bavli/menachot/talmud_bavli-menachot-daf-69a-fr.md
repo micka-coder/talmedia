@@ -48,4 +48,4 @@ La Gemara explique : <b>Non;</b> il est <b>nécessaire</b> de soulever le dilemm
 La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> de soulever ce dilemme dans un cas <b>où</b> l'éléphant avait <b>avalé</b> des bouts de <b>feuilles de palmier [<i>hutzin</i>]</b> entiers, <b>et</b> après que les feuilles aient été excrétées <b>on en a fait</b> un <b>panier d'osier égyptien.</b> Le dilemme est le suivant : <b>Est-ce que cela est considéré comme de la <b>digestion,</b> et donc le panier préparé à partir des feuilles <b>est</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

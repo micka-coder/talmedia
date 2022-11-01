@@ -54,4 +54,4 @@ En outre, <b>une femme peut laver</b> ses cheveux <b>le premier</b> jour <b>de l
 <b>Rav Adda dit à Rav Ḥinnana de Sura : N'y a-t-il</b> pas eu un <b>incident</b> comme <b>celui de la femme d'Abba Mari, l'Exilarque, qui s'est disputée</b> avec son mari, et par conséquent, elle ne voulait pas s'immerger dans un bain rituel pour lui être permise ; et <b>Rav Naḥman bar Yitzḥak est allé l'apaiser</b> et la persuader de s'immerger, <b>et elle lui a dit : Qu'y a-t-il</b> qui puisse être fait <b>maintenant ?</b> Il n'y a aucune raison pour que je me dépêche de m'immerger maintenant.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

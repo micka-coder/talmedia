@@ -39,4 +39,4 @@ La Guemara cite une histoire connexe : <b>Les Sages ont enseigné : Il y eut un 
 Néanmoins, Rabbi Meir <b>se saisit de lui</b> et <b>l'emmena dans la salle d'étude.</b> <i>Aḥer</i> <b>Dit à un enfant,</b> par voie de divination : <b>Recite-moi ton verset</b> que tu as étudié aujourd'hui. Il récita</b> le verset suivant <b>à lui : "Il n'y a pas de paix, dit le Seigneur, concernant les méchants"</b> (Isaïe 48:22). <b>Il l'a amené dans une autre salle d'étude.</b> <i>Aḥer</i> <b>Dit à un enfant : Récite-moi ton verset. Il lui a récité : <b>Car bien que tu te laves avec du nitre, et que tu prennes pour toi beaucoup de savon, ton iniquité est marquée devant Moi</b> (Jérémie 2:22). <b>Il l'a amené dans une autre salle d'étude.</b> <i>Aḥer</i> <b>Dit à</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

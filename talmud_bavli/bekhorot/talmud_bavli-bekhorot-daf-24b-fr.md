@@ -24,4 +24,4 @@ Et Aḥai le Distingué s'est également enquis <b>à propos de</b> si l'animal 
 Rav Huna <b>leur dit : Allez</b> et <b>demandez</b> le disciple du Rav, <b>Rav Ḥananel,</b> et <b>si</b> le Rav a en effet <b>dit que la <i>halakha</i> est conforme</b> à l'avis du <b>Rabbi Yosei ben HaMeshullam, je vous expliquerai</b> la résolution de votre dilemme. <b>Ils sont allés</b> et ont <b>demandé</b> Rav Ḥananel, et <b>il leur a dit</b> que <b>voici ce que dit Rav :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Yosei ben HaMeshullam. Ils sont venus devant Rav Huna,</b> et <b>il leur a dit :</b> Dans <b>le cas parallèle</b> de celui qui souhaite abattre un animal non sacré <b>à l'occasion d'une Fête,</b> il est <b>permis</b> d'arracher le poil afin de faciliter un abattage correct. <b>Il a également été indiqué</b> que <b>Rav Ḥananya bar Shelamya dit au nom du Rav :</b> Dans <b>le cas parallèle</b> de celui qui souhaite abattre un animal non sacré <b>lors d'une Fête,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

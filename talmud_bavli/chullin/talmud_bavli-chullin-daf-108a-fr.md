@@ -36,4 +36,4 @@ La Guemara développe : <b>Comme il a été dit : Rav et Rabbi Ḥanina et Rabbi
 La Gemara demande : <b>Et Rav</b> soutient-il réellement</b> qu'un objet <b>qui peut être essoré</b> pour enlever la substance interdite est <b>interdit ? Mais n'a-t-on pas dit :</b> Si <b>une olive-bulle de viande est tombée dans un pot de lait</b> si grande que la viande ne lui a pas communiqué de saveur, <b>Rav dit :</b> La <b>viande est interdite,</b> car elle a absorbé le goût du lait, <b>mais</b> le <b>lait est permis,</b> car il n'a pas absorbé le goût de la viande. <b>Mais s'il vous vient à l'esprit</b> que selon Rav un objet <b>qui peut être essoré est interdit,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

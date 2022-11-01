@@ -60,4 +60,4 @@ La Guemara commente : <b>C'est enseigné</b> dans une <i>baraita</i> <b>conforme
 <strong>GEMARA :</strong> <b>Il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 3:16) : <b>Rabbi Yosei leur dit : Mais n'est-il pas déjà dit : "Et votre péché,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

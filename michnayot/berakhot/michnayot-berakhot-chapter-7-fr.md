@@ -15,4 +15,4 @@ Trois personnes qui mangent ensemble n'ont pas le droit de se séparer, et ainsi
 Lorsque deux groupes mangent ensemble dans une même maison, au moment où certains d'entre eux se voient, ils peuvent se réunir, et sinon, ceux-ci se réunissent entre eux et ceux-là entre eux. La bénédiction sur le vin ne peut être prononcée que si l'on y ajoute de l'eau. Ce sont les mots de Rabbi Eliezer, et les Sages disent qu'ils peuvent bénir.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

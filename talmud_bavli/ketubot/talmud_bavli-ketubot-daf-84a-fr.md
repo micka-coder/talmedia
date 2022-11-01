@@ -54,4 +54,4 @@ La Guemara commente : Cette discussion est <b>comme</b> une dispute entre <b><i>
 § La mishna a enseigné que si le mari <b>laisse</b> derrière lui des <b>produits qui ont été détachés,</b> le prétendant qui s'en empare en premier les acquiert, et qu'il y a un différend sur ce qu'il faut faire avec le surplus. La Gemara demande : <b>Et</b> selon <b>Rabbi Akiva, pourquoi</b> discuter <b>spécifiquement</b> ce cas du <b>surplus ? L'ensemble</b> du produit, et pas seulement le surplus, <b>appartient également</b> aux <b>héritiers,</b> car il considère que la totalité du bien revient aux héritiers, même si les autres en ont pris possession en premier. La Gemara répond : <b>Oui, il en est bien ainsi.</b> Certes, Rabbi Akiva ne fait pas de distinction entre un dépôt et un produit détaché, <b>mais puisque Rabbi Tarfon a parlé</b> d'un <b>surplus, il a également enseigné</b> sa <i>halakha</i> à l'égard d'un <b>surplus.</b> Cependant, selon Rabbi Akiva, la <i>halakha</i> est la même à l'égard d'un produit détaché.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

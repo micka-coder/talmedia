@@ -45,4 +45,4 @@ La Gemara répond : <b>Non,</b> la déclaration de Shmuel est <b>nécessaire</b>
 La Gemara <b>souleve une objection</b> d'une <i>baraïta</i> : A l'égard de celui qui dit : Il m'incombe <b>sur moi</b> d'apporter <b>l'offrande de péché ou l'offrande de culpabilité d'untel,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

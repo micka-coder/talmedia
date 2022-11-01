@@ -42,4 +42,4 @@ La Gemara demande : On peut apprendre par déduction que si cette incertitude s'
 La Guemara répond : Bien qu'une aiguille n'ait pas de connaissance à demander, elle est néanmoins impure <b>en raison</b> du fait <b>que</b> son incertitude <b>est une incertitude</b> par rapport à l'<b>impureté qui survient</b> par l'intermédiaire d'une personne.</b> Le couteau n'est pas entré en contact avec l'aiguille de lui-même ; au contraire, une personne tenait le couteau. <b>Et Rabbi Yoḥanan a énoncé</b> un autre principe : Dans un cas d'<b>incertitude</b> concernant l'<b>impureté qui survient</b> par l'intermédiaire d'une personne,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

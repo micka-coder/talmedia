@@ -54,4 +54,4 @@ La Guemara rejette également cette suggestion : <b>Qu'y a-t-il de remarquable</
 La Guemara <b>souleve une objection</b> à l'opinion de Rabbi Yoḥanan à partir d'une <i>baraita</i>. <b>Rabbi Yehuda ben Beteira dit : D'où</b> provient-il <b>que si des Gentils entouraient la <b>cour</b> du Temple et tiraient des projectiles à l'intérieur au point qu'il devenait impossible de rester dans la cour en raison de la menace, <b>les prêtres entrent dans le Sanctuaire et prennent part aux offrandes de l'ordre le plus sacré et aux restes</b> des <b>offrandes de repas</b> pendant qu'ils sont dans le Sanctuaire ? <b>Le verset stipule :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

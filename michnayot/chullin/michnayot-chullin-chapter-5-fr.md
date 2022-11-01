@@ -14,5 +14,5 @@ Si une personne a abattu [un animal] et qu'il s'est avéré qu'il s'agissait de 
 ### michna 5
 Le "jour" mentionné en rapport avec la loi de "l'animal et ses petits" signifie le jour et la nuit qui le précèdent. C'est ainsi que Rabbi Shimon ben Zoma a expliqué (darash) : il est dit "un jour" (Genèse 1:5) en rapport avec la création et il est également dit "un jour" (Lévitique 22:28) en rapport avec "elle et ses petits". Tout comme le "un jour" mentionné en rapport avec la création signifie le jour et la nuit qui le précèdent, de même le "un jour" mentionné en rapport avec "elle et ses petits" signifie le jour et la nuit qui le précèdent.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

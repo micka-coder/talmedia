@@ -57,4 +57,4 @@
 <b>et...d'un rocher</b> Il les a rassasiés de miel lorsqu'ils ont suivi Ses voies, selon ce qui est dit (Deut. 32:13) : "Il les a allaités avec du miel du rocher."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara dit : Si c'est le cas, <b>doit-on dire</b> que ceci <b>est une réfut
 La Guemara répond que <b>Rav Huna</b> aurait pu <b>vous dire : De quoi s'agit-il ici,</b> dans la <i>baraita</i> qui juge qu'on est responsable d'une offrande de culpabilité qui n'a pas été égorgée pour son bien ? Nous avons affaire à un cas <b>où l'on <b>séparait deux offrandes de culpabilité à titre de garantie,</b> afin que l'expiation soit réalisée par le sacrifice de la seconde si la première était perdue, mais avant que le moment opportun n'arrive, il en a égorgé une comme holocauste plutôt que comme offrande de culpabilité. Dans ce cas, il y aurait responsabilité pour l'abattage hors de la cour, comme c'est le cas pour celui qui égorge un holocauste hors de la cour, <b>puisque l'un d'eux,</b> c'est-à-dire celui qui n'effectuera pas l'expiation, <b>est un holocauste dès le départ.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

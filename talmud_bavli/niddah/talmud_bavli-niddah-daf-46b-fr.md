@@ -57,4 +57,4 @@ Ces deux expressions de possession indiquent que le peuple juif a eu <b>une prem
 La Guemara répond que <b>Rabbi Yosei a enseigné</b> <i>Seder Olam</i> <b>mais il ne maintient pas</b> conformément à <b>son</b> jugement ici. La Gemara ajoute : <b>Aussi, il est raisonnable</b> qu'il en soit ainsi, <b>comme cela est enseigné</b> dans une <i>baraita</i> : En ce qui concerne la <b>pâte non sacrée qui s'est mélangée</b> avec la pâte de <i>teruma</i>, <b>ou qui a été levée avec du levain de <i>teruma</i>,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

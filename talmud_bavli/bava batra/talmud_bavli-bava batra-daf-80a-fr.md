@@ -21,4 +21,4 @@ La Guemara demande : <b>Qu'est-ce qui est différent</b> chez <b>la mère</b> po
 La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> : <b>Le miel dans une ruche n'est pas</b> considéré comme ayant le statut de <b>aliment ou liquide</b> en ce qui concerne l'impureté rituelle. <b>Abaye a dit :</b> Cette <i>halakha</i>, que le miel est considéré comme n'étant ni un aliment ni un liquide, <b>n'est nécessaire qu'en ce qui concerne</b> ces deux rayons</b> mentionnés dans la mishna, qui sont désignés pour la subsistance des abeilles et ne sont pas destinés à la consommation humaine. <b>Rava dit :</b> La <i>baraita</i> <b>est</b> conforme à l'avis <b>de Rabbi Eliezer.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

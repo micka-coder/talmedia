@@ -27,7 +27,7 @@
 <b>Et il arriva que lorsque Nabuchodonosor...monta</b> Perforce nous sommes arrivés à la ville. C'est pourquoi, nous habitons maintenant dans des maisons.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -56,4 +56,4 @@
 <b>Et il arriva que lorsque Nabuchodonosor...monta</b> Perforce nous sommes arrivés à la ville. C'est pourquoi, nous habitons maintenant dans des maisons.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

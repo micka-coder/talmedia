@@ -57,4 +57,4 @@ La Gemara relate : <b>Rav Sheshet avait un crédit [<i>asharta</i>] de manteaux 
 La Gemara relate en outre : <b>Rabbi Aḥai, fils de Rabbi Yoshiya, avait un récipient d'argent [<i>ispeka</i>] dans</b> la ville de <b>Neharde'a.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

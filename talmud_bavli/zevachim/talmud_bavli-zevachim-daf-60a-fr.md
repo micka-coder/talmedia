@@ -45,4 +45,4 @@ La Guemara poursuit : <b>Nous avons trouvé</b> une source pour cette <i>halakha
 La Gemara poursuit : <b>D'où vient</b> que cette <i>halakha</i> s'applique également aux <b>offrandes de moindre sainteté ? Abaye répond :</b> Il est <b>dérivé de l'exposé de Rabbi Yosei, tel qu'il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yosei dit trois</b> questions halakhiques <b>au nom de</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

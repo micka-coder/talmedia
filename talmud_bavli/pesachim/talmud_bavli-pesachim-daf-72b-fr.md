@@ -81,4 +81,4 @@ Cette comparaison peut cependant être rejetée, car <b>peut-être</b> ce cas do
 La Guemara remet en question ce qui a été énoncé ci-dessus : <b>Et où le <i>teruma</i> est-il appelé service ?</b> La Gemara explique : <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant Rabbi Tarfon, qui ne venait pas le soir à la salle d'étude. Le matin, Rabban Gamliel le trouva</b> et lui <b>dit : Pour quelle</b> raison <b>n'es-tu pas venu le soir à la salle d'étude ? Il lui répondit : J'accomplissais</b> un <b>service sacré. Il lui dit : Toutes tes paroles sont étonnantes ; d'où</b> avons-nous le <b>service en ce temps</b> après la destruction du Temple ? <b>Il lui dit : Il est dit</b> dans l'Écriture :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

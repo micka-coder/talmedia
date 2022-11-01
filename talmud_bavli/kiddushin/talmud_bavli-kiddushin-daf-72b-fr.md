@@ -45,4 +45,4 @@ La Guemara commente : <b>Grâce, selon Rabbi Meir,</b> qui soutient que les <i>m
 <b>Les Sages ont enseigné</b> (<i>Tosefta</i> 5:3) : <b>Un converti peut épouser une <i>mamzeret</i></b> <i>ab initio</i> ; c'est <b>la déclaration de Rabbi Yosei. Rabbi Yehuda dit : Un converti ne peut épouser une <i>mamzeret</i>. Un converti, un esclave émancipé, et un <i>ḥalal</i> sont</b> tous <b>permis de</b> se marier avec <b>la fille d'un prêtre.</b> La Guemara demande : <b>Quelle est la raison de Rabbi Yosei,</b> qui juge permis à un converti d'épouser une <i>mamzeret</i> ? La Guemara répond : <b>Cinq congrégations sont écrites,</b> ce qui signifie que le mot congrégation apparaît cinq fois dans la Torah à propos de diverses personnes de lignée viciée qui sont interdites d'entrer dans la congrégation de Dieu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Accordé, selon Rabbi Yirmeya, qui n'interprète pas</b> 
 La Gemara clarifie : <b>Mais lorsque ce</b> verset <b>est écrit, n'est-il pas écrit à propos</b> d'un animal casher premier-né, qui a une <b>sainteté inhérente,</b> contrairement à un âne premier-né ? <b>Parce qu'il est dit</b> à propos d'un animal casher : <b>"Les mâles seront au Seigneur"</b>, cela sert de base à la <i>halakha</i> à propos du premier-né d'un animal non casher que les deux mâles peuvent être considérés comme premiers-nés. Si tel est le cas, <b>la réfutation</b> de l'opinion de <b>Abaye</b> est en fait <b>une réfutation concluante,</b> et la mishna est en accord avec l'opinion des rabbins, et non celle de Rabbi Yosei HaGelili.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

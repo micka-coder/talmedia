@@ -45,4 +45,4 @@ La Guemara répond : Même selon Rabbi Yoḥanan, les deux clauses sont nécessa
 § La mishna enseigne : Si <b>il y avait deux ensembles de témoins</b> qui ont prêté le serment de témoignage, et que <b>le premier</b> ensemble <b>nie</b> la connaissance de l'affaire <b>et que par la suite, le second</b> ensemble <b>nie</b> la connaissance de l'affaire, les deux ensembles de témoins sont responsables. La Gemara demande : <b>Accordé,</b> le <b>second</b> ensemble <b>serait tenu pour responsable, car</b> puisque <b>le premier</b> ensemble <b>a nié</b> la connaissance de l'affaire, la capacité du plaignant à percevoir sa créance monétaire dépend exclusivement du second ensemble, et leur déni a causé sa perte. <b>Mais pourquoi</b> le <b>premier</b> ensemble est responsable ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

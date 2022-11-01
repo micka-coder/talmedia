@@ -48,4 +48,4 @@ La Gemara demande : Il <b>est évident</b> que c'est le cas, car <b>nous avons a
 <b>Rabbi Zeira a dit : </b> Ce <b>dispute</b> s'applique à un cas où la condition a été écrite dans l'acte de divorce <b>avant que la partie essentielle</b> ne soit écrite, <b>Comme Rabbi</b> Yehuda HaNasi <b>tient</b> que <b>on émet un décret</b> que <b>une stipulation</b> invalide l'acte de divorce <b>en raison</b> d'un cas d'<b>exception, et les rabbins tiennent</b> que <b>on n'émet pas un décret</b> que <b>une stipulation</b> l'invalide <b>en raison</b> d'un cas d'<b>exception. Mais</b> si elle a été écrite <b>après la partie essentielle</b>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

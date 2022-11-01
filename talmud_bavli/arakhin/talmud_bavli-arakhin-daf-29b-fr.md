@@ -39,4 +39,4 @@ Rav Anan poursuit : En ce qui concerne <b>une</b> de ces <i>halakhot</i>, Shmuel
 <b>Rav Yosef a dit : Voyons</b> s'il est possible de résoudre le dilemme de Rav Anan. Il peut être résolu <b>à partir de ce qui est enseigné dans une <i>baraita</i> :</b> Dans le cas de <b>celui qui vend son esclave à</b> un juif <b>en dehors d'Eretz</b> Yisraël, l'esclave <b>est émancipé mais</b> néanmoins <b>demande un acte de manumission à son second maître. Concluez de</b> la <i>baraita</i> comme suit : <b>Puisque</b> le <i>baraita</i> <b>appelle le second</b> propriétaire le <b>maître de l'esclave,</b> et lui demande d'émanciper l'esclave, <b>évidemment la vente n'est pas rétractée,</b> et l'acheteur perd son argent. <b>Et</b> donc, <b>lorsque Shmuel dit ici</b> que le champ <b>n'est pas vendu</b> pendant l'année jubilaire, il veut dire que la vente ne prend pas effet <b>et l'argent est rendu</b> à l'acheteur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

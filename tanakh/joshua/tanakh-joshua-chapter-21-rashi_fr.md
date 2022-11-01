@@ -41,4 +41,4 @@
 <b>et leurs espaces ouverts autour d'elle.</b> Deux mille <i>amos</i> de chaque côté.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ On raconte qu'Hérode <b>a conservé</b> le corps de la jeune fille <b>dans du m
 Hérode se dit : <"Qui explique" le verset : <b>"Un d'entre tes frères que tu établiras comme roi sur toi"</b> (Deutéronome 17:15) comme signifiant que celui qui est nommé roi doit être issu d'une famille juive et ne peut être un esclave émancipé ou un converti ? Ce sont <b>les Sages</b> qui exposent le verset de cette manière, insistant sur le fait qu'un roi doit avoir des racines juives. <b>Il</b> se leva alors <b>et tua tous les Sages,</b> mais <b>il épargna Bava ben Buta pour qu'il prenne conseil auprès de lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

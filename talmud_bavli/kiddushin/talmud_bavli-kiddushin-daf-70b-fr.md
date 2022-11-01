@@ -48,4 +48,4 @@ Le verset de Jérémie se termine par les mots <b>"Et ils seront mon peuple". Ra
 <b>Rabbi Ḥama bar Ḥanina dit : Lorsque le Saint, Béni soit-Il,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

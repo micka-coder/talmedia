@@ -21,4 +21,4 @@ Les <i>tanna'im</i> ne sont pas d'accord quant à l'étendue de cette <i>halakha
 La Gemara demande : <b>Mais</b> cette <i>halakha</i> est-elle <b>dérivée d'ici ? Elle est dérivée de là, comme il est enseigné</b> dans une <i>baraita</i> : <b>D'où</b> est dérivé <b>que si ceux qui ont bu du vin ont accompli</b> des <b>rites sacrificiels, ils ont profané</b> le service ? <b>Le verset dit</b> à propos des prêtres : <b>"Ne buvez pas de vin ni de boisson forte,</b> vous, ni vos fils avec vous, lorsque vous entrez dans la Tente de la Rencontre, afin de ne pas mourir ; ce sera une loi pour toujours, de génération en génération. <b>Afin que tu fasses la différence entre ce qui est saint et ce qui est commun"</b> (Lévitique 10:9-10). La <i>baraita</i> continue : En ce qui concerne <b>celui qui n'a pas</b> les <b>investissements requis et celui dont les mains et les pieds ne sont pas lavés, d'où</b> vient que leurs rites sont également disqualifiés ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

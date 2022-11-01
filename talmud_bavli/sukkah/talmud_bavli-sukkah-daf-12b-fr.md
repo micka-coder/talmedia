@@ -21,4 +21,4 @@ Rabba bar bar Ḥana a ajouté : <b>Et</b> lorsque Rabbi Yoḥanan a utilisé le
 § <b>Rav Yehuda a dit :</b> En ce qui concerne <b>ces</b> larges feuilles de <b>réglisse et d'absinthe</b>, <b>on</b> peut <b>couvrir sa <i>sukka</i> avec elles,</b> car elles ne sont pas consommées par les gens. Leur statut juridique est celui de toute autre plante ; elles ne sont pas susceptibles d'impureté rituelle. <b>Abaye a dit : Avec des feuilles de réglisse</b>, <b>quelqu'un</b> peut <b>toïter</b> sa <i>sukka</i> ; <b>avec des feuilles d'absinthe</b>, <b>quelqu'un</b> peut <b>ne pas toïter</b> sa <i>sukka</i>. <b>Quelle est la raison</b> de cette distinction ? <b>Puisque</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

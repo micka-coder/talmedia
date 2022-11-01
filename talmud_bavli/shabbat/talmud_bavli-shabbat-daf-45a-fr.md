@@ -27,4 +27,4 @@ La Gemara cherche à clarifier : <b>À qui appartient l'avis</b> dans la <i>bara
 Sur le même sujet : <b>Rabbi Shimon bar Rabbi</b> Yehuda HaNasi, <b>souleva un dilemme devant</b> son père, <b>Rabbi</b> Yehuda HaNasi :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara propose une solution alternative au problème du chevauchement des ni
 § La Gemara considère une autre mishna qui se rapporte à la structure d'une catacombe : <b>Nous avons appris</b> dans une mishna <b>là</b> (<i>Nazir</i> 64b) : En ce qui concerne <b>celui qui trouve un cadavre</b> alors qu'il inspecte un lieu qui n'a pas été préalablement établi comme cimetière, pour s'assurer qu'il est exempt d'impureté rituelle, et que le cadavre est <b>couché</b> de la <b>manière habituelle</b> de la sépulture juive, <b>il l'enlève</b> de là <b>et</b> enlève également <b>sa terre environnante</b>. Et de même, s'il trouve <b>deux</b> cadavres enterrés de la manière habituelle, <b>il les enlève ainsi que la terre qui les entoure</b>. Puisqu'on n'a trouvé qu'un ou deux cadavres, on peut supposer que l'endroit n'est pas un cimetière ; par conséquent, on peut enlever les cadavres.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

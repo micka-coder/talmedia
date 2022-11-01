@@ -42,4 +42,4 @@ La Gemara demande : <b>Mais dit-il</b> son opinion seulement <b>lorsque</b> l'of
 Il est évident que Ravina a compris que la qualification de Rav Naḥman était vraie même selon Rabbi Yosei HaGelili. Par conséquent, la Guemara demande : <b>Et s'il est vrai que lorsque Rabbi Yosseï HaGelili a dit</b> qu'une offrande de moindre sainteté <b>est la propriété de</b> son propriétaire, cela ne faisait référence qu'à une situation <b>quand</b> ils sont encore <b>vivants,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

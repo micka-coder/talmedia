@@ -136,5 +136,5 @@
 ### passuk 35
 <b>Ils l'ont tué.</b> Moshé l'a tué, comme le précise le Berahot, dans [le chapitre de] Haroeh. Il déracina une montagne de trois <i>parsaos</i> de long, etc. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Rava explique : <b>Accordé, si l'on dit</b> la naissance <b>compte</b> dans les
 <b>Et Abaye</b> pouvait répondre : <b>Un</b> verset traite du cas <b>d'un <i>zav</i> et</b> l'autre <b>un</b> traite du cas <b>d'un <i>zava</i>, et</b> les deux versets <b>sont nécessaires. Comme, si le Miséricordieux avait écrit</b> .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

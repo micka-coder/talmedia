@@ -75,4 +75,4 @@ La Gemara demande : <b>Qui sont</b> ces <b>communs ? Rav Ḥisda dit : Les Samar
 Le <i>baraita</i> poursuit : <b>Pour ce qui est de Moïse</b> le verset <b>déclare : "Et le Seigneur m'a ordonné en ce temps-là de vous enseigner des lois et des ordonnances"</b> (Deutéronome 4:14), et <b>en ce qui concerne Esdras</b> le verset <b>établit : "Car Esdras avait mis son cœur à rechercher la Torah du Seigneur son Dieu et à la mettre en pratique, et à enseigner en Israël des lois et des ordonnances"</b> (Esdras 7:10). <b>Et même si</b> la <b>Torah n'a pas été donnée</b> littéralement <b>par lui, l'écriture</b> de la Torah <b>a été modifiée par lui, comme il est dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

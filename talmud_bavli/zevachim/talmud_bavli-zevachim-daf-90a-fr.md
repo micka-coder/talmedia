@@ -57,4 +57,4 @@ La lecture directe de cette <i>baraita</i> contredit l'affirmation de la <i>bara
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une autre <i>baraita</i> qui contredit apparemment ce principe. Lorsqu'il y a différentes offrandes animales à sacrifier, <b>les bulls précèdent les béliers, et les béliers précèdent les moutons,</b> et les <b>moutons</b> précèdent les <b>chèvres mâles.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

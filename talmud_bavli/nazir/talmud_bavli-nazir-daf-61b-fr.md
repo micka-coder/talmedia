@@ -33,4 +33,4 @@ La Gemara offre une autre suggestion : Mais on peut encore soutenir que "les enf
 La Guemara propose une autre suggestion : Mais on peut toujours soutenir que "les enfants d'Israël" exclut un Gentil de certains aspects seulement de la naziréité, car on peut <b>dire</b> que cette phrase enseigne que <b>"les enfants d'Israël" peuvent se raser</b> et se couper les cheveux <b>par</b> les moyens des offrandes de <b>la naziréité de leurs pères, mais les gentils ne peuvent pas se raser</b> et se couper les cheveux <b>par</b> les moyens de <b>la naziréité de leurs pères. </b> En d'autres termes, si le père d'un naziréen, qui était lui-même naziréen, est décédé après avoir séparé ses offrandes naziréennes, le fils peut apporter ces offrandes à la fin de sa propre naziréité.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

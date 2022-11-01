@@ -61,4 +61,4 @@
 <b>Comme un aigle</b> - Comme le <i>Targum</i> le rend. Comme un aigle, dont les plumes sont tombées. Il est d'usage qu'un aigle perde la plupart de ses plumes. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La <i>Tosefta</i> ajoute : <b>Dans quel</b> cas cette déclaration est-elle dite
 Rabbi Eliezer ben Ya'akov <b>lui dit : Non,</b> on peut faire une distinction entre ces deux cas : <b>Si tu dis</b> qu'il est obligé de payer <b>dans</b> un cas de <b>teruma</i> impur le reste des jours de l'année, que bien qu'il ne soit pas permis d'en manger, </b> le prêtre <b>est</b> néanmoins <b>permis de le brûler</b> et de tirer profit de la chaleur générée à la suite de cette combustion, <b>doit-on dire</b> la même chose <b>en ce qui concerne ce,</b> <i>teruma</i> de pain levé pendant la Pâque, <b>qui n'est pas autorisé à être mangé ou brûlé ? </b> Rabbi Elazar Ḥisma <b>lui répondit : Même</b> <i>le teruma</i> de pain levé à Pessah <b>est autorisé à être brûlé, car si le prêtre le souhaite, il peut le jeter devant son chien ou le brûler sous sa nourriture,</b> car Rabbi Elazar Ḥisma est d'accord avec l'opinion de Rabbi Yosei HaGelili selon laquelle on peut tirer un bénéfice du pain levé pendant Pessah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

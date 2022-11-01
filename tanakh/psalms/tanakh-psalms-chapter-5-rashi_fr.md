@@ -47,4 +47,4 @@
 <b>Tu l'engloberas</b>  תעטרנו-, Tu l'engloberas (en Sam. 23:26) : "mais Saül et ses hommes encerclaient (עוטרים) David et ses hommes."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

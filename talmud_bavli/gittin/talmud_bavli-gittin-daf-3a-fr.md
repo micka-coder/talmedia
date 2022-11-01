@@ -48,4 +48,4 @@ En outre, <b>là,</b> dans le cas d'autres documents, <b>une femme n'est pas jug
 La Gemara demande : <b>Et selon</b> l'avis de <b>Rabba, qui a dit</b> que la raison de la déclaration : Il a été écrit en ma présence et il a été signé en ma présence, est <b>parce qu'ils ne sont pas experts</b> dans la rédaction d'un acte de divorce <b>pour son bien, qui est ce <i>tanna</i> qui exige</b> que la <b>rédaction</b> de l'acte de divorce soit effectuée <b>pour son bien, et</b> exige également <b>de faire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

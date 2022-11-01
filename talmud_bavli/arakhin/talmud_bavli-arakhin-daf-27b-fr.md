@@ -63,4 +63,4 @@ La Guemara explique que la raison est que le propriétaire peut <b>saisir : Un h
 La Gemara demande : <b>Et</b> le <b>dinar</b> supplémentaire que le propriétaire donne, <b>à quoi sert-il ? Rav Sheshet répond que c'est</b> ce que la mishna <b>dit : Si le propriétaire souhaitait dès le départ donner</b> sur la base d'un <b>calcul qui atteint trente et un</b> <i>sela</i> <b>et</b> un <b>dinar,</b> le propriétaire a la priorité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

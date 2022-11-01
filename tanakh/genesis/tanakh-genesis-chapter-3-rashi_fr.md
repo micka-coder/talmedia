@@ -93,5 +93,5 @@
 <b>Les Chérubins. </b> [Ce sont] les anges destructeurs.
 <b>l’épée flamboyante.</b> Qui avait un tranchant, pour l'effrayer et l'empêcher de pénétrer à nouveau dans le Jardin. Le targum [Onkelos] du mot לַהַט est שְׁנַן [tranchant] comme dans "Il a tiré sa lame [tranchante]" dans Masehet Sanhedrin. En ancien français, c'est <i>lame.</i> Il existe d'autres exposés aggadiques Mais, je ne viens que pour présenter l'explication simple. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

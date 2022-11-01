@@ -57,4 +57,4 @@ La Gemara répond : C'est <b>différent là, comme, puisqu'il lui a dit : Prépa
 La Gemara demande : <b>Et ne sommes-nous pas concernés par le remplacement</b> des ingrédients qu'il a donnés à sa voisine par les siens ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Demai</i> 3:6) : <b>Celui qui donne</b> de la pâte <b>à sa belle-mère,</b> qui est suspecte en matière de dîme, afin qu'elle la prépare pour lui, doit <b>tithe</b> tout <b>ce qu'il lui donne et</b> tout <b>ce qu'il lui reprend</b>. </b> Ceci est <b>parce qu'elle est soupçonnée</b> de <b>remplacer</b> un ingrédient <b>qui se gâte.</b> La Gemara répond : <b>Là, la raison</b> est <b>comme il est enseigné</b> explicitement dans cette mishna, que <b>Rabbi Yehuda a dit :</b> La belle-mère <b>souhaite le bien-être de sa fille</b> et veut s'assurer qu'elle mange des aliments de qualité, <b>et est réticente</b> à dire à <b>son gendre</b> qu'elle a remplacé les ingrédients qui se sont gâtés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Lequel</b> des trois <b>ne doit pas être écrit par le M
 <b>Par contre,</b> dites : <b>Que le Miséricordieux n'écrive pas</b> le <i>halakha</i> <b>en ce qui concerne celui qui s'est immergé ce jour-là et le dérive</b> de ces</b> deux autres, un prêtre impur et celui qui n'a pas encore apporté d'offrande expiatoire. <b>Aussi, que pouvez-vous</b> dire pour <b>réfuter</b> ceci ? On ne peut pas répondre : <b>Qu'est-ce qui</b> est remarquable <b>à propos de ceux-ci;</b> ils sont remarquables <b>puisqu'ils n'ont pas encore</b> accompli une <b>action nécessaire,</b> car <b>en fin de compte leur impureté,</b> c'est-à-dire l'impureté de celui qui n'a pas encore apporté d'offrande expiatoire, <b>est faible</b> par rapport à celui qui s'est immergé ce jour-là, et relativement, celui qui n'a pas encore apporté d'offrande expiatoire n'est pas considéré comme manquant l'exécution d'une action.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

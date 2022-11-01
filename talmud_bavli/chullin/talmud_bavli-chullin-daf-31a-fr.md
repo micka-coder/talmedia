@@ -63,4 +63,4 @@ Rav Naḥman <b>lui dit :</b> Le statut halakhique de <b>son mari est non sacré
 La Guemara rejette cette preuve : <b>D'où</b> vient la preuve que c'est le sens de la mishna ? <b>Peut-être avons-nous affaire</b> au cas de celui qui <b>s'assied</b> près de l'eau <b>et attend</b> de déterminer <b>quand la vague se détachera,</b> ce qui équivaut à avoir l'intention de s'immerger,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara relate : <b>Abba bar Marta,</b> qui <b>est Abba bar Manyomi, devait de
 A propos de Rabbi Abba bar Kahana, la Guemara cite d'autres de ses déclarations. <b>Rabbi Abba bar Kahana a dit</b> que <b>Rabbi Ḥanina a dit :</b> En ce qui concerne les <b>bougies de la maison de Rabbi</b> Yehuda HaNasi, <b>il est permis de les déplacer le Chabbat. </b> Il n'était pas clair quelle était la nature de ces chandeliers, et <b>Rabbi Zeira lui dit :</b> Est-ce que cela fait référence <b>aux chandeliers qui sont petits, qui <b>sont déplacés avec une main, ou</b> même <b>à</b> ceux qui sont déplacés <b>avec deux mains ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

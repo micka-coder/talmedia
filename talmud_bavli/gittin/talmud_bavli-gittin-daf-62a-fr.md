@@ -48,4 +48,4 @@ Rav Huna et Rav Ḥisda lui ont <b>dit</b> en outre : <b>Et d'où savez-vous</b>
 Le Rav Huna et le Rav Ḥisda <b>s'adressent à</b> Geneiva : <b>Le Maître souhaite-t-il goûter quelque chose ?</b> Geneiva <b>leur a répondu : Ainsi dit Rav Yehuda</b> que <b>Rav dit : Il est interdit à une personne de goûter quoi que ce soit jusqu'à ce qu'elle donne de la nourriture à son animal, comme il est dit</b> dans le verset : <b>"Et je donnerai de l'herbe dans les champs pour vos animaux"</b> (Deutéronome 11:15), <b>et</b> seulement <b>ensuite</b> il est écrit dans ce verset : <b>"Et vous mangerez et serez rassasiés."</b> Je n'ai pas encore nourri mon animal, je ne peux donc pas manger.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

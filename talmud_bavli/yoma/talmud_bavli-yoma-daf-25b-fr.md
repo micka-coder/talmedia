@@ -48,4 +48,4 @@ La Guemara demande : Selon tous les avis, <b>Quelle est la raison pour laquelle<
 La Guemara demande plus loin : Bien que les Sages ne soient pas d'accord sur l'ordre d'amener les différents morceaux, <b>en tout cas tout le monde est d'accord</b> que la <b>tête est sacrifiée en premier. D'où est-ce que nous</b> tirons ceci ? <b>Comme cela a été enseigné</b> dans un <i>baraita</i> : <b>D'où vient</b> que lors du sacrifice d'un animal <b>la tête et la graisse précèdent tous</b> les autres <b>membres ? Le verset dit :</b> "Il le coupera en morceaux <b>et sa tête et sa graisse, et</b> le prêtre <b>les disposera</b> sur le bois qui est sur le feu sur l'autel" (Lévitique 1:12). La Guemara demande : <b>Et l'autre</b> mention de <b>fat</b> avant celle-ci, où le verset dit : "Les morceaux, la tête et la graisse" (Lévitique 1:8),
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

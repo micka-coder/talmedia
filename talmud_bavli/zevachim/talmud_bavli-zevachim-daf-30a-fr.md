@@ -45,4 +45,4 @@ La Guemara répond : Dans ce cas <b>ils ne sont pas en désaccord. Rav Ashi dit 
 <b>Comme nous l'avons appris</b> dans la mishna : <b>Rabbi Yehuda a dit</b> que <b>voici le principe : si l'intention</b> concernant <b>le temps a précédé l'intention</b> concernant <b>la zone,</b> l'offrande est <b><i>piggul</i> et on est susceptible</b> de recevoir <b><i>karet</i> pour</b> l'avoir brûlée ou y avoir participé.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

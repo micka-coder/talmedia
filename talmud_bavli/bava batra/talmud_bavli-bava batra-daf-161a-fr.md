@@ -27,4 +27,4 @@ La Gemara répond : C'est un cas <b>où</b> le mot <b>témoin n'est pas écrit</
 <b>Et si vous voulez, dites</b> au contraire <b>que réellement</b> le témoin <b>a écrit "témoin"</b> après sa signature, et le cas est un cas <b>où nous savons</b> pour un fait <b>que cette signature,</b> qui consiste en les mots "Ya'akov, témoin,"
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

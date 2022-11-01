@@ -72,4 +72,4 @@ La Guemara répond : <b>Rav Huna</b> pourrait <b>vous dire</b> que <b>Il y a</b>
 <b>Certains disent cette <i>halakha</i> comme une question distincte</b>, pas spécifiquement comme une explication de la mishna : <b>Rav Huna dit</b> la superficie <b>d'un haricot fendu</b> est considérée comme la même <b>que</b> la superficie de <b>plus grand qu'un haricot fendu. Et Rav Ḥisda dit</b> la superficie <b>d'un haricot fendu</b> est considérée comme la même <b>que</b> la superficie de <b>moins qu'un haricot fendu. Et</b> ces deux <i>amora'im</i> <b>désaccord en ce qui concerne</b> la question de <b>jusqu'à,</b> qu'il s'agisse d'inclure ou non la mesure elle-même, comme discuté <b>dans</b> ce cas <b>ici,</b> à propos des taches. La Gemara <b>souleve une objection :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

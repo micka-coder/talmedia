@@ -40,4 +40,4 @@
 <b>Béni soit le Seigneur</b> Quand je me relèverai de ma maladie, je Te bénirai de cette manière.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

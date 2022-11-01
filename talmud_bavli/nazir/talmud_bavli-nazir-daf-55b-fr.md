@@ -6,4 +6,4 @@
 <b>Rami bar Ḥama a soulevé une objection</b> à partir d'une mishna (59b) : En ce qui concerne <b>un nazirite qui a une impureté incertaine</b> provenant d'un cadavre <b>et</b> dont le statut de <b>lépreux confirmé</b> <b>est incertain,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

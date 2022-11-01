@@ -45,7 +45,7 @@ La Gemara conclut : <b>Et s'il vous vient à l'esprit</b> de dire que <b>l'artis
 La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> d'enseigner cette <i>halakha</i> dans un cas <b>où</b> le propriétaire a <b>engagé</b> l'artisan <b>pour fouler,</b> c'est-à-dire, de piétiner avec force le vêtement dans l'eau jusqu'à ce qu'il s'assouplisse, le propriétaire payant à l'artisan <b>une <i>ma'a</i></b> pièce de monnaie <b>pour chaque piétinement.</b> Par conséquent, ceci est considéré comme un travail salarié, où l'artisan est payé en fonction du nombre de fois qu'il a effectué une action, et non comme un travail contractuel, où il est payé en fonction du résultat, dans ce cas, un vêtement assoupli, et l'interdiction de retarder le paiement des salaires s'applique à ce cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara demande : <b>Et</b> qu'est-ce que <b>l'autre</b> Sage, le deuxième <i>tanna</i>, tire de ce verset ? La Gemara répond : <b>Ce verset</b> est <b>nécessaire pour ce qui est enseigné</b> dans une <i>baraita</i> : L'expression <b>"car il y met son âme"</b> explique pourquoi il faut être si précis lorsqu'on verse son salaire à un ouvrier : <b>Pour quelle</b> raison cet ouvrier a-t-il <b>sauté sur</b> une haute <b>rampe ou s'est-il suspendu</b> <b>à un arbre et risqué sa mort ?</b> N'était-ce <b>pas pour son salaire ?</b> Comment, alors, son employeur peut-il retarder son paiement ?
 
@@ -92,4 +92,4 @@ La Gemara conclut : <b>Et s'il vous vient à l'esprit</b> de dire que <b>l'artis
 La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> d'enseigner cette <i>halakha</i> dans un cas <b>où</b> le propriétaire a <b>engagé</b> l'artisan <b>pour fouler,</b> c'est-à-dire, de piétiner avec force le vêtement dans l'eau jusqu'à ce qu'il s'assouplisse, le propriétaire payant à l'artisan <b>une <i>ma'a</i></b> pièce de monnaie <b>pour chaque piétinement.</b> Par conséquent, ceci est considéré comme un travail salarié, où l'artisan est payé en fonction du nombre de fois qu'il a effectué une action, et non comme un travail contractuel, où il est payé en fonction du résultat, dans ce cas, un vêtement assoupli, et l'interdiction de retarder le paiement des salaires s'applique à ce cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

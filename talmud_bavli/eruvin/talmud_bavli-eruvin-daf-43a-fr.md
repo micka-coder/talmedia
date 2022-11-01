@@ -57,4 +57,4 @@ La Gemara cite une autre preuve : <b>Venez</b> et <b>entendez</b> une résolutio
 La Guemara tente d'apporter une preuve différente : <b>Venez</b> et <b>entendez</b> ce qui a été enseigné dans une <i>baraita</i> : En ce qui concerne celui qui a dit : <b>Je serai nazirite le jour où le fils de David viendra,</b> c'est-à-dire à l'arrivée du Messie, <b>il lui est permis de boire du vin le Chabbat et les Fêtes,</b> car le Messie n'arrivera pas l'un de ces jours.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

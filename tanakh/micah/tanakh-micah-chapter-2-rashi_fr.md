@@ -54,4 +54,4 @@
 <b>Le briseur est monté</b> - Leur sauveur, qui brise les clôtures d'épines et les haies de ronces, pour redresser la route devant eux. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

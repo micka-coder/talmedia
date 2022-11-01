@@ -72,4 +72,4 @@ La Gemara commente : <b>Cela ne s'applique que</b> si la rumeur <b>ne s'est pas 
 <b>On ne peut pas écrire</b> des <b>rouleaux de Torah, des phylactères ou des <i>mezuzot</i> les</b> jours intermédiaires d'une <b>Fête, ni corriger une seule lettre, même dans le</b> rouleau de Torah <b>d'Ezra,</b> qui était conservé dans le Temple et sur lequel toutes les communautés juives s'appuyaient. <b>Rabbi Yehuda dit : On peut écrire des phylactères et des <i>mezuzot</i> pour lui-même</b> les jours intermédiaires d'une Fête s'il en a besoin.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

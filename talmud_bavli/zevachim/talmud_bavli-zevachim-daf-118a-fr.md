@@ -54,4 +54,4 @@ La Gemara lance un défi : <b>Dites</b> plutôt la déduction suivante : <b>Vous
 <b>Rabbi Avdimi bar Ḥasa a dit</b> qu'en décrivant les limites des portions d'Eretz Yisrael des enfants de Joseph, où se trouvait Shiloh, <b>le verset dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ Le dilemme de Rabbi Elazar a été mentionné ci-dessus, et maintenant la Guemar
 <b>Au contraire, Rava de Barnish dit</b> il peut être dérivé de la manière suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

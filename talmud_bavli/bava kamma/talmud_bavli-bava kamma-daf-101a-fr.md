@@ -45,7 +45,7 @@ Le <i>baraita</i> répond : <b>Le verset dit : "Alors tu compteras son fruit [<i
 La Guemara tente une autre résolution du dilemme. <b>Venez</b> et <b>entendez</b> une résolution issue de celle qui a été enseignée dans une <i>baraita</i> : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite des <b>épluchures de</b> produits de l'année <b>sabbatique</b> doit être <b>brûlé</b> lorsque le moment de l'élimination des produits de l'année sabbatique arrive. Cela indique que la teinture reste évidemment une substance indépendante. La Gemara rejette cette preuve : C'est différent ici, comme le dit le verset : "Tout son accroissement</b> sera"</b> (Lévitique 25:7), et l'expression : "sera", enseigne qu'il <b>restera</b> toujours tel qu'il est,</b> c'est-à-dire qu'il conserve son statut de produit de l'année sabbatique malgré toute modification de sa forme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Les sédiments</b> de teinture dans <b>les chaudrons,</b> c'est-à-dire que le teinturier a pris la teinture restant dans le chaudron d'une utilisation précédente, et a utilisé cette teinture pour ce vêtement, conduisant à un résultat inférieur.
 
@@ -92,7 +92,7 @@ Le <i>baraita</i> répond : <b>Le verset dit : "Alors tu compteras son fruit [<i
 La Guemara tente une autre résolution du dilemme. <b>Venez</b> et <b>entendez</b> une résolution issue de celle qui a été enseignée dans une <i>baraita</i> : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite des <b>épluchures de</b> produits de l'année <b>sabbatique</b> doit être <b>brûlé</b> lorsque le moment de l'élimination des produits de l'année sabbatique arrive. Cela indique que la teinture reste évidemment une substance indépendante. La Gemara rejette cette preuve : C'est différent ici, comme le dit le verset : "Tout son accroissement</b> sera"</b> (Lévitique 25:7), et l'expression : "sera", enseigne qu'il <b>restera</b> toujours tel qu'il est,</b> c'est-à-dire qu'il conserve son statut de produit de l'année sabbatique malgré toute modification de sa forme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Les sédiments</b> de teinture dans <b>les chaudrons,</b> c'est-à-dire que le teinturier a pris la teinture restant dans le chaudron d'une utilisation précédente, et a utilisé cette teinture pour ce vêtement, conduisant à un résultat inférieur.
 
@@ -139,7 +139,7 @@ Le <i>baraita</i> répond : <b>Le verset dit : "Alors tu compteras son fruit [<i
 La Guemara tente une autre résolution du dilemme. <b>Venez</b> et <b>entendez</b> une résolution issue de celle qui a été enseignée dans une <i>baraita</i> : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite des <b>épluchures de</b> produits de l'année <b>sabbatique</b> doit être <b>brûlé</b> lorsque le moment de l'élimination des produits de l'année sabbatique arrive. Cela indique que la teinture reste évidemment une substance indépendante. La Gemara rejette cette preuve : C'est différent ici, comme le dit le verset : "Tout son accroissement</b> sera"</b> (Lévitique 25:7), et l'expression : "sera", enseigne qu'il <b>restera</b> toujours tel qu'il est,</b> c'est-à-dire qu'il conserve son statut de produit de l'année sabbatique malgré toute modification de sa forme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Les sédiments</b> de teinture dans <b>les chaudrons,</b> c'est-à-dire que le teinturier a pris la teinture restant dans le chaudron d'une utilisation précédente, et a utilisé cette teinture pour ce vêtement, conduisant à un résultat inférieur.
 
@@ -186,4 +186,4 @@ Le <i>baraita</i> répond : <b>Le verset dit : "Alors tu compteras son fruit [<i
 La Guemara tente une autre résolution du dilemme. <b>Venez</b> et <b>entendez</b> une résolution issue de celle qui a été enseignée dans une <i>baraita</i> : <b>Un vêtement que l'on a teint avec</b> de la teinture extraite des <b>épluchures de</b> produits de l'année <b>sabbatique</b> doit être <b>brûlé</b> lorsque le moment de l'élimination des produits de l'année sabbatique arrive. Cela indique que la teinture reste évidemment une substance indépendante. La Gemara rejette cette preuve : C'est différent ici, comme le dit le verset : "Tout son accroissement</b> sera"</b> (Lévitique 25:7), et l'expression : "sera", enseigne qu'il <b>restera</b> toujours tel qu'il est,</b> c'est-à-dire qu'il conserve son statut de produit de l'année sabbatique malgré toute modification de sa forme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

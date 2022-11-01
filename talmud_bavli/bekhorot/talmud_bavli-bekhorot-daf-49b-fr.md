@@ -36,4 +36,4 @@ En ce qui concerne les <b>trente</b> shekels payés au propriétaire <b>d'un <b>
 <strong>GEMARA :</strong> La mishna a indiqué que les cinq <i>sela</i> pièces de monnaie du rachat du fils sont calculées en utilisant <b>un <i>maneh</i> tyrien.</b> Pour expliquer cela, <b>Rabbi Asi dit :</b> On doit donner cinq <i>sela</i> de <b>le <i>maneh</i></b> utilisé <b>à Tyr. Rabbi Ami dit :</b> Les cinq <i>sela</i> sont égales à un <b>dinar arabe en or. Rabbi Ḥanina dit :</b> Il existe <b>une <i>sela</i> [<i>istera</i>] syrienne, huit</b> de ces <b>monnaies sont vendues pour</b> un grand <b>dinar d'or.</b> On doit en donner <b>cinq pour le rachat du fils.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

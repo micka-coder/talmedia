@@ -51,7 +51,7 @@ La Guemara demande : <b>Et selon Rava,</b> de <b>quelle manière</b> il <b>est</
 La Gemara relate que <b>Runya était le planteur de Ravina.</b> Il <b>a causé une perte,</b> et Ravina <b>l'a renvoyé</b> de son champ. Runya <b>se présente devant Rava</b> et lui <b>dit : </b> Que <b>le Maître voie ce que</b> Ravina <b>m'a fait.</b> Rava <b>lui dit : </b> Ravina <b>a bien fait,</b> puisque tu lui as causé une perte. Rava <b>lui a dit : Mais</b> Ravina <b>ne m'a pas prévenu</b> à l'avance. Comment peut-il me forcer à partir sans avertissement préalable ? Rava <b>lui dit :</b> Dans ce cas, il <b>n'est pas nécessaire de donner un avertissement.</b> La Gemara commente : <b>Rava</b> se conforme <b>à sa ligne de <b>raisonnement</b>, car Rava a dit :</b> En ce qui concerne <b>un professeur d'enfants, un planteur, un égorgeur rituel et un sanguinaire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> Celui <b>qui reçoit un champ d'un autre</b> pour le cultiver <b>pendant quelques années,</b> c'est-à-dire, moins de sept, <b>ne peut y planter du lin,</b> car le lin affaiblit considérablement le sol, <b>et</b> si un sycomore poussait dans le champ, <b>il n'a pas</b> de droits <b>sur</b> les <b>poutres</b> façonnées à partir des branches du <b>sycamore</b>. Il ne peut donc pas couper ses branches pour son propre usage, car il faut de nombreuses années pour que de nouvelles poussent. Si <b>il a reçu</b> le champ <b>de lui pendant sept ans,</b> la <b>première année, il</b> peut y <b>planter du lin, et il a</b> des droits <b>sur</b> les <b>poutres</b> façonnées à partir des branches de l'arbre <b>sycamore</b>.
 
@@ -104,4 +104,4 @@ La Gemara demande : <b>Et selon Rava,</b> de <b>quelle manière</b> il <b>est</b
 La Gemara relate que <b>Runya était le planteur de Ravina.</b> Il <b>a causé une perte,</b> et Ravina <b>l'a renvoyé</b> de son champ. Runya <b>se présente devant Rava</b> et lui <b>dit : </b> Que <b>le Maître voie ce que</b> Ravina <b>m'a fait.</b> Rava <b>lui dit : </b> Ravina <b>a bien fait,</b> puisque tu lui as causé une perte. Rava <b>lui a dit : Mais</b> Ravina <b>ne m'a pas prévenu</b> à l'avance. Comment peut-il me forcer à partir sans avertissement préalable ? Rava <b>lui dit :</b> Dans ce cas, il <b>n'est pas nécessaire de donner un avertissement.</b> La Gemara commente : <b>Rava</b> se conforme <b>à sa ligne de <b>raisonnement</b>, car Rava a dit :</b> En ce qui concerne <b>un professeur d'enfants, un planteur, un égorgeur rituel et un sanguinaire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

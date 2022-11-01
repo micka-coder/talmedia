@@ -63,4 +63,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une solution basée sur le 
 <b>Il leur dit : Si vous ne les apaisez pas, je vous frapperai d'une épine [<i>silva</i>] qui ne fait pas couler le sang,</b> c'est-à-dire que je vous excommunierai. <b>Il les envoya devant Rav Naḥman.</b> Rav Naḥman <b>leur dit : De même que</b> la <i>halakha</i> est que si les biens étaient <b>abondants mais dépréciés</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

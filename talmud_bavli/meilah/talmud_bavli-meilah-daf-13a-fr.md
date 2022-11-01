@@ -39,4 +39,4 @@ L'autre <i>halakha</i>, selon laquelle le <b>lait d'un animal sacrifié</b> est 
 La Guemara discute d'un cas similaire : <b>Quelqu'un qui bat</b> son <b><i>kalilin</i> non sacré,</b> un type de légumineuse, <b>dans un champ consacré</b> est responsable du <b>mauvais usage</b> d'objets consacrés. La Guemara soulève une difficulté : <b>Mais</b> pour qu'on soit responsable de l'abus, <b>on exige</b> que l'élément consacré dont on tire profit soit <b>détaché</b> du sol, alors que le champ est le sol lui-même. <b>Ravina a dit : Concluez-en</b> que la <b>poussière du champ est bénéfique pour</b> <i>kalilin</i>, et donc qu'il fait un mauvais usage de la poussière détachée du champ consacré lorsqu'il le bat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

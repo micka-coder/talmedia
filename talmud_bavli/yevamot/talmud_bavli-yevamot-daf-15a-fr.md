@@ -54,4 +54,4 @@ La Guemara répond : <b>Rabbi Akiva était incertain quant à sa tradition, et i
 <b>Et nous avons appris</b> dans une mishna : Beit Hillel soutiennent qu'une <b>jonction de bains rituels</b> est effective si le trou a la <b>largeur du tube</b> utilisé pour verser l'eau dans et hors <b>d'une outre, et dans son <b>espace ouvert</b> il y a assez de place pour <b>environ deux doigts qui peuvent revenir à leur place.</b> En d'autres termes, s'il est possible d'insérer dans le trou deux doigts qui peuvent se déplacer de tous les côtés, la cavité est suffisamment grande pour être considérée comme une connexion. Selon le Beit Shammai, cependant, le trou doit ouvrir la majorité de la barrière entre les deux zones. Si c'est le cas, <b>conclure de cela</b> que Beit Shammai <b>a agi</b> conformément à leurs opinions. La Gemara rejette cette affirmation : <b>Il y a,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

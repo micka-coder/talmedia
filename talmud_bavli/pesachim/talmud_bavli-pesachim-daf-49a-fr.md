@@ -66,4 +66,4 @@ Au sujet des partenaires de mariage appropriés, la Guemara cite la discussion s
 De plus, <b>les Sages ont enseigné : Il faut toujours</b> être prêt à <b>vendre tout ce qu'il possède</b> afin d'<b>épouser la fille d'un érudit de la Torah et</b> afin de <b>marier sa fille à un érudit de la Torah.</b> Ce type de mariage peut être <b>comparé à des raisins d'une vigne</b> qui s'entremêlent <b>avec des raisins d'une vigne, quelque chose</b> qui est <b>beau et acceptable</b> pour Dieu et pour l'homme. <b>Et on ne doit pas épouser la fille d'un ignorant.</b> Ce type de mariage peut être <b>comparé aux raisins d'une vigne</b> qui se sont entrelacés <b>avec les baies d'une ronce,</b> ce qui est <b>quelque chose d'inconvenant</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

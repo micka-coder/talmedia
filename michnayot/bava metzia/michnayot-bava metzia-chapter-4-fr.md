@@ -35,5 +35,5 @@ Les produits ne doivent pas être mélangés avec d'autres produits, même les p
 ### michna 12
 Un marchand peut acheter de cinq aires de battage et mettre le produit dans une chambre de stockage, ou de cinq pressoirs et le mettre dans une cruche, tant qu'il n'a pas l'intention de les mélanger [à des fins de fraude]. Rabbi Judah dit :  "Un commerçant ne doit pas distribuer du maÃ¯s desséché ou des noix aux enfants, car cela les habitue à venir [uniquement] chez lui", mais les Sages le permettent. Et il ne doit pas baisser le prix. Mais les Sages disent :  "Qu'on se souvienne de lui pour de bon [s'il baisse le prix]. "Selon Abba Shaul, il ne doit pas tamiser les haricots écrasés. Mais les Sages le permettent. Mais ils s'accordent à dire qu'il ne doit pas les tamiser [uniquement] à l'entrée de la chambre de stockage, car il tromperait l'œil. Il ne doit pas embellir ce qu'il vend, que ce soit des humains, du bétail ou des ustensiles.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -127,5 +127,5 @@
 ### passuk 33
 <b>Avant qu'il ne soit terminé.</b> Comme le rend le Targum [Onkelos], עַד לָא פְסַק, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>(avant qu'il ne soit terminé). Une autre interprétation : Il n'a pas eu l'occasion de le couper avec ses dents, lorsqu'il a expiré. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

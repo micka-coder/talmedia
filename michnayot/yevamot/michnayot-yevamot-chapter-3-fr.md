@@ -29,5 +29,5 @@ Trois frères étaient mariés à trois femmes étrangères [l'une à l'autre], 
 ### michna 10
 Si deux hommes ont fiancé deux femmes et qu'au moment d'entrer dans la chambre nuptiale, ils ont échangé l'une contre l'autre, voici qu'ils sont coupables d'avoir des relations avec une femme mariée. S'ils étaient frères, ils sont coupables d'avoir des relations avec la femme d'un frère. S'ils étaient sœurs, ils sont coupables d'avoir des relations avec la sœur d'une femme. Si elles étaient menstruées, [elles sont coupables] d'avoir des relations avec une menstruée. Elles doivent être tenues à l'écart pendant trois mois, de peur qu'elles ne soient enceintes. Si elles étaient mineures et incapables de porter des enfants, elles peuvent être rendues [à leur mari légitime] immédiatement. Si les femmes appartenaient à des familles de prêtres, elles ne sont pas autorisées à manger de la teroumah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ Ceci est <b>comme il est enseigné</b> dans un <i>baraita</i> : <b>Ḥanan l'ég
 <b>Et Rav Yitzḥak bar Yosef dit</b> que <b>Rabbi Yoḥanan dit :</b> Si l'on <b>plaçait une olive-bulk d'encens sur une quelconque quantité</b> d'une <b>offrande de repas,</b> il a ainsi <b>disqualifié</b> l'offrande de repas. <b>Quelle est la raison</b> de cette <i>halakha</i> ? <b>Il est écrit : "Il ne donnera</b> pas non plus d'encens dessus" (Lévitique 5:11), ce qui indique que l'encens disqualifie l'offrande de repas <b>seulement s'il y a</b> au moins une quantité qui constitue une <b>offrande,</b> soit un ballot d'olives. Lorsque le verset dit <b>"sur elle,"</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

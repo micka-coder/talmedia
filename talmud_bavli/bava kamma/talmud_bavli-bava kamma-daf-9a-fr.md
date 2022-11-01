@@ -63,4 +63,4 @@ La Guemara répète son rejet initial de cette suggestion : <b>Si c'est le cas,<
 La Guemara demande : A <b>quoi</b> ce <b>tiers</b> fait-il référence ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

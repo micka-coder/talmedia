@@ -60,4 +60,4 @@ La Guemara rejette cet argument : Il n'y a pas de preuve d'ici, car <b>il était
 § <b>Abaye a dit : La Torah n'a interdit que</b> les images de ces <b>attendants</b> à l'égard desquels il est possible de reproduire</b> un objet à <b>leur ressemblance.</b> Comme il est impossible à quiconque de reproduire le soleil et la lune, l'interdiction ne s'applique pas à ces objets. <b>Comme il est enseigné</b> dans un <i>baraita</i> : <b>Une personne</b> ne peut <b>pas construire une maison</b> dans la <b>forme exacte du Sanctuaire,</b> ni <b>un portique dans</b> la <b>forme exacte du Hall d'entrée</b> du Sanctuaire, ni <b>une cour correspondant</b> à la <b>cour du Temple,</b> ni <b>une table correspondant à la table</b> du Temple, ni <b>un candélabre correspondant au candélabre</b> du Temple. <b>Cependant, on peut façonner</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@
 <b>et [parce qu'Il n'a pas] couvert les épaisses ténèbres de devant moi</b> Cela renvoie à "parce que pas" au début du verset.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

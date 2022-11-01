@@ -30,4 +30,4 @@ Le <i>baraita</i> continue : On <b>pourrait</b> avoir pensé que <b>même</b> en
 <b>Rava s'enquiert devant Rav Naḥman : combien de chèvres envoie-t-il ? </b> Si le sang de la chèvre présentée à l'intérieur est répandu, le Grand Prêtre doit apporter une paire de chèvres supplémentaire et effectuer une nouvelle loterie. Cela peut même se produire plusieurs fois, ce qui signifie qu'un bouc est offert sur l'autel tandis que plusieurs boucs sont désignés pour être renvoyés. Que doit-on faire de ces boucs ? <b>Il lui dit : Renvoie-t-il son troupeau ? </b> En d'autres termes, la Torah a dit de n'envoyer qu'une seule chèvre, et non un troupeau entier. Rava <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rav Kahana et Rav Ashi ont encore mis au défi Rav : <b>Et quelle est la différ
 <b>Abaye lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

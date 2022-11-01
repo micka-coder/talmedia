@@ -24,4 +24,4 @@ La Gemara demande : <b>Disons</b> que <b>cette</b> mishna <b>est</b> conforme à
 <b>Rabbi Yoḥanan a dit au nom de Rabbi Yosei :</b> A l'égard de <b>toute personne qui se délecte du Chabbat,</b> Dieu <b>lui donne une portion illimitée,</b> c'est-à-dire, une très grande récompense, <b>comme il est dit :</b> "Si tu gardes tes pieds de violer le Shabbat, de poursuivre tes affaires en Mon saint jour, et que tu appelles le Shabbat un délice, le jour saint du Seigneur honoré, et que tu l'honores en ne suivant pas ton propre chemin, ou en t'occupant de tes propres affaires, ou en prononçant des paroles oiseuses. <b>Alors vous ferez vos délices du Seigneur et je vous ferai monter sur les hauteurs du monde, et vous festoierez</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

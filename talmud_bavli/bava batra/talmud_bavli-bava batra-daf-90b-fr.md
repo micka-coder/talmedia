@@ -30,4 +30,4 @@ Le <i>baraita</i> poursuit : <b>Et il est permis à une personne de thésauriser
 § <b>Les Sages ont enseigné : On ne peut pas exporter de produits d'Eretz Yisrael</b> s'ils sont constitués d'<b>articles qui contiennent</b> un élément de <b>sustentation de base, tels que les vins, les huiles et les farines,</b> car cela les rend plus chers en Eretz Yisrael. <b>Rabbi Yehuda ben Beteira permet</b> l'exportation <b>dans</b> le cas du <b>vin, car</b> cela <b>réduit la licence</b> en Eretz Yisrael. <b>Et tout comme on ne peut pas exporter</b> ces types de produits <b>de Eretz</b> Yisrael <b>vers l'extérieur</b> de <b>Eretz</b> Yisrael, <b>de même</b> on ne peut pas les exporter</b> <b>de Eretz Yisrael vers la Syrie,</b> car la Syrie n'est pas considérée comme faisant partie de Eretz Yisrael dans ce contexte. <b>Et Rabbi</b> Yehuda HaNasi <b>permet</b> l'exportation de produits...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Nous avons appris dans la mishna : <b>Et on peut attacher le cordon ombilical</b
 La Gemara explique : <b>Et pour ce qui est de ta naissance, le jour où tu es né'</b> ; d'ici</b> il est dérivé <b>que l'on accouche le nouveau-né le Chabbat. "Ton nombril n'a pas été coupé" ; de là</b> il est dérivé <b>que l'on coupe le cordon ombilical le Chabbat. "Et tu n'as pas été lavé dans l'eau pour te purifier" ; de là</b> il est dérivé <b>que l'on lave le nouveau-né le Chabbat. "Et tu n'as pas été salé" ; d'ici</b> il est déduit <b>que l'on sale le nouveau-né le jour du Shabbat. "Et tu n'as pas été emmailloté" ; d'ici</b> on déduit <b>qu'on emmaillote le nouveau-né le jour du Shabbat.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

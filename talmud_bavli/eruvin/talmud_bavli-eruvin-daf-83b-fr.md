@@ -39,4 +39,4 @@ Afin de trancher entre ces deux opinions, la Gemara tente d'apporter une preuve 
 La Guemara explique d'abord : <b>Il a pu te venir à l'esprit</b> de dire : <b>Quel est</b> la signification du <b>balcon</b> mentionné dans la mishna ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

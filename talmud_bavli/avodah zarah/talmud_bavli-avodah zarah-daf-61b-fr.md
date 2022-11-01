@@ -45,4 +45,4 @@ La Guemara relate que des hommes <b>de la maison de Parzak le vizir ont placé d
 Il y avait <b>une certaine ville dans laquelle le vin d'un juif était placé. On trouva un Gentil debout parmi les tonneaux</b> de vin. <b>Rava dit : Si</b> le Gentil <b>peut être attrapé comme un voleur</b> s'il touche le vin, le <b>vin est permis.</b> Comme il a peur d'être attrapé, il n'a pas la présence d'esprit d'offrir le vin en libation. <b>Mais sinon,</b> il est <b>interdit</b> même de tirer un bénéfice du vin, car on suppose que le Gentil l'a certainement touché et offert en libation.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

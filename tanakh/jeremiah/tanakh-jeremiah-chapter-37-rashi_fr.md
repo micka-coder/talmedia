@@ -51,7 +51,7 @@
 <b>De la rue des boulangers</b> Heb. מחוץ, de la rue des boulangers. Cf : "Et tu te feras des rues (וחצות) à Damas" (I Rois 20, 34).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Régna comme roi</b> Puisque désormais, c'est-à-dire à partir de ce point, il vient raconter et dire que les rétributions qu'il a prophétisées jusqu'à présent se sont accomplies, il a commencé à raconter de cette manière, que lorsque le temps de la visitation, lorsque les jours approchaient où les paroles devaient s'accomplir, un autre roi régna sur Juda à la place de Conia, fils de Jehoïakim, etc.
 
@@ -104,4 +104,4 @@
 <b>De la rue des boulangers</b> Heb. מחוץ, de la rue des boulangers. Cf : "Et tu te feras des rues (וחצות) à Damas" (I Rois 20, 34).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

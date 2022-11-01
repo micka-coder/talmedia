@@ -69,4 +69,4 @@ Nous avons appris dans la mishna : <b>Et de même,</b> en ce qui concerne <b>deu
 <b>Au contraire, s'il a été énoncé, il l'a été de la manière suivante . Rava a dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara demande : <b>Et selon celui qui a dit</b> que <b>"de jour en jour"</b
 La Guemara relate que lorsqu'un cas de dissolution d'un vœu était présenté devant <b>Ḥiyya bar Rav,</b> il <b>tirait une flèche [<i>gira</i>] et examinait</b> le vœu en même temps. En d'autres termes, il n'examinait pas le cas de manière très approfondie, mais le dissolvait immédiatement. De même, <b>Rabba bar Rav Huna s'asseyait</b> pour examiner le vœu <b>et se levait</b> immédiatement, sans procéder à un examen approfondi.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara explique leur différend : <b>Et les rabbins</b> soutiennent qu'en ce
 <b>Mais Rabbi</b> Yehuda HaNasi soutient qu'en ce qui concerne les tendons et les os qui sont <b>attachés</b> à la chair et <b>qui sont autorisés</b> à être mangés,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

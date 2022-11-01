@@ -39,4 +39,4 @@ La Gemara demande : <b>Est-ce à dire que nous jugeons</b> une telle tribu <b>av
 <b>Et</b> il apparaît donc que <b>même Rabbi Yonatan,</b> qui permet qu'une communauté plus importante soit déclarée ville idolâtre, <b>a dit</b> ceci <b>uniquement</b> en ce qui concerne <b>une majorité de</b> la tribu au maximum, <b>mais</b> si c'était <b>toute la tribu</b> qui était idolâtre, alors la <i>halakha</i> d'une ville idolâtre ne <b>s'applique pas</b>. <b>Rav Mattana a dit : Ici,</b> dans la mishna,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

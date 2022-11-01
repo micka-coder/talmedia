@@ -48,4 +48,4 @@ En ce qui concerne le point principal de la <i>baraita</i>, la Gemara demande : 
 La Gemara relate : <b>Le père du Rav Aḥa, fils du Rav Ika,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

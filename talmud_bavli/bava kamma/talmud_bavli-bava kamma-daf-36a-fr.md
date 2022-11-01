@@ -21,4 +21,4 @@ Rav Ashi <b>lui a dit : La dernière clause</b> de la mishna fait référence <b
 <b>Au contraire,</b> la première clause de la mishna fait <b>actuellement</b> référence à des bœufs inoffensifs</b>, <b>et c'est</b> l'avis de <b>Rabbi Akiva, qui dit</b> que la partie lésée et la partie responsable <b>sont partenaires,</b> car elles partagent la propriété du bœuf belligérant. <b>Et</b> donc, <b>la raison</b> pour laquelle le propriétaire du bœuf belligérant est responsable est que <b>les deux sont</b> disponibles, <b>il ne peut donc pas écarter</b> la partie lésée en prétendant que ce bœuf n'est pas celui qui a causé le préjudice. <b>Mais</b> si <b>les deux ne sont pas</b> disponibles, par exemple si l'un est mort ou a été perdu, <b>il peut dire à</b> la partie lésée : <b>Apportez la preuve que</b> c'est <b>ce bœuf</b> qui vous a <b>causé des dommages, et je vous verserai</b> une indemnité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

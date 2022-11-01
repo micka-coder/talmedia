@@ -45,4 +45,4 @@ La Guemara raconte : <b>Rabbi Yitzḥak bar Yosef avait une certaine poule</b> q
 La Gemara relate un incident impliquant <b>un certain Romain qui vit un certain homme tomber du toit sur le sol,</b> et <b>son estomac se rompit et ses intestins sortirent.</b> Le Romain <b>amena</b> le <b>fils de l'homme et l'égorgea devant</b> les yeux de son père.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

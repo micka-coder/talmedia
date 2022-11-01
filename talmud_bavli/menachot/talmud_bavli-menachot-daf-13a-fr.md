@@ -15,7 +15,7 @@ La Guemara répond : <b>Oui;</b> bien que la mishna enseigne la <i>halakha</i> d
 La Gemara poursuit : <b>Mais ici,</b> où son intention était de consommer la moitié d'une botte d'olives et de brûler la moitié d'une botte d'olives, <b>où en ce qui concerne cette</b> moitié <b>il a l'intention</b> en <b>conformité avec sa</b> <b>mode typique, et à l'égard de cette</b> moitié <b>il a l'intention de le faire conformément à son <b>manière typique,</b> on pourrait <b>dire</b> qu'ils devraient se joindre,</b> malgré le fait que chaque intention ne concerne que la moitié d'un bulot d'olive. Par conséquent, la mishna <b>nous enseigne</b> que de telles intentions ne se rejoignent pas, et la mishna peut être expliquée même en accord avec l'opinion des rabbins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Selon Abaye, <b>pourquoi ai-je également</b> besoin de <b>cette</b> mishna ici ? <b>Si</b> vous suggérerez que cette mishna est nécessaire, car on peut en déduire que si l'on avait l'intention de <b>participer</b> à un demi-bulot d'olives le lendemain <b>et</b> ensuite l'intention de <b>participer</b> à un autre demi-bulot d'olives le lendemain, tous deux issus d'un <b>article dont le <b>maniement</b> typique est tel que l'on <b>y prend part</b>, la mishna <b>nous apprend que</b> ils <b>s'associent</b> afin de rendre l'offrande <i>piggul</i>, cette suggestion peut être rejetée : Mais <b>vous</b> déjà <b>apprenez</b> la <i>halakha</i> dans ce cas <b>de la première clause de la dernière clause</b> de la mishna précédente, <b>comme elle l'enseigne : Une demi-bulle d'olive à l'extérieur et une demi-bulle d'olive le lendemain,</b> l'offrande est <b>inadaptée.</b> On peut en déduire <b>que</b> si son intention était de consommer <b>une demi-bulle d'olive le lendemain et une demi-bulle d'olive le surlendemain,</b> elle est <b><i>piggul</i>.</b>
 
@@ -32,4 +32,4 @@ La Guemara répond : <b>Oui;</b> bien que la mishna enseigne la <i>halakha</i> d
 La Gemara poursuit : <b>Mais ici,</b> où son intention était de consommer la moitié d'une botte d'olives et de brûler la moitié d'une botte d'olives, <b>où en ce qui concerne cette</b> moitié <b>il a l'intention</b> en <b>conformité avec sa</b> <b>mode typique, et à l'égard de cette</b> moitié <b>il a l'intention de le faire conformément à son <b>manière typique,</b> on pourrait <b>dire</b> qu'ils devraient se joindre,</b> malgré le fait que chaque intention ne concerne que la moitié d'un bulot d'olive. Par conséquent, la mishna <b>nous enseigne</b> que de telles intentions ne se rejoignent pas, et la mishna peut être expliquée même en accord avec l'opinion des rabbins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

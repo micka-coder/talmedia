@@ -27,4 +27,4 @@ En ce qui concerne <b>une fenêtre égyptienne,</b> on <b>n'a pas</b> de moyens 
 <b>Rav Yirmeya bar Abba dit</b> il existe une explication différente : En ce qui concerne <b>un bec,</b> son propriétaire <b>n'a aucun</b> moyen d'établir <b>un privilège acquis pour son</b> usage, <b>comme si</b> le propriétaire du champ en dessous <b>souhaite construire en dessous,</b> il peut <b>construire,</b> et le propriétaire du bec ne peut l'en empêcher ; <b>mais</b> on n'a <b>pas le moyen d'établir <b>un privilège acquis par rapport à sa place, car si</b> le propriétaire du champ en dessous <b>arrive à l'enlever</b> entièrement, <b>il ne peut pas l'enlever. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

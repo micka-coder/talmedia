@@ -60,4 +60,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne <b>les rabbins,</b> pourquoi ex
 § La mishna enseigne : <b>Et</b> on ne peut <b>pas</b> racheter un premier-né <b>avec des objets consacrés.</b> La Gemara demande : N'est-ce pas évident ? Les objets consacrés ne lui appartiennent pas. La Gemara répond : <b>Dites</b> que
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara demande : Il est <b>évident</b> que selon Rabbi Yosei, ils s'immerge
 <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit : La <i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Yehuda en ce qui concerne la question du Shabbat, et la <i>halakha</i> est conforme</b> à l'opinion de <b>Rabbi Yosei en ce qui concerne la question de <i>teruma</i>.</b> La Gemara demande : <b>Accordé,</b> concernant la déclaration selon laquelle <b>la</b> <i>halakha</i> <b>est conforme</b> à l'avis de <b>Rabbi Yehuda en ce qui concerne la question du Shabbat,</b> car comme tous les autres cas d'incertitude, la décision est <b>stricte</b> en ce qui concerne les interdictions de la Torah. <b>Cependant, en ce qui concerne le <i>teruma</i>, quel est</b> le cas en discussion ? <b>Si vous dites</b> qu'il s'agit de faire référence <b>à</b> la question de l'<b>immersion,</b> l'immersion est aussi un cas d' <b>incertitude</b> par rapport à une loi de la Torah. Pourquoi la décision serait-elle plus clémente dans ce cas que dans celui du Shabbat ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

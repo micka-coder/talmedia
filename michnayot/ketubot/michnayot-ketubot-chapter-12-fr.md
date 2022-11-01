@@ -11,5 +11,5 @@ Une veuve qui dit : "Je ne veux pas quitter la maison de mon mari", les héritie
 ### michna 4
 Tant qu'elle vit dans la maison de son père, elle peut percevoir sa kethubah à tout moment. Tant qu'elle vit dans la maison de son mari, elle peut récupérer sa kétouba, seulement dans un délai de vingt-cinq ans, car au cours de ces vingt-cinq ans, elle a suffisamment d'occasions de donner des faveurs égales [en valeur au montant de] sa kétouba, paroles de Rabbi Meir qui a parlé au nom de Rabbi Shimon ben Gamaliel. Les Sages disent : tant qu'elle vit dans la maison de son mari, elle peut recueillir sa ketubah à tout moment. Tant qu'elle vit dans la maison de son père, elle ne peut recueillir sa kétouba que dans un délai de vingt-cinq ans. Si [la veuve] est décédée, ses héritiers doivent mentionner sa ketubah dans les vingt-cinq ans.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

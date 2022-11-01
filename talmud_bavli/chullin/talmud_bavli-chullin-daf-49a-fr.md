@@ -60,4 +60,4 @@ La Gemara demande : <b>Et</b> dans <b>quelle signification</b> seul Rabbi Yishma
 Il a été dit que les prêtres se sont habitués à autoriser la graisse sur la caillette, conformément à la déclaration de <b>Rabbi Yishmael qu'il dit au nom de ses ancêtres.</b> La Gemara clarifie : <b>Qu'est-ce que</b> cette déclaration ? <b>Car il est enseigné</b> dans une <i>baraita</i> que lorsque le verset indique à propos des graisses interdites mentionnées dans la Torah : <b>"Toute la graisse qui est sur les entrailles"</b> (Lévitique 3:3),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

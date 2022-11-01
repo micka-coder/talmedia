@@ -24,4 +24,4 @@ La Gemara demande : <b>Quelle est la raison de Rabbi Eliezer?</b> La Guemara ré
 Le <i>baraita</i> répond : C'est <b>parce que nous n'avons pas appris que le dernier rasage,</b> c'est-à-dire le rasage de pureté rituelle du nazirite, <b>doit être</b> effectué spécifiquement <b>avec un rasoir,</b> car le verset se contente de dire : "Il se rasera la tête" (Nombres 6:18), sans préciser d'instrument. <b>Il est impossible d'apprendre</b> cette exigence <b>à partir</b> de la <i>halakha</i> selon laquelle <b>un lépreux</b> doit utiliser un rasoir (voir Lévitique 14:9),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

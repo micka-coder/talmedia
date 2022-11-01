@@ -72,4 +72,4 @@ La Gemara demande : <b>Si c'est le cas, qu'on exécute l'ensemble opposé</b> <b
 § La mishna a enseigné : Si <b>on a sonné la première</b> <i>tekia</i> <b>et</b> puis <b>on a prolongé la deuxième</b> <i>tekia</i> de cette série <b>jusqu'à</b> la longueur de <b>deux</b> <i>tekiot</i>, de sorte qu'elle devrait compter à la fois comme la deuxième <i>tekia</i> de la première série et comme la première <i>tekia</i> de la deuxième série, elle est considérée comme une seule <i>tekia</i>, et on doit commencer la deuxième série par une nouvelle <i>tekia</i>. <b>Rabbi Yoḥanan a dit :</b> Si <b>on entendait</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

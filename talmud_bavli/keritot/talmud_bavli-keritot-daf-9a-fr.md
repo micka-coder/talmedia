@@ -93,4 +93,4 @@ Rabbi Ḥanina demanda à Rabbi Yoḥanan : <b>Qu'y a-t-il de différent</b> dan
 Rabbi Ḥanina demande encore à Rabbi Yoḥanan : <b>Et d'où tirons-nous</b> <b>que</b> il y a une signification halakhique aux <b>corps séparés</b> dans le cas <b>d'une <b>servante épousée ?</b> Rabbi Yoḥanan <b>lui répondit : N'as-tu pas déclaré à propos de ceux avec qui les relations sont interdites</b> que lorsque le verset dit : <b>"Et</b> tu ne t'approcheras pas d'une <b>femme</b> pour découvrir sa nudité, tant qu'elle est impure par son impureté" (Lévitique 18:19), cela sert <b>à</b> exiger des offrandes <b>séparées</b> pour chacune des femmes</b> avec lesquelles on a commis des transgressions involontaires ? <b>En ce qui concerne</b> une <b>servante épousée, il est également</b> pareillement <b>écrit : "Et si un homme couche charnellement avec une femme,</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

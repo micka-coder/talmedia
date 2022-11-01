@@ -9,4 +9,4 @@
 § La mishna enseigne qu'un prêtre <b>qui devient impur</b> par exposition <b>aux cadavres</b> est disqualifié pour effectuer le service du Temple jusqu'à ce qu'il accepte sur lui-même de ne plus devenir impur de cette manière. La Gemara demande : <b>Qu'est-ce qui est différent ici qu'il suffit qu'il</b> simplement <b>accepte</b> sur lui-même un engagement pour continuer à servir dans le Temple, <b>et qu'est-ce qui est différent là,</b> où le prêtre se marie par une transgression, <b>que l'on lui administre un vœu ?</b> La Gemara répond : <b>Là, son désir le saisit,</b> et il est donc nécessaire que le prêtre fasse un vœu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

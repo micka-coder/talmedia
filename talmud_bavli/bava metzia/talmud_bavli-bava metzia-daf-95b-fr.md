@@ -54,4 +54,4 @@ La Guemara soulève une objection : <b>Mais n'est-il pas écrit : "Si son propri
 Pour concilier les versets, il faut dire que la phrase "si son propriétaire est avec lui" sert <b>à vous dire :</b> Si <b>il était avec lui,</b> c'est-à-dire, travaillant pour lui, <b>au</b> moment de l'emprunt, il n'est pas nécessaire qu'il soit avec lui au</b> moment où</b> l'animal est <b>blessé ou meurt</b> pour que l'exonération de responsabilité s'applique ; mais s'il <b>était avec lui au</b> <b>moment où</b> l'animal est <b>blessé ou meurt, il</b> n'a pas <b>besoin d'avoir été avec lui au</b> <b>moment de l'emprunt</b> pour que l'exemption s'applique.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

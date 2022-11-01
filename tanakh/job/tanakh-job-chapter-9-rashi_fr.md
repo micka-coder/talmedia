@@ -122,4 +122,4 @@
 <b>Parce que je ne le suis pas avec moi-même</b> Parce que je crains [Dieu], je suis certain avec moi-même que je ne serai pas reconnu coupable lors du procès.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -31,7 +31,7 @@
 <b>Ils passeront l'hiver</b> Tous les jours de l'hiver. De là, ils ont déduit que le jugement de Gog dans le futur sera de douze mois.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Malheur au pays ombragé par les ailes</b> Jonathan rend : vers lequel on vient en navires d'un pays lointain, et dont les voiles sont déployées comme un aigle qui vole de ses ailes. Mais je dis que, parce qu'ils habitent à l'est, et que le pays est chaud, les oiseaux s'y rassemblent, et il est ombragé par les ailes des oiseaux. Or cette prophétie concerne les armées de Gog et Magog, comme il est dit dans Ezéchiel (38, 5) "La Perse, Cush, et Put avec eux."
 
@@ -64,4 +64,4 @@
 <b>Ils passeront l'hiver</b> Tous les jours de l'hiver. De là, ils ont déduit que le jugement de Gog dans le futur sera de douze mois.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

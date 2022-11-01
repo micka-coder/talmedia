@@ -49,7 +49,7 @@
 <b>J'ai rapproché Ma justice</b> dès maintenant, et elle ne sera plus éloignée.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Bel s'accroupit ; Nébo se souille</b> Les divinités de Babylone s'accroupissaient et se souillaient. C'est l'expression du ridicule des idoles, comme celui qui souffre de diarrhée et ne parvient pas à s'asseoir sur le siège des toilettes avant d'évacuer avec éclaboussure.
 <b>Bel s'accroupit ; Nebo se souille</b> Heb. כָּרַע בֵּל קֹרֵס נְבוֹ. Akropid sei Bel ; konkiad sei Nebo. Bel s'accroupit ; Nebo se souille. Ainsi, j'ai entendu au nom de Rabbénou Gershom, la lumière de la diaspora.
@@ -100,4 +100,4 @@
 <b>J'ai rapproché Ma justice</b> dès maintenant, et elle ne sera plus éloignée.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

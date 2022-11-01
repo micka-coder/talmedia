@@ -36,4 +36,4 @@ Par conséquent, pour contrecarrer cette possibilité, <b>le verset indique : "E
 De même, s'il a trouvé <b>deux</b> cadavres, <b>il les enlève ainsi que la terre qui les entoure</b>. Dans le cas où il <b>trouve trois</b> cadavres, <b>s'il y a</b> un espace <b>entre ce</b> cadavre <b>et ce</b> cadavre <b>de quatre à huit coudées,</b> dans une conception standard, <b>c'est un cimetière.</b> On craint qu'il s'agisse d'un cimetière ancien.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

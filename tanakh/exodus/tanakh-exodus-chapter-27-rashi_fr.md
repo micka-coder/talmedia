@@ -76,5 +76,5 @@
 ### passuk 21
 <b>Du soir au matin.</b> [Cela signifie :] y mettre la quantité nécessaire pour qu'il brûle du soir au matin. Les Sages ont estimé [que cela s'élevait à] la moitié d'une <i>logue</i> pour les longues nuits de <i>Teives.</i> La même [quantité serait utilisée] chaque nuit et s'il reste [de l'huile], cela n'a pas d'importance. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

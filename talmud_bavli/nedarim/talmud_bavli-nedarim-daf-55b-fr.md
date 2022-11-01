@@ -27,4 +27,4 @@ Pour <b>celui qui fait vœu</b> que les <b>produits de la terre</b> lui soient i
 § Nous avons appris dans la mishna que <b>Rabbi Yehuda dit : Tout est</b> déterminé <b>en fonction de celui qui fait des vœux. Il est enseigné</b> dans une <i>baraita</i> : <b>Comment,</b> c'est-à-dire dans quelles circonstances, <b>Rabbi Yehuda a dit : Tout est selon celui qui fait des vœux ? </b> Si <b>quelqu'un portait</b> un vêtement en <b>laine</b> <b>et que cela lui causait une gêne, et</b> en réaction <b>il disait : La laine est <i>konam</i></b> pour moi, et je ne la <b>placerai donc pas sur moi,</b> il <b>est interdit</b> pour lui de <b>porter</b> des vêtements en laine, <b>mais</b> il <b>est permis de placer</b> une charge de vêtements en laine sur lui. Si <b>quelqu'un était chargé de lin et transpirait, et disait : Le lin est <i>konam</i></b> pour moi, et je ne le <b>placerai donc pas sur moi,</b> il <b>est permis</b> pour lui <b>de porter</b> des vêtements de lin <b>et</b> il <b>est interdit</b> pour lui <b>de placer</b> une charge de vêtements de lin sur lui.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

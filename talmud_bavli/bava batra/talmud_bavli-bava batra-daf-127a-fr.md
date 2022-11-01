@@ -39,4 +39,4 @@ La Guemara répond : Il sert <b>à exclure ce que Rava a enseigné, car Rava a e
 § <b>Les habitants de Akra De'Agma ont envoyé</b> l'enquête suivante <b>à Shmuel : Enseigne-nous, notre maître :</b> Si le tribunal <b>avait une présomption concernant ce</b> fils, <b>qu'il est un premier-né, et que son père dit concernant un autre</b> de ses fils : <b>Il est</b> son <b>premier-né, quelle est</b> la <i>halakha</i> ? Shmuel <b>leur a répondu</b> : Ces deux fils <b>écrivent une autorisation,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

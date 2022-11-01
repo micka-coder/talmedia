@@ -57,4 +57,4 @@ La Gemara en déduit ce qui précède : <b>Il n'y a pas</b> de responsabilité p
 Le rabbin Ḥanina poursuit : Le <i>tanna</i> enseigne ici que <b>lorsque Rabbi Akiva dit</b> que <b>l'aspersion est efficace</b> en ce qui concerne la viande des offrandes de l'ordre le plus sacré ou les portions sacrificielles des offrandes de moindre sainteté <b>qui ont quitté</b> la cour, en ce qui concerne les <i>halakhot</i> de mauvais usage, <i>piggul</i>, <i>notar</i>, et l'interdiction de consommer la viande sacrificielle alors qu'elle est rituellement impure, qui s'applique <b>spécifiquement en ce qui concerne</b> le <i>halakhot</i> de son <b>brûlage,</b> qu'on ne le brûle pas tout de suite, mais qu'on doit attendre le lendemain matin pour le brûler.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

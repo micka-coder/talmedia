@@ -15,4 +15,4 @@
 <b>Et si vous voulez, dites</b> que <b>tout le monde est d'accord</b> pour dire qu'une <b>partie du jour est comme un jour entier</b>, <b>et ici ils sont en désaccord</b> en ce qui concerne le fait qu'un animal <b>dont le temps n'est pas encore</b> arrivé, c'est-à-dire, Selon le premier <i>tanna</i>, il n'entre pas dans l'enclos pour être soumis à la dîme ; selon Rabbi Shimon, il entre dans l'enclos pour être soumis à la dîme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

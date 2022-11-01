@@ -57,4 +57,4 @@ La Guemara continue à discuter de la question du paiement à une prostituée. <
 <b>Voici plutôt</b> ce que la <i>baraita</i> <b>enseigne :</b> Si <b>il lui a donné</b> un paiement <b>et</b> seulement <b>par la suite,</b> lorsqu'un certain temps s'est écoulé, <b>il a eu des rapports sexuels avec elle;</b> ou si <b>il a eu des rapports sexuels avec elle et</b> seulement <b>par la suite lui a donné</b> un paiement, dans ces deux cas <b>son paiement est permis. </b> La Gemara demande : <b>Mais</b> dans le cas où il lui a donné l'agneau et a ensuite eu des rapports sexuels avec elle, <b>laissons</b> le statut de <b>paiement</b> à une prostituée <b>prendre effet sur elle rétroactivement. Rabbi Elazar dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

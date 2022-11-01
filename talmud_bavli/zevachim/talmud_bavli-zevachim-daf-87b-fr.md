@@ -36,4 +36,4 @@ Rav Shimi bar Ashi répond : <b>Selon</b> l'avis de <b>Rabba également, on trou
 Rav Shimi bar Ashi ajoute : Indépendamment de la validité de la preuve de Rava bar Rav Ḥanan, <b>en tout cas, résolvez</b> la question <b>de ce côté,</b> c'est-à-dire en faveur de l'affirmation <b>que</b> l'<b>espace aérien</b> au-dessus de l'<b>autel</b> est <b>considéré comme</b> l'<b>autel</b> lui-même. <b>Comme si</b> il <b>vous venait à l'esprit</b> que l'<b>espace aérien</b> au-dessus de l'<b>autel</b> n'est <b>pas considéré comme</b> l'<b>autel,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

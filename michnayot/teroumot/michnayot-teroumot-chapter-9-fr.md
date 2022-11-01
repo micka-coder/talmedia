@@ -20,5 +20,5 @@ Quant aux produits non lavés, ce qui en pousse est permis s'ils sont d'une esp�
 ### michna 7
 Celui qui désherbe des plantes d'allium (dont les graines ne se désintègrent pas) pour un Gentil, même si les produits ne sont pas lavés, il en mange de manière désinvolte. Les jeunes plants de teroumah qui étaient devenus impurs et qui ont été replantés, deviennent purs de leur impureté. Mais ils ne doivent pas être mangés tant que la partie comestible [de la tige] n'a pas été coupée. Rabbi Juda dit : il doit [avant de manger] couper une seconde fois ce qui a poussé sur la partie comestible.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

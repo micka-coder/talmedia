@@ -94,4 +94,4 @@
 <b>Il en est de même pour le professeur qui ne retient pas la Torah de son élève.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

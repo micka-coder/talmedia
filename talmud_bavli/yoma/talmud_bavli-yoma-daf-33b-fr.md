@@ -39,4 +39,4 @@ Abaye poursuit : <b>Et</b> la combustion de l'<b>encens</b> sur l'autel intérie
 Abaye poursuit : La combustion des <b>membres</b> précède le sacrifice de l'<b>offrande de repas</b> qui accompagne l'offrande quotidienne, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : <b>D'où vient</b> qu'il ne peut y avoir <b>aucun objet</b> placé sur l'arrangement de bois <b>avant l'offrande quotidienne du matin ?</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

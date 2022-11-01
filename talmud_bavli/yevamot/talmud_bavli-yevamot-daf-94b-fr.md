@@ -39,4 +39,4 @@ Rav Kahana <b>dit à</b> Rav Ashi : <b>Si l'on admet</b> que <b>le verset l'excl
 § La Guemara pose une autre question, dans une perspective différente : <b>Et que</b> sa femme <b>soit interdite par</b> ses <b>relations sexuelles</b> avec <b>sa sœur, tout comme c'est le cas</b> d'une femme dont le mari est parti à l'étranger,</b> qui est interdite à son mari si elle a eu des relations avec un autre homme par erreur. La Gemara répond : Ce n'est <b>pas comparable.</b> En ce qui concerne <b>sa femme, qui lui est interdite</b> par la loi de la Torah</b> si elle a commis l'adultère <b>intentionnellement, les Sages ont décrété à son sujet</b> qu'elle lui est interdite même si elle l'a fait <b>intentionnellement.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

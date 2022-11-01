@@ -62,4 +62,4 @@
 <b>Dans son front.</b><span>בְּצִידֽעֵיה</span>, "tenplia" en ancien français. Elle avait pénétré dans son front et dans le sol.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

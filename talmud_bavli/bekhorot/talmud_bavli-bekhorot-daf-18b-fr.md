@@ -57,4 +57,4 @@ Si <b>une</b> de ses brebis <b>avait</b> précédemment <b>mis bas et une autre 
 <b>Et si</b> la mishna <b>n'avait enseigné</b> que <b>ce deuxième cas</b>, on aurait pu penser que <b>Rabbi Akiva énonçait</b> son avis uniquement <b>dans ce</b> cas, <b>puisque les deux</b> mères <b>n'avaient pas</b> précédemment <b>donné naissance. Mais</b> dans un cas où <b>l'une avait</b> précédemment <b>donné naissance et</b> l'autre <b>une n'avait pas</b> précédemment <b>donné naissance, et</b> collectivement elles <b>ont donné naissance à deux descendants mâles</b>, on pourrait <b>dire</b> que Rabbi Akiva <b>cède à</b> l'avis de Rabbi Tarfon.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

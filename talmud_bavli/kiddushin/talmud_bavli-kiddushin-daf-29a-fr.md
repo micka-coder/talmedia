@@ -57,4 +57,4 @@ La Gemara demande : <b>Et d'où déduit-on</b> <b>qu'elle n'est pas obligée de 
 <Rabbi Yirmeya dit : Tout le monde est d'accord</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

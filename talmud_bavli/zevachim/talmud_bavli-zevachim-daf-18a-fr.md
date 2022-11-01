@@ -33,4 +33,4 @@ La Gemara répond : <b>Si</b> on dérivait la <i>halakha</i> uniquement <b>de l�
 § <b>Les Sages ont enseigné :</b> Si les vêtements du prêtre <b>traînaient</b> sur le sol, ou <b>s'élevaient [<i>mesulakin</i>]</b> loin du sol, ou <b>déchirés, et</b> le prêtre <b>exécutait</b> des <b>rites</b> sacrificiels en les portant, <b>son service est valide. </b> Si <b>il portait deux</b> paires de <b>pantalons</b> ou <b>deux ceintures,</b> ou s'il lui manquait un</b> de ses vêtements requis, ou s'il portait <b>un vêtement supplémentaire</b>, <b>ou</b> dans un cas <b>où</b> un prêtre <b>avait un pansement sur une blessure sur son corps sous son vêtement</b> de telle sorte que le pansement agissait comme une interposition entre les vêtements et sa peau, <b>ou</b> s'il portait des vêtements <b>qui étaient</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

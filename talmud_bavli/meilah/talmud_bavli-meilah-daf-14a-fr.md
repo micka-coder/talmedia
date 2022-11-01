@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle est la raison</b> pour laquelle on ne consacre pas
 Par conséquent, une fois la construction achevée, le caractère sacré est transféré de l'argent à la structure, et l'argent est alors non sacré. <b>Et</b> à ce moment-là, les trésoriers du Temple <b>donnent</b> l'argent <b>aux artisans</b> et aux fournisseurs <b>comme leur salaire.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

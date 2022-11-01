@@ -66,4 +66,4 @@ La Guemara demande : <b>Et</b> quelle est la source de l'opinion de <b>Rabbi Shi
 La Gemara demande : <b>Et</b> quant à <b>Rabbi Yehouda, qu'il dérive aussi</b> la <i>halakha</i> par une analogie verbale <b>à partir</b> des deux <b>lambs</b> apportées le <b><i>Shavouot</i>.</b> Pourquoi est-il en désaccord avec Rabbi Chimon ? La Guemara répond : <b>On dérive</b> la <i>halakha</i> en ce qui concerne les objets <b>consacrés</b> pour l'entretien du <b>Temple,</b> comme un champ ancestral,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

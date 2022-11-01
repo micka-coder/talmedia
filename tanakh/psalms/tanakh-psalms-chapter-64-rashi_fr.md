@@ -36,4 +36,4 @@
 <b>et tous ceux qui ont le cœur droit se vanteront</b> Ils se vanteront de la droiture de leur cur, et ils se loueront parce qu'ils ont confiance que le Saint, béni soit-il, leur viendra en aide.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

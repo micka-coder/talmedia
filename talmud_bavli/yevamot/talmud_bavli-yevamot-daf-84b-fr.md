@@ -54,4 +54,4 @@ La Guemara demande à propos de la <i>baraita</i> elle-même : <b>Et cette</b> m
 La Gemara répond : <b>Si</b> on ne tirait que <b>de ce verset</b>, <b>je dirais</b> que ce principe est vrai pour <b>une interdiction qui est également</b> applicable <b>à tous, mais</b> en ce qui concerne <b>une interdiction qui n'est pas également</b> applicable <b>à tous,</b> comme les interdictions relatives aux prêtres, ce n'est <b>pas</b> le cas. Puisque ces interdictions ne s'appliquent qu'aux prêtres, nous aurions pu penser qu'elles ne s'étendent pas aux femmes. Le verset enseigne donc que l'interdiction s'applique aux femmes de la même manière qu'aux hommes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

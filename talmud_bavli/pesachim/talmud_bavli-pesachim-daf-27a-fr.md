@@ -36,4 +36,4 @@ Il a été enseigné dans le cadre de la <i>halakha</i> précédemment énoncée
 La Gemara demande : <b>Accordé, selon celui qui a dit</b> que la cuisson avec des <b>charbons incandescents</b> rend le pain <b>interdit,</b> c'est <b>parce qu'il y a amélioration du</b> <b>bois interdit dans le pain. Cependant, selon celui</b> qui <b>dit</b> que <b>même</b> lorsqu'on cuit avec des charbons</b> incandescents, le pain est <b>permis,</b> puisqu'ils ne sont plus considérés comme du bois, <b>où trouvez-vous le cas</b> où <b>Rabbi</b> Yehuda HaNasi <b>considère le pain comme interdit parce qu'il y a amélioration par rapport</b> au <b>bois interdit qu'il contient ? </b> Pourquoi y aurait-il une différence entre des charbons ardents et du bois brûlant réellement ? <b>Rav Pappa a dit :</b> Le cas est <b>lorsqu'une flamme est</b> directement <b>opposée</b> au pain. Lorsqu'il cuit le pain directement en face du bois, il est amélioré directement par le bois. Lorsque les charbons sont simplement incandescents, il n'y a pas de bénéfice direct du bois.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

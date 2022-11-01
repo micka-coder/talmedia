@@ -63,4 +63,4 @@ Ceci s'applique au fait de se retirer en présence non seulement de témoins val
 <b>Quel est</b> le statut halakhique de l'épouse <b>pendant ces jours</b> entre le moment où l'acte de divorce a été donné mais avant que la condition ne soit remplie avec le décès du mari ? <b>Rabbi Yehuda dit :</b> Elle est...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

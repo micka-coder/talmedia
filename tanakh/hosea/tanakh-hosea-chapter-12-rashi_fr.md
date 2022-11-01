@@ -56,4 +56,4 @@
 <b>Son Seigneur le rétribuera</b> C'est-à-dire le Saint, béni soit-Il, puisqu'il le surpassa dans ses mauvaises actions.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

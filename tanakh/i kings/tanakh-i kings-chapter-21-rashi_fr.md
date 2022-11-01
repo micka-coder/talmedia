@@ -70,4 +70,4 @@
 <b>Je n'amènerai pas le malheur.</b> Le désastre de cette maison, je ne l'amènerai pas de son vivant, mais le décret selon lequel les chiens lécheront son sang ne pourra pas arriver du vivant de son fils, mais sur lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

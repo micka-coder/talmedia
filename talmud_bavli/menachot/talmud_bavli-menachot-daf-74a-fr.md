@@ -66,4 +66,4 @@ La Gemara répond : <b>Ils l'exigent pour ce qui est enseigné</b> dans une <i>b
 § En ce qui concerne l'interdiction de manger de certaines offrandes dérivées du verset qui dit : "Sera offert dans son intégralité ; on ne le mangera pas", <b>Ravina demande :</b> Dans le cas d'un <b>prêtre qui a mangé des portions sacrificielles, quelle est</b> la <i>halakha</i> ? Quant à savoir si ce prêtre enfreint <b>l'interdiction faite à un non-prêtre</b> de manger certains types de viande sacrificielle, exprimée dans le verset : "Aucun non-prêtre ne mangera de la viande sacrificielle" (Lévitique 22:10),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

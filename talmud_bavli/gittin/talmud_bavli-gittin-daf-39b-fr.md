@@ -54,4 +54,4 @@ La Gemara relate : <b>Rav Naḥman bar Yitzḥak trouva Rava bar She'eilta alors
 <b>Rabbi Zeira dit</b> que <b>Rabbi Ḥanina dit</b> que <b>Rav Ashi dit</b> que <b>Rabbi</b> Yehuda HaNasi <b>dit :</b> Dans le cas de <b>un esclave qui épouse une femme libre en présence de son maître,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -35,7 +35,7 @@
 <b>Dont le feu est à Sion</b> Là, le feu sera préparé pour les brûler.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Malheur</b> Concernant Hoshea et les dix tribus qui sont descendus en Égypte pour obtenir de l'aide, qui ont envoyé des émissaires à So, roi d'Égypte (II Rois 17).
 <b>sur des chevaux</b> qui viennent de là-bas, car ce sont des coureurs rapides.
@@ -72,4 +72,4 @@
 <b>Dont le feu est à Sion</b> Là, le feu sera préparé pour les brûler.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

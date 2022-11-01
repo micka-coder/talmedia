@@ -21,4 +21,4 @@ La Gemara demande : <b>Mais Rav Zevid n'a-t-il pas enseigné</b> une version dif
 La Gemara demande : <b>Mais</b> quelle est l'opinion exprimée dans <b>la mishna qui enseigne :</b> Le Gentil <b>ne rend pas</b> le jus des raisins en <b>vin</b> utilisé pour <b>une libation jusqu'à ce qu'il descende dans la</b> <b>cuve de collecte ? Dira-t-on</b> que l'étape où le travail de production du vin est considéré comme achevé <b>est</b> l'objet d'une dispute entre <b>trois <i>tanna'im</i> ?</b> La Gemara répond : <b>Non,</b> l'interdiction du <b>vin</b> utilisé pour <b>une libation est différente, car les Sages ont été rigoureux à son sujet</b> et rendent le vin interdit avant même que les graines ne flottent. En revanche, en ce qui concerne les dîmes, la <i>tanna</i> de cette mishna tient conformément à l'opinion de Rabbi Akiva ou des rabbins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

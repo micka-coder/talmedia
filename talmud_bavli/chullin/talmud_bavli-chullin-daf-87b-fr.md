@@ -30,4 +30,4 @@ La Gemara conteste : En ce qui concerne <b>l'eau de pluie également, puisqu'on 
 <b>Nous avons appris</b> dans une <i>baraita</i> <b>ailleurs</b> (<i>Tosefta</i>, <i>Oholot</i> 4:5) : <b>Tous les liquides</b> qui sortent <b>d'un cadavre,</b> par exemple des gouttes de larmes ou du lait maternel, <b>sont rituellement purs, à l'exception de son sang. Et tous</b> les liquides qui sortent <b>d'un cadavre et qui contiennent <b>une teinte rougeâtre</b> de sang <b>sont rituellement impurs dans une tente.</b> La Gemara demande : <b>Mais les liquides</b> qui sortent d'un <b>cadavre sont-ils rituellement purs ? Et soulève une contradiction</b> d'une mishna (<i>Tevul Yom</i> 2:1) : En ce qui concerne les <b>liquides</b> qui sortent <b>de celui qui s'est immergé ce jour-là, les liquides qui sortent de lui</b> ont le même statut <b>que les liquides qu'il touche.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

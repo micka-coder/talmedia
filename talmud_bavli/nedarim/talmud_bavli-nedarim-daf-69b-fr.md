@@ -12,4 +12,4 @@ La Guemara ajoute : <b>Et même Rabbi Meir dit</b> que la première partie de la
 <b>Rabba soulève</b> un autre <b>dilemme :</b> Si on dit à sa femme ou à sa fille : Ton vœu <b>est ratifié pour toi aujourd'hui, quelle est</b> la <i>halakha</i> ? <b>Disons-nous</b> qu'il est <b>comme celui qui lui a dit : Elle est annulée pour vous demain ? Ou peut-être,</b> puisque <b>il n'a pas</b> explicitement <b>dit à elle</b> que le vœu est annulé, il reste en vigueur.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

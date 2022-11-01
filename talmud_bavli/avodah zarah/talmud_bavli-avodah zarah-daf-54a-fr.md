@@ -36,4 +36,4 @@ La Gemara demande : <b>D'où déduisons-nous</b> <b>qu'il l'a rendu interdit ? S
 <b>Mais plutôt,</b> peut-être est-ce dérivé <b>des <b>pierres de</b> l'<b>autel</b> qui ont été rendues interdites par les Grecs, même si les pierres ne leur appartenaient pas. La Guemara rejette cette suggestion : <b>Mais peut-être</b> la raison pour laquelle les pierres de l'autel ont été interdites est différente, <b>comme</b> expliqué par la déclaration <b>du Rav Pappa</b> (52b), selon laquelle lorsque les Grecs sont entrés dans le Temple, il a été souillé et est devenu le leur. On ne peut donc pas déduire de ce cas que l'on peut rendre interdit le bien d'autrui.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

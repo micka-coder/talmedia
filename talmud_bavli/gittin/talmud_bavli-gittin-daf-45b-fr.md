@@ -48,4 +48,4 @@ La mishna continue : <b>Rabbi Meir dit :</b> S'il divorce d'elle à cause de <b>
 <strong>GEMARA:</strong> <b>Rav Yosef bar Minyumi dit</b> que <b>Rav Naḥman dit : Et</b> la <i>halakha</i> énoncée dans la mishna, qui dit que dans certains cas, un homme qui divorce de sa femme ne peut pas se remarier avec elle, <b>n'est</b> applicable que <b>quand il lui a dit</b> explicitement : <b>Je te retire</b> de la maison <b>en raison de ta mauvaise réputation,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

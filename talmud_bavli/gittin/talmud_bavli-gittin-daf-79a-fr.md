@@ -63,4 +63,4 @@ Rami bar Ḥama <b>dit à</b> Rava : <b>Les cas sont-ils comparables ? Peut-êtr
 <b>Et</b> la deuxième question est <b>ce que dit Rav Ḥisda</b> concernant les <i>halakhot</i> de Chabbat : Dans le cas de celui qui a <b>encastré un roseau dans</b> le sol d'un <b>domaine privé, et à son sommet se trouvait un panier [<i>teraskal</i>], et il a jeté</b> un objet du domaine public et <b>il a reposé dessus, même</b> si le roseau était <b>de cent coudées de haut, il est responsable car le domaine privé s'étend vers le haut jusqu'au ciel.</b> Par conséquent, l'objet a atterri dans un domaine privé. <b>Cette question s'applique</b> uniquement <b>en ce qui concerne le Chabbat,</b> car en ce qui concerne le Chabbat, les domaines sont définis en fonction de leurs cloisons et de la manière dont ils sont utilisés, ce qui diffère de la manière dont les domaines sont définis dans les autres domaines halakhiques. <b>Mais ici,</b> dans le cas du divorce, <b>c'est parce que</b> l'acte de divorce <b>est sécurisé</b> qu'elle est divorcée, <b>et</b> quand il est sur le roseau <b>il n'est pas sécurisé.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

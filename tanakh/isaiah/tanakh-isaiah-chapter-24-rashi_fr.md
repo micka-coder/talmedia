@@ -87,7 +87,7 @@
 <b>Et la lune sera honteuse, etc.</b> Jonathan paraphrase : Et les adorateurs de la lune seront honteux, et les adorateurs du soleil seront humiliés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Voici que le Seigneur vide le pays et le met en ruines</b> Cette prophétie représente le châtiment pour Israël. Puisqu'il a prophétisé pour eux cette consolation, et qu'ils sont destinés à voir une grande détresse avant elle, il leur dit donc : " Ce n'est pas à vous que je dis que vous en hériterez, car voici que le Saint, béni soit-il, vous vide et vous met en ruines, mais ceux d'entre vous qui survivront jusqu'au jour de la rédemption, ils élèveront la voix et chanteront " ; c'est la fin du passage (v. 14), et c'est pour eux que j'ai prophétisé la prophétie favorable.
 <b>Vide</b> (בּוֹקֵק) vide.
@@ -176,4 +176,4 @@
 <b>Et la lune sera honteuse, etc.</b> Jonathan paraphrase : Et les adorateurs de la lune seront honteux, et les adorateurs du soleil seront humiliés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

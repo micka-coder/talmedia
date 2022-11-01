@@ -83,4 +83,4 @@
 <b>Dont la voie est droite</b> Un homme qui est droit dans ses voies.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : En fait, on considère qu'un couple se dispute <b>lorsqu'ell
 § La Gemara analyse la décision de la mishna elle-même. <b>Quelle est la raison</b> pour laquelle <b>dans</b> le cas d'une <b>querelle</b> entre eux le tribunal n'accepte pas son témoignage ? <b>Rav Ḥanina a dit : Parce qu'elle ment,</b> c'est-à-dire qu'en raison de leur querelle, elle est susceptible de témoigner faussement que son mari est mort. <b>Rav Shimi bar Ashi a dit : Parce qu'elle dit</b> ce qu'<b>elle imagine</b> être le cas. Lorsqu'il y a la paix entre eux, elle examine minutieusement la question pour découvrir s'il est réellement mort, mais s'il y a une querelle entre eux, elle n'est pas aussi exigeante, car elle est heureuse d'être débarrassée de lui. La Guemara demande : <b>Quelle est</b> la différence <b>entre</b> ces deux explications ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

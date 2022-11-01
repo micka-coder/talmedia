@@ -30,4 +30,4 @@ La Guemara rejette cette suggestion : <b>Et</b> pouvez-vous <b>le comprendre</b>
 La Guemara suggère : <b>Disons</b> que l'avis <b>de Rav Yossef fait</b> l'objet d'un différend entre <b><i>tanna'im</i>.</b> Il ne fait aucun doute que l'avis de Rabba fait l'objet d'un différend entre <i>tanna'im</i>, car l'avis de Rabbi Akiva ne peut être concilié avec sa décision : Si celui qui prend une garantie pour son prêt est considéré comme un dépositaire rémunéré, il en va certainement de même pour celui qui fait des pieds et des mains pour sauvegarder un objet perdu. La Guemara demande s'il existe un moyen d'expliquer la décision de Rav Yosef en accord avec les opinions des deux <i>tanna'im</i>, ou s'il doit accepter que Rabbi Eliezer conteste son opinion. La Guemara répond : <b>Non,</b> il est possible <b>en ce qui concerne un dépositaire pour un objet perdu</b> que <b>tout le monde tienne</b> conformément à l'opinion <b>de Rav Yosef,</b> même Rabbi Eliezer. <b>Et ici,</b> dans le <i>baraita</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

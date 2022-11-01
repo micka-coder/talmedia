@@ -45,4 +45,4 @@ Si le tribunal a <b>évalué</b> un bien pour rembourser une dette <b>à une fem
 C'est <b>comme l'a dit Rabbi Yosei bar Ḥanina : Dans Usha</b> les Sages ont <b>institué</b> que dans le cas d'une <b>femme qui a vendu</b> une partie <b>de ses biens en usufruit du vivant de son mari et que celui-ci est décédé, le mari reprend</b> le bien <b>des acheteurs.</b> Le bien appartient à la femme, tandis que les bénéfices accumulés après le mariage appartiennent au mari. Par conséquent, la femme n'a pas le droit de vendre le bien tant qu'ils sont mariés. Si elle a vendu le bien et est décédée, et que son mari est son héritier, les Sages ont institué que son statut juridique est celui d'un acheteur et non d'un héritier. Ses droits sur la terre sont antérieurs à ceux des acheteurs suivants. Il reprend possession de la terre et leur rembourse le prix de vente du bien.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

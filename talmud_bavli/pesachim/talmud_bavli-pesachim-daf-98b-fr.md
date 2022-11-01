@@ -45,4 +45,4 @@ Une fois que cela a été fait, <b>cette personne vient vers cette</b> personne 
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné :</b> Si <b>il,</b> l'agent, <b>dit aux</b> autres membres du groupe que s'ils abattent leur agneau pascal en premier, ils doivent l'inclure, <b>et qu'ils lui disent</b> que s'il abat son agneau pascal en premier, il doit les inclure, tous <b>mangeront du premier</b> agneau pascal qui a été abattu, et le second devra être brûlé. Si <b>il n'a pas dit</b> ceci <b>à eux et qu'ils n'ont pas dit</b> ceci <b>à lui, ils ne sont pas responsables les uns des autres,</b> et chaque partie mange son propre agneau pascal.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

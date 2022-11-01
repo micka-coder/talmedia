@@ -48,4 +48,4 @@ La Guemara développe davantage : Si les ouvertures sur les côtés du portique 
 <b>Et ce que Rav Yehuda a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

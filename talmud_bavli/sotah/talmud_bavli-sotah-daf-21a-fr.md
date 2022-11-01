@@ -51,4 +51,4 @@ La Guemara interprète la suite du verset cité par le <i>baraita</i> en ce qui 
 <b>Par contre,</b> il est question d'individus <b>comme Hillel et Shevna, comme lorsque Rav Dimi est venu</b> en Babylonie <b>il a dit : Hillel et Shevna étaient frères ; Hillel s'engageait dans l'étude de la Torah</b> et restait appauvri, alors que <b>Shevna se lançait dans une</b> <b>entreprise</b> et devenait riche. <b>À la fin,</b> Shevna <b>dit à</b> Hillel : <b>Viens, unissons</b> nos richesses <b>ensemble et partageons</b> entre nous ; je te donnerai la moitié de mon argent et tu me donneras la moitié de la récompense pour ton étude de la Torah. En réponse à cette demande <b>une voix divine s'est fait entendre et a dit : "Si un homme donnait toute la fortune de sa maison</b> par amour, il serait tout à fait condamné" (Cantique des Cantiques 8:7).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

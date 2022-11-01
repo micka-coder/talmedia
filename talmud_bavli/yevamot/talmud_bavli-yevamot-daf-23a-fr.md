@@ -42,4 +42,4 @@ La Guemara pose la question suivante concernant le raisonnement de Rabbi Shimon 
 La Gemara demande : <b>Cela fonctionne bien pour Rabbi Shimon, qui interprète le raisonnement</b> derrière la mitzva <b>dans le verset</b> et tire des conclusions halakhiques basées sur cette interprétation. Bien que le verset soit énoncé en ce qui concerne les sept nations, la raison du verset s'applique à toutes les autres nations gentilles. <b>Cependant, selon l'opinion</b> des <b>Rabbins,</b> qui ne tirent pas de déductions du raisonnement du verset pour appliquer cette décision à toutes les autres nations, <b>d'où</b> tirent-ils <b>cette</b> <i>halakha</i> ? La Guemara répond : <b>Qui est le <i>tanna</i> qui n'est pas d'accord avec Rabbi Yosei, fils de Rabbi Yehuda ? C'est Rabbi Shimon,</b> qui applique le raisonnement du verset à toutes les autres nations.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

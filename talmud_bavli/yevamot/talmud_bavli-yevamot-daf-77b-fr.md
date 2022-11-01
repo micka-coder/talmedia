@@ -69,4 +69,4 @@ La Guemara demande : <b>Et qu'a voulu dire Rabbi Shimon quand il a répondu : <b
 <b>Rabbi Yoḥanan dit : Si Rabbi Yehouda n'avait pas dit</b> que <b>le verset a rendu leur</b> interdiction <b>dépendante de la naissance,</b> de sorte que les femelles sont également incluses dans l'interdiction, <b>il n'aurait pas retrouvé ses mains et ses pieds dans la salle d'étude,</b> c'est-à-dire qu'il aurait été pris dans une auto-contradiction. Pourquoi ? <b>Puisque le Maître a dit</b> que selon Rabbi Yehuda <b>une congrégation de convertis est</b> également <b>appelée congrégation</b> du Seigneur,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

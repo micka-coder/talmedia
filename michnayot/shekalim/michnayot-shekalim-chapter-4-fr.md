@@ -26,5 +26,5 @@ Celui qui a dédié ses biens au Temple et il y avait parmi eux des choses conve
 ### michna 9
 Une fois tous les trente jours, les prix étaient fixés [au nom] de la chambre. Celui qui avait accepté de fournir des farines fines à quatre [se'ahs pour une sela] et qu'elles étaient maintenant à trois [se'ahs pour une sela] devait [encore] en fournir quatre. [S'il avait accepté de fournir des farines fines] à trois [se'ahs pour une sela] et qu'elles étaient maintenant à quatre, il doit [aussi] fournir à quatre, car la propriété sanctifiée a le dessus. Si la farine fine est vermoulue, la perte est la sienne ; si le vin devient aigre, la perte est la sienne. Car il n'a pas droit à son argent tant que l'autel n'a pas accepté [l'offrande].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

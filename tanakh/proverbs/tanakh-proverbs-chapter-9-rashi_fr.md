@@ -50,4 +50,4 @@
 <b>L'eau volée est douce</b> Le plaisir procuré par l'intimité avec une femme célibataire n'égale pas celui procuré par l'intimité avec une femme mariée. De même, concernant les commandements (autres éditions : sectarisme), l'eau volée est douce, car ils avaient peur de le faire en public, mais le faisaient en secret.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

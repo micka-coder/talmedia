@@ -63,4 +63,4 @@
 <b>Pulsant en lui.</b> Le visitant par intermittence.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

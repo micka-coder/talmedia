@@ -54,4 +54,4 @@ La <i>baraita</i> continue : La juxtaposition de ces versets enseigne que si l'o
 <b>Rav Yosef a posé</b> une question similaire : <b>Si des personnes impures</b> en raison de l'impureté rituelle communiquée par <b>un cadavre ont poussé</b> leur chemin dans <b>et ont mangé des portions</b> qui sont censées être consommées sur l'autel, telles que les graisses, les reins et la queue grasse, d'un <b>agneau pascal offert en état d'impureté rituelle,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -97,4 +97,4 @@
 <b>et a tourné vers eux le cœur du roi d'Assyrie</b> Et le Saint, béni soit-Il, a tourné le cœur du roi d'Assyrie vers les Israélites qui habitaient sous sa domination au pays d'Assyrie, pour les fortifier et les aider dans l'œuvre de construction.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

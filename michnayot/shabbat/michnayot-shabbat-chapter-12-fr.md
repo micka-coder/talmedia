@@ -18,4 +18,4 @@ Si l'on a écrit avec des liquides ou avec du jus de fruit, ou si l'on a tracé 
 En ce qui concerne celui qui écrit deux lettres le jour de Chabbat, en deux périodes de conscience séparées par une période de conscience que le jour était Chabbat, écrivant une lettre le matin et une lettre l'après-midi, Rabban Gamliel le considère comme responsable d'apporter une offrande pour le péché comme quelqu'un qui a involontairement accompli un travail interdit complet, et les sages le considèrent comme exempt.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

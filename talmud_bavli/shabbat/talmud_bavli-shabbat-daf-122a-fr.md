@@ -33,4 +33,4 @@ La Guemara <b>souleve une objection</b> à la déclaration de Rava en se basant 
 <b>Venez</b> et <b>entendez</b> une preuve à partir du <i>baraita</i> suivant : En ce qui concerne <b>une lampe allumée lors d'un banquet</b> auquel plusieurs personnes participent, <b>si la majorité</b> des personnes présentes sont des <b>gentils, il est permis</b> à un Juif <b>d'utiliser sa lumière,</b> et <b>si la majorité</b> des personnes présentes sont des <b>Juifs, c'est interdit,</b> car dans ce cas, la lampe a certainement été allumée au profit des Juifs. Si les personnes présentes sont <b>une moitié</b> de Juifs <b>et une moitié</b> de Gentils, <b>c'est interdit.</b> Comme ils participent au même banquet, le Gentil connaît certainement le Juif. Pourquoi, alors, est-il permis à un juif d'utiliser la lumière de la lampe même si la majorité des personnes présentes sont des gentils ? La Guemara rejette cette preuve : <b>Là aussi, quand ils allument</b> la lampe,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara répond : <b>Oui,</b> car <b>Rabbi Meir</b> se conforme <b>à sa propr
 La Gemara relate en outre : <b>Rabba bar bar Ḥana apporta un acte de divorce dont la moitié</b> était écrite en sa présence et la moitié</b> non écrite en sa présence. Il s'est présenté devant Rabbi Elazar</b> pour clarifier la <i>halakha</i> dans ce cas. Rabbi Elazar <b>lui a dit : Même</b> si le scribe <b>n'en a écrit qu'une ligne pour elle</b> en présence de l'agent, <b>il n'est plus tenu</b> d'observer davantage, car on peut supposer qu'il en a écrit la totalité pour elle. <b>Rav Ashi a dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

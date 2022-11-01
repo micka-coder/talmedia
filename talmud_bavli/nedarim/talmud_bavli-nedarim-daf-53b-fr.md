@@ -24,4 +24,4 @@ Si l'on dit : <b><i>Ḥitta</i>,</b> blé au singulier, ou <b><i>ḥittim</i>,</
 De même, si l'on dit : <b>Le haricot pilé</b> est <i>konam</i> pour moi, et pour <b>cette</b> raison <b>je</b> ne le <b>goûterai</b>,il est <b>interdit de cuisiner</b> le haricot pilé, c'est-à-dire, de manger un plat de haricots pilés cuits, car c'est ce que signifie communément le mot haricot pilé, <b>mais</b> il est <b>permis de mâcher</b> des haricots pilés crus. Si on dit : <b>Les haricots pilés</b> sont <i>konam</i> pour moi, et pour <b>cette</b> raison <b>je</b> ne les <b>goûterai</b>, il est <b>interdit de mâcher</b> des haricots pilés <b>mais</b> est <b>permis de les cuire</b>. Si l'on dit : <b>Fèves pilées</b> ou <b>fèves pilées</b> sont <i>konam</i> pour moi, et pour <b>cette</b> raison <b>je</b> ne les <b>goûterai pas</b>, il est <b>interdit à la fois de cuisiner et de mâcher</b> des fèves pilées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

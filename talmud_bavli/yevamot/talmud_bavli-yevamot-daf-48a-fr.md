@@ -36,4 +36,4 @@ Chaque <i>tanna</i> explique le fondement de son opinion : <b>Rabbi Eliezer dit 
 <b>Les Sages ont enseigné</b> dans un <i>baraita</i> : Le verset dit : <b>"Et elle pleurera son père et sa mère</b> un mois de jours et après cela vous pourrez venir à elle" (Deutéronome 21:13).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

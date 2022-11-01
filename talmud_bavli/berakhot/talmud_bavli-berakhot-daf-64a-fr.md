@@ -42,4 +42,4 @@ A propos de ce meme verset, <b>Rabbi Hiyya bar Ashi a dit</b> que <b>Rav a dit :
 Les Sages ont interprete ce verset de maniere homiletique : <b>Ne lisez pas vos enfants [<i>banayikh</i>], mais vos batisseurs [<i>bonayikh</i>].</b> Les erudits de la Torah sont ceux qui construisent la paix pour leur generation. Comme il est dit : <b>"Ceux qui aiment Ta Torah ont une grande paix ; il n'y a pas de pierre d'achoppement pour eux"</b> (Psaumes 119:165) ; et <b>"Que la paix soit dans tes murs, la prosperite dans tes palais"</b> (Psaumes 122:7), car : <b>"Pour l'amour de mes freres et de mes amis, je dirai : La paix soit en vous. Pour l'amour de la Maison du Seigneur, notre Dieu, je rechercherai votre bien"</b> (Psaumes 122:8""9), et <b>"Que le Seigneur donne la force a son peuple ; le Seigneur benira son peuple par la paix"</b> (Psaumes 29:11).
 
 >Crédit : édition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

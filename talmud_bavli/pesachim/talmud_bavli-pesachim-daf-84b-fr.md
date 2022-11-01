@@ -63,4 +63,4 @@ Si <b>il a la</b> <b>mesure minimale</b> de viande qui constituerait un acte de 
 <b>Il lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

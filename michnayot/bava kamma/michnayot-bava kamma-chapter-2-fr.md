@@ -17,5 +17,5 @@ Un bœuf qui cause un dommage dans le domaine privé de celui qui est blessé, c
 ### michna 6
 L'être humain représente toujours un danger attesté, que le dommage soit causé par inadvertance ou délibérément, que la personne qui a causé le dommage soit éveillée ou endormie. Si un homme a rendu aveugle l'œil de son compagnon ou a cassé ses ustensiles, il doit payer l'intégralité des dommages et intérêts.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

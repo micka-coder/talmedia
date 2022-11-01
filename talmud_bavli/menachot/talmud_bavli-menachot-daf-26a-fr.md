@@ -66,4 +66,4 @@ La Guemara répond : <b>Dit</b> que selon Rabbi Chimon, <b>une fois</b> le prêt
 La Guemara propose une autre preuve. <b>Venez</b> et <b>entendez : </b> Si le prêtre <b>enlevait la poignée avec sa main droite</b> <b>et la mettait</b> dans sa main gauche</b>, <b>il la remettra dans sa main droite</b>. Si la poignée était <b>dans sa main gauche</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

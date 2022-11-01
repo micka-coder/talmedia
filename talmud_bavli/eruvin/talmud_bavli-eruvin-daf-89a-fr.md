@@ -6,4 +6,4 @@
 La Guemara demande : <b>Et là où ils n'ont pas établi un <i>eirouv</i>, quelle est la raison</b> pour laquelle les résidents qui n'ont pas creusé de fosse ne peuvent <b>pas</b> verser de l'eau dans la cour ? <b>Rav Ashi a répondu :</b> Il s'agit d'un <b>décret, de peur que</b> les gens <b>viennent sortir des récipients</b> remplis d'eau <b>de</b> leurs <b>maisons dans</b> la cour, pour les verser dans la fosse. En l'absence d'un <i>eiruv</i>, cette pratique est interdite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

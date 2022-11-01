@@ -8,5 +8,5 @@ De même qu'une personne qui a mangé de la graisse interdite deux fois en une p
 ### michna 3
 Rabbi Shimon et Rabbi Shimon Shezuri disent : Ils n'ont pas contesté concernant la transgression du même nom, que dans ce cas il est responsable. A propos de quoi ont-ils contesté ? Sur les transgressions de noms différents : Rabbi Eliezer le déclare responsable d'une hatat, et Rabbi Joshua le déclare exempt. Rabbi Juda a dit : même s'il avait l'intention de cueillir des figues et qu'il a cueilli des raisins, ou des raisins et qu'il a cueilli des figues, des [raisins] blancs et qu'il a cueilli des noirs, ou des noirs et qu'il a cueilli des blancs, Rabbi Eliézer le déclare passible d'une hatat. Et Rabbi Joshua le déclare exempt. Rabbi Juda dit : Je me demande si Rabbi Joshua l'a effectivement déclaré exempt dans un tel cas. Car dans ce cas, pourquoi est-il écrit : "avec lequel il a péché" (Lévitique 4:23) ? Pour exclure les actions inconsidérées.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

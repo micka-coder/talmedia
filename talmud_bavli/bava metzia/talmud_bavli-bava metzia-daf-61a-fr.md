@@ -54,4 +54,4 @@ La Gemara conteste : <b>A l'égard de</b> celui qui <b>retient le salaire d'un o
 La Guemara demande : <b>Mais interprétons</b> le verset concernant le vol comme interdisant <b>l'intérêt ou l'exploitation, et</b> disons qu'il est écrit <b>de sorte que</b> ces interdictions impliquent toujours <b>la violation de deux interdictions.</b> La Gemara répond : L'interdiction du vol s'applique au cas de la retenue du salaire d'un ouvrier salarié car il s'agit d'une <b>question dérivée de son contexte,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

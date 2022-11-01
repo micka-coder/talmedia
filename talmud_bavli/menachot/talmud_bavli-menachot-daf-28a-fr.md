@@ -57,4 +57,4 @@ La Gemara demande : <b>Et qu'est-ce qui</b> est <b>différent</b> des trompettes
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Tous les récipients</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara réfute cet argument : <b>Et</b> même <b>selon votre raisonnement, qu
 <b>Au contraire, quelle est la raison</b> pour laquelle <b>elle ne peut pas percevoir</b> la totalité de la somme de <b>cinq cents</b> dinars ? <b>Puisque</b> il ne lui a <b>pas écrit</b> dans le second contrat de mariage : <b>J'ai choisi</b> de <b>ajouter au</b> paiement de <b>votre</b> contrat de mariage, et donc je rédige un contrat de <b>trois cents</b> dinars en plus <b>des</b> premiers <b>deux cents</b> dinars, il est évident que <b>c'est ce qu'il</b> a voulu <b>lui dire</b> en rédigeant un second contrat de mariage : <b>Si vous percevez des</b> biens vendus après <b>le premier</b> point du <b>temps, vous pouvez percevoir deux cents</b> dinars ; <b>si vous percevez des</b> biens vendus après <b>le deuxième</b> point du <b>temps, vous pouvez percevoir trois cents</b> dinars.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

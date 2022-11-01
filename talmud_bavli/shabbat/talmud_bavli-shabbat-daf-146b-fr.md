@@ -45,4 +45,4 @@ Nous avons appris dans la mishna que <b>ceux dont les vêtements <b>sont tombés
 <b>Rav Huna a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

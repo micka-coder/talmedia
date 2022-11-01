@@ -51,4 +51,4 @@ La Guemara répond : <b>Résolvez</b> la contradiction en émendant le texte, <b
 <b>Rav Yosef a dit :</b> Il n'y a jamais eu de motifs d'objection dès le départ, car <b>Avez-vous supprimé</b> tous les <b>tanna'im</i> du monde ? </b> Ceci <b>est</b> le sujet d'une dispute parmi les <b><i>tanna'im</i>,</b> et l'avis de Rabbi Shimon ben Elazar's n'a pas fait l'unanimité. <b>Comme il est enseigné</b> dans une autre <i>baraita</i> : En ce qui concerne les <b>offrandes de paix qui viennent à cause d'une fête sur la fête,</b> par exemple, les offrandes de paix de fête ou les offrandes de paix de réjouissance, <b>Beit Shammai disent : On pose</b> ses <b>mains sur eux la veille de la Fête et on les égorge le jour de la Fête, et Beit Hillel disent : On pose</b> ses <b>mains sur eux à la Fête</b> même <b>et on les égorge à la Fête.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

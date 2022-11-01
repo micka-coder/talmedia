@@ -33,4 +33,4 @@ La Guemara répond : Ce n'est <b>pas difficile. Ici,</b> dans le cas où le don 
 <b>Et la <i>halakha</i></b> est que le statut juridique de <b>toute</b> déclaration interrompue ou rétractée <b>dans le temps <b>requis pour prononcer</b> une courte phrase <b>est comme</b> celui de la <b>parole continue. </b> C'est la <i>halakha</i> dans tous les cas, <b>à l'exception du culte des idoles,</b> car celui qui accepte une idole comme son dieu est susceptible de recevoir la peine capitale imposée par le tribunal même s'il se rétracte dans le temps requis pour prononcer une courte phrase,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais</b> l'<b>abattage</b> lui-même <b>devrait être eff
 La Gemara demande : Si le <i>baraita</i> se réfère uniquement à une génisse morte avant que son cou ne puisse être brisé, et qu'il décrit le fait d'en tirer profit comme étant interdit, <b>par déduction,</b> est-il <b>interdit</b> de tirer profit de la génisse <b>pendant</b> qu'elle est encore <b>vivante ?</b> La Guemara répond : <b>En effet,</b> comme le dit <b>Rabbi Yannai : j'ai entendu</b> la <b>limite,</b> c'est-à-dire, stade, au-delà duquel il est interdit, <b>mais j'ai oublié</b> ce que c'est, <b>et</b> pourtant les membres du <b>groupe</b> de savants <b>avaient tendance à dire</b> que <b>sa descente dans une vallée dure</b> (voir Deutéronome 21:4), où son cou a été brisé, est l'action qui <b>le rend interdit.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

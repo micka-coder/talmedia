@@ -57,4 +57,4 @@ La Guemara demande : <b>Et qu'as-tu vu pour inclure la coupe et exclure</b> le f
 La Gemara demande : <b>Mais</b> on peut <b>saisir</b> que la limitation des <b>fils et non des filles</b> s'applique <b>à la fois à</b> provoquer un <b>balancement et à se couper, et lorsque</b> le verset <b>écrit : "Car vous êtes un peuple saint pour le Seigneur votre Dieu", cela est écrit en ce qui concerne le fait de se scarifier</b>. L'interdiction de se marquer est dérivée d'une analogie verbale d'un verset énoncé à propos des prêtres (voir Lévitique 21:5), qui s'applique aussi bien aux hommes qu'aux femmes. La Gemara répond : <b>Isi soutient</b> que <b>se marquer</b> soi-même <b>et se couper</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -88,4 +88,4 @@
 <b>Vous êtes homme</b> Vous n'êtes pas comme des animaux à Mes yeux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

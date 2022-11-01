@@ -58,4 +58,4 @@
 <b>et il ferma les portes de la Maison du Seigneur</b> afin que les prêtres n'aillent pas accomplir leur service dans la Tente de la Rencontre, mais qu'ils viennent aux autels qu'il avait érigés à tous les coins de Jérusalem. Ezéchias "ouvrit les portes de la Maison du Seigneur" (ci-dessous 29:3) parce que son père avait fermé les portes de la Maison du Seigneur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

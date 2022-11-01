@@ -51,4 +51,4 @@ La Guemara demande : <b>A propos de quoi sont-ils en désaccord ?</b> La Gemara 
 <b>Rabbi Meir dira : D'où</b> provient-il <b>que même les fœtus dans le ventre de leur mère récitaient</b> la <b>chanson</b> à la mer ? <b>Comme il est dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle est la raison pour laquelle nous récitons</b> ce
 La Gemara demande : <b>Et</b> est-ce que <b>Rabbi Yehuda soutient</b> que cette <b>récolte</b> effectuée par les habitants de Jéricho <b>était contre la volonté des Sages ? N'avons-nous pas appris</b> dans une mishna : <b>Les habitants de Jéricho</b> faisaient la <b>récolte avant le <i>omer</i>,</b> conformément à la <b>volonté des Sages, et ils</b> <b>empilaient</b> le grain <b>avant le <i>omer</i>, contre la volonté des Sages, mais les Sages ne les ont pas réprimandés ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

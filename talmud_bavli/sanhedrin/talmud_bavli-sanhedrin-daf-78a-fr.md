@@ -57,4 +57,4 @@ La Gemara demande : <b>Pourquoi ai-je aussi</b> besoin de <b>cette</b> décision
 <strong>GEMARA:</strong> <b>Les Sages ont enseigné : Rabbi Neḥemya a interprété ce</b> verset pour arriver à sa décision. Il est écrit : <b>"S'il se lève et marche à l'extérieur</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

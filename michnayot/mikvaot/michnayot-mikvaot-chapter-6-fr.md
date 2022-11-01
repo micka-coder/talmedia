@@ -32,5 +32,5 @@ La sortie d'un bassin de bain : si elle est au centre, cela rend [le bain] inval
 ### michna 11
 [Concernant] un bassin dans la maison de bain : le fond était plein d'[eau] puisée et le haut plein d'[eau] valide, si [l'espace] devant le trou peut contenir trois log, il est invalide [comme mikveh]. Quelle doit être la taille du trou pour contenir trois log ? 1/320ème d'une piscine [de quarante séah], ce sont les mots de Rabbi Yose. Mais Rabbi Elazar dit : même si le [bassin] du bas était plein d'eau valide et le [bassin] du haut plein d'eau puisée et qu'à côté du trou il y avait trois log, [le bain est] valide, car ils [les sages] ont seulement dit : "si trois log tombaient dedans".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

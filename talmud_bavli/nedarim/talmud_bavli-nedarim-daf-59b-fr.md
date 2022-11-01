@@ -12,4 +12,4 @@ La Gemara demande : <b>Et partout où l'on s'exerce</b>, <b>la partie originale 
 § En ce qui concerne <b>la</b> question <b>elle-même, Rabbi Ḥanina Tirta'a dit</b> que <b>Rabbi Yannai a dit :</b> En ce qui concerne <b>un oignon de <i>teruma</i> que l'on a planté,</b> si <b>ses croissances ont dépassé son principal,</b> il <b>est permis.</b> La Guemara demande : <b>Est-ce à dire que les croissances</b> qui sont
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Rav Ashi explique la décision de la mishna : <b>Le Miséricordieux juge le pèr
 <b>Abaye a plutôt dit : La mishna</b> se réfère à un cas <b>où nous</b> n'avons pas <b>de statut de présomption en ce qui concerne</b> d'éventuels <b>frères</b> à lui, <b>et</b> de même <b>nous</b> n'avons <b>pas de statut de présomption en ce qui concerne</b> ses <b>enfants.</b> Le tribunal n'a aucune connaissance préalable quant à savoir si le mourant a des frères ou des enfants. <b>Comme on dit : Puisque nous</b> n'avons <b>pas</b> de statut présomptif en ce qui concerne soit les enfants, soit les frères,</b> si <b>il disait : J'ai des enfants,</b> il est <b>réputé crédible,</b> alors que s'il a dit : <b>J'ai des frères,</b> il est <b>non jugé crédible.</b> Pourquoi ? <b>Il n'est pas en son</b> pouvoir <b>de la rendre interdite à tous,</b> contre la présomption qu'il n'a pas de frères. En revanche, le <b><i>baraita</i></b> fait référence à...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

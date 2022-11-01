@@ -39,4 +39,4 @@ C'est <b>comme cela est enseigné</b> dans une <i>baraita</i> : la Torah utilise
 La Gemara explique plus loin : <b>Cette</b> réponse, selon laquelle l'abus de biens consacrés et le détournement sont deux versets qui viennent enseigner la même chose, <b>fonctionne bien</b> selon <b>Beit Hillel</b> l'opinion de <b>Beit Hillel. Mais</b> selon <b>à</b> l'opinion de <b>Beit Shammai, qui établissent ce verset</b> comme rendant responsable <b>de la pensée comme de l'action</b> et n'en tirent pas la leçon que le dépositaire est responsable si celui qui agit en son nom détourne le dépôt,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

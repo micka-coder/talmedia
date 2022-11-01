@@ -51,4 +51,4 @@ La Gemara répond : <b>Ils sont incertains</b> par rapport à <b>ce que Rav Adda
 Un point de vue opposé <b>a été enseigné</b> dans une autre <i>baraita</i>. <b>Rabbi Shimon ben Yoḥai dit : "Pourvu que la Torah ne soit pas oubliée du peuple juif, comme il est dit :</b> "Et ce chant lui servira de témoin, <b>pour qu'elle ne soit pas oubliée de sa postérité"</b> (Deutéronome 31:21). <b>Au contraire, comment expliquer : "Ils erreront pour trouver la parole de Dieu, mais ils ne la trouveront pas'</b> Cela signifie <b>qu'ils ne trouveront pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

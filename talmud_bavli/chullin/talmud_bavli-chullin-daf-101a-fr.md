@@ -42,4 +42,4 @@ La Gemara objecte : <b>Mais</b> même selon <b>Rabbi Yosei</b> HaGelili, <b>en a
 <b>Rav Ashi a dit : Qui</b> peut <b>nous dire que</b> l'interdiction due à l'<b>impureté du</b> <b>corps d'une personne est</b> plus <b>stricte ? Peut-être</b> l'interdiction due à l'<b>impureté de la viande est</b> plus <b>stricte, car</b> la viande impure <b>n'a pas</b> la possibilité de restaurer son état de <b>pureté</b> par immersion <b>dans un bain rituel,</b> alors qu'une personne rituellement impure peut devenir pure de cette manière.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

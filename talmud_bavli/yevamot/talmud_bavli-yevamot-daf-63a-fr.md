@@ -42,4 +42,4 @@ La Gemara cite d'autres déclarations concernant les épouses. Lorsque <b>Rav pr
 La Gemara relate une histoire similaire. <b>La femme de Rabbi Ḥiyya le</b> constamment <b>aggravé.</b> Néanmoins, <b>quand il trouvait quelque chose</b> qu'elle appréciait, <b>il l'enveloppait dans son châle et l'apportait</b> à elle. Rav lui dit : N'est-elle pas</b> constamment en train de t'<b>aggraver ? </b> Pourquoi lui apportes-tu des choses ? Rabbi Ḥiyya <b>lui a dit : Il nous suffit</b> que nos femmes <b>élèvent nos enfants et nous sauvent</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

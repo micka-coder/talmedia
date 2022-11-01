@@ -60,4 +60,4 @@ La Guemara répond : <b>Comment peut-on</b> ces cas</b> être comparés ? Là,</
 <b>Tous</b> ceux <b>qui montent</b> la rampe <b>vers l'autel montent par</b> le côté <b>droit</b> de la rampe vers l'angle sud-est.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

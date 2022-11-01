@@ -57,4 +57,4 @@ Mar bar Rav Ashi <b>lui a dit : Que fais-tu dans un lieu où se trouvent de nomb
 La Gemara raconte : Il y avait <b>un certain fils de démon qui était dans la maison de Rav Pappa</b> comme serviteur. Il <b>allait chercher de l'eau à la rivière,</b> et <b>il tardait</b> à revenir. <b>Quand il est arrivé,</b> les membres de la maison de Rav Pappa lui <b>ont dit : Pourquoi as-tu tardé ? Il leur a répondu :</b> J'ai attendu <b>jusqu'à ce que les eaux nauséabondes passent. Pendant ce temps,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

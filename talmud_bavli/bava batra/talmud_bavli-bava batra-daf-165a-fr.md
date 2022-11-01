@@ -39,4 +39,4 @@ La Gemara relate : <b>Ameimar a jugé</b> un document <b>valide dans</b> le cas 
 Rav Ashi demande : <b>Mais</b> si vous n'êtes pas d'accord, la <b>difficulté</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

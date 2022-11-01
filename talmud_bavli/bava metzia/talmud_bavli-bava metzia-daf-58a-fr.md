@@ -42,4 +42,4 @@ Dans ce <i>baraita</i>, il est enseigné : Pour un serment concernant les <b>ani
 Rabbi Yitzḥak <b>lui dit : N'est-ce pas le contraire</b> [<b><i>kelapei layya</i></b>] ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

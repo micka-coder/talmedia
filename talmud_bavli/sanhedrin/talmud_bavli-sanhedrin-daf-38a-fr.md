@@ -54,4 +54,4 @@ Le verset dit dans ce passage : <b>"Celui qui est irréfléchi, qu'il se tourne 
 <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Meir disait : La poussière</b> qui a servi à former <b>Adam le premier</b> homme <b>a été recueillie dans le monde entier, comme il est dit :</b> "Quand j'ai été fait en secret et travaillé dans les lieux les plus bas de la terre, <b>Tes yeux ont vu ma chair informe"</b> (Psaumes 139:15-16), <b>et</b> il <b>est écrit : "Car les yeux de l'Éternel vont et viennent sur toute la terre"</b> (II Chroniques 16:9), ce qui indique que cette figure a été formée à partir de la terre entière, le lieu à la vue des yeux de l'Éternel. <b>Rav Oshaya dit au nom du Rav :</b> A propos de <b>Adam le premier</b> homme ,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

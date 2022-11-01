@@ -36,4 +36,4 @@ La Guemara conteste cette affirmation : <b>Et n'est-ce pas une déduction <i>a f
 <b>Rav Ashi a dit :</b> Il y a une autre raison pour laquelle il ne pourrait pas être que la séquestration soit requise avant le huitième jour de l'assemblée. Existe-t-il une <b>matière où la Fête primaire,</b> le premier jour de <i>Sukkot</i>, <b>ne nécessite pas de séquestration,</b> comme cela a déjà été prouvé, alors que ce qui lui est <b>secondaire nécessite une séquestration ?</b> Puisque le Huitième Jour de l'Assemblée est un addendum à <i>Sukkot</i>, sa sainteté et sa rigueur pourraient-elles être plus grandes que celles qui sont associées à la Fête primaire ? <b>Et même selon celui qui a dit : Le huitième</b> jour d'assemblée <b>est une Fête en soi</b> et ne fait pas partie de la Fête de <i>Sukkot</i>, <b>cela ne s'applique qu'à la question de</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

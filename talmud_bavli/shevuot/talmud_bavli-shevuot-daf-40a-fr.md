@@ -45,4 +45,4 @@ La Gemara rejette cette preuve : <b>Non,</b> il est possible que <b>la même cho
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve de la mishna : Si quelqu'un <b>réclame</b> qu'un autre lui doit <b>des navires et des terres,</b> et que le défendeur <b>admet lui devoir</b> des <b>récipientx mais nie</b> la créance de <b>terre,</b> ou inversement, s'il admet <b>de</b> lui devoir <b>des terres mais nie</b> la créance de <b>récipientx,</b> il est <b>exempté</b> de prêter serment.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara rapporte que des gens <b>ont dit à Rabba bar Sheila : Un homme est m
 La Guemara répond : <b>C'est dû à</b> ce <b>que Rav Yehuda a dit, comme Rav Yehuda a dit : La parole est nuisible pour l'œil et bénéfique pour</b> guérir <b>une fièvre.</b> Par conséquent, si quelqu'un souffre d'une douleur à l'œil ou à la tête, il est préférable qu'il ne parle pas. S'il a des visiteurs, il devra leur parler, ce qui lui causera du tort. <b>Rava dit :</b> En ce qui concerne <b>cette fièvre [<i>ishta</i>], si elle n'était pas l'agent [<i>parvanka</i>] de l'ange de la mort,</b> c'est-à-dire la cause de maladies graves, potentiellement mortelles, elle pourrait être jugée <b>bénéfique,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

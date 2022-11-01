@@ -9,4 +9,4 @@ La Gemara commente : Concernant le mariage d'une femme ayant hérité de terres,
 <b>Dîtes-vous</b> que c'est <b>en ce qui concerne</b> le <b>transfert</b> de l'héritage <b>par le biais du fils, ou est-ce seulement en ce qui concerne</b> le <b>transfert</b> de l'héritage <b>par le biais du mari ? Lorsqu'il est dit : "Ainsi, aucun héritage ne sera transféré d'une tribu à une autre tribu"</b> (Nombres 36:9), le verset parle en ce qui concerne</b> le <b>transfert</b> de l'héritage <b>par le biais du mari. Comment réaliser</b> le sens du verset : <b>"Ainsi, aucun héritage des enfants d'Israël ne sera transféré de tribu à tribu"</b> (Nombres 36, 7) ? Ce <b>verset parle</b> du <b>transfert</b> de l'héritage <b>par le biais du fils.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

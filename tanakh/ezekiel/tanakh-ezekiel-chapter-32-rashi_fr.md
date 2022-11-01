@@ -104,4 +104,4 @@
 <b>Parce que je jetterai ma crainte sur la terre des vivants</b> Car je jetterai ma crainte sur la terre des vivants et la crainte de l'homme n'y sera plus jetée.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara analyse l'opinion des rabbins. <b>Et</b> selon l'avis des <b>Rabbins 
 § La Guemara revient pour discuter de la levure d'une offrande de repas. <b>Rabbi Ami dit : </b> Si on <b>plaçait du levain,</b> c'est-à-dire, de la pâte qui a levé à tel point qu'elle n'est plus utilisée comme aliment mais comme agent levant pour d'autres pâtes, <b>sur le dessus</b> de la <b>pâte</b> d'une offrande de repas, <b>et qu'il est allé s'asseoir</b> pour attendre, c'est-à-dire qu'il n'a effectué aucune autre action, <b>et</b> la pâte a alors <b>levée d'elle-même</b>, il est <b>responsable</b> de recevoir des coups de fouet <b>pour cela. </b> Ceci est <b>similaire à</b> l'accomplissement d'une <b>action interdite le jour du Shabbat.</b> La Gemara remet en question cette comparaison : <b>Et on est responsable</b> d'accomplir une <b>action interdite le Chabbat</b> dans <b>un cas comme celui-ci ? Mais Rabba bar bar Ḥana ne dit-il pas</b> .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

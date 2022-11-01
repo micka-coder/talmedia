@@ -33,4 +33,4 @@ La Guemara demande : En ce qui concerne <b>son salaire complet, d'où l'a-t-il d
 <strong>MISHNA :</strong> <b>De combien la pièce de monnaie <i>sela</i></b> peut-elle être érodée</b> par l'usage, <b>et</b> son utilisation dans une transaction à sa valeur initiale <b>pourra</b> encore <b>ne pas constituer une exploitation ? Rabbi Meir dit :</b> La dépréciation admise est de <b>quatre <i>issar</i>,</b> soit un taux d'un <b><i>issar</i> par dinar,</b> ou un vingt-quatrième de dinar. <b>Et Rabbi Yehuda dit :</b> La dépréciation acceptée est de <b>quatre <i>pundeyon</i>,</b> soit un taux d'un <b><i>pundeyon</i> par dinar,</b> ou un douzième de dinar. <b>Et Rabbi Shimon dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

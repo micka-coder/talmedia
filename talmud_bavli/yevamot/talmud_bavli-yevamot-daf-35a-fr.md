@@ -30,4 +30,4 @@ La Gemara s'oppose à cette affirmation : <b>Mais Rav Amram n'a-t-il pas dit : R
 <b>Rava</b> a résolu cette question et <b>a dit : Voici ce que</b> le <i>tanna</i> <b>dit</b> dans la mishna : <b>S'il s'agissait de filles de prêtres</b> qui <b>étaient mariées à un Israélite, elles sont disqualifiées du <i>teruma</i> qui est de la maison de leurs pères,</b> de sorte que si leurs maris meurent alors qu'elles sont sans enfants, elles ne pourront pas retourner manger du <i>teruma</i> dans la maison de leurs pères. Alors que d'autres filles de prêtres sans enfants sont à nouveau qualifiées pour manger du <i>teruma</i> au moment où elles quittent leurs maris israélites, ces femmes ont été disqualifiées par leur acte de relation sexuelle interdite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

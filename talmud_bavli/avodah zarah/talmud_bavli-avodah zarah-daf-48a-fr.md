@@ -45,4 +45,4 @@ La Guemara explique l'autre possibilité. <b>Si tu veux, dis</b> que <b>les rabb
 La Guemara présente une question : <b>Quel</b> arbre <b>est</b> supposé être <b>un <i>ashera</i>,</b> même <b>sans savoir spécifiquement</b> qu'il a été adoré ? <b>Rav dit : Tout</b> arbre <b>que</b> les prêtres gentils <b>s'assoient dessous et ne goûtent pas à ses fruits,</b> car ils considèrent apparemment que les fruits sont consacrés à l'idole. <b>Et Shmuel dit : Même</b> si <b>ils</b> ne font que <b>dire : Ces dattes sont pour la maison de Natzrefei,</b> une maison d'adoration d'idoles, l'arbre est <b>interdit.</b> Ceci est <b>parce que</b> les adorateurs d'idoles <b>jetteraient</b> les dattes <b>dans la bière et la boiraient le jour de leur fête. Ameimar dit : Les anciens de Pumbedita m'ont dit</b> que <b>la <i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Shmuel.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

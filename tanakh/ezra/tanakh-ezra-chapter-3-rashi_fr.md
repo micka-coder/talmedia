@@ -57,4 +57,4 @@
 <b>Et le peuple ne reconnut pas</b> Ces auditeurs ne reconnurent pas la voix du cri de joie, à cause de la voix des pleurs du peuple, car le peuple qui se réjouissait criait d'une voix forte, et la voix des pleurs se faisait entendre de plus en plus loin.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -66,4 +66,4 @@ La <i>baraita</i> enseigne que dans le cas d'un <i>zav</i> ou d'un <i>zava</i>, 
 La <i>baraïta</i> enseigne que l'urine d'un <i>zav</i> transmet une forme sévère d'impureté rituelle, tout comme sa <i>ziva</i> et sa salive. La Guemara demande : <b>D'où déduit-on</b> que l'<b>urine</b> d'un <i>zav</i> est impure ? <b>Comme il est enseigné</b> dans une <i>baraita</i> : Le verset dit : "Quand un homme a une issue de sa chair, <b>son issue,</b> elle est <b>impure. Et ceci</b> sera son impureté" (Lévitique 15:2-3). Le terme "et ceci" vient <b>inclure son urine en ce qui concerne</b> une forme sévère d'impureté <b>rituelle.</b> La <i>baraita</i> demande : <b>Et cela ne pourrait-il pas</b> être dérivé par une <i>a fortiori</i> <b>inférence ? Si la salive, qui provient d'un lieu de pureté,</b> c'est-à-dire de la bouche, dont les sécrétions ne sont habituellement pas impures, est néanmoins <b>impure,</b> alors en ce qui concerne <b>son urine, qui provient</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

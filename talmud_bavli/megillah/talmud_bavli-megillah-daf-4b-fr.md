@@ -72,4 +72,4 @@ La Guemara commente : <b>Et ce</b> même souci de la sainteté de Chabbat <b>est
 La Guemara est troublée par la formulation de cette <i>baraita</i>. La <i>baraita</i> se lit-elle ainsi : <b>Même si</b> les Sages ont <b>dit ? Au contraire,</b> c'est <b>parce qu'ils ont dit</b> que les villages avancent leur lecture au jour de l'assemblée que les dons doivent être collectés et distribués aux pauvres ce jour même. <b>Au contraire,</b> la <i>baraita</i> devrait se lire comme suit : <b>Puisque</b> les Sages ont <b>dit que les villages avancent</b> leur lecture de la Megilla <b>au jour de l'assemblée, ils collectent</b> les cadeaux pour les pauvres <b>ce jour-là et ils les distribuent</b> ce jour-là, car les yeux des pauvres sont levés sur la lecture de la Megilla,</b> et ils ne doivent pas être déçus. <b>Cependant,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

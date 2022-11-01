@@ -39,4 +39,4 @@ La Guemara répond : <b>Shmuel</b> aurait pu te <b>dire : Lorsque j'ai dit</b> m
 La Gemara demande : <b>Mais</b> si c'est le cas, <b>à partir du fait que <b>Rabban Gamliel soutient</b> que <b>le lien lévirat n'est pas substantiel,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Si c'est le cas,</b> pourquoi la <i>halakha</i> selon laq
 La Guemara répond que <b>Voici ce que</b> la mishna <b>dit :</b> Si <b>une rumeur circule dans la ville</b> qu'une femme est <b>fiançée, elle est fiancée,</b> et elle ne peut pas se marier avec un autre homme jusqu'à ce qu'elle reçoive un acte de divorce de l'homme auquel on dit qu'elle est fiancée. Si la rumeur veut qu'elle ait été <b>fiançée</b> à un certain homme <b>et</b> ensuite <b>divorcée</b> de lui,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

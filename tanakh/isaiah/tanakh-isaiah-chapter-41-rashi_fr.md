@@ -139,7 +139,7 @@
 <b>leurs images en fonte</b> Heb. נִסְכֵּיהֶם. Comp. (supra 40:19) "L'image taillée, l'artisan l'a fondue (נָסַךְ)." Jonathan rend cette section différemment : [27] <b>Le premier à Sion etc.</b> Les paroles de consolation que les prophètes ont prophétisées concernant Sion, dès avant, voici qu'elles sont venues. Et selon le Targum, toute la section parle du roi Messie et de la dernière rédemption, mais je vois que la prophétie qu'Isaïe a prophétisée concernant Cyrus est toute dans le même langage que cette section. Comp. (infra 45, 13) "Je l'ai excité par la justice" ; (infra 46, 11) "Appelant de l'Orient un oiseau de proie" ; (infra 45, 11) "Les signes m'interrogent" ; (infra 46, 10) "Qui dit dès le commencement la fin." Tout cela ressemble au sujet de cette section.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Faites silence devant Moi</b> afin d'entendre Mes paroles.
 <b>Islandes</b> Païens ([mss. Kli Paz :] nations).
@@ -280,4 +280,4 @@
 <b>leurs images en fonte</b> Heb. נִסְכֵּיהֶם. Comp. (supra 40:19) "L'image taillée, l'artisan l'a fondue (נָסַךְ)." Jonathan rend cette section différemment : [27] <b>Le premier à Sion etc.</b> Les paroles de consolation que les prophètes ont prophétisées concernant Sion, dès avant, voici qu'elles sont venues. Et selon le Targum, toute la section parle du roi Messie et de la dernière rédemption, mais je vois que la prophétie qu'Isaïe a prophétisée concernant Cyrus est toute dans le même langage que cette section. Comp. (infra 45, 13) "Je l'ai excité par la justice" ; (infra 46, 11) "Appelant de l'Orient un oiseau de proie" ; (infra 45, 11) "Les signes m'interrogent" ; (infra 46, 10) "Qui dit dès le commencement la fin." Tout cela ressemble au sujet de cette section.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

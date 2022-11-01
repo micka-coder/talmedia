@@ -51,4 +51,4 @@ La Gemara explique : <b>C'est plutôt,</b> c'est <b>comme Rava l'a dit là,</b> 
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Joshua a stipulé dix conditions</b> lorsqu'il a réparti Eretz Yisrael entre les tribus :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

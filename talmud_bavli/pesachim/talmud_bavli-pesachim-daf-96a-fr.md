@@ -75,4 +75,4 @@ La Guemara revient pour discuter de la mishna, qui a déclaré que l'agneau pasc
 La mishna a affirmé que <b>l'agneau pascal des</b> générations ultérieures applique les sept</b> jours. La Guemara demande : <b>De quoi s'agit-il ? Si nous disons</b> qu'il se réfère <b>à l'agneau pascal</b> lui-même, <b>y a-t-il un agneau pascal tous les sept</b> jours ? Il n'est offert que le quatorze de Nisan.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

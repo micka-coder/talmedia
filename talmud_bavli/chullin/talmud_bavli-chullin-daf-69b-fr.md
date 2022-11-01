@@ -48,4 +48,4 @@ La Guemara développe : Lorsque <b>Rav Huna dit</b> qu'il est <b>non consacré</
 La Gemara note : <b>Et</b> il est <b>nécessaire</b> de transmettre le différend de Rav Huna et Rabba dans ces deux cas. <b>Car, si</b> les Sages nous avaient <b>appris</b> uniquement leur différend <b>en ce qui concerne ce</b> cas, où après un tiers émergé, il a été vendu à un Gentil, on aurait pu penser que c'est uniquement <b>en ce qui concerne ce</b> cas que <b>Rav Huna dit</b> que l'animal est consacré rétroactivement. Ceci est <b>parce que</b> statuer qu'il est consacré à partir de ce moment-là <b>serait une indulgence,</b> car alors le fœtus serait exempté d'être soumis au statut de premier-né. <b>Mais en ce qui concerne ce</b> cas, lorsqu'un tiers est sorti par la paroi de l'utérus, <b>où</b> l'avis de Rabba conduirait à <b>une rigueur,</b> on pourrait <b>say</b> que Rav Huna <b>cède à Rabba.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

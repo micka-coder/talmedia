@@ -39,4 +39,4 @@ Et il est nécessaire d'enseigner à cette <i>halakha</i> que, bien qu'il ait é
 La Guemara soulève une objection à l'opinion de Rav Huna. <b>Nous avons appris</b> dans la mishna que <b>Rabban Shimon ben Gamliel dit : Même jusqu'à dix générations</b> la progéniture <b>est exempte, car elle sert de garantie au Gentil,</b> car s'il ne reçoit pas le paiement fixé pour l'animal, il recouvrera sa dette de toute progéniture née de lui ou de sa descendance. L'utilisation par Rabban Shimon ben Gamliel du terme : Même, indique qu'il n'est en désaccord avec la première <i>tanna</i> qu'en ce qui concerne le nombre de générations de descendants qui sont exemptées, mais tous deux s'accordent à dire qu'au moins certaines générations sont exemptées. <b>Accordé, selon le Rav Yehuda, qui dit</b> que, en exemptant du statut de premier-né, <b>le premier <i>tanna</i> est descendu à</b> deux niveaux <b>générationnels</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

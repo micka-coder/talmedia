@@ -65,5 +65,5 @@ Rabbi Elazar Ha-kappar a dit : l'envie, la luxure et [le désir de] l'honneur fo
 ### michna 22
 Il disait : ceux qui sont nés vont mourir, et ceux qui sont morts vont être ramenés à la vie, et ceux qui sont ramenés à la vie vont être jugés ; Afin que l'on sache, que l'on fasse savoir et que l'on ait la connaissance qu'Il est Dieu, qu'Il est le concepteur, qu'Il est le créateur, qu'Il est le discerneur, qu'Il est le juge, qu'Il est le témoin, qu'Il est le plaignant, et qu'Il convoquera au jugement. Béni soit-Il, devant qui il n'y a ni iniquité, ni oubli, ni respect des personnes, ni acceptation de pots-de-vin, car tout est à Lui. Et sachez que tout est selon le compte. Et que ton impulsion ne te fasse pas croire que la tombe est pour toi un refuge, car c'est contre ta volonté que tu as été formé, c'est contre ta volonté que tu es né, c'est contre ta volonté que tu vis, c'est contre ta volonté que tu mourras, et c'est contre ta volonté que tu rendras compte et que tu feras tes comptes devant le Roi des rois des rois, le Saint, béni soit-Il.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

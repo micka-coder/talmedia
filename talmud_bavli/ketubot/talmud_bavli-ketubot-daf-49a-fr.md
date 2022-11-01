@@ -33,4 +33,4 @@ La Guemara répond que la mishna peut être expliquée de plusieurs manières di
 La Gemara explique en détail : <b>Si tu veux, dis</b> c'est <b>Rabbi Meir, et voici ce qu'il a dit</b> dans la mishna : <b>Un père n'est pas obligé</b> de pourvoir à la subsistance de <b>sa fille, et il en est de même en ce qui concerne</b> la subsistance de <b>son fils.</b> Cela indique qu' <b>il y a une mitzva,</b> bien que ce ne soit pas une obligation, de pourvoir à la subsistance de <b>sa fille,</b> et par <b>une <i>a fortiori</i></b> déduction, c'est une mitzva en ce qui concerne <b>les fils. Et</b> la raison pour laquelle <b>que</b> la mishna <b>n'enseigne</b> que le cas de <b>sa fille,</b> et a omis toute mention des fils, n'est pas parce qu'un père est obligé de nourrir ses fils. Au contraire, il <b>nous enseigne ceci :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

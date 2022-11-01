@@ -18,4 +18,4 @@ La Guemara répond : Ceci n'est pas une preuve, car <b>peut-être qu'au moment o
 <b>Au contraire,</b> le principe selon lequel on utilise le premier élément découle de la déclaration de <b>Rabbi Yosei à propos de l'offrande pascale, telle qu'elle a été enseignée</b> dans une <i>baraita</i> : En ce qui concerne <b>quelqu'un qui a séparé</b> un mouton pour <b>son offrande pascale et</b> le mouton <b>a été perdu, et il a séparé un autre</b> mouton <b>à sa place, et par la suite le premier</b> mouton <b>a été retrouvé, et ils se tiennent tous deux</b> devant lui, <b>il sacrifie celui qu'il veut;</b> telle est <b>la déclaration des sages. Rabbi Yosei dit :</b> La <b>mitzva</b> est accomplie <b>avec le premier</b> mouton. <b>Et si le second était</b> de qualité <b>supérieure</b> à celui-ci, il apporte</b> le second mouton. Cela prouve que selon Rabbi Yosei, s'il y a deux animaux également aptes à une offrande, on apporte l'animal qui a été choisi en premier.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

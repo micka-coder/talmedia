@@ -60,4 +60,4 @@ La Guemara demande : <b>Et Rabbi Yosei soutient-il</b> que lorsque <b>ceci et ce
 La Gemara ajoute : <b>Et ce</b> que dit Rav Yehuda <b>est également enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yosei concède</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

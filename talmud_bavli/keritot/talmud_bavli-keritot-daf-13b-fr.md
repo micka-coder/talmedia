@@ -66,4 +66,4 @@ La Gemara demande : <b>Selon l'opinion de qui</b> <b>est ce qui est enseigné</b
 <b>Rabbi Meir dit : Si c'était Shabbat et qu'il l'a transporté</b> d'un domaine privé à un domaine public tout en le mangeant, il serait <b>lible</b> d'apporter une offrande de péché supplémentaire pour avoir accompli un travail interdit pendant Shabbat. Les rabbins lui ont <b>dit :</b> Cette responsabilité <b>n'est pas du</b> même <b>type</b> d'interdiction, car elle n'est pas due à l'acte de manger, et donc, elle ne doit pas être comptée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

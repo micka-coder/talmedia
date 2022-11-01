@@ -33,4 +33,4 @@ La Guemara demande : <b>Quand</b> est-ce que c'est <b>que</b> le Temple <b>serai
 La Gemara dit : <b>Non,</b> il est <b>nécessaire</b> d'instituer l'ordonnance uniquement dans le cas où le Temple <b>serait reconstruit de nuit,</b> le soir du seize, et qu'il n'y avait pas d'occasion de couper le <i>omer</i> cette nuit-là. <b>Alternativement,</b> il était nécessaire d'instituer l'ordonnance dans le cas où le Temple était construit <b>adjacent au coucher du soleil</b> le quinze, car il n'y aurait pas suffisamment de temps pour terminer tous les préparatifs et sacrifier l'offrande avant midi le lendemain. Par conséquent, Rabban Yoḥanan ben Zakkai a institué que le grain nouveau est interdit pendant toute la journée du seize. <b>Rav Naḥman bar Yitzḥak dit :</b> Ce n'est pas la raison ; plutôt, <b>Rabban Yoḥanan ben Zakkai a énoncé</b> son ordonnance <b>en</b> accord avec <b>l'opinion de Rabbi Yehuda, qui a dit : Il est interdit par la loi de la Torah</b> de manger le nouveau grain jusqu'au dix-sept de Nisan, <b>comme il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

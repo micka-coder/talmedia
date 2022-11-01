@@ -23,5 +23,5 @@ L'homme a la préséance sur la femme en ce qui concerne le sauvetage de la vie 
 ### michna 8
 Un prêtre a la priorité sur un lévite, un lévite sur un israélite, un israélite sur un mamzer, un mamzer sur un natin, un natin sur un converti, et un converti sur un esclave affranchi. Quand en est-il ainsi ?  Lorsque toutes ces personnes sont égales par ailleurs. Cependant, si le mamzer était un érudit et le grand prêtre un ignorant, le mamzer érudit a la priorité sur le grand prêtre ignorant.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

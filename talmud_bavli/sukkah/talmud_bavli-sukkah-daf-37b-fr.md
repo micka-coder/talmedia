@@ -30,4 +30,4 @@ Par déduction, si <b>il a renversé</b> intentionnellement les cendres du tube 
 <b>Rabbi Yoḥanan a dit : Il les agite</b> <b>d'avant en arrière</b> pour les dédier <b>à Celui à qui appartiennent les quatre directions. Il les élève et les abaisse</b> pour les <b>dédier à Celui à qui appartiennent les cieux et la terre. En Occident,</b> Eretz Yisrael, <b>ils l'ont enseigné</b> <b>comme suit . Rabbi Ḥama bar Ukva a dit</b> que <b>Rabbi Yosei, fils de Rabbi Ḥanina, a dit : Il les déplace</b> d'avant en arrière afin</b> de demander <b>un arrêt</b> aux <b>vents néfastes,</b> aux orages et tempêtes qui viennent de toutes les directions ; <b>il les élève et les abaisse</b> <b>afin d'arrêter les rosées néfastes</b> et les pluies qui viennent d'en haut. <b>Rabbi Yosei bar Avin a dit, et certains disent</b> que c'est <b>Rabbi Yosei bar Zevila</b> qui a dit : <b>C'est à dire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

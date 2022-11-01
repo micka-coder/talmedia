@@ -18,4 +18,4 @@ Et la <b>seconde</b> personne <b>n'a pas acquis</b> le bien qui lui a été donn
 <b>Il est enseigné</b> dans un <i>baraita</i> : Dans le cas de <b>celui qui déclare son champ sans propriétaire,</b> pendant les <b>trois jours entiers</b> qui suivent cette déclaration <b>il peut se rétracter</b>. <b>A partir de ce</b> point, il ne peut plus rétracter</b> la déclaration.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

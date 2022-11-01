@@ -30,4 +30,4 @@ En ce qui concerne le verset : <b>"Et toutes les nations du pays verront que le 
 § <b>Rav Shmuel bar Bideri dit</b> que <b>Rav dit, et certains disent</b> que <b>Rabbi Aḥa Arikha,</b> c'est-à-dire, Rabbi Aḥa le Tall, <b>dit</b> que <b>Rav Huna dit, et certains disent</b> que <b>Rav Menashya dit</b> que <b>Shmuel dit :</b> En ce qui concerne les <b>phylactères, à partir de quand récite-t-on une bénédiction sur eux ? A partir du moment où on les revêt</b> sur le bras et à partir de là. La Guemara soulève une difficulté : <b>Est-ce le cas ? Mais Rav Yehuda ne dit-il pas</b> que <b>Shmuel dit :</b> En ce qui concerne <b>toutes les mitzvot, on récite une bénédiction sur elles avant leur exécution ?</b> Comment, alors, peut-on réciter une bénédiction sur les phylactères après les avoir revêtus ? <b>Abaye et Rava disent tous deux :</b> On récite la bénédiction <b>depuis le moment où l'on revêt</b> les phylactères <b>jusqu'au moment où on les lie</b>, car la liaison constitue l'accomplissement de la mitzva.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

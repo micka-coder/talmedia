@@ -33,4 +33,4 @@ Le Rav Ḥisda <b>a vu que</b> Rami bar Tamrei <b>n'avait pas revêtu de phylact
 Rav Ḥisda a en outre <b>vu que</b> Rami bar Tamrei <b>n'avait pas placé</b> les <b>fils</b> des franges rituelles sur son vêtement et lui <b>a dit : Quelle est la raison pour laquelle tu n'as pas</b> les <b>fils</b> des franges rituelles ? Rami bar Tamrei <b>lui a dit : C'est une robe empruntée, et Rav Yehouda a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

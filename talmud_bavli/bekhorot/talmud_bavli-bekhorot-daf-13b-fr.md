@@ -42,4 +42,4 @@ La Gemara cite deux autres interprétations de la <i>baraita</i>. <b>Rav Ashi di
 La Gemara développe : Il était nécessaire que le <i>tanna</i> l'enseigne explicitement, car <b>il soutient :</b> Renier un <b>engagement verbal</b> qui n'était pas accompagné d'un acte d'acquisition <b>constitue un acte de mauvaise foi</b> entre deux parties. <b>Et</b> il soutient que <b>cette affirmation</b> ne s'applique que dans le cas où <b>un juif</b> achète un objet <b>auprès</b> d'un autre <b>juif, car ils</b> sont supposés <b>tenir leurs engagements verbaux</b>. <b>Mais</b> dans le cas d'un <b>Juif</b> qui achète un article <b>auprès de gentils, car ceux-ci</b> ne sont <b>pas</b> supposés <b>tenir leurs engagements verbaux</b>, le fait de renier sa parole ne constitue <b>pas</b> un acte de mauvaise foi entre les parties, puisqu'aucune des parties ne se fie à l'engagement de l'autre en premier lieu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

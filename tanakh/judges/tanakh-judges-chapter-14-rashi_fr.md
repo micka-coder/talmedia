@@ -54,4 +54,4 @@
 <b>A un ami.</b> A l'un des accompagnateurs du mariage.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -23,5 +23,5 @@ Si un chemin public passait par le champ d'un homme et qu'il le prenne et leur d
 ### michna 8
 Si un homme a vendu à son compagnon un endroit où faire une tombe, de même, si un homme a été chargé par son compagnon de faire une tombe, il doit faire l'intérieur du caveau de quatre coudées sur six, et y ouvrir huit niches, trois de ce côté, trois de ce côté, et deux en face [de la porte]. Les niches doivent avoir quatre coudées de long, sept tefahs [paumes] de haut et six tefahs [paumes] de large. Rabbi Shimon dit :  "Il doit faire l'intérieur de la voà "te de quatre coudées sur huit, et y ouvrir treize niches, quatre de ce cèté, quatre de ce cèté, trois en face [de la porte], une à droite de la porte et une à gauche. Il doit faire une cour à l'ouverture du caveau, de six coudées sur six, espace suffisant pour le cercueil et ses porteurs. Et il pourra y ouvrir deux caveaux, un de chaque côté. Rabbi Shimon dit :  "Quatre, un de chaque côté. "Rabbi Chimon ben Gamaliel dit :  "Tout dépend de la nature de la roche".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

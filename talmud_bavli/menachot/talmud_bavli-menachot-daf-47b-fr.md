@@ -63,4 +63,4 @@ Rabbi Zeira répondit : L'<b>offrande de remerciements est différente, car le M
 § La Guemara cite une autre discussion concernant les moutons et les pains de <i>Shavouot</i>. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Si l'on <b>abattitue</b> les <b>deux moutons</b> comme requis mais qu'ils étaient accompagnés <b>de quatre pains</b> au lieu des deux pains requis, <b>il tire deux des</b> pains des quatre <b>et les agite</b> avec le mouton,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

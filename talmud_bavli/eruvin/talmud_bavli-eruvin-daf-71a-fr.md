@@ -60,4 +60,4 @@ Nous avons appris dans la mishna : <b>Rabbi Shimon dit :</b> Dans <b>à la fois 
 La Guemara explique : <b>Quel est</b> le sujet de la phrase <b>ils n'ont pas besoin d'établir un <i>eirouv</i> ?</b> Elle fait référence aux <b>voisins avec le propriétaire,</b> c'est-à-dire les résidents des cours qui s'ouvrent sur chacune des ruelles avec le résident de la cour au milieu. <b>Mais</b> en ce qui concerne <b>les voisins entre eux,</b> c'est-à-dire que si les résidents des deux ruelles souhaitent être autorisés à porter entre eux, <b>ils doivent établir un <i>eirouv</i></b> et le placer dans la cour du milieu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

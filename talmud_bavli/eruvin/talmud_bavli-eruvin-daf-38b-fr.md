@@ -66,4 +66,4 @@ Rabba répondit : <b>Même si vous dites</b> que ma déclaration est conforme à
 <b>Rabba bar Rav Ḥanin dit à Abaye : Si le Maître,</b> Rabba, <b>avait entendu ce qui a été enseigné</b> dans la <i>baraita</i> suivante : <b>Une personne ne peut pas marcher jusqu'au bout de son champ</b> le Chabbat <b>pour déterminer quels</b> travaux et réparations <b>il nécessite,</b> qui seront effectués après Chabbat. <b>De même,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

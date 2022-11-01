@@ -45,4 +45,4 @@ La forme תִּרְגַּלְתִּי est comme הִרגַּלְתִּי, j'ai f
 <b>Et les enfants se hâteront de l'ouest</b> Et les exilés seront rassemblés de l'ouest. [de Jonathan]
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

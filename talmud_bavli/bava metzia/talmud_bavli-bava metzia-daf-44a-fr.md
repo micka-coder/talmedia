@@ -18,4 +18,4 @@ La Gemara demande : <b>Devons-nous dire</b> que <b>Shmuel soutient</b> que <b>le
 <b>Rav Ashi soulève un dilemme</b> basé sur cette explication : Si <b>On soulève une bourse</b> afin <b>d'y prendre</b> un seul <b>dinar, quelle est</b> la <i>halakha</i> ? <b>S'agit-il</b> uniquement en ce qui concerne le <b>vin, qui ne se conserve qu'au moyen du vin</b> dans le tonneau, que si l'on a l'intention de prendre un quart de</b> log</i>, c'est comme si l'on avait l'intention de prendre tout le vin du tonneau, <b>mais</b> en ce qui concerne <b>un dinar, qui se conserve</b> même seul, l'intention de prendre un dinar n'indique pas l'intention de prendre toutes les pièces de monnaie de la bourse ? <b>Ou, peut-être que la sauvegarde d'une bourse est différente de la sauvegarde d'un dinar.</b> Une seule pièce est facilement perdue, alors qu'une bourse ne l'est pas, car elle est plus facilement sauvegardée. Par conséquent, lorsque le bailli a l'intention de prendre un dinar, il a l'intention de prendre toutes les pièces de la bourse. La Guemara conclut : Le dilemme <b>doit rester</b> non résolu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

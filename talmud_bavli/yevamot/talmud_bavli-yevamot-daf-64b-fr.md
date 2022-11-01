@@ -69,4 +69,4 @@ Rava <b>lui a dit : Non, il y a des <i>mishnayot</b> non attribuées conforméme
 La Guemara identifie les <i>halakhot</i> susmentionnées. <b>Mariage</b> fait référence à <b>ce que nous avons dit</b> à propos d'une femme dont les maris sont morts. Le cas des <b>flagellations</b> est <b>comme nous l'avons appris</b> dans une mishna (<i>Nidda</i> 63b) : <b>Un homme qui a été fouetté</b> pour avoir transgressé une loi de la Torah, <b>et qui a répété</b> la même transgression et a été fouetté à nouveau, s'il répète ensuite le péché une troisième fois, le <b>court le place dans une</b> chambre étroite, <b>voutée et on le nourrit d'orge jusqu'à ce que son estomac éclate. </b> Une fois qu'il a péché et a été flagellé deux fois, il a établi une présomption de méchanceté, et lorsqu'il pèche à nouveau, on le fait mourir pour qu'il ne continue pas à pécher. Le cas des <b>modèles fixes</b> de saignement menstruel est <b>comme nous l'avons appris</b> dans une mishna (<i>Nidda</i> 63b) : <b>Une femme ne fait pas</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

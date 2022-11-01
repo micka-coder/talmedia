@@ -27,4 +27,4 @@ La Gemara suggère une autre preuve. <b>Vous</b> pouvez <b>dire que c'est une d�
 <b>Et j'ai</b> déduit <b>seulement ses jours de lèpre confirmée</b>. <b>D'où</b> je déduis que <b>ses jours de comptage</b> pour la purification de la lèpre ne sont pas non plus considérés comme faisant partie de son terme ? <b>Et ceci</b> n'est-il pas <b>logique :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

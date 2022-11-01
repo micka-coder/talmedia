@@ -33,4 +33,4 @@ Cependant, <b>dit la dernière clause</b> de la mishna : <b>Les dédicaces non s
 <b>Abaye a dit : Cette dernière clause est</b> l'opinion de <b>Rabbi Elazar, fils de Rabbi Tzadok,</b> et non de Rabbi Yehuda, <b>comme cela est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit</b> que <b>le <i>teruma</i> non spécifié en Judée est interdit. Rabbi Elazar, fils de Rabbi Tzadok, dit</b> que <b>les dédicaces non spécifiées en Galilée sont interdites.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

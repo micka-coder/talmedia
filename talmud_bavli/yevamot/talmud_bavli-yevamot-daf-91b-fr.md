@@ -39,4 +39,4 @@ Rav Pappa <b>dit à</b> Rav Huna, fils de Rav Yehoshua : <b>Et</b> n'avons-nous 
 § La Guemara aborde le cas de la mishna sous un autre angle. <b>Rav Ashi a dit : Et nous ne sommes pas concernés par une rumeur.</b> En d'autres termes, s'il y avait une rumeur non fondée selon laquelle le mari était vivant, le tribunal n'en tient pas compte. La Gemara demande : <b>Quelle</b> sorte de <b>rumeur</b> veut-il dire ? <b>Si l'on dit</b> que cela fait référence à une <b>rumeur qui</b> s'est répandue <b>après</b> le <b>mariage</b> de cette femme avec un autre homme, <b>Rav Ashi</b> l'a déjà <b>dit une fois, car Rav Ashi a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

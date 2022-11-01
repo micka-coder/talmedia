@@ -39,4 +39,4 @@ Alternativement, <b>doit-on émettre un décret</b> stipulant que d'autres actio
 § <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

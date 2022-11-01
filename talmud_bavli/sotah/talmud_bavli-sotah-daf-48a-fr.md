@@ -66,4 +66,4 @@ Après avoir énuméré le péché de ceux qui boivent du vin avec un accompagne
 <b>Et quelle</b> punition <b>est écrite par la suite</b> pour le peuple qui buvait du vin avec un accompagnement musical ? <b>"Par conséquent,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

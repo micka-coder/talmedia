@@ -48,4 +48,4 @@ La Guemara répond : <b>Si c'est le cas,</b> que le <i>baraita</i> fait référe
 La Guemara soulève une autre objection à l'opinion de Rav à partir d'un <i>baraita</i> : <b>Venez</b> et <b>entendez : </b> Dans le cas de <b>celui qui consacre son esclave,</b> l'esclave <b>travaille et est soutenu</b> en compensation de son travail, <b>comme</b> le maître <b>ne consacre que sa valeur monétaire</b> et donne cette somme au trésor du Temple. Ceci démontre que l'esclave ne devient pas consacré, puisqu'il peut encore travailler pour le maître, et qu'il n'est pas non plus émancipé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

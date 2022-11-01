@@ -48,4 +48,4 @@ La Gemara demande : <b>Donné,</b> dans le cas d'une <b>vente</b> cela est raiso
 La Guemara soulève une difficulté : <b>Mais Rabbi Abba ne dit-il pas</b> que bien qu'il considère qu'un acte de divorce est valable même sans la signature de témoins, <b>Rabbi Elazar concède à l'égard</b> d'un document <b>dont la falsification est inhérente</b> qu'il est <b>invalide</b> malgré le fait qu'il ait été correctement transféré. En d'autres termes, nonobstant la <i>halakha</i> selon laquelle les signatures sur un acte de divorce sont inutiles, un document qui comprend des signatures invalides est de ce fait invalidé. La raison en est que l'on craint que les gens se fient à ces témoins. La Gemara répond : <b>De quoi s'agit-il ici ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -75,4 +75,4 @@ La Guemara rejette cette preuve : <b>Mais</b> même <b>selon votre raisonnement,
 <b>Au contraire,</b> en ce qui concerne la <b><i>tanna</i></b> de la mishna, <b>la matière</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

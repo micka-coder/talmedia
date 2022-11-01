@@ -39,4 +39,4 @@ La Gemara demande en outre : Mais <b>les figues sèches sont aptes à être cons
 La Guemara clarifie : <b>Quelles sont les</b> circonstances exactes de ce tonneau</b> qui contenait les figues sèches ? <b>Si</b> cela fait référence à un cas <b>où</b> son <b>ouverture était tournée vers l'extérieur,</b> c'est-à-dire pas vers la source de l'impureté rituelle,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

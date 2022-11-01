@@ -75,4 +75,4 @@ A propos du verset : " Sa tête est comme l'or le plus fin, <b>ses mèches [<i>k
 <b>Noir [<i>sheḥorot</i>] comme un corbeau [<i>orev</i>]</b> signifie : <b>En qui trouves-tu</b> les paroles de la Torah ? <b>En lui</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

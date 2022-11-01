@@ -47,4 +47,4 @@
 <b>Convertir au judaïsme.</b> Convertir au judaïsme.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

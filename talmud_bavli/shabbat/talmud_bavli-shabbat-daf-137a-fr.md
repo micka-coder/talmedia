@@ -87,4 +87,4 @@ La Guemara réfute cette affirmation : <b>Non, le jour de sa guérison est supé
 <b>Et si</b> il a été correctement circoncis mais <b>qu'il était charnu,</b> et qu'il apparaît comme n'ayant pas été correctement circoncis, le circonciseur doit <b>corriger cela</b> en circoncisant plus que nécessaire, pour éviter l'<b>apparence</b> de transgression, afin qu'il ne paraisse pas incirconcis.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

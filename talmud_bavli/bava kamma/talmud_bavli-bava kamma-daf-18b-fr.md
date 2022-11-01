@@ -54,4 +54,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> la résolution du dilemme 
 <b>Quoi, n'est-ce pas</b> faire référence à un cas <b>où</b> le coq ou l'animal a <b>fait</b> ainsi <b>trois fois ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

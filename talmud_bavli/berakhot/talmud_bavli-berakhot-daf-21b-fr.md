@@ -57,4 +57,4 @@ Cependant, <b>Rabbi Yehouda n'a exempte</b> de l'immersion que dans le cas <b>d'
 La Guemara cherche a clarifier : <b>Selon l'avis de qui</b> <b>ce cas dans la mishna <b>a ete enseigne ? Si l'on dit</b> que c'est conformement a l'avis des <b>sages, c'est evident ; si</b> dans le cas d'un <b>zav</i> qui a eprouve une emission seminale qui etait inapte a s'immerger des le depart,</b> lorsqu'il a eprouve l'emission seminale, <b>les sages</b> exigent neanmoins <b>l'immersion, d'autant plus</b> qu'ils n'exigeraient pas l'immersion pour <b>une femme qui a eu des rapports sexuels et</b> seulement ensuite <b>vu du sang,</b> qui <b>etait apte a s'immerger des le depart,</b> lorsqu'elle est entree en contact avec l'emission seminale de son mari ? <b>Au contraire, n'est-ce pas l'avis de Rabbi Yehudas</b>, <b>et</b> ce cas <b>a ete enseigne specifiquement</b> afin d'enseigner...
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

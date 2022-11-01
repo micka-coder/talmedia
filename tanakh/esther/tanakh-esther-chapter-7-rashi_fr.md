@@ -27,4 +27,4 @@
 <b>En outre, il y a la potence.</b> Il a "aussi" commis un autre mal, celui de préparer la potence pour pendre l'ami du roi, qui a sauvé le roi d'[être] empoisonné. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

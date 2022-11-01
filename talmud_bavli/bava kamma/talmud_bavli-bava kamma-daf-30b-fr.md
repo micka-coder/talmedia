@@ -60,4 +60,4 @@ La Guemara répond que <b>Rav</b> aurait pu <b>vous dire : </b> Selon <b>tous</b
 La Gemara demande : <b>C'est le cas ? Mais Rav Huna n'a-t-il pas déclaré l'orge séchée [<i>ḥushelei</i>]</b> que les gens disposaient dans le domaine public <b>sans propriétaire ?</b> De même, <b>Rav Adda bar Ahava n'a-t-il pas déclaré sans propriétaire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

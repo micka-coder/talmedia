@@ -63,7 +63,7 @@ La Gemara demande : <b>Si c'est le cas, une offrande de culpabilité dont le pro
 La Gemara demande : <b>Si c'est ainsi,</b> alors dans le cas d'une <b>femme dont le mari est mort sans enfant [<i>yevama</i>], qui est arrivée devant</b> le frère de son défunt mari qui était <b>affligé de furoncles</b> pour entrer en lévirat avec lui, <b>doit sortir</b> libre de se marier <b>sans être tenue</b> d'accomplir <b>le rituel par lequel le <i>yavam</i> libère la <i>yevama</i> de ses liens léviriens [<i>ḥalitza</i>]. Car elle ne s'est pas fiancée</b> au frère décédé de cet homme <b>avec cette intention</b> d'avoir un lien lévirat avec un homme atteint de furoncles. La Gemara répond : <b>Là, il est clair pour nous</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 la valeur d'une <i>peruta</i> <b>pour</b> chaque prêtre sur la <b>veille sacerdotale de Jedaiah,</b> qui comptait moins de prêtres, <b>quelle est</b> la <i>halakha</i> ?
 
@@ -128,4 +128,4 @@ La Gemara demande : <b>Si c'est le cas, une offrande de culpabilité dont le pro
 La Gemara demande : <b>Si c'est ainsi,</b> alors dans le cas d'une <b>femme dont le mari est mort sans enfant [<i>yevama</i>], qui est arrivée devant</b> le frère de son défunt mari qui était <b>affligé de furoncles</b> pour entrer en lévirat avec lui, <b>doit sortir</b> libre de se marier <b>sans être tenue</b> d'accomplir <b>le rituel par lequel le <i>yavam</i> libère la <i>yevama</i> de ses liens léviriens [<i>ḥalitza</i>]. Car elle ne s'est pas fiancée</b> au frère décédé de cet homme <b>avec cette intention</b> d'avoir un lien lévirat avec un homme atteint de furoncles. La Gemara répond : <b>Là, il est clair pour nous</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -78,4 +78,4 @@ La Guemara commente que les deux décisions de Rav Naḥman, c'est-à-dire celle
 § La Guemara discute d'une variante du cas précédent. <b>Rabbi Shmuel bar Natan dit</b> que <b>Rabbi Ḥanina dit :</b> En ce qui concerne <b>celui qui achète des produits non mités</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

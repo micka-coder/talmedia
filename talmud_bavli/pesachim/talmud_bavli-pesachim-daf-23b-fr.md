@@ -39,4 +39,4 @@ La Guemara répond : Ce Sage <b>soutient</b> que l'interdiction de tirer profit 
 <b>Comme</b> il n'y a <b>pas besoin</b> que le verset précise : "Il sera brà "lé au feu" ; Et</b> dans quel <b>b>but alors <b>le verset indique : "Il sera brà "lé au feu" ? S'il ne</b> s'applique pas au sujet <b>matière lui-même</b> dans son contexte, <b>comme il est</b> déjà <b>écrit :</b> "Et Moshé s'enquit diligemment du bouc du sacrifice pour le péché, <b>et voici qu'il fut brûlé"</b> (Lévitique 10:16), <b>appliquez-le à la matière de tous les interdits de la Torah.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

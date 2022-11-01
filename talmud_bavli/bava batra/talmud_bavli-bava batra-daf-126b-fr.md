@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais peut-être est-il</b> le premier-né de sa <b>mère
 <b>Rav Naḥman bar Yitzḥak dit :</b> Un <i>tumtum</i> qui a été trouvé mâle <b>n'est pas non plus jugé comme un fils têtu et rebelle, comme le dit le verset : "S'il y aura [<i>yihyeh</i>] pour un homme un fils têtu et rebelle"</b> (Deutéronome 21:18), ce qui est interprété comme signifiant que l'on n'est pas jugé de cette manière <b>à moins qu'il ne soit</b> reconnu comme <b>un fils dès le moment de</b> sa venue à l' <b>être.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

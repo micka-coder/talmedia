@@ -48,4 +48,4 @@ Rava <b>sortait</b> et <b>montrait</b> Rav Safra <b>les fondations d'un mur</b> 
 Si <b>on mesurait</b> la limite <b>et qu'il atteignait un canyon ou une clôture,</b> la hauteur de la clôture et la profondeur du canyon ne sont pas comptabilisées dans les deux mille coudées ; au contraire, <b>il l'enjambe et</b> ensuite <b>reprend sa mesure.</b> Deux personnes tiennent les deux extrémités de la corde en ligne droite à travers le canyon ou la clôture, et la distance est mesurée comme si la zone était complètement plate. Si <b>une personne atteint une colline,</b> elle ne mesure pas sa hauteur ; plutôt, <b>elle enjambe</b> la colline comme si elle n'existait pas <b>et</b> puis <b>reprend sa mesure,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara <b>souleve une objection</b> au rapport selon lequel Rabban Shimon be
 Concernant la déclaration de Rabban Shimon ben Gamliel, la Gemara observe : <b>Venez</b> et <b>voyez quelle</b> différence <b>il y a entre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara rejette cette opinion : <b>Même</b> si <b>vous dites</b> que la forma
 <b>Rabbi Akiva répondit et dit</b> qu'il est dit : <b>"Et si un homme vient délibérément sur son prochain</b> pour le tuer avec ruse, <b>tu le retireras de mon autel, pour qu'il meure"</b> (Exode 21:14). L'expression "le prendre <b>de mon autel"</b> implique que si le meurtrier est un prêtre et vient accomplir le service, on n'attend pas qu'il le fasse mais on le conduit immédiatement à son exécution. <b>Mais</b> on ne doit <b>pas</b> le descendre <b>du haut de Mon autel.</b> S'il a déjà commencé le service et qu'il est au milieu de celui-ci, on ne le descend pas immédiatement de l'autel mais on le laisse au contraire terminer son service. <b>Et Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit : Ils ont seulement enseigné</b> qu'on ne retire pas un prêtre de l'autel <b>afin de l'exécuter</b> pour meurtre,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

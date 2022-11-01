@@ -39,4 +39,4 @@ La Gemara répond : Selon la loi de la Torah, le mariage lévirat est autorisé 
 <strong>GEMARA:</strong> <b>L'Exilarque dit à Rav Huna : Quelle est la raison</b> de la <i>halakha</i> selon laquelle un prêtre ne peut épouser une femme sexuellement sous-développée ? C'est <b>parce que</b> il a l'obligation d'accomplir la mitsva de <b>être fécond et de multiplier</b>. Est-ce</b> seulement <b>les prêtres qui ont reçu le commandement d'être féconds et de se multiplier, mais les Israélites n'ont pas reçu ce commandement ? </b> Pourquoi la mishna précise-t-elle qu'un prêtre ne peut pas épouser une femme sexuellement sous-développée ? Rav Huna <b>lui répondit :</b> Cette <i>halakha</i> s'applique en fait même aux Israélites, et le <i>tanna</i> mentionne les prêtres <b>parce qu'il veut l'enseigner</b> d'une manière qui serait parallèle à <b>la dernière clause</b> de la mishna, qui stipule que <b>Rabbi Yehuda dit : Même</b> si <b>il a une femme</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

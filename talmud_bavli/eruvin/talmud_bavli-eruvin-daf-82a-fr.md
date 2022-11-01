@@ -24,4 +24,4 @@ La Guemara répond : <b>Cette</b> opinion dans le <i>baraita</i>, en ce qui conc
 <b>En conséquence,</b> on peut en déduire que <b>puisqu'il est dans le doute</b> de savoir <b>s'il est nazirite ou il n'est pas nazirite, il ne se soumet pas</b> et n'accepte pas son vœu de naziréité. <b>Ici aussi,</b> Rabbi Yehuda disqualifie ceux qui jouent à des jeux de hasard pour délivrer un témoignage en raison du fait qu'ils sont des voleurs. <b>Puisque</b> le joueur <b>ne sait pas s'il va</b> gagner et <b>acquérir</b> l'argent <b>ou s'il va</b> perdre et <b>ne pas l'acquérir</b>, <b>il ne transfère pas entièrement la propriété</b> de l'argent avec lequel il joue à autrui, ce qui signifie que celui qui gagne à ces jeux reçoit de l'argent qui ne lui a pas été donné de bon cœur. Il est donc assimilé à un voleur, du moins au niveau rabbinique, ce qui le disqualifie pour témoigner.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

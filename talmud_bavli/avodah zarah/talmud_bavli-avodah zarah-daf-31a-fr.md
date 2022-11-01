@@ -39,4 +39,4 @@ La Gemara demande : <b>Que</b> ont-ils <b>raisonné initialement, et que</b> ont
 La Guemara demande : <b>Mais les tonneaux scellés</b> sont-ils <b>permis ? Et</b> la Gemara <b>souleve une contradiction</b> contre cette notion.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

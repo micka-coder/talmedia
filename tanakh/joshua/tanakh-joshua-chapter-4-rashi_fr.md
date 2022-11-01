@@ -52,4 +52,4 @@
 <b>Yehoshua s'installa à Gilgal.</b> C'est le lieu d'hébergement où ils passèrent cette nuit.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

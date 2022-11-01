@@ -42,4 +42,4 @@ Si l'épouse a hérité d'une <b>forêt [<i>abba</i>]</b> d'aubépines [<i>zerad
 <b>Rabbi Zeira a dit</b> que <b>Rabbi Oshaya a dit</b> que <b>Rabbi Yannai a dit, et certains disent que Rabbi Abba a dit</b> que <b>Rabbi Oshaya a dit</b> que <b>Rabbi Yannai a dit : Celui qui vole</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

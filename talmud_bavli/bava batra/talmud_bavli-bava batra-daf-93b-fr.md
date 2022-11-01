@@ -45,4 +45,4 @@ Le <i>baraita</i> continue : <b>Une autre grande coutume</b> qui <b>était</b> s
 <strong>GEMARA :</strong> <b>Rav Ketina a enseigné : </b> Lorsque la mishna indique qu'un acheteur accepte sur lui la présence d'un quart-<i>kav</i> d'impuretés par <i>se'a</i>, cela signifie seulement qu'il accepte sur lui la présence d'un <b>quart-</b><i>kav</i> <b>de légumineuses,</b> mais il n'accepte pas sur lui la présence d'un quart-<i>kav</i> de saleté. La Guemara demande : <b>Et</b> est-ce pour que l'acheteur n'accepte pas</b> également sur lui-même qu'une certaine quantité de <b>saleté</b> puisse être présente dans le produit ? <b>Mais Rabba bar Ḥiyya Ketosfa'a ne dit-il pas au nom de Rabba :</b> Celui qui <b>ramasse un caillou dans</b> le blé sur <b>l'aire de battage d'autrui</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

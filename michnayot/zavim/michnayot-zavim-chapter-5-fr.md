@@ -35,5 +35,5 @@ Celui qui a eu une émission séminale est comme celui qui a touché un sheretz 
 ### michna 12
 Les éléments suivants disqualifient la teroumah : Celui qui mange des aliments avec une impureté de premier degré ; ou celui qui mange des aliments avec une impureté de second degré ; et qui boit des liquides impurs. Et celui qui a immergé sa tête et la plus grande partie de sa personne dans de l'eau distillée ; et une personne pure sur la tête et la plus grande partie de sa personne sont tombées trois log d'eau distillée ; et un rouleau [d'Écritures Saintes], et des mains [non lavées] ; et celui qui a été immergé le même jour ; et des aliments et des récipients qui ont été souillés par des liquides.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

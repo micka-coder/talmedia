@@ -45,4 +45,4 @@ Revenant sur la question des quantités d'aliments requises pour un <i>eirouv</i
 <b>Rav Yosef a dit : D'où est-ce que je dis cette</b> <i>halakha</i> ? <b>Car ces Perses mangent des morceaux de</b> <b>viande rôtie [<i>tabahakki</i>] sans pain,</b> ce qui montre que la viande elle-même est un aliment. <b>Abaye lui dit : Mais les Perses sont-ils une majorité du monde ? </b> Le <i>halakha</i> suit la pratique coutumière de la majorité du monde et non celle de localités particulières. <b>N'a-t-on pas appris</b> ce qui suit dans un <i>baraita</i> ? <b>Les vêtements des pauvres,</b> c'est-à-dire les morceaux de tissu mesurant trois par trois brins de doigt, contractent l'impureté lorsqu'ils sont en possession de n'importe quel <b>pauvre</b> car les pauvres attachent de l'importance même à des bouts de tissu de si petite taille. <b>Les vêtements des riches</b> mesurant au moins trois pouces sur trois pouces contracte l'impureté dans tous les cas, qu'ils soient possédés ou non par <b>les riches</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

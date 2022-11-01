@@ -60,4 +60,4 @@ La Guemara demande : <b>Et quel chant ont-ils récité ? Rabbi Yoḥanan dit au 
 La Guemara examine l'étymologie d'un autre terme inventé par les Perses. <b>Rav Ashi a dit : Sur quelle</b> base <b>les Perses appellent-ils une femme en période de menstruation</b> par le terme <b><i>dashtana</i>?</b> C'est <b>depuis ici,</b> un verset dans lequel Rachel prétend être une femme en période de menstruation : <b>"Car la manière des femmes est sur moi [<i>derekh nashim li</i>]"</b> (Genèse 31:35). Le mot <i>dashtana</i> est une forme abrégée de l'expression <i>derekh nashim</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

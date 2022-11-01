@@ -45,4 +45,4 @@ La Gemara analyse cette source : <b>Selon qui</b> cette <i>baraita</i> est-elle 
 § La Guemara cite un différend relatif à une question liée à la discussion précédente. <b>Il a été dit</b> que les <i>amora'im</i> étaient en désaccord sur la question suivante . <b>Rav a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

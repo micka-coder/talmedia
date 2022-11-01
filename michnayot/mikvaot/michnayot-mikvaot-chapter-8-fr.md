@@ -14,5 +14,5 @@ Si une femme non-juive a déchargé le sperme d'un Israélite, il est impur. Si 
 ### michna 5
 Si une femme en période de menstruation met des pièces de monnaie dans sa bouche, descend et s'immerge, elle devient pure de son impureté [antérieure], mais elle devient impure à cause de ses crachats. Si [en s'immergeant] elle met ses cheveux dans sa bouche ou ferme sa main ou presse fortement ses lèvres, c'est comme si elle ne s'était pas immergée. Si une personne s'est accrochée à un autre homme ou à des récipients et les a immergés, ils restent impurs ; mais s'il s'était lavé la main avant dans l'eau, ils deviennent purs. Rabbi Shimon dit : il doit les tenir sans les serrer afin que l'eau puisse y pénétrer. Les parties cachées ou ridées du corps n'ont pas besoin que l'eau y pénètre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

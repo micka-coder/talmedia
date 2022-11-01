@@ -136,5 +136,5 @@
 ### passuk 47
 <b>Ceux qui étaient de l'autre côté du Jourdain.</b> C'est-à-dire à l'est, car le second côté était à l'ouest. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

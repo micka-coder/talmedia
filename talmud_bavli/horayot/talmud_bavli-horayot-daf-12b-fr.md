@@ -66,4 +66,4 @@ La Guemara répond : <b>Shmuel tient conformément</b> à l'opinion de <b>Rabbi 
 La mishna poursuit : <b>Et toute personne qui est</b> plus <b>sanctifiée qu'une autre précède</b> cette <b>autre</b> personne. La Gemara demande : <b>D'où tirons-nous</b> ces questions ? C'est <b>comme l'a enseigné l'école de Rabbi Yishmael,</b> que du verset écrit à propos d'un prêtre : <b>"Et tu le sanctifieras,</b> comme il sacrifie le pain de ton Dieu, il sera saint pour toi" (Lévitique 21:8), on déduit qu'un prêtre doit être estimé et se voir accorder la préséance <b>en ce qui concerne toute question de sainteté. </b> Il doit être celui <b>qui ouvre en premier</b> la lecture de la Torah, <b>et qui récite la bénédiction</b> du <i>zimmun</i> <b>en premier, et qui prend en premier une portion fine.</b> Le prêtre qui est plus sanctifié a la priorité.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

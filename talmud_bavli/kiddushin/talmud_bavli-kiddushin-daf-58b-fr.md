@@ -30,4 +30,4 @@ La Gemara rejette cette idée : <b>Non, tout le monde est d'accord</b> que le <b
 La Guemara commente : Selon cette réponse, le langage de la mishna et du <i>baraita</i> <b>est également précis, car il enseigne ici,</b> dans la mishna, qu'elle est fiancée <b>avec l'eau de la purification ou avec les cendres de la purification,</b> ce qui indique que l'eau et les cendres n'ont pas encore été mélangées ; <b>et il enseigne là,</b> dans le <i>baraita</i> : <b>Arroser ou sanctifier,</b> ce qui indique qu'il reçoit un paiement pour l'aspersion et la sanctification proprement dites. La Gemara affirme : <b>Apprenez-en</b> que c'est l'explication correcte de la mishna et de la <i>baraita</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

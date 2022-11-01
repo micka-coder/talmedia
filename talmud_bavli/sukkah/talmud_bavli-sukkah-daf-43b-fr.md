@@ -45,4 +45,4 @@ Abaye <b>a soulevé une objection à</b> Rav Yosef à partir de la <i>Tosefta</i
 Compte tenu de la réfutation de l'opinion de Rav Yosef, la question initiale est difficile : <b>Par contre, qu'ils</b> en Eretz Yisrael <b>passent</b> Chabbat pour la mitzva de la branche de saule le septième jour de <i>Sukkot</i> de nos jours également. La Guemara répond : <b>Puisque nous</b> en Diaspora <b>n'outrepassons pas</b> le Chabbat dans ce but, <b>ils</b> en Eretz Yisrael <b>ne l'outrepassent pas</b> non plus. La Gemara objecte : <b>Mais le premier jour de la Fête</b> ne réfute-t-il pas cette affirmation, puisque <b>pour nous</b> dans la Diaspora, il <b>n'outrepasse pas</b> Chabbat et nous ne prenons pas le <i>lulav</i>, <b>et pour eux</b> en Eretz Yisrael <b>il outrepasse</b> Chabbat et ils prennent le <i>lulav</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara cite l'avis de Rabbi Yehuda HaNasi, qui estime qu'on ne peut pas acco
 <b>Rava dit : Apprends des</b> fils de Rabbi Ḥiyya qu'on est <b>obligé de faire</b> un nœud <b>après chaque ensemble</b> d'enroulements, et on ne peut se contenter d'un seul nœud à la fin de tous les enroulements. <b>Ainsi, si</b> il <b>vous vient à l'esprit</b> de dire qu'on n'est <b>pas obligé</b> de faire un nœud après chaque ensemble d'enroulements, alors <b>ce que disent les fils de Rabbi Ḥiyya : Des cordes blanches ou <b>bleues ciel</b> sectionnées <b>sont adaptées, et</b> de même, des branches d'hysope <b>sectionnées</b> <b>sont adaptées,</b> est difficile : <b>Une fois que le nœud le plus haut</b> est défait,</b> tous les enroulements sur <b>l'ensemble du coin</b> seront <b>défaits,</b> car il n'y a pas d'autres nœuds maintenant les enroulements en place, et dans ce cas, le vêtement n'aura pas de franges rituelles valides.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

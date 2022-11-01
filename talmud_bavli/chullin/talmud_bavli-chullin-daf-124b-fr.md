@@ -75,4 +75,4 @@ La Guemara suggère : L'opinion de Ulla est <b>comme</b> un côté d'une dispute
 <strong>MISHNA:</strong> En ce qui concerne <b>l'os de la cuisse</b> d'un <b>corps humain,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

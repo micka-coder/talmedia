@@ -69,4 +69,4 @@ La Guemara demande : <b>N'avons-nous pas affaire</b> a un cas ou une personne se
 La Guemara explique : <b>Si c'est le cas,</b> que l'intention etait d'obliger dans tous les cas, <b>laissons la Torah dire : En marchant</b> le long du chemin. <b>Quel est</b> le sens de : <b>Quand on marche</b> le long du chemin ? <b>Concluez de ceci : C'est</b> dans un cas <b>de ta marche,</b> ce qui signifie que lorsque tu fais cela pour tes propres buts et de ta propre volonte, <b>tu es oblige</b> de reciter <i>Shema</i>, <b>mais</b> lorsque tu vas avec l'objectif <b>de</b> accomplir une <b>mitzva, tu es exempte.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

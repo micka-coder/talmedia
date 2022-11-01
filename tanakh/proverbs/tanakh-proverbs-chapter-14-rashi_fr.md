@@ -125,4 +125,4 @@
 <b>Mais sa colère sera</b> sur un serviteur honteux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

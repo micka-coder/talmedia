@@ -39,4 +39,4 @@ La Guemara demande : Si c'est le cas, doit-on dire que <b>Rabbi Meir est d'avis<
 La Gemara rejette cette suggestion : <b>Non,</b> il est possible <b>que tout le monde soit de</b> l'avis que la décision est conforme à l'avis <b>de Shmuel. Au contraire,</b> la mishna fait référence à un cas où le maître a refusé de déclarer le fugitif sans propriétaire, et avait l'intention de le récupérer. Par conséquent, l'esclave n'est en fait pas du tout un homme libre, et les <i>tanna'im</i> sont en désaccord sur ce qui suit : Rabbi Yosei, <b>celui qui dit</b> qu'il <b>peut boire</b> du vin, <b>soutient</b> que l'esclave <b>finira par retourner et revenir à</b> son maître, et qu'il est donc préférable pour lui <b>de boire du vin afin qu'il ne soit pas affaibli</b> au moment où il reviendra. <b>Et selon</b> Rabbi Meir, <b>celui qui dit</b> que <b>il ne peut pas boire</b> du vin, il <b>soutient</b> qu'il vaut mieux que l'esclave <b>souffre</b> en étant privé de vin, <b>pour qu'il revienne vers</b> son maître, car le désir de boire du vin l'incitera à revenir.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

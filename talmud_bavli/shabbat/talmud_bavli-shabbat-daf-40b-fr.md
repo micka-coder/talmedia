@@ -36,4 +36,4 @@ La Guemara s'étonne de cette histoire : <b>Comment</b> Rabbi Yehuda HaNasi <b>a
 <b>Rabbi Zeira a dit : J'ai vu Rabbi Abbahou flotter dans un bain</b> le Chabbat, <b>et je ne sais pas s'il a levé</b> ses pieds et nageait réellement dans l'eau, ou <b>s'il n'a pas levé</b> ses pieds. La Guemara remet en question l'incertitude de Rabbi Zeira. <b>Il est évident</b> que <b>il n'a pas levé</b> ses pieds, <b>comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Une personne ne peut pas flotter dans une piscine pleine d'eau</b> le Chabbat, <b>et même</b> si la piscine <b>était dans une cour,</b> où il n'y a pas lieu de s'inquiéter de peur qu'il ne viole un interdit. Ce n'est <b>pas difficile ; cette</b> <i>baraita</i> fait référence à un lieu...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,7 +30,7 @@ La Guemara demande : <b>Et selon Rabbi Akiva, qui a dit : Les fiançailles ne pr
 La Guemara demande : <b>Et selon Rabbi Yeshevav, qui a dit : Venez, crions sur Akiva ben Yosef,</b> qui prolifère les <i>mamzerim</i>, <b>comme il dirait : </b> En ce qui concerne <b>toute personne qui n'a pas</b> la possibilité de <b>relations permises dans le peuple juif,</b> y compris une veuve avec un Grand Prêtre, <b>la progéniture est un <i>mamzer</i>, quelle est</b> la différence <b>entre leurs</b> opinions, entre celui qui a dit qu'on paie une amende aux femmes avec lesquelles les fiançailles prennent effet et celui qui a dit qu'on paie une amende aux femmes aptes à être entretenues ? Rabbi Yeshevav soutient que les fiançailles ne prennent pas effet même dans le cas d'une veuve d'un Grand Prêtre. La Guemara répond : <b>Il y a</b> une différence <b>entre eux</b> en ce qui concerne .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il y a une <b>amende même dans un lieu</b> où il y a <b>vente.</b> C'est-à-dire que non seulement une fille mineure à partir de trois ans peut être vendue jusqu'à sa maturité, mais elle reçoit aussi le paiement de l'amende.
 
@@ -62,4 +62,4 @@ La Guemara demande : <b>Et selon Rabbi Akiva, qui a dit : Les fiançailles ne pr
 La Guemara demande : <b>Et selon Rabbi Yeshevav, qui a dit : Venez, crions sur Akiva ben Yosef,</b> qui prolifère les <i>mamzerim</i>, <b>comme il dirait : </b> En ce qui concerne <b>toute personne qui n'a pas</b> la possibilité de <b>relations permises dans le peuple juif,</b> y compris une veuve avec un Grand Prêtre, <b>la progéniture est un <i>mamzer</i>, quelle est</b> la différence <b>entre leurs</b> opinions, entre celui qui a dit qu'on paie une amende aux femmes avec lesquelles les fiançailles prennent effet et celui qui a dit qu'on paie une amende aux femmes aptes à être entretenues ? Rabbi Yeshevav soutient que les fiançailles ne prennent pas effet même dans le cas d'une veuve d'un Grand Prêtre. La Guemara répond : <b>Il y a</b> une différence <b>entre eux</b> en ce qui concerne .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

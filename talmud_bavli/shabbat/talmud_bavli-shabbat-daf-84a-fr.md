@@ -15,4 +15,4 @@ La Guemara remet en question ce qui a été énoncé : <b>Et d'où déduit-on</b
 De même, <b>l'école de Rabbi Yishmael a enseigné</b> que le verset dit : " Tout lit sur lequel elle se couche tous les jours de son <i>zava</i> émission <b>seront pour elle comme le lit de ses menstruations"</b> (Lévitique 15:26). Le verset <b>juxtapose son lit à elle-même : De même qu'elle a</b> la possibilité de se purifier dans un bain rituel, de même, son lit</b> fait référence à un récipient qui <b>a</b> la possibilité de se purifier dans un bain rituel.</b> Ceci à l'exclusion d'un récipient en terre cuite, qui n'a pas</b> la possibilité de se purifier dans un bain rituel. Rabbi Ila s'oppose fortement</b> à cela d'après ce que nous avons appris : <b>D'où vient</b> que <b>un</b> roseau <b>mat</b> devient rituellement impur <b>à partir du</b> contact avec <b>un cadavre ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

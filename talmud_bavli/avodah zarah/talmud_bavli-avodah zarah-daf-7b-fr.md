@@ -54,4 +54,4 @@ La Guemara note : <b>Maintenant</b> il est clair que <b>les versets</b> eux-mêm
 Ils sont en désaccord <b>en ce qui concerne ce que Rabbi Simlaï a enseigné. Comme Rabbi Simlaï l'a enseigné : Une personne doit toujours mettre en avant la louange de Dieu et</b> seulement <b>ensuite prier</b> pour ses propres besoins. <b>D'où tirons-nous</b> cela ? Nous le tirons <b>de Moïse notre maître, comme il est écrit : "Ô Seigneur Dieu, Tu as commencé à montrer à Ton serviteur</b> Ta grandeur, et Ta main forte ; car quel dieu y a-t-il dans le ciel ou sur la terre, qui puisse faire selon Tes œuvres, et selon Tes actes puissants ?". (Deutéronome 3:24). Ici, Moïse loue Dieu, <b>et il est écrit par la suite,</b> dans le verset suivant, qu'alors Moïse a demandé à Dieu : <b>"Laisse-moi passer, je Te prie, et voir le bon pays"</b> (Deutéronome 3:25).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

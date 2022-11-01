@@ -27,4 +27,4 @@ La Guemara commente : <b>Maintenant que la <i>halakha</i> n'a été énoncée ni
 <b>Rabbi Elazar a dit</b> que <b>Rav Oshaya a dit : Tout ce qui est trempé dans un liquide</b> avant d'être mangé <b>nécessite</b> le rituel du <b>lavage des</b> <b>mains.</b> L'obligation de se laver les mains a été instituée pour préserver la pureté rituelle et pour éviter que les gens fassent contracter à la nourriture <i>teruma</i> une impureté rituelle. Les mains sont généralement considérées comme impures au second degré de l'impureté rituelle, et elles confèrent l'impureté à tout liquide avec lequel elles entrent en contact. Les liquides qui deviennent rituellement impurs sont automatiquement impurs au premier degré et transmettent donc l'impureté rituelle à tout aliment qui y est plongé. <b>Rav Pappa a dit : Apprenez de</b> cette <i>halakha</i>, qui nécessite le lavage des mains, <b>que</b> pour <b>cette laitue</b> à Pessah,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

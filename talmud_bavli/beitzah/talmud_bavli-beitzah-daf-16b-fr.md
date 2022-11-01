@@ -39,4 +39,4 @@ La Guemara tente de citer une preuve : <b>Venez</b> et <b>entendez que Rav Taḥ
 La Gemara répond : <b>Puisqu'elle corrompt</b> le comportement des <b>masses,</b> comme, si elles s'abstiennent de préparer une jonction de cours le jour de la Fête alors qu'il est permis de le faire, elles risquent de se transporter par erreur d'un domaine à l'autre le Chabbat,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

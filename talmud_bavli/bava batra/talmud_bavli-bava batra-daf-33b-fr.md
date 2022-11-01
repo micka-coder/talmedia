@@ -24,4 +24,4 @@ Il y avait <b>une certaine</b> personne <b>qui disait à une autre : Que veux-tu
 La Guemara présente maintenant ce cas : <b>Comme</b> il y avait <b>un certain homme qui a arraché une pièce de métal fondu à un autre.</b> Celui à qui elle a été arrachée <b>s'est présenté devant Rabbi Ami</b> alors que <b>Rabbi Abba était assis devant lui,</b> et il a <b>amené un témoin</b> qui a témoigné <b>que</b> c'était, en fait, <b>l'objet de l'arrachement.</b> Celui qui l'a arraché <b>lui a dit : Oui,</b> il est vrai que <b>je l'ai arraché</b>, <b>mais je</b> n'ai fait qu'<b>arracher</b> ce qui était <b>mien. Rabbi Ami a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La mishna demande : <b>Comment allumeraient-ils</b> les <b>fourneaux</b> durant 
 La Gemara demande : <b>Est-ce à dire que pour</b> la conclusion d'un <b>mois déficient</b> de vingt-neuf jours, <b>on effectue</b> la séquence d'allumage des torches, mais <b>pour un mois complet</b> <b>on ne l'effectue pas</b> ? <b>Quelle est la raison</b> de cette situation ? <b>Rabbi Zeira a dit :</b> C'est un <b>décret</b> rabbinique qui a été institué <b>en raison</b> du cas d'une <b>Nouvelle Lune</b> suivant <b>un mois déficient,</b> de vingt-neuf jours <b>qui se produit la veille de Chabbat.</b> Dans ce cas, <b>quand effectue-t-on</b> l'allumage ? <b>A la fin du Chabbat,</b> car il est interdit d'allumer un feu le vendredi soir. La raison de ce décret est <b>que si l'on dit que l'on effectue</b> l'allumage des torches <b>pendant un mois complet,</b> de trente jours <b>aussi, </b> les gens pourraient <b>venir</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

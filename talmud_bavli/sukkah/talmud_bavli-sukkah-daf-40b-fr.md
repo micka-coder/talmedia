@@ -36,4 +36,4 @@ La Gemara poursuit : <b>Il est enseigné</b> dans une <i>baraita</i> <b>conforme
 <b>Rava dit :</b> Ce <b>dispute</b> entre Rabbi Meir et les sages...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

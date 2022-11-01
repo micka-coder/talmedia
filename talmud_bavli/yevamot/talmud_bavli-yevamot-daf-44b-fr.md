@@ -51,4 +51,4 @@ Ceci est dérivé <b>par une inférence <i>a fortiori</i></b> <b>de</b> la <i>ha
 La Guemara apporte des précisions : <b>Qui</b> est inclus en disant : <b>Tous d'accord ?</b> Il s'agit de <b>Shimon HaTimni, car bien que Shimon HaTimni ait dit</b> que la progéniture des relations pour <b>lesquelles on est responsable</b> de la violation d'un <b>interdit n'est pas un <i>mamzer</i>, cela ne s'applique</b> qu'à...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

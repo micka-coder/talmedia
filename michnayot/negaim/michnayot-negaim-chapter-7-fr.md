@@ -14,5 +14,5 @@ Celui qui arrache des signes d'impureté ou brûle de la chair vive transgresse 
 ### michna 5
 Si quelqu'un avait une tache brillante et qu'elle a été coupée, il devient pur ; s'il l'a coupée intentionnellement : Rabbi Eliezer dit : [il n'est propre] qu'après qu'un autre néga ait surgi en lui et qu'il ait atteint la propreté après celui-ci. Mais les sages disent : seulement après qu'il se soit répandu sur tout son corps. Si elle se trouvait à l'extrémité du prépuce, il faut se faire circoncire.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

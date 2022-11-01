@@ -120,5 +120,5 @@
 ### passuk 34
 <b>Il a fait ce que [Hachem] a ordonné à [Moshé] Etc. </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quand arriva Yom Kippour, il accomplit [le Service] selon cet ordre - pour raconter la louange d'Aharon, qu'il n'a pas porté [ces vêtements] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour sa propre grandeur, [mais] plutôt pour accomplir le décret royal. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais tout de même,</b> ceci n'est <b>pas comparable</b>
 <b>Rava lui dit : Au contraire, l'inverse est</b> plus <b>raisonnable.</b> En ce qui concerne <b>un lépreux, c'est</b> avec une <b>permission</b> spécifique qu'il a été autorisé par la Torah à insérer son pouce droit et son gros orteil dans la cour afin de se purifier malgré son impureté rituelle, ce qui n'était pas accordé pour les autres impuretés. Par conséquent, peut-être seulement <b>en ce qui concerne cette</b> impureté <b>elle est permise, mais en ce qui concerne cette</b> impureté, c'est-à-dire, due à une émission séminale, <b>elle n'est pas permise. </b> Mais par rapport à l'<b>impureté rituelle,</b> puisque <b>elle est surmontée</b> dans le cas de l'impureté rituelle due à un cadavre, <b>quelle</b> différence cela fait-il <b>pour moi</b> s'il y a <b>une</b> impureté qui est <b>dépassée,</b> et <b>quelle</b> différence cela fait-il <b>pour moi</b> s'il y a <b>deux</b> impuretés qui sont <b>dépassées ? </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rav Asi <b>souleve une objection à</b> l'opinion de Rabbi Yoḥanan tirée de l
 Rav Asi explique son objection : <b>Accordé,</b> dans <b>tous</b> ces <b>cas</b> sauf un, <b>il n'est pas en son pouvoir</b> de provoquer la situation où il pourra la fiancer, <b>mais</b> dans le cas d'un <b>converti,</b> la question <b>est en son pouvoir,</b> car il pourrait se convertir maintenant s'il le souhaite. Selon l'opinion de Rabbi Yoḥanan, toute action qui pourrait potentiellement être réalisée est considérée comme si elle avait été effectivement réalisée. La Guemara répond : Dans le cas d'un <b>converti, il n'est pas non plus en son pouvoir</b> de se convertir quand il le souhaite, <b>comme le dit Rabbi Ḥiyya bar Abba</b> que <b>Rabbi Yoḥanan dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

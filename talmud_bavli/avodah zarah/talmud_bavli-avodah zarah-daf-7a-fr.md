@@ -33,4 +33,4 @@ Dans une situation où <b>il y avait deux</b> Sages assis ensemble et que <b>un 
 <b>Les Sages ont enseigné : Et</b> en ce qui concerne <b>tous</b> les gens qui ne sont pas jugés crédibles à cause des péchés qu'ils ont commis, même <b>quand ils se rétractent</b> et se repentent de leurs mauvaises voies, la société <b>ne les accepte jamais;</b> c'est <b>la déclaration de Rabbi Meir. Rabbi Yehuda dit :</b> Si <b>ils se rétractent</b> de leurs voies <b>en privé,</b> la société <b>ne les accepte pas,</b> mais s'ils se repentent <b>en public [<i>befarheseya</i>],</b> la société <b>les accepte. Il y a</b> ceux <b>qui disent</b> qu'il y a une autre version de cette discussion : Si <b>ils ont accompli leurs <b>affaires pécheresses</b> en privé,</b> alors lorsqu'ils se repentent la société les <b>accepte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

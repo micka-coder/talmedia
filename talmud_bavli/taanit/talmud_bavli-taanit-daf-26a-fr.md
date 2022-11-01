@@ -41,4 +41,4 @@ La mishna reprend sa liste. <b>Le vingtième de</b> Av, <b>les descendants de Pa
 La mishna traite des cinq grands jours de jeûne communautaire. <b>Cinq</b> calamités sont survenues à nos ancêtres le dix-sept de Tammuz, et cinq</b> autres désastres se sont produits <b>le neuf d'Av. Le dix-septième jour de Tammuz</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

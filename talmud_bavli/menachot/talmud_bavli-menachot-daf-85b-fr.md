@@ -57,4 +57,4 @@ La Guemara démontre l'efficacité de cette méthode : <b>Rav Ḥilkiya bar Tovi
 § La mishna enseigne : <b>On ne peut pas apporter</b> une offrande de repas contenant de l'huile d'olives <b>provenant d'une oliveraie fertilisée</b> La mishna continue d'affirmer qu'on ne peut pas apporter une offrande de repas contenant de l'huile d'olives non mûres, et, selon une version du texte de la mishna, elle ajoute que même si on apportait une offrande de repas contenant une telle huile, elle ne serait pas valable. La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : <b>On ne peut pas apporter</b> une offrande de repas contenant de l'huile faite à partir d'olives <b>non mûres,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

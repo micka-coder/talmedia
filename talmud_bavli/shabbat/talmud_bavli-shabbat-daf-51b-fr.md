@@ -15,4 +15,4 @@
 <b>Et on ne peut ni écraser la neige ni la grêle le Chabbat afin que son eau coule</b> et qu'il puisse la boire. Cet acte implique la création d'une nouvelle entité, l'eau à partir de la glace, le Chabbat, ce qui est interdit. <b>Cependant, il peut placer</b> la neige ou la grêle <b>dans une tasse ou un plat</b> et la laisser fondre d'elle-même, <b>et il n'a pas à s'inquiéter.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

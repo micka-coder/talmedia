@@ -57,4 +57,4 @@ La Gemara suggère une autre explication : <b>Le traitement monétaire</b> fait 
 <b>Rav Ḥisda dit</b> que <b>Mar Ukva dit : Mais si</b> un Gentil <b>lui a dit : Telle potion est bénéfique pour</b> cette affection, ou <b>telle potion est néfaste pour</b> cette affection, il est <b>permis</b> d'adhérer à l'avis du gentil.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

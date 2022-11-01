@@ -36,4 +36,4 @@ La Guemara répond : Le cas de la <i>baraïta</i> est un cas <b>où les récipie
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Si un chien ou une chèvre sautaient d'en bas vers</b> quelque chose qui était <b>au-dessus</b> d'eux et causaient ainsi des dommages, leurs propriétaires sont <b>exemptés,</b> car c'est un comportement atypique. Mais s'ils ont sauté <b>de haut en bas,</b> leurs propriétaires sont <b>responsables</b> de payer le coût total de tout dommage qu'ils causent, car c'est un comportement typique. <b>Si une personne ou un poulet a sauté</b> et a cassé quelque chose, <b>peu importe s'ils ont sauté de haut en bas ou de bas en haut, ils sont responsables.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

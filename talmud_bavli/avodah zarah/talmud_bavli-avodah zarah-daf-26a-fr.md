@@ -51,4 +51,4 @@ La Guemara remarque : <b>Et il est nécessaire</b> que le différend entre Rabbi
 A propos de la notion de soulever quelqu'un d'une fosse ou de l'y faire descendre, la Guemara note que <b>Rabbi Abbahou a enseigné</b> ce qui suit alors qu'il se tenait <b>devant Rabbi Yoḥanan:</b> En ce qui concerne les <b>gentils et les bergers d'animaux domestiques, on ne peut pas les soulever</b> d'une fosse,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

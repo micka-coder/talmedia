@@ -94,5 +94,5 @@
 <b>Ne montez pas avec des marches.</b> Lorsque vous construirez une rampe pour l'autel, ne la faites pas comme une rangée de marches, [qui sont appelées] <i>eschelons</i> en vieux français, mais elle doit plutôt être plate et inclinée. 
 <b>Afin que votre nudité ne soit pas révélée.</b> Car à cause de ces marches, vous devrez élargir vos foulées. Et bien qu'il ne s'agirait pas d'un dévoilement réel de la nudité car il est écrit : "Fais-leur (aux <i>kohanim</i>) des pantalons de lin", néanmoins l'élargissement des foulées s'approche [suffisamment] de la découverte de sa nudité par laquelle tu agiras envers elles (les pierres) avec manque de respect. On peut en déduire <i>a fortiori:</i> Tout comme ces pierres qui n'ont aucun sens pour s'offenser de leur dénigrement [pourtant] la Torah a déclaré que, puisqu'elles sont nécessaires, il ne faut pas agir de manière irrespectueuse à leur égard, alors votre semblable, qui est à l'image de votre Créateur et s'offense de son dénigrement, à combien plus forte raison [devez-vous veiller à ne pas lui manquer de respect]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara relate encore, en ce qui concerne l'attitude à l'égard des servante
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Quels sont les signes de la maturité ? Rabbi Elazar, fils de Rabbi Tzadok, répond : A partir du moment où les seins se cognent l'un contre l'autre,</b> en raison de leur taille. <b>Rabbi Yoḥanan ben Beroka dit : Du moment où la tête</b> de la protubérance au centre <b>du mamelon s'assombrit.</b> La Gemara demande à propos de cette suggestion : <b>À partir du moment où elle s'assombrit ? On</b> rend ainsi <b>son vieux,</b> c'est-à-dire que si l'on accepte ce signe, le début de la maturité est retardé de manière significative. <b>Au contraire, Rav Ashi dit : A partir du moment où la tête de la saillie se fend. Rabbi Yosei dit : A partir du moment où le mamelon</b> grandit à tel point qu'il <b>est entouré d'un cercle. Rabbi Shimon dit : A partir du moment où</b> il y a <b>un ramollissement</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

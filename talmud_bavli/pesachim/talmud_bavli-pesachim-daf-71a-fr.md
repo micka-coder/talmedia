@@ -48,4 +48,4 @@ La Guemara explique en quoi cette <i>baraita</i> est difficile selon Ravin : <b>
 La Gemara demande : <b>Quelle est</b> cette source à laquelle fait allusion Rava ? La Gemara explique : <b>Comme il a été enseigné</b> dans une <i>baraita</i> à propos du verset : <b>"Non, aucune des viandes que vous sacrifiez le premier jour, le soir, ne restera pendant la nuit jusqu'au matin"</b> (Deutéronome 16:4),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

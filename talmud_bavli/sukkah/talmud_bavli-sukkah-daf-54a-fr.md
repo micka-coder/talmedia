@@ -33,4 +33,4 @@ La Guemara rejette cette conclusion. La raison pour laquelle la mishna n'a pas c
 La Guemara répond : <b>Il a omis</b> le cas de la <b>veille de Pessah.</b> L'agneau pascal était sacrifié en trois fois. Lorsque l'agneau pascal était sacrifié, on récitait le <i>hallel</i>, et la récitation du <i>hallel</i> était accompagnée de trois souffles. En raison du grand nombre d'agneaux pascals sacrifiés, ils récitaient souvent le <i>hallel</i> trois fois au cours de chaque poste. Par conséquent, il pouvait y avoir jusqu'à vingt-sept blasts supplémentaires sonnés ce jour-là. Ajouté aux vingt et un blasts sonnés chaque jour, le total est de quarante-huit blasts.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

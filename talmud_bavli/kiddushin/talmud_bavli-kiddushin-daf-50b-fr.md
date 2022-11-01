@@ -42,4 +42,4 @@ La Guemara s'interroge sur ce point : Dans un endroit où les hommes commencent 
 La Guemara analyse <b>la</b> question <b>même. Rabba dit : Toute</b> question <b>qui ne peut</b> être accomplie <b>séquentiellement ne peut être</b> accomplie <b>même</b> si on les accomplit <b>simultanément. Abaye soulève une objection à son</b> avis à partir d'une <i>baraita</i> (<i>Tosefta</i>, <i>Demai</i> 8:10) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

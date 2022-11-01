@@ -57,4 +57,4 @@ Après avoir brièvement mentionné l'opinion de Rabbi Yehouda, la Guemara deman
 <b>Rabbi Yosei lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

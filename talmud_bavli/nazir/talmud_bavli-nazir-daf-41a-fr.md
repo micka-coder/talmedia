@@ -24,4 +24,4 @@ La Gemara demande : <b>Pourquoi ai-je besoin</b> que la Torah <b>écrive : "Sa t
 La Gemara demande : Si c'est le cas, <b>pourquoi ai-je besoin que la Torah <b>écrive : "Sa tête", et pourquoi ai-je besoin de la Torah <b>pour écrire : "Sa barbe"?</b> Une source devrait suffire pour enseigner que le rasage d'un lépreux l'emporte sur tous les interdits qui seraient violés par cet acte. La Guemara répond : Les deux versets <b>sont nécessaires. Comme, si le Miséricordieux avait écrit</b> seulement : <b>"Sa barbe", et n'avait pas écrit : "Sa tête", je dirais</b> que <b>l'arrondissement de toute la tête,</b> c'est-à-dire le fait de se raser tous les cheveux de la tête et pas seulement les côtés, n'est <b>pas appelé</b> un <b>arrondissement interdit.</b> S'il en était ainsi, le rasage de la tête d'un lépreux ne serait pas interdit par la loi de la Torah. <b>Pour cette raison</b> <b>Le Miséricordieux écrit : "Sa tête"</b> pour enseigner que le rasage que le lépreux effectue serait considéré comme un arrondi interdit de la tête si la Torah ne lui avait pas ordonné de se raser.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

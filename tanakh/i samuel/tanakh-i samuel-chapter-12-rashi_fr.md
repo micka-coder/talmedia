@@ -66,4 +66,4 @@
 <b>Et quant à moi, loin de moi l'idée.</b> Puisque vous ferez votre part en retournant à '<span>ה</span>, moi aussi, loin de moi l'idée de cesser de prier en votre faveur. <sup>14</sup><i class="footnote"> De ce verset, la Guemara dans Masehet Berahot 12b, déduit, que si une personne sait que ses prières seront exaucées si elle prie pour la miséricorde de son prochain mais s'abstient de le faire, elle est considérée comme ayant péché.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

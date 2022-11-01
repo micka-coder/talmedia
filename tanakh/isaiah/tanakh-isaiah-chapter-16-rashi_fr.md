@@ -75,7 +75,7 @@
 <b>Pas beaucoup</b> Heb. לוֹא כַּבִּיר, expression d'un grand nombre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Envoyez les agneaux du souverain du pays</b> Ne soyez pas fiers. Ne sais-tu pas que le chef de ton pays, Mesha, roi de Moab, (II Rois 3:4) était un berger ; et il payait à plusieurs reprises un tribut de cent mille agneaux au roi d'Israël. Envoie ces agneaux de ton chef de Sela Midbarah à la montagne de la communauté de Sion.
 
@@ -152,4 +152,4 @@
 <b>Pas beaucoup</b> Heb. לוֹא כַּבִּיר, expression d'un grand nombre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

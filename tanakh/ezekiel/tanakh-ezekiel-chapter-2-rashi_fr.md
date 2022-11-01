@@ -39,4 +39,4 @@
 <b>et le malheur</b> Le malheur des méchants dans le monde à venir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

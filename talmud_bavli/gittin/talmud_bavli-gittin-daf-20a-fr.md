@@ -48,4 +48,4 @@ A propos de cette question, <b>Ravina dit à Rav Ashi :</b> Est-ce que la <b>pre
 <b>Il souleva une objection à son</b> opinion basée sur ce qui a été enseigné précédemment : <b>L'écriture</b> du plastron du grand prêtre <b>n'était pas encastrée,</b> c'est-à-dire qu'elle n'était pas gravée dans le plastron ; <b>au contraire, elle faisait saillie comme</b> la forme sur les <b>dinars en or. Et s'il vous vient à l'esprit</b> de dire qu'une presse ne <b>souligne</b> que le fond,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

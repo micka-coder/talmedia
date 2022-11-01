@@ -45,4 +45,4 @@ La Guemara suggère : <b>Disons</b> qu'une mishna <b>soutient</b> cette opinion 
 <b>Abaye dit à Rav Yosef : Quelles sont les circonstances</b> des <b>nouveaux</b> phylactères, <b>et quelles sont les circonstances</b> des <b>anciens</b> phylactères ? Rav Yosef lui <b>répondit :</b> Dans <b>tous les cas</b> <b>où si on tient la peau et qu'on la tire, elle revient à sa place [<i>ḥaleim</i>],</b> ces phylactères sont considérés comme <b>anciens ; et</b> dans <b>l'autre cas</b> où la peau qui a été tirée ne revient pas à sa place, ils sont considérés comme <b>nouveaux.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

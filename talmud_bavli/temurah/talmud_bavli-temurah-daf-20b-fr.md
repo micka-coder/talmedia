@@ -57,4 +57,4 @@ Rabbi Avin bar Kahana <b>lui a dit</b> en réponse : <b>La raison</b> de la déc
 Rabbi Avin bar Ḥiyya <b>souleve une objection à</b> Rabbi Avin bar Kahana à partir de la mishna : Rabbi Elazar dit que dans le cas de <b>la progéniture</b> d'un animal femelle qui a été désigné comme offrande de culpabilité ou la progéniture du substitut d'une offrande de culpabilité, <b>et la progéniture de leur progéniture jusqu'à la fin de tous les temps,</b> ils paissent jusqu'à ce qu'ils deviennent tachés, puis ils sont vendus, et le propriétaire <b>apporte</b> une <b>offrande individuelle de brûlé avec</b> l'<b>argent</b> reçu pour <b>leur</b> vente. La Gemara en déduit : <b>Avec</b> l'<b>argent</b> reçu pour <b>leur</b> vente, <b>oui,</b> il apporte un holocauste,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

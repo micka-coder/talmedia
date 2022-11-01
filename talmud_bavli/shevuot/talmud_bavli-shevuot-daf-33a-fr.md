@@ -60,4 +60,4 @@ Dans <b>cette dernière clause,</b> le <i>tanna</i> <b>nous apprend un</b> élé
 La Gemara suggère : <b>Venir</b> et <b>entendre</b> la preuve d'un <i>baraita</i> pour résoudre le dilemme : <b>Je vous fais prêter serment</b> concernant votre refus de témoigner <b>si vous ne venez pas témoigner pour moi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

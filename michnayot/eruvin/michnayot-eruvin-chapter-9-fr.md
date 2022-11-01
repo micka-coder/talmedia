@@ -12,4 +12,4 @@ En ce qui concerne une cour qui a été percée le Chabbat dans un domaine publi
 En ce qui concerne celui qui construit un étage supérieur sur deux maisons situées sur des côtés opposés d'un domaine public qui passe en dessous, et de même pour les ponts avec une voie de circulation en dessous qui reposent sur des murs situés sur des côtés opposés d'un domaine public, on peut porter sous l'étage supérieur et sous le pont pendant Chabbat. C'est ce qu'affirme Rabbi Yehuda, qui soutient que ces zones sont considérées comme des domaines privés. Et les sages interdisent de porter dans ces zones. Et de plus, Rabbi Yehuda a dit : On peut établir un eirouv même pour une ruelle ouverte aux deux extrémités, sans avoir besoin de mesures supplémentaires, et les sages interdisent de le faire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

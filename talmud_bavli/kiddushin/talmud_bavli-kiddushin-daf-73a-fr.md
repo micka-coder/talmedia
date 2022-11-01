@@ -54,4 +54,4 @@ La question reste donc posée : Pourquoi a-t-on interdit à un enfant trouvé d'
 § <b>Rava bar Rav Huna dit :</b> Si un garçon abandonné a été <b>trouvé circoncis,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

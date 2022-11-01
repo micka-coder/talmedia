@@ -36,4 +36,4 @@ La Gemara suggère : <b>Disons</b> que cette question de savoir si un <i>tumtum<
 La Gemara analyse cette <i>baraita</i> : <b>Et si vous disiez :</b> Ici aussi, <b>omettre de</b> cette <i>baraita</i> <b>un <i>tumtum</i>,</b> alors l'avis de <b>Rabbi Shimon ben Yehuda est</b> le même que celui des <b>Rabbins,</b> car eux aussi soutiennent qu'un hermaphrodite n'est pas sacré. <b>Au contraire,</b> n'est-ce pas <b>que la différence <b>entre eux</b> porte sur le statut d'un <b>tumtum</i>, tel que le premier <i>tanna</i>,</b> c'est-à-dire les rabbins, <b>le soutient : Il n'est pas empreint de sainteté,</b> et ils se réfèrent spécifiquement <b>à un hermaphrodite,</b> qui était le sujet de la déclaration de Rabbi Ilai, <b>mais un <i>tumtum</i> est un cas incertain</b>, <b>et</b> donc <b>il est sacré en raison de l'incertitude. Et Rabbi Shimon</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

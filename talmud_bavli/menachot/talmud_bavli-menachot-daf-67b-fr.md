@@ -24,4 +24,4 @@ La Gemara répond : <b>Il y a,</b> dans le cas du <i>teruma</i> et de la dîme, 
 <b>Rabba dit</b> que l'interdiction du <b>nouveau</b> grain <b>est différente,</b> pour la raison suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

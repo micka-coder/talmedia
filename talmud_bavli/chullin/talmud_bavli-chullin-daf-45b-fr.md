@@ -66,4 +66,4 @@ Rabbi Yehuda <b>lui dit : Viens, je vais t'enseigner une tradition</b> sans te l
 <b>Rav Huna, fils de Rav Yehoshua, soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

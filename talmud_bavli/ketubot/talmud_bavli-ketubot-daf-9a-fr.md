@@ -33,4 +33,4 @@ La Gemara explique : <b>C'est plutôt</b> ce que Rabbi Elazar <b>dit : Une femme
 <b>Et si tu disais</b> à propos de <b>l'incident qui a transpiré</b> impliquant David et Bethsabée : <b>Pour quelle</b> raison les Sages <b>ne l'ont-ils pas jugée interdite,</b> alors que manifestement David a commis l'adultère avec une femme mariée ? La Gemara répond : <b>Il s'agissait ici d'un viol,</b> et elle ne s'est pas engagée volontairement dans le rapport sexuel. <b>Et si vous voulez, dites</b> plutôt que les Sages ne l'ont pas jugée interdite, <b>comme ce que Rabbi Shmuel bar Naḥmani a dit</b> que <b>Rabbi Yonatan a dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

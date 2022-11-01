@@ -23,5 +23,5 @@ Celui qui souffle dans un puits, une citerne ou une cruche, s'il a entendu le so
 ### michna 8
 "Et il arriva que lorsque MoÃ¯se leva sa main, Israël l'emporta "etc. Les mains de MoÃ¯se ont-elles fait la guerre ou brisé [la capacité d'Israël] à faire la guerre ? Cela enseigne plutèt que tant qu'IsraÃ"l regardait vers le haut et soumettait son coeur à son Père qui est aux cieux, il l'emportait, sinon il tombait. De même, "Fais-toi un serpent de feu et monte-le sur un poteau. Et si quelqu'un qui est mordu le regarde, il vivra" (Nombres 21:8). Le serpent a-t-il tué ou gardé en vie ? Au contraire, lorsqu'Israël regardait vers le haut et soumettait son cœur à son Père céleste, il était guéri, et sinon, sa [chair] fondait. Un sourd-muet, un fou et un mineur ne peuvent pas amener les autres à remplir leur obligation religieuse. C'est le principe général : celui qui n'est pas lui-même obligé en la matière ne peut l'accomplir au nom des autres.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

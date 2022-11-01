@@ -60,4 +60,4 @@ En ce qui concerne <b>celui qui descend sur un bien abandonné,</b> le tribunal 
 La Gemara demande : <b>Qu'est-ce qui est différent</b> d'un bien, <b>pour qu'il soit appelé bien abandonné</b> ? <b>Et qu'est-ce qui est différent</b> de l'autre propriété, <b>qu'on l'appelle propriété abandonnée</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

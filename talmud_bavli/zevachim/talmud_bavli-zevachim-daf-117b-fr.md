@@ -30,4 +30,4 @@ Rabba note : <b>Grâce à toi, si tu dis</b> que Rabbi Meïr et les rabbins <b>s
 La Guemara clarifie les deux opinions : <b>Quelle est la raison</b> de l'avis <b>des rabbins</b> selon lequel seul le public pouvait sacrifier des offrandes obligatoires sur un grand autel public ? <b>Le verset indique</b> en ce qui concerne la période où les autels privés étaient autorisés : "Vous ne ferez pas tout ce que nous faisons ici aujourd'hui, chaque <b>homme faisant ce qui lui convient à ses propres yeux"</b> (Deutéronome 12:8). Cela indique que c'est <b>"un homme"</b>, c'est-à-dire un individu, <b>qui peut sacrifier uniquement</b> les offrandes qu'il juge <b>"convenables"</b>, c'est-à-dire les offrandes volontaires, mais <b>ne peut pas sacrifier les offrandes obligatoires</b>. <b>Mais</b> le <b>public peut sacrifier même des offrandes obligatoires</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

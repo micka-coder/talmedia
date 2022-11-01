@@ -47,7 +47,7 @@
 <b>S'enfuiront</b> La tristesse et les soupirs s'enfuiront d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Se réjouiront d'eux</b> (יְשֻׂשׂוּם) C'est habituellement le signe de l'objet direct, inapproprié ici dans le cas d'un verbe intransitif. (comme יָשׂוּשׂוּ מֵהֶם, se réjouiront d'eux). Comp. (Jer. 10:20) "Mes fils se sont éloignés de moi (יְצָאֻנִי)." De même, (I Rois 19:21) "Il leur fit cuire la viande (בִּשְּׁלָם)", équivalent de בִּשֵּׁל לָהֶם, "Il leur fit cuire la viande".
 <b>Désert et désert</b> Jérusalem, appelée "désert", et Sion, appelée "désert", elles se réjouiront de la chute des puissants des païens et de la Perse ([Les manuscrits donnent :] d'Edom et de Bozrah). ([L'édition de Varsovie donne :] les puissants de Séir (et de Bozrah).)
@@ -96,4 +96,4 @@
 <b>S'enfuiront</b> La tristesse et les soupirs s'enfuiront d'eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

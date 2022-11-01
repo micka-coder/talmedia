@@ -47,5 +47,5 @@ Tous ceux qui ont encouru [la peine de] kareth, en étant flagellés, sont exemp
 ### michna 16
 Rabbi Hananiah ben Akashia dit : "Le Saint Béni soit-Il a voulu rendre Israël digne, c'est pourquoi Il leur a donné beaucoup de Torah [à étudier] et beaucoup de commandements [à accomplir] : car il est dit : "Le Seigneur désire la défense [de son serviteur], afin qu'il magnifie et glorifie [son] enseignement" (Isaïe 42).
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

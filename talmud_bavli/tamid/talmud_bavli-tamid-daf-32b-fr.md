@@ -18,4 +18,4 @@ La Guemara cite une déclaration liée à son précédent récit du voyage d'Ale
 Le chapitre, ainsi que la partie talmudique du tractat, se termine par des mots de louange pour ceux qui étudient la Torah. <b>Rabbi Ḥiyya a enseigné :</b> En ce qui concerne <b>toute personne qui s'occupe</b> <b>de la Torah la nuit, la Présence divine est en face de lui, comme il est dit : "Lève-toi, crie dans la nuit, au début des veilles ; épanche ton cœur comme de l'eau devant la face du Seigneur,</b> lève tes mains vers Lui" (Lamentations 2:19). <b>Rabbi Elazar ben Azarya a dit : Les érudits de la Torah augmentent la paix dans le monde, comme il est dit : "Et tous tes enfants [<i>banayikh</i>] seront instruits du Seigneur, et grande sera la paix de tes enfants"</b> (Isaïe 54:13). Cela peut être lu comme <i>bonayikh</i>, vos bâtisseurs, c'est-à-dire les érudits qui construisent et augmentent la paix pour le monde entier.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

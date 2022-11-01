@@ -26,5 +26,5 @@ De Jéricho, on entendait le bruit de l'ouverture de la grande porte. De Jérich
 ### michna 9
 Celui qui avait été choisi pour nettoyer les cendres de l'autel intérieur entrait en portant le teni qu'il posait devant lui, et il ramassait la cendre dans ses poings et la mettait dedans, et à la fin il balayait ce qui restait dedans, puis il le laissait là et sortait. Celui qui avait été choisi pour enlever les cendres de la ménorah entrait. S'il trouvait les deux lumières orientales allumées, il enlevait les cendres du reste et laissait ces deux lumières allumées. S'il trouvait que ces deux lumières s'étaient éteintes, il enlevait leur cendre et les allumait à partir de celles qui étaient encore allumées, puis il enlevait la cendre des autres. Devant le chandelier, il y avait une pierre avec trois marches sur lesquelles le prêtre se tenait pour allumer les lumières. Il laissait le kouz sur la deuxième marche et sortait.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

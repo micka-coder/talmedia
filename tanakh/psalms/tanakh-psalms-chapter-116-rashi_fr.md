@@ -56,4 +56,4 @@
 <b>Dans ton milieu</b> Heb.  בתוככי, comme  בְּתוֹכֵךְ.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

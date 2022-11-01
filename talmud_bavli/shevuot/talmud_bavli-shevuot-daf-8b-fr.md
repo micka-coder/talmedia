@@ -30,4 +30,4 @@ La Guemara commente : <b>Maintenant,</b> le verset <b>juxtapose</b> les deux bou
 La Gemara conteste : <b>Mais</b> alors <b>laissez</b> le bouc <b>extérieur</b> <b>expier</b> à la fois <b>pour lui-même,</b> c'est-à-dire, pour les cas qu'il expie normalement, <b>et pour ce que</b> le bouc <b>internel</b> expie normalement <b>pour lui-même, et la <b>différence</b> pratique sera dans un cas <b>de</b> la <b>salissure</b> du Temple ou des aliments sacrificiels <b>qui s'est produite entre</b> l'offrande de <b>cette</b> chèvre <b>et de cette</b> chèvre. Si cela se produit après la présentation du sang du bouc interne, alors le bouc externe effectuera l'expiation pour cela. La Guemara explique : <b>Le verset dit:</b> "Aaron fera l'expiation sur ses coins <b>une fois par an"</b> (Exode 30:10). L'accent mis sur le terme "une fois par an" enseigne que <b>cette expiation,</b> pour le cas spécifique qu'elle expie, <b>doit être</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

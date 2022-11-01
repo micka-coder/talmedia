@@ -42,4 +42,4 @@ La Gemara répond : En fait, <b>Shmuel a également énoncé</b> un seul <b>un</
 § <b>Et</b> en ce qui concerne les distinctions entre une offrande de remerciements et les pains qui l'accompagnent, <b>Rava dit :</b> Dans le cas de celui qui a <b>séparé de l'argent pour son offrande de remerciements</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

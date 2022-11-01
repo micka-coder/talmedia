@@ -17,5 +17,5 @@ Si l'évaluation des juges était d'un sixième de moins ou d'un sixième de plu
 ### michna 6
 La mineure] qui a refusé son mari, une interdiction secondaire d'inceste ou un aylonit n'a pas droit à une ketubah, ni à l'usufruit [de sa dot], ni à l'entretien, ni aux articles usés [de sa dot]. S'il s'est marié dès le départ en sachant qu'elle était une aylonit, elle a droit à une ketubah. Une veuve qui était mariée à un grand prêtre, une femme divorcée ou une halutzah qui était mariée à un prêtre régulier, une mamzereth ou une netinah qui était mariée à un Israélite, ou la fille d'un Israélite qui était mariée à un Natin ou une mamzer a droit à une ketubah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

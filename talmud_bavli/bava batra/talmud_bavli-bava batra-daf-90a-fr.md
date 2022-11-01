@@ -27,4 +27,4 @@ Cette Gemara note : Cette explication est également difficile, car même si le 
 <b>Au contraire, le Rav Ḥisda dit :</b> L'interdiction n'est pas basée sur un raisonnement logique. Au contraire, <b>Shmuel a trouvé un verset et l'a interprété de manière homilétique : "Et le shekel sera de vingt <i>gera</i> ; vingt shekels, cinq et vingt shekels, dix, et cinq shekels, seront ton <i>maneh</i>"</b> (Ezéchiel 45:12). Selon ce verset, la combinaison de tous ces nombres, soixante shekels, est équivalente à un <i>maneh</i>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara conteste : Si c'est le cas, <b>la première clause</b> de la <i>baraï
 La Guemara demande : <b>Et</b> est-ce que <b>ce verset</b> vient dans ce</b> but ? Il ne le peut pas, car <b>il est nécessaire</b> comme source pour une <i>halakha</i> différente, <b>pour ce qui est enseigné</b> dans une <i>baraita</i> : Le verset dit : <b>"Il ne doit pas</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

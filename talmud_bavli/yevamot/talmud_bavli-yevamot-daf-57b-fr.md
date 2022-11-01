@@ -18,4 +18,4 @@ Rava déduit de cette <i>baraita</i> que <b>c'est une fille de trois ans et un j
 <b>Rami bar Ḥama a dit : </b> En ce qui concerne la question de savoir si <b>il y a</b> une signification juridique <b>à</b> un prêtre entrant dans le <b>canopée nuptiale</b> avec des femmes qui sont <b>inaptes</b> à épouser un prêtre, <b>nous sommes arrivés à la dispute</b> citée dans la mishna entre <b>Rabbi Meir</b> d'une part <b>et Rabbi Elazar et Rabbi Shimon</b> d'autre part .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

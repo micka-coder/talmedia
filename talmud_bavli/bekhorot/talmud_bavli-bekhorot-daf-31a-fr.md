@@ -36,4 +36,4 @@ Le <i>baraita</i> enseigne également : <b>Et</b> il peut statuer à l'égard de
 Enfin, le <i>baraita</i> déclare : <b>Et</b> on <b>peut s'interroger</b> sur lui-même <b>en ce qui concerne ses aliments rituellement purs</b>, c'est-à-dire qu'il peut décider par lui-même s'ils sont devenus impurs ou non, et il n'est pas suspecté de prétendre qu'un aliment impur est en réalité pur. La Guemara explique que son intérêt direct dans ce cas n'est pas si grand, <b>comme</b> la nourriture <b>est apte</b> à être consommée <b>dans ses jours d'impureté.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

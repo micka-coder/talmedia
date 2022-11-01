@@ -54,4 +54,4 @@ La Guemara déduit de la déclaration de Rabbi Yehoshua que si on prépare des a
 La Gemara objecte : <b>Interprétons</b> la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

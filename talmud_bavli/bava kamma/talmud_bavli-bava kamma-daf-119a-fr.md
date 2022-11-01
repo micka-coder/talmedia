@@ -72,4 +72,4 @@ Dans le cas d'un <b>tailleur qui a laissé</b> suffisamment de <b>fils</b> attac
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 11:13) : <b>On peut acheter des brins</b> de laine <b>à un blanchisseur, car ils sont</b> supposés être <b>les siens. Un blanchisseur peut prendre les deux fils supérieurs</b> d'un vêtement, <b>et ils sont à lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

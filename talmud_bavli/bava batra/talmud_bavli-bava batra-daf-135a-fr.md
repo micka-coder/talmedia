@@ -33,4 +33,4 @@ La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> d'énoncer cette déc
 <b>Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

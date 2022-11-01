@@ -39,4 +39,4 @@ La Guemara ajoute : <b>Et les sages,</b> qui n'acceptent pas l'opinion de Shmuel
 <b>Rabbi Yosei dit</b> aux sages : <b>Ne concédez vous pas que si des témoins sont venus de l'époque</b> de <b><i>minḥa</i> et plus</b> le premier jour de Roch HaShana et ont témoigné qu'ils avaient vu la nouvelle lune, nous ne nous appuyons pas sur leur témoignage pour sanctifier ce jour comme Roch HaShana ; plutôt, puisque leur témoignage n'a pas été donné à temps, <b>nous observons ce jour comme sanctifié et</b> également <b>le jour suivant comme sanctifié ? </b> Cela indique que les deux jours de Rosh HaShana ne sont pas observés en raison d'un doute quant à savoir quel est le jour approprié ; c'est plutôt comme si les deux jours étaient une longue journée qui est imprégnée d'une sainteté unifiée. Par conséquent, il ne devrait pas être possible de les diviser.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

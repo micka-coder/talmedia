@@ -54,4 +54,4 @@ La Gemara commente : <b>Maintenant aussi,</b> s'il en est ainsi <b>que</b> la <i
 La Gemara répond : Cette <i>halakha</i> <b>du Rav Naḥman est</b> une <b>ordonnance</b> rabbinique et non un serment requis par la loi de la Torah,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ Si une personne sur son lit de mort dit : Untel <b>doit bénéficier</b> de mes 
 <b>Rav Ika, fils de Rav Ami, s'est opposé à cela : Pourquoi</b> le Rav Mari ne peut-il pas acquérir l'argent ? <b>Mais</b> pourquoi ne pas <b>laisser Issur admettre que ces dinars sont</b> la propriété de <b>Rav Mari, et il transférera</b> la propriété de <b>ceux-ci</b> à Rav Mari <b>par</b> un document d' <b>admission ? Entre temps,</b> un document d'<b>admission</b> stipulant que les dinars appartenaient au Rav Mari <b>émergea de la maison d'Issur. Rava se mit en colère,</b> et <b>dit : Ils enseignent aux gens</b> des <b>revendications légales et me causent des pertes.</b> Quoi qu'il en soit, cet incident prouve que l'aveu d'une personne sur son lit de mort est un moyen valide de transfert de propriété.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

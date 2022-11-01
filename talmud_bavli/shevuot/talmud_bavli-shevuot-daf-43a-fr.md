@@ -60,4 +60,4 @@ Si dans ce cas, le débiteur a dit : <b>Vous m'avez prêté une <i>sela</i> sur<
 <b>Et qui prête</b> le <b>serment ? Celui</b> en <b>de qui</b> la possession <b>du dépôt avait été</b> localisée, c'est-à-dire le créancier, qui a pris des garanties auprès du débiteur. Les Sages ont institué cette disposition <b>afin que cette</b> partie, c'est-à-dire le débiteur, <b>prête serment et que l'autre</b> partie, c'est-à-dire le créancier, <b>produise le dépôt</b> et prouve que le serment est faux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -47,5 +47,5 @@ Rabbi Tarfon a dit : le jour est court, et le travail est abondant, et les ouvri
 ### michna 16
 Il [Rabbi Tarfon] avait l'habitude de dire : Il n'est pas de ton devoir de terminer le travail, mais tu n'as pas non plus la liberté de le négliger ; Si tu as beaucoup étudié la Torah, tu recevras une grande récompense. Si tu as étudié beaucoup de Torah, tu recevras une grande récompense. Ton employeur est fidèle à te payer la récompense de ton travail. Et sache que l'octroi de la récompense aux justes est dans le siècle à venir.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

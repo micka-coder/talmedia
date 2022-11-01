@@ -36,4 +36,4 @@ La Guemara poursuit . <b>Venez</b> et <b>entendez</b> une <i>baraita</i> qui rel
 La Guemara rejette cette preuve. <b>Et</b> comment pouvez-vous <b>le comprendre</b> de cette façon ? Apparemment, les femmes ont seulement témoigné que le bateau a coulé, <b>et il s'agit ici</b> d'un cas de <b>masse d'eau sans fin,</b> car le bateau a coulé en mer à un endroit d'où il est impossible de voir le rivage. <b>Et</b> la <i>halakha</i> est que si un homme était sur un bateau qui a coulé dans <b>une étendue d'eau sans fin,</b> sa femme est interdite</b> de mariage, car il n'y a aucune preuve qu'il s'est réellement noyé et qu'il n'est pas sorti de l'eau sur une autre rive. <b>Au contraire,</b> il faut dire : <b>Quelles sont les circonstances ? Que</b> ces femmes <b>ont dit : Ces</b> noyés <b>ont été ramenés devant nous</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Sur la base de ce qui précède, <b>résolvez</b> que les Sages <b>ne permettaie
 <b>Et si tu veux, dis</b> plutôt que, <b>en fait, ils n'ont pas pénalisé</b> un délinquant involontaire en raison d'un délinquant intentionnel, <b>et</b> encore, ceci n'est <b>pas difficile,</b> et il n'y a pas de contradiction. <b>Ici,</b> la <i>baraita</i> qui permet de le ramener, fait référence au fait de le ramener <b>dans la même cour</b> où il se trouve.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

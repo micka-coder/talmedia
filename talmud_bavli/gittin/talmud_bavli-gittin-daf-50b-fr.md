@@ -48,4 +48,4 @@ Ulla <b>lui a dit : Là,</b> en ce qui concerne la subsistance de la femme et de
 <b>Un dilemme a été soulevé devant</b> les Sages : <b>Selon</b> l'avis de <b>Rabbi Ḥanina,</b> pour percevoir sur un bien grevé, est-il <b>nécessaire</b> que l'obligation soit à la fois d'un <b>montant fixe</b> <b>et</b> également <b>écrite ?</b> Si c'est le cas, cela indiquerait que Rabbi Ḥanina ajoute une autre exigence en plus de celle de Rabbi Yoḥanan.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution du dilemme
 La Gemara conteste : <b>Et déduire</b> qu'il est interdit d'utiliser un couteau utilisé pour le culte des idoles, non pas parce que le bénéfice qui en découle est interdit, mais <b>en raison</b> du résidu de <b>graisse de carcasses interdites</b> sur le couteau.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

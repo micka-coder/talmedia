@@ -20,5 +20,5 @@ L'omer était composé d'un dixième [d'un épha de farine] prélevé sur trois 
 ### michna 7
 L'omer a été passé à travers treize tamis, les deux pains à travers douze, et le pain de proposition à travers onze. Rabbi Shimon dit : il n'y avait pas de nombre prescrit pour eux, mais ils apportaient de la farine fine et la tamisaient autant qu'il était nécessaire, comme il est dit : "Tu prendras de la farine fine et tu la feras cuire" (Lévitique 24:5) [tu ne dois pas la faire cuire] avant qu'elle ne soit tamisée autant qu'il est nécessaire.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

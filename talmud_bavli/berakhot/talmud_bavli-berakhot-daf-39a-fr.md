@@ -42,4 +42,4 @@ Tangentiellement a cette mention d'un plat de navets, <b>Rav Hisda</b> ajoute, <
 <b>Rava s'oppose fortement a cette</b> hypothese : <b>Qu'y a-t-il de different dans le pain sec, que</b> l'on ne <b>pas</b> recite : Qui fait sortir le pain de la terre, sur lui, <b>parce que lorsque la benediction se termine, elle se termine sur une tranche ?</b> Dans le cas ou il recite une benediction <b>sur</b> une miche de <b>pain egalement, lorsqu'il termine</b> la benediction, <b>il la termine sur une tranche,</b> car on coupe le pain avant la benediction.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

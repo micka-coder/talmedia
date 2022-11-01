@@ -30,4 +30,4 @@ Rabban Shimon lui <b>dit : Si tel est le cas,</b> si le fait d'afficher le souci
 <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : La <i>halakha</i> n'est pas conforme</b> à l'avis de <b>Rabbi Yehuda,</b> qui a dit qu'il faut interrompre son repas en retirant entièrement la table, <b>ni</b> n'est <b>conforme</b> à l'avis de <b>Rabbi Yosei,</b> qui a jugé qu'il ne faut pas du tout interrompre son repas. <b>Au contraire,</b> on doit <b>étaler un tissu</b> sur sa table <b>et réciter <i>kiddouch</i>,</b> après quoi on peut poursuivre son repas. La Gemara demande : <b>C'est le cas ? Mais Rav Taḥalifa bar Avdimi n'a-t-il pas dit</b> que <b>Shmuel a dit : De même que l'on s'interrompt pour <i>kiddush</i>,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ En ce qui concerne le cas de celui qui a placé un charbon sur <b>le vêtement</
 Après avoir soulevé le dilemme, Rabba <b>le résout ensuite :</b> Le corps de <b>l'esclave est comparable au corps</b> de toute autre personne, car l'esclave possède un intellect et devrait avoir le bon sens d'enlever le charbon de lui-même, alors que <b>le bœuf est comparable</b> à d'autres <b>biens.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

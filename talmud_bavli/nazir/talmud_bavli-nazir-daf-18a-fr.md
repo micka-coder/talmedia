@@ -30,4 +30,4 @@ La Guemara clarifie : <b>Quel est</b> l'énoncé de <b>Rabbi</b> Yehuda HaNasi, 
 La Guemara clarifie la dispute entre Rabbi Yehuda HaNasi et Rabbi Yosei, fils de Rabbi Yehuda : <b>Quelle est la raison de la décision de Rabbi</b> Yehuda HaNasi de ne commencer à compter qu'à partir du huitième jour ? La Guemara répond : <b>Le verset dit :</b> "Et le prêtre préparera l'un pour un sacrifice pour le péché, et l'autre pour un holocauste, <b>et fera l'expiation pour lui, car il a péché par l'âme"</b> (Nombres 6:11), <b>et</b> le même verset <b>encore</b> dit immédiatement après : <b>"Et il sanctifiera sa tête."</b> Cela montre que la naziréité de pureté ne commence qu'après qu'il ait apporté ses offrandes. <b>Et Rabbi Yosei, fils de Rabbi Yehuda,</b> dit en réponse : <b>Si c'est le cas,</b> si le verset voulait nous enseigner que sa naziréité ne commence qu'au huitième jour, <b>laissons le verset</b> se contenter de <b>déclarer : "Et il sanctifiera sa tête"</b>, puisque cette phrase concerne l'apport de ses offrandes, qui a lieu le huitième.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

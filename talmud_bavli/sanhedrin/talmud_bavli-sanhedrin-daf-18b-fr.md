@@ -42,4 +42,4 @@ La Guemara rejette cette idée : <b>Et</b> pouvez-vous <b>comprendre</b> que les
 § La mishna enseigne que le Grand Prêtre <b>effectue <i>ḥalitza</i></b> avec la veuve de son frère <b>et</b> son frère <b>effectue <i>ḥalitza</i></b> avec sa femme, mais en tout cas il ne consomme pas le lévirat avec la femme de son frère. La Guemara commente : La mishna <b>catégoriquement enseigne</b> que le Grand Prêtre ne consomme pas le mariage lévirien, et il n'y a <b>aucune différence</b> si la femme de son frère était une veuve <b>de fiançailles</b> seule <b>et aucune différence</b> si elle était une veuve <b>d'un mariage</b> qui avait été consommé. <b>Accordé,</b> il est entendu qu'il ne consomme pas le lévirat avec une veuve <b>de mariage,</b> car <b>il y a</b> à la fois <b>une mitzva positive : </b> "Et il prendra une femme dans sa virginité" (Lévitique 21, 13), <b>et</b> également <b>une interdiction :</b> "Une veuve, ou une divorcée, ou une <i>ḥalala</i>, ou une <i>zona</i>, celles-là, il ne les prendra pas" (Lévitique 21, 14),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

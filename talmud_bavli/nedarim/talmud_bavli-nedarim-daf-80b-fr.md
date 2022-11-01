@@ -24,4 +24,4 @@ Au contraire, <b>Rav Yehuda dit</b> que la mishna fait référence à un cas <b>
 <b>Rabbi Yosei</b> n'est pas d'accord et <b>dit :</b> Même <b>leur</b> propre <b>linge prime sur la vie d'autrui,</b> car le port de vêtements non lavés peut éventuellement causer de la souffrance et représenter un danger. La Guemara clarifie la difficulté présentée par cette <i>baraita</i> : <b>Maintenant,</b> si en ce qui concerne le <b>blanchissage, Rabbi Yosei a dit</b> que s'abstenir de laver ses vêtements <b>implique de la douleur</b> et de l'affliction,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Rabbi Abbahou <b>lui dit : Il s'est immergé dans le feu, comme il est écrit : 
 <b>Un certain hérétique dit à Rabbi Avina : Il est écrit : "Et qui est comme Ton peuple, Israël, une seule nation sur la terre"</b> (II Samuel 7:23). L'hérétique demanda : <b>Quelle est ta grandeur ? Tu es aussi mélangé avec nous, comme il est écrit : "Toutes les nations devant Lui ne sont que néant;</b> elles sont comptées par Lui comme moins que rien et vanité" (Isaïe 40:17). Rabbi Avina lui <b>dit : L'un des tiens,</b> le prophète gentil Balaam, <b>a déjà</b> <b>testé pour nous, comme il est écrit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -15,4 +15,4 @@
 <b>Et les rabbins disent :</b> La <i>halakha</i> est la même <b>même</b> à l'égard de <b>celui qui blasphème, comme il est dit</b> à l'égard de l'offrande pour le péché : <b>"Tu auras une loi pour celui qui accomplit l'action à son insu"</b> (Nombres 15:29), <b>excluant</b> celui qui <b>blasphème, car il n'accomplit pas une action</b> mais pèche par la parole.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Le Rav Naḥman <b>lui a dit : Et avons-nous affaire à des imbéciles, qui donn
 La Gemara relate : <b>Dans la maison de Rav Yehuda, on plaçait</b> le contenu de <b>quarante-huit cruches</b> d'huile <b>dans un tonneau,</b> car c'était la taille standard des tonneaux là-bas. <b>Le baril est parti</b> pour <b>six dinars,</b> et <b>Rav Yehuda a divisé</b> l'huile et l'a vendue à <b>six</b> pichets pleins <b>pour un dinar.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

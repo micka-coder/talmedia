@@ -39,4 +39,4 @@ La Guemara suggère en outre : <b>Venez</b> et <b>entendez</b> une autre difficu
 Le <i>baraita</i> continue : <b>Après</b> Rabbi Yehuda HaNasi <b>s'est rappelé</b> que les collègues de Rabbi Eliezer ne sont pas d'accord avec lui sur cette question et qu'il avait apparemment statué de manière incorrecte, <b>il</b> a néanmoins <b>dit : Rabbi Eliezer est digne [<i>kedai</i>] de s'y fier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

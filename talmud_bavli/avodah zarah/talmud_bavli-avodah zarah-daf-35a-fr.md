@@ -45,4 +45,4 @@ La Guemara commente : La déclaration de Shmuel indique que seule la peau de l'e
 La Guemara explique que cela n'est <b>pas difficile:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

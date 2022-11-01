@@ -41,7 +41,7 @@
 <b>De ma main</b> te viendra ce châtiment.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -84,4 +84,4 @@
 <b>De ma main</b> te viendra ce châtiment.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara rejette ce défi : <b>Comment peut-on</b> ces cas</b> être comparés 
 En ce qui concerne la sainteté de la Fête, cependant, le deuxième jour était également traité comme sacré, ce qui prouve que lorsque deux jours étaient observés en Eretz Yisrael, ils étaient considérés comme une seule sainteté plutôt que deux. <b>Et Rava dit</b> en résumé : <b>La <i>halakha</i> est conforme</b> à l'avis de <b>Rav dans ces trois</b> cas, <b>que la décision soit <b>lénifiante, ou que</b> la décision soit <b>stricte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

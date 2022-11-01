@@ -51,4 +51,4 @@ La Guemara en déduit : <b>La raison</b> pour laquelle il est tenu de payer est 
 <b>Rava dit :</b> Aucune preuve ne peut être citée, car il est clair que dans le cas de <b>toute personne qui dépose</b> un objet chez un autre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

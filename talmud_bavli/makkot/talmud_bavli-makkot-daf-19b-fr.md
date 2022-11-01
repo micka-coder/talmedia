@@ -48,4 +48,4 @@ En rapport avec la discussion sur l'endroit où l'on peut racheter les produits 
 <b>La Gemara soulève une objection</b> à partir de ce que <b>Rabbi Yosei dit :</b> A l'égard d'un <b>prêtre qu'une figue de produit non lavée est entrée en sa possession,</b> et qu'il cherche à en séparer les <i>terumot</i> et les dîmes, <b>il dit : Cette figue,</b> je désigne <b>sa <i>teruma</i> à sa tige,</b> je désigne sa <b>première dîme à son côté nord</b>, <b>et</b> je désigne sa <b>seconde dîme à son côté sud</b> ; <b>et c'est une année</b> où l'on sépare la <b>seconde dîme</b>, c'est-à-dire , la première, la deuxième, la quatrième ou la cinquième année du cycle de l'année sabbatique, <b>et il est à Jérusalem,</b> lorsqu'il récite cette formule. <b>Ou</b> il dit que la dîme du pauvre sera désignée à son côté sud si c'est une année de <b>dîme du pauvre,</b> c'est-à-dire la troisième ou la sixième année du cycle de l'année sabbatique, <b>et il est</b> situé n'importe où <b>dans les régions périphériques,</b> pas à Jérusalem. Dans ces cas, si <b>il a mangé</b> la figue,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

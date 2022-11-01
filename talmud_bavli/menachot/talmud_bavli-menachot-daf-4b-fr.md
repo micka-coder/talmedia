@@ -39,4 +39,4 @@ La mishna conclut : Avec <b>l'argent pour une offrande de paix, on apporte avec 
 <b>Rav Pappa dit</b> en réponse que <b>c'est ce que dit Rabbi Yirmeya : Nous ne trouvons pas</b> un exemple de <b>une manière fixe</b> de <b>rendre apte qui vient après la mort,</b> c'est-à-dire qu'il n'y a aucun cas où la seule offrande qui rendra quelqu'un apte à agir d'une manière qui lui était auparavant interdite peut être sacrifiée après la mort. <b>Et</b> les offrandes <b>d'un nazirite</b> sont des exemples d'un moyen de <b>rendre apte qui n'est pas fixe,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

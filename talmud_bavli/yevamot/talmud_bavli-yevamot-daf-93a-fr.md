@@ -27,4 +27,4 @@ La Guemara cite la preuve que <b>Rav</b> accepte également la décision selon l
 Rabbi Ḥiyya <b>lui dit : Tu as bien agi, comme il est enseigné</b> dans une <i>baraita</i>, à propos d'un verset qui traite de la dîme : "Et tu mangeras devant le Seigneur ton Dieu...<b>afin que tu apprennes à craindre le Seigneur ton Dieu tous les jours"</b> (Deutéronome 14:23). En ce qui concerne l'accentuation de "tous", <b>il s'agit des <i>Shabbatot</i> et des Fêtes. Par rapport à quelle <i>halakha</i></b> cela a-t-il été énoncé ? <b>Si l'on dit</b> que cela a été énoncé par rapport à la question <b>de la dîme et de manger</b> le Chabbat, cette <i>halakha</i> est redondante. <b>Un verset était-il nécessaire pour permettre</b> l'interdiction de <b>déplacer</b> des objets, qui s'applique <b>selon la loi rabbinique</b> ? Puisque l'interdiction de déplacer des objets provient des Sages, la Torah ne fait certainement pas référence à cette <i>halakha</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -90,4 +90,4 @@
 <b>Comme le stock de grains est enlevé</b> Comme la pile de grains est enlevée du sol en son temps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

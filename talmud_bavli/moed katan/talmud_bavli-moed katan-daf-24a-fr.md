@@ -54,4 +54,4 @@ La Guemara commente : <b>Conclure que</b> c'est <b>Rav Oshaya's père</b> qui a 
 <b>Et certains enseignent cette</b> décision <b>du Rav Giddel bar Menashya</b> comme faisant référence <b>au cas suivant</b> : Il est enseigné dans un <i>baraita</i> : Dans les premiers <b>trente jours</b> après la naissance, <b>un nourrisson</b> qui meurt <b>est sorti</b> pour être enterré <b>dans</b> sa <b>famille,</b> c'est-à-dire qu'il est porté à sa tombe dans ses bras, et non dans un cercueil. <b>Et il est enterré par une femme et deux hommes,</b> il n'y a pas besoin d'un quorum de dix hommes. <b>Mais</b> il ne doit <b>pas</b> être sorti <b>par un homme et deux femmes,</b> car il est interdit à un homme de s'isoler avec deux femmes.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

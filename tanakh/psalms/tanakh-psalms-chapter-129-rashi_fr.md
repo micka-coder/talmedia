@@ -17,4 +17,4 @@
 <b>son bras</b> Comme (Isa. 49:22) : "et ils amèneront tes fils dans [leurs] bras (בחצן)," aisselle en français, et ainsi (Néh. 5:13) : " J'ai aussi secoué mon bras (חצני) ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

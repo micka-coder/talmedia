@@ -93,4 +93,4 @@ La Guemara rejette cette preuve : <b>Il en est de même en ce qui concerne</b> l
 La Gemara suggère : <b>Disons</b> que cette dispute entre <i>amora'im</i> est <b>parallèle</b> à une dispute entre <b><i>tanna'im</i> : </b> En ce qui concerne les <b>portions sacrificielles des offrandes de moindre sainteté qui ont quitté</b> la cour du Temple <b>avant l'aspersion du</b> <b>sang, Rabbi Eliezer dit</b> que celui qui en bénéficie <b>est <b>non</b> responsable du <b>mauvais usage</b> des biens consacrés,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

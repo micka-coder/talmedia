@@ -20,4 +20,4 @@
 <b>Les enfants d'Israël reviendront</b> Il a été enseigné au nom de R. Shimon le fils de Yochai : Les enfants d'Israël ont rejeté trois choses pendant le règne de Roboam : le Royaume des Cieux, le royaume de la Maison de David et le Saint Temple, comme il est écrit : " Quelle part avons-nous en David ? " (I Rois 12, 16) qui peut être compris littéralement ; " à vos tentes O' Israël " (ibid.), ne lisez pas : " à vos tentes " (Heb. לְאֹהָלֶךָ) mais "à vos dieux" (Heb. לֵאלֹהֶֶךָ) "voyez maintenant votre propre maison, David" (ibid.), fait référence au Saint Temple (voir Rachi I Rois 12:16). R. Shimon, fils de Menassiah, a dit : Israël ne recevra aucun bon présage jusqu'à ce qu'il se repente en recherchant les trois ; "Ensuite, les enfants d'Israël reviendront et chercheront leur Seigneur leur Dieu", ce qui fait référence au Royaume des Cieux ; "et David leur roi" est explicite ; "et ils viendront en tremblant vers le Seigneur et vers sa bonté", ce qui fait référence au Saint Temple, comme il est écrit "cette bonne montagne" (Deut. 3:7) (une référence au Mont du Temple). (d'après le Midrash Samuel 13:4)
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

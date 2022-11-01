@@ -12,4 +12,4 @@ La Gemara réfute cet argument : <b>Non,</b> le terme <b>volontairement</b> fait
 <b>Nous avons constaté</b> dans la <i>baraita</i> citée plus haut que <b>Rabbi Yehuda a concédé aux sages à propos des olives et des raisins,</b> que le liquide qui s'en écoule de lui-même le Chabbat, de manière volontaire ou non, est interdit pendant Chabbat. <b>D'où concluons-nous</b> que <b>les sages concèdent à Rabbi Yehuda en ce qui concerne les autres fruits</b> et distinguent les fruits destinés à être mangés de ceux destinés à être pressés ? <b>Comme il a été enseigné</b> dans une <i>baraita</i> : <b>On peut presser</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

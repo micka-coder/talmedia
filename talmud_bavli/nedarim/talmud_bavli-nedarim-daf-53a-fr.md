@@ -27,4 +27,4 @@ La Guemara s'interroge à propos de la dernière affirmation : <b>N'est-il pas</
 Le <i>baraita</i> continue : En ce qui concerne <b>celui qui fait le vœu</b> que les <b>légumes</b> lui sont interdits, s'il fait le vœu <b>pendant les</b> six premières <b>années du <b>cycle sabbatique</b> de sept ans,</b> il est <b>interdit de</b> manger des <b>légumes de jardin et autorisé à</b> manger des <b>légumes de champ. Mais</b> s'il fait le vœu <b>pendant l'année sabbatique,</b> il est <b>interdit de</b> manger des <b>légumes de plein champ,</b> qui sont couramment consommés pendant l'année sabbatique, <b>et</b> il est <b>permis de</b> manger des <b>légumes de jardin,</b> qui sont rarement consommés pendant cette période, car il est interdit de travailler la terre. <b>Rabbi Abbahou a dit au nom de Rabbi Ḥanina ben Gamliel :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

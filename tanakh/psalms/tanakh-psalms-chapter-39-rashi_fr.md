@@ -46,4 +46,4 @@ Heb.  חמודו - signifie sa chair, qui est son désir (חמדתו-).
 <b>Pour que je me rétablisse</b> Heb.  ואבלגה", que je retrouve mes forces.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -49,4 +49,4 @@
 <b>Sait jouer.</b> Toute son intention était d'induire le mauvais œil de Shaoul sur David, afin qu'il l'envie.<sup>9</sup><i class="footnote">Voir Ibid, qui précise que l'intention de Do'eg était de susciter l'envie de Shaoul et qu'il a donc fait des éloges excessifs à David, sans rapport avec le poste pour lequel Shaoul avait besoin de lui. Do'eg n'a pas décrit les talents musicaux de David ni l'instrument dont il jouait.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

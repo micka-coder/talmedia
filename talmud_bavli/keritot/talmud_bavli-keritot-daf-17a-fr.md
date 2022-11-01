@@ -72,4 +72,4 @@ Rabbi Eliezer lui <b>dit : </b> Le cas de <b>celui qui a des rapports sexuels av
 Rabbi Akiva <b>lui dit : Non, si tu as dit</b> qu'on est responsable de chacun <b>en ce qui concerne les mineurs, qui</b> sont des <b>entités distinctes,</b> dois-tu aussi dire qu'il doit être responsable de chaque acte en ce qui concerne celui qui a des rapports sexuels cinq fois avec sa femme alors qu'elle a ses règles ? Rabbi Eliezer <b>s'adressa à lui :</b> Le cas de <b>celui qui copule avec un animal</b> plusieurs fois pendant un seul laps de temps de conscience <b>prouvera</b> que l'on doit être tenu responsable séparément de chaque acte, <b>car il n'y a pas d'entités séparées, et</b> pourtant on est <b>responsable de chaque</b> acte. Rabbi Akiva lui <b>dit :</b> Le cas de <b>l'animal est comme</b> le cas de <b>la femme en période de menstruation,</b> et l'on est tenu d'apporter une seule offrande pour le péché.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

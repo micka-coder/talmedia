@@ -33,4 +33,4 @@ La Guemara explique comment cela découle du verset : <b>Comme il est dit : "Heu
 <b>Il y a</b> certains <b>qui disent</b> que la comparaison doit être comprise d'une manière différente. <b>Ses ennemis tomberont devant lui</b> tout <b>comme</b> dans la bénédiction accordée par Moïse à la tribu de <b>Joseph, ainsi qu'il est écrit</b> : "Ses cornes sont les cornes du bœuf sauvage ; <b>avec elles il éventrera les nations, jusqu'aux extrémités de la terre"</b> (Deutéronome 33:17). <b>Et il mérite l'intelligence d'Issachar, comme il est écrit : "Et des fils d'Issachar, des hommes qui avaient l'intelligence des temps, pour savoir ce qu'Israël devait faire"</b> (I Chroniques 12:33).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

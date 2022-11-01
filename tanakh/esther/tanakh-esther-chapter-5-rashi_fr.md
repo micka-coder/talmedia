@@ -34,4 +34,4 @@
 <b>Chaque fois que, etc.</b> Nos rabbins ont dit qu'il [Mordekhaï] lui montrerait [Haman] un acte selon lequel il s'était vendu [à Mordekhaï] comme esclave à cause du manque de nourriture lorsqu'ils ont été nommés - Mordekhaï et Haman comme commandants de troupes - dans la même guerre.</sup>6</sup><i class="footnote">Masechs Megillah 15a-b. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

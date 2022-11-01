@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i>
 La Guemara poursuit : Tout ce qui précède fait référence à la table d'un érudit de la Torah, <b>mais</b> la table <b>d'un ignorant est similaire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

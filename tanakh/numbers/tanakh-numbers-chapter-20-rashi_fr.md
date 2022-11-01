@@ -94,5 +94,5 @@
 <b>Toute la maison de Israël.</b> Hommes et femmes, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>parce qu'Aharon a poursuivi la paix, et inculqué l'affection entre les antagonistes, et entre mari et femme. 
 <b>Ceci [Aharon] est mort. </b> Je dis que celui qui traduit [כִּי גָוַע par] דְּהָא מִית ("parce qu'[Aharon] est mort"), se trompe, à moins qu'il ne traduise également וַיִּרְאוּ par וְאִתְחֲזִיאוּ ([La communauté] "a été exposée"). Puisque le commentaire des rabbins, selon lequel כִּי est ici compris comme " parce que ", n'est valable que selon le commentaire midrashique selon lequel les nuages de gloire sont partis, comme l'a dit R' Abohu, " ne lisez pas וַיִּרְאוּ (" ils [la communauté] virent, "), mais וַיֵּרָאוּ, (" ils [la communauté] furent exposés "). " Selon cette interprétation, דְּהָא (" parce que "), est le bon usage, puisqu'il clarifie ce qui le précède. Pourquoi ont-ils été exposés ? Parce qu'Aharon est mort. Cependant, selon le Targum [Onkelos qui traduit] " toute la communauté a vu ", " parce que " n'est pas le bon usage, mais " que ", du sens אִי, car on trouve אִם signifiant " que ". Comme dans : " que [je demande], pourquoi ne serais-je pas affligé " ? Sf ? et de nombreux usages clairs dans ce sens, [comme] " que ses jours sont désignés. " 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

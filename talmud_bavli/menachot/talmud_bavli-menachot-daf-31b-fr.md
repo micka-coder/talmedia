@@ -30,4 +30,4 @@ La Guemara explique leur différend : <b>Celui qui dit</b> qu'on l'écrit <b>à 
 La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Rabbi Shimon ben Elazar a dit : Rabbi Meir écrivait</b> une <i>mezuza</i> <b>sur <i>dokhsostos</i>,</b> la couche intérieure de la peau d'animal, et non sur du parchemin, qui provient de la couche extérieure, et il la préparait <b>comme une colonne</b> d'un rouleau de Torah, c'est-à-dire longue et étroite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

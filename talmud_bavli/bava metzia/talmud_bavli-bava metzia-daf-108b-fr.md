@@ -45,7 +45,7 @@ Si <b>une arête dentelée de roche ou une rangée de palmiers servait de barri�
 Dans le cas de <b>ces quatre voisins limitrophes</b> qui entourent un champ qui est à vendre des quatre côtés, si <b>l'un d'entre eux a précédé</b> les autres <b>et l'a acheté</b>, <b>son achat</b> est un <b>achat</b> valable et les autres ne peuvent s'y opposer. <b>Et s'ils sont tous venus simultanément</b> pour l'acheter, alors <b>ils divisent</b> la parcelle de terre, <b>avec</b> deux lignes bissectrices <b>diagonales</b> de sorte que chacun reçoit une portion près de son champ.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais si</b> ce champ n'est <b>pas</b> de qualité distincte, il essaie certainement d'<b>employer un artifice.</b> Son plan est d'acheter ensuite une autre parcelle à ce propriétaire, une parcelle qui borde effectivement le champ d'un voisin. En achetant d'abord la parcelle du milieu, il essaie de s'établir comme voisin, de sorte que les autres voisins n'auront pas le premier droit d'achat par rapport à lui. Par conséquent, les voisins peuvent l'empêcher d'acheter la deuxième parcelle de terrain.
 
@@ -92,4 +92,4 @@ Si <b>une arête dentelée de roche ou une rangée de palmiers servait de barri�
 Dans le cas de <b>ces quatre voisins limitrophes</b> qui entourent un champ qui est à vendre des quatre côtés, si <b>l'un d'entre eux a précédé</b> les autres <b>et l'a acheté</b>, <b>son achat</b> est un <b>achat</b> valable et les autres ne peuvent s'y opposer. <b>Et s'ils sont tous venus simultanément</b> pour l'acheter, alors <b>ils divisent</b> la parcelle de terre, <b>avec</b> deux lignes bissectrices <b>diagonales</b> de sorte que chacun reçoit une portion près de son champ.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

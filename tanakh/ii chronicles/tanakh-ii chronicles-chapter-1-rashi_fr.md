@@ -48,4 +48,4 @@
 <b>Et [il y avait] un assemblage d'où provenaient les agents du roi</b> - Heb. מִקְוֵה, l'assemblage des chevaux en Égypte, et il est appelé <i>stutte</i> en moyen haut allemand.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -57,7 +57,7 @@ La Guemara demande : <b>Et Rabbi Yoḥanan a dit cela ? Mais Rabbi Yoḥanan ne 
 La Guemara demande : <b>Cette</b> question <b>en soi</b> est <b>difficile,</b> car la <i>baraita</i> est auto-contradictoire. <b>Vous avez dit :</b> Pour ceux qui s'engagent <b>dans</b> l'étude du <b>Talmud, vous n'avez pas de vertu plus grande que cela. Et ensuite vous avez dit : Et poursuivez toujours</b> l'étude <b>de</b> la <b>Mishna plus que</b> l'étude du <b>Talmud. Rabbi Yoḥanan dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il est écrit : " Si tu vois l'âne... effondré sous son fardeau " (Exode 23, 5). La <i>baraïta</i> en déduit que cette obligation de décharger un fardeau s'applique à l'égard d'un animal qui est <b>"effondré", mais pas</b> à l'égard d'un animal qui est un <b>écrouleur habituel ; "effondré", mais pas debout ; "sous son fardeau", mais pas</b> lorsqu'il est <b>déchargé;</b> et <b>"sous son fardeau"</b> signifiant <b>un fardeau qui</b> n'est pas excessif, que l'animal <b>peut supporter. </b> La Gemara raisonne ainsi : <b>Et si vous dites</b> que l'obligation d'empêcher la <b>souffrance aux animaux</b> est <b>par la loi de la Torah, qu'est-ce</b> que cela représente <b>pour moi</b> si l'animal est <b>effondré ; et qu'est-ce</b> que cela représente <b>pour moi</b> si l'animal est un <b>effondré habituel ; et qu'est-ce</b> que cela représente <b>pour moi</b> si l'animal est <b>soutenu ? </b> On devrait être obligé de se décharger de son fardeau dans tous les cas, si l'animal souffre.
 
@@ -116,4 +116,4 @@ La Guemara demande : <b>Et Rabbi Yoḥanan a dit cela ? Mais Rabbi Yoḥanan ne 
 La Guemara demande : <b>Cette</b> question <b>en soi</b> est <b>difficile,</b> car la <i>baraita</i> est auto-contradictoire. <b>Vous avez dit :</b> Pour ceux qui s'engagent <b>dans</b> l'étude du <b>Talmud, vous n'avez pas de vertu plus grande que cela. Et ensuite vous avez dit : Et poursuivez toujours</b> l'étude <b>de</b> la <b>Mishna plus que</b> l'étude du <b>Talmud. Rabbi Yoḥanan dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

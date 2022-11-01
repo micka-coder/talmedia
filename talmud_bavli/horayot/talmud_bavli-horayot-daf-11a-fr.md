@@ -60,4 +60,4 @@ La Gemara demande : <b>Quelle</b> est la différence pratique <b>entre l'avis de
 § La mishna enseigne : <b>Qui est</b> le <b><i>nasi</i> ? C'est un roi,</b> comme il est dit : "Lorsqu'un <i>nasi</i> commet un péché et accomplit, à son insu, l'une de toutes les mitzvot du Seigneur son Dieu qui ne doivent pas être accomplies, et il est coupable" (Lévitique 4:22), faisant référence à celui qui n'a sur lui que le Seigneur son Dieu et aucune autre autorité. <b>Les Sages ont enseigné : Le verset stipule : "<i>nasi</i>."</b> On <b>pourrait</b> penser qu'il s'agit du <b>prince d'une tribu, comme Naḥshon, fils d'Amminadab.</b> Par conséquent, <b>le verset dit :</b> "Et a accompli <b>toute</b> une <b>de toutes les mitzvot du Seigneur son Dieu." Plus loin,</b> dans le passage concernant le roi, le verset <b>déclare : "Afin qu'il apprenne à craindre le Seigneur son Dieu"</b> (Deutéronome 17:19).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

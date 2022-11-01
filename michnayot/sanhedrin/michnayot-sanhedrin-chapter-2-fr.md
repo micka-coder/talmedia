@@ -14,5 +14,5 @@ Il peut envoyer le peuple à une bataille livrée de plein gré par la décision
 ### michna 5
 Personne ne pourra monter sur son cheval, personne ne pourra s'asseoir sur son trène et personne ne pourra se servir de son sceptre. Personne ne pourra le voir quand il se coupe les cheveux, quand il est nu ou quand il est dans la salle de bain, car il est dit : "Tu te feras un roi" (Deut. 17:15) et sa crainte sera sur toi.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -94,7 +94,7 @@
 <b>et à venir</b> comme וְלָבֹא.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Avec une plume de fer</b> Ceci est une allégorie. C'est-à-dire qu'elle est profondément gravée, et ne peut être effacée. Et le Midrash Aggadah explique : avec un stylo de fer, à la pointe de diamant, conservé par Jérémie, appelé " un mur de fer ", et par Ezéchiel, à qui il a été dit (3, 9) : "Comme un diamant, plus dur que le silex, j'ai fait ton front".
 <b>Gravé</b> Gravé comme celui qui laboure profondément.
@@ -190,4 +190,4 @@
 <b>et à venir</b> comme וְלָבֹא.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

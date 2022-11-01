@@ -60,4 +60,4 @@ Rabbi Abbahou <b>dit à</b> Rabbi Yirmeya : <b>Non,</b> les deux désaccords ne 
 <b>Rav Pappi a dit au nom de Rava :</b> Il n'y a pas de preuve à partir de la mishna, comme <b>dit la dernière clause</b> de la mishna : <b>Voici le principe:</b> Pour <b>toute réclamation</b> <b>que</b> le défendeur devrait <b>payer sur la base de sa propre</b> admission, il est <b>responsable. Et</b> pour toute demande qu'il ne devrait <b>pas payer sur la base de son propre</b> aveu, mais par le témoignage de témoins, il est <b>exonéré,</b> même s'il nie la demande contre lui et prête serment à cet effet. Rav Pappi demande : <b>Qu'est-ce qui est ajouté</b> par la phrase : <b>C'est le principe ? N'est-il pas d'inclure</b> même une accusation de : <b>Tu as volé mon</b> <b>esclave cananéen,</b> dans la <i>halakha</i> des serments sur un dépôt ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara conteste : <b>Accordé,</b> les boucs <b>des</b> <b>fêtes n'expient p
 La Guemara conteste l'utilisation de ces dérivations : <b>Mais lorsqu'il est dit "une fois"</b> dans ce verset, <b>c'est à propos</b> du <b>chèvre dont la présentation du sang</b> est <b>effectuée à l'intérieur</b> du Sanctuaire <b>que c'est écrit,</b> donc les dérivations qui en découlent ne devraient pas avoir d'incidence sur la discussion concernant le bouc externe. La Gemara répond : <b>Le verset dit :</b> "Un bouc pour le sacrifice pour le péché <b>en dehors de</b>".
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Ici aussi, cet argent est discret et cet argent est discr
 <b>Rabba soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

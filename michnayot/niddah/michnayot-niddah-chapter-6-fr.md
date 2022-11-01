@@ -40,5 +40,5 @@ Une femme qui a trouvé une tache de sang est dans une situation menstruelle dé
 ### michna 14
 Si une femme a observé [un écoulement de sang] le onzième jour au crépuscule, au début d'une période de menstruation et à la fin d'une période de menstruation, au début d'une période de zivah et à la fin d'une période de zivah ; le quarantième jour après la naissance d'un garçon ou le quatre-vingtième jour après la naissance d'une fille, au crépuscule dans tous ces cas, ces femmes sont dans l'erreur [dans le doute sur leur situation]. Rabbi Joshua dit : avant de se préoccuper de la situation des femmes [avec un compte] détraqué, préoccupez-vous de la situation des femmes [avec un compte] normal.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

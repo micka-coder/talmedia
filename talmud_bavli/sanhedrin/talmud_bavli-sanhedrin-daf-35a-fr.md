@@ -39,4 +39,4 @@ La Guemara explique : C'est <b>parce que</b> il n'est <b>pas possible</b> de men
 <b>Comme il est enseigné</b> dans une <i>baraita</i> : Les versets indiquent à propos d'un nazirite : "Tous les jours où il se consacre au Seigneur, il ne s'approchera pas d'un cadavre. Il ne se rendra pas impur <b>pour son père, ou pour sa mère, pour son frère, ou pour sa sœur,</b> quand ils mourront" (Nombres 6:6-7). <b>Pourquoi</b> faut-il que <b>le verset énonce</b> tous ces parents ? Il enseigne que si un nazirite <b>allait égorger son offrande pascale ou circoncire son fils</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

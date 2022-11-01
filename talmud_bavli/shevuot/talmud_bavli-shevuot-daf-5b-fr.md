@@ -30,4 +30,4 @@ La Guemara explique : <b>Avec quelle</b> autre nuance <b>pouvons-nous combiner</
 La Guemara demande : <b>Si c'est ainsi,</b> que Rabbi Akiva soutient que seules les nuances adjacentes de blanc peuvent se combiner entre elles, pourquoi Rabbi Ḥanina <b>aussi</b> n'a-t-il pas apporté la preuve d'une marque qui est blanche comme la <b>membrane d'un œuf,</b> car <b>avec quelle</b> autre nuance <b>pouvons-nous la combiner ?</b> On ne peut pas dire : <b>Combinons-la avec</b> un blanc de laine <b><i>se'et</i>,</b> qui est la marque primaire par rapport à une marque de couleur membrane d'œuf, car <b>il existe une marque de couleur chaux</b>, <b>qui est un blanc plus</b> lumineux <b>que</b> une marque de couleur membrane d'œuf mais moins lumineux que le blanc de laine. Puisque <i>se'et</i> n'est pas adjacent à la membrane de l'œuf, il ne peut pas se combiner avec elle. Nous ne pouvons pas dire : <b>Laissons-la se combiner avec une marque de couleur chaux</b>, car elle <b>n'est pas son type,</b> c'est-à-dire qu'elles ne sont pas de la même catégorie, et donc elles ne peuvent pas se combiner.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

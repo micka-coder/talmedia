@@ -54,4 +54,4 @@ Rabban Shimon ben Gamliel <b>ordonna</b> aux personnes présentes <b>et elles ex
 Des années plus tard, <b>Rabbi</b> Yehuda HaNasi <b>apprit à Rabban Shimon son fils</b> que <b><i>Aḥerim</i> disent : S'il était</b> considéré comme <b>un substitut,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

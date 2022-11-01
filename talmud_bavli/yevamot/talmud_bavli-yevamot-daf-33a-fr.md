@@ -30,4 +30,4 @@ On peut soulever une difficulté avec cette explication sous un angle différent
 La Guemara répond : <b>Rabbi Ḥiyya</b> aurait pu <b>vous dire</b> que c'est ce qui a transpiré : <b>Lorsque Rabbi</b> Yehuda HaNasi <b>lui a enseigné,</b> bar Kappara, <b>il lui a enseigné deux</b> cas impliquant des <b>exemptions,</b> c'est-à-dire les cas d'un non-prêtre qui a servi dans le Temple le Chabbat et celui du prêtre souillé qui a servi alors qu'il était rituellement impur. Il s'agit dans les deux cas d'interdictions plus inclusives, et il informait bar Kappara que Rabbi Shimon ne les tient responsables que d'un seul chef, car Rabbi Shimon considère qu'une interdiction ne prend effet là où une autre interdiction existe déjà que si les interdictions prennent effet simultanément, mais pas dans les cas d'interdictions plus inclusives.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

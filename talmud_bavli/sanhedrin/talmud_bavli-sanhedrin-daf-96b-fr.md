@@ -45,4 +45,4 @@ Ammon et Moab <b>s'adressent à lui : Viens sur les sommets des montagnes,</b> o
 § <b>Rav Naḥman dit à Rabbi Yitzḥak : As-tu entendu quand viendra le fils des géants [<i>bar niflei</i>] ? </b> Rabbi Yitzḥak lui <b>dit : Qui</b> est <b>le fils des géants ?</b> Rav Naḥman <b>lui a dit : </b> C'est le <b>Messie.</b> Rabbi Yitzḥak lui a demandé : Est-ce que <b>vous appelez le Messie fils de géants ?</b> Rav Naḥman <b>lui a répondu : Oui, comme il est écrit : "En ce jour-là, j'établirai</b>".
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara remet en question cette résolution : Mais la suite de la mishna dit 
 <b>Au contraire,</b> la Guemara se rétracte de sa réponse précédente et explique la question comme suit : Dans la <b>première clause</b> le mari <b>ne peut pas annuler</b> le vœu de sa femme, <b>et</b> le cas est celui où elle rend interdit même le fruit <b>qu'elle</b> elle-même <b>apporte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -15,4 +15,4 @@ Ceci vient <b>pour vous dire</b> que <b>Jerubaal dans sa génération</b> est di
 La Guemara remet en question ce dernier point : est-ce que cela est dérivé par <b>une <i>a fortiori</i></b> inférence ? Ceci est incorrect, car <b>c'est une obligation</b> pour le plus petit de tenir compte de ceux qui sont plus grands que lui. <b>Au contraire,</b> Rabbi Gamliel voulait dire ce qui suit : <b>Puisque les plus grands écoutent les plus petits, les plus petits appliquent une <i>a fortiori</i></b> déduction <b>à eux-mêmes</b> et écoutent les leaders de la génération.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara répond : Cette mishna <b>est incomplète, et voici</b> ce qu'elle ens
 La Gemara demande : <b>Qu'est-ce qui est différent</b> de <b>l'offrande de paix de la fête</b> apportée le <b>premier jour de la fête de Pessah ? Rav Ashi a dit : Cet</b> accent mis sur la date spécifique <b>nous apprend</b> que pour <b>l'offrande de paix de la Fête</b> du quinze,</b> c'est-à-dire les offrandes de la Fête de pèlerinage apportées le premier jour de Pessah, <b>oui,</b> cette restriction s'applique ; par contre, pour <b>l'offrande de paix de la Fête</b> du quatorze, non,</b> cette limitation n'est pas en vigueur. Si l'agneau pascal était trop petit pour un groupe, ils apportaient une offrande de paix supplémentaire afin que l'agneau pascal puisse être mangé quand on était rassasié. Cette offrande s'appelait le sacrifice de paix de la fête du quatorze Nisan. Puisque cette offrande n'est pas obligatoire, tout le monde s'accorde à dire qu'elle peut être achetée avec l'argent du second tithe.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

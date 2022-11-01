@@ -33,4 +33,4 @@ La Guemara demande : <b>Si c'est le cas, il</b> ne mangerait pas non plus d'oise
 <b>Rav Sheshet dit</b> que cette déduction n'est pas nécessairement correcte, car la mishna peut être expliquée comme se référant spécifiquement à un cas <b>où le <b>agent</b> a dit</b> aux invités : <b>Prenez un</b> morceau de viande <b>conforme à l'intention</b> du propriétaire de la maison <b>et un</b> morceau <b>conforme à mon intention.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

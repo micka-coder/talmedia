@@ -60,4 +60,4 @@ La Guemara rejette ce parallèle : <b>Non,</b> ce n'est pas le point de discorde
 La Gemara demande : <b>Et</b> est-ce que <b>Rabbi</b> Yehuda HaNasi <b>soutient</b> que la <b>tradition</b> de la manière dont les versets de la Torah sont écrits <b>fait autorité ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

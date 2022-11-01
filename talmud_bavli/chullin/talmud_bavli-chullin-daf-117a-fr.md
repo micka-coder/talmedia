@@ -51,4 +51,4 @@ La Gemara répond : <b>C'est plutôt,</b> c'est <b>parce que</b> les cas du <b>r
 La Gemara demande : <b>Cela marche bien selon celui qui dit</b> que deux versets qui se présentent comme un seul <b>n'enseignent pas</b> leur élément commun à s'appliquer à d'autres cas, <b>mais selon celui qui dit</b> que deux versets qui se présentent comme un seul <b>enseignent</b> leur élément commun à s'appliquer à d'autres cas, <b>qu'y a-t-il à dire ?</b> La Gemara répond : <b>Deux</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

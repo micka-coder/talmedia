@@ -85,5 +85,5 @@
 ### passuk 29
 <b>Pour répartir l'héritage aux Bnei Israël.</b> Ils doivent vous donner l'héritage selon ses portions.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

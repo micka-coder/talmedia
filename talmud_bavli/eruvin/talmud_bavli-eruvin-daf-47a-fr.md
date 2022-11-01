@@ -78,4 +78,4 @@ Le <i>baraita</i> continue : <b>Et</b> un prêtre <b>peut</b> de même <b>deveni
 <b>Rabbi Yosei dit : Même s'il peut trouver</b> un endroit <b>pour étudier</b> la Torah en Eretz Yisrael, <b>il peut aussi</b> quitter le pays et <b>devenir rituellement impur, car</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

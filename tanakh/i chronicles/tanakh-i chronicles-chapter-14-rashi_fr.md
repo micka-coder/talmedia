@@ -37,4 +37,4 @@
 <b>Les encercler</b> L'étalon divin de la justice dit à l'Omniprésent : "Seigneur de l'univers, pourquoi as-tu écarté Saül pour David ?". [Dieu] répondit : " Parce qu'il n'a pas attendu sept jours pour Samuel, comme il le lui avait ordonné " [comme dans I Sam. 13:8-14]. Le Saint, béni soit-Il, dit [en outre] : "Je vais maintenant mettre David à l'épreuve : encerclez-les." Et David observa ceci .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

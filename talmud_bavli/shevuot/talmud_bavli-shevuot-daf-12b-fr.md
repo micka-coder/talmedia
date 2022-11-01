@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> de <b>cette mitzva pos
 <b>Rabbi Zeira a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

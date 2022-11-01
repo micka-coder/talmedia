@@ -101,7 +101,7 @@
 <b>et le fardeau qui est sur lui sera coupé</b> Les membres de sa famille et sa compagnie qui dépendent de lui et qui accrochent sur lui les vases de leur gloire. Et puisqu'il l'a assimilé à une cheville, il a assimilé ceux qui se vantent de lui et qui comptent sur lui, à un fardeau chargé sur la cheville. Certains l'interprètent ainsi : Et la prophétie annoncée à son sujet s'accomplira.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>La vallée de la vision</b> C'est Jérusalem, la vallée au sujet de laquelle la plupart des prophéties ont été prophétisées.
 <b>que vous êtes tous montés sur les toits</b> Lorsqu'une armée arrive sur eux, ils montent sur leurs toits pour voir l'armée et pour combattre. Nos rabbins, cependant, ont expliqué cela concernant les prêtres qui montaient sur le toit du Temple avec les clés de l'avant-cour dans leurs mains, comme il est indiqué dans le Tractate Taanith (29a). Le Midrash Aggadah, cependant, affirme qu'ils (les habitants de Jérusalem) étaient hautains. (Cela se trouve) dans Lamentations Rabbah (Int. 24).
@@ -204,4 +204,4 @@
 <b>et le fardeau qui est sur lui sera coupé</b> Les membres de sa famille et sa compagnie qui dépendent de lui et qui accrochent sur lui les vases de leur gloire. Et puisqu'il l'a assimilé à une cheville, il a assimilé ceux qui se vantent de lui et qui comptent sur lui, à un fardeau chargé sur la cheville. Certains l'interprètent ainsi : Et la prophétie annoncée à son sujet s'accomplira.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

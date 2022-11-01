@@ -17,5 +17,5 @@ Si l'on a frotté un poireau ou pressé ses cheveux ou son vêtement, Rabbi Yose
 ### michna 6
 Si l'on soufflait sur des lentilles afin de tester si elles étaient bonnes : Rabbi Shimon dit : cela ne relève pas de la loi de "si l'eau est déposée [ki youtane]". Mais les sages disent : cela relève de la loi de "si l'eau est déposée [ki youtane]". Si quelqu'un a mangé du sésame avec son doigt, en ce qui concerne le liquide qui était sur sa main : Rabbi Shimon dit : cela ne relève pas de la loi de "si l'eau est déposée [ki youtane]". Mais les sages disent : cela relève de la loi de "si l'eau est déposée [ki youtane]". Si quelqu'un cachait ses fruits dans l'eau pour les protéger des voleurs, cela ne relève pas de la loi de "si l'eau est déposée [ki youtane]". Il arriva une fois que les hommes de Jérusalem cachèrent leurs gâteaux de figues dans l'eau pour les soustraire aux voleurs, et les sages déclarèrent qu'ils n'étaient pas susceptibles d'être impurs. Si quelqu'un met son fruit dans le courant d'une rivière pour le faire descendre avec lui, il ne relève pas de la loi de "si l'eau est déposée [ki youtane]".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

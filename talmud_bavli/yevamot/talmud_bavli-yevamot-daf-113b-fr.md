@@ -48,4 +48,4 @@ La Guemara répond que la déclaration de Rava est nécessaire, <b>de peur que v
 La Guemara relate une histoire : <b>Rav Yitzḥak bar Bisna a perdu les clés de la salle d'étude,</b> et par conséquent ils ne pouvaient pas venir <b>dans</b> la salle d'étude depuis <b>le domaine public le Chabbat.</b> Il était impossible d'ouvrir la synagogue, car ils ne pouvaient pas apporter la clé car il est interdit de porter dans le domaine public. <b>Il s'est présenté devant Rabbi Pedat</b> pour demander ce qu'il fallait faire. Rabbi Pedat <b>lui dit : Va</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

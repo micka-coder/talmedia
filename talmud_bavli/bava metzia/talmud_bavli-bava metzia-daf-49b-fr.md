@@ -42,4 +42,4 @@ La Gemara rejette cette preuve : <b>Non,</b> il s'agit d'un cas <b>où il a vend
 La Guemara commente : <b>Il est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>de Shmuel : Celui à qui</b> l'exploitation <b>a été imposée a l'avantage. Comment cela ? </b> Dans le cas où on lui <b>vendait</b> un objet <b>de cinq</b> <i>ma'a</i> <b>pour six</b> <i>ma'a</i>, <b>qui a été exploité ? </b> C'est l'<b>acheteur.</b> Par conséquent, l'<b>acheteur est avantagé.</b> S'il le <b>souhaite,</b> il peut <b>dire</b> au vendeur : <b>Rends-moi</b> <b>mon argent</b> et annuler la transaction, <b>ou</b> il peut dire : <b>Rendez-moi</b> la somme <b>que vous</b> avez reçue en vous livrant à une <b>exploitation</b> de <b>moi.</b> Dans le cas où l'un <b>l'a vendu</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

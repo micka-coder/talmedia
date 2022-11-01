@@ -18,4 +18,4 @@ La Guemara répond : <b>Oui, et c'est enseigné</b> dans la <i>baraita</i> suiva
 La Guemara revient à sa discussion sur le dilemme de Rav Pappa. <b>Disons-nous</b> que <b>puisque</b> <i>pe'a</i> est <b>juxtaposé aux offrandes, de même que les offrandes ont une intimation, de même, <i>pe'a</i> a une intimation ? Ou peut-être que lorsque</b> <i>pe'a</i> est juxtaposé aux offrandes, <b>il est juxtaposé pour</b> indiquer seulement qu'il est soumis à l'interdiction : <b>Tu ne tarderas pas ?</b> La Gemara clarifie : <b>Et où est-il juxtaposé ? Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

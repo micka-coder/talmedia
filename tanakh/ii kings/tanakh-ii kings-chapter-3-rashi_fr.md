@@ -77,7 +77,7 @@
 <b>Cela a provoqué une terrible colère.</b> Car on s'est souvenu de leurs iniquités, qu'eux aussi adorent des divinités païennes et ne sont pas dignes d'un miracle.</sup>20</sup><i class="footnote">Voir Masehet Sanhedrin 39b. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Yehorom, fils d'Achov.</b> Cette section aussi [afin] de raconter le miracle de Meisha, roi de Moav, qui s'est accompli par l'intermédiaire d'Elisée, a été écrite ici, car [l'Écriture] a énuméré pour Eliyahou huit miracles et pour Elisée seize, afin d'accomplir " une double quantité de ton esprit sur moi "<sup>1</sup><i class="footnote">Au-dessus, 2:9. </i> et il les a tous écrits, les uns juxtaposés aux autres. J'ai vu cela dans les "Trente-deux méthodes de Rabbi Eliezer, fils de Rabbi Yose Haglili". Et la division du Jourdain par Elisha, est [comptée] comme deux des miracles d'Eliyahou.<sup>2</sup><i class="footnote">Voir ci-dessus 2:14 et Rachi à cet endroit.</i>
 
@@ -156,4 +156,4 @@
 <b>Cela a provoqué une terrible colère.</b> Car on s'est souvenu de leurs iniquités, qu'eux aussi adorent des divinités païennes et ne sont pas dignes d'un miracle.</sup>20</sup><i class="footnote">Voir Masehet Sanhedrin 39b. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

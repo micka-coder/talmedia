@@ -33,4 +33,4 @@ La Guemara note que ceci fait <b>l'objet</b> d'une dispute entre <b><i>tanna'im<
 <b>Rabbi Neḥemya lui dit : Et est-ce que</b> Dieu <b>ne punit jamais</b> la nation dans son ensemble <b>pour des péchés cachés</b> commis par des individus ? <b>Mais n'est-il pas déjà dit :</b> "Les affaires cachées appartiennent au Seigneur notre <b>Dieu...pour toujours,"</b> indiquant que le peuple juif ne sera jamais tenu collectivement responsable des péchés secrets des individus ? <b>Au contraire,</b> les points sur les mots enseignent que <b>comme</b> Dieu <b>n'a jamais <b>puni</b> la nation dans son ensemble <b>pour des péchés cachés</b> commis par des individus, <b>ainsi</b> aussi, <b>Il n'a pas puni</b> la nation entière <b>pour</b> des péchés commis publiquement par des individus <b>jusqu'à ce que le peuple juif traverse le Jourdain</b>. La Gemara demande : <b>Mais</b> si oui,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

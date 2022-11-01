@@ -36,4 +36,4 @@ La Gemara répond : <b>Là où il n'y a pas</b> de violation de <b>l'interdictio
 <b>Rabbi Zeira a dit : Laisse</b> l'interdiction de sacrifier un animal <b>dont l'heure n'est pas encore</b> arrivée, <b>comme le verset</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

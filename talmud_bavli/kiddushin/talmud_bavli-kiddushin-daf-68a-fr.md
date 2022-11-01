@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais</b> selon l'opinion de <b>Rabbi Akiva,</b> que les f
 § La mishna enseigne : <b>Et</b> dans <b>tous les cas</b> <b>où une femme <b>ne peut</b> s'associer aux fiançailles <b>avec lui</b> ou avec d'autres, la progéniture est comme elle. Cette décision se réfère spécifiquement à une servante cananéenne ou à une femme gentille. La Gemara demande : <b>D'où déduit-on</b> que les fiançailles avec <b>une servante cananéenne</b> sont sans effet ? <b>Rav Huna répond : Le verset dit</b> qu'Abraham a ordonné à ses esclaves : <b>"Vous restez ici avec [<i>im</i>] l'âne"</b> (Genèse 22:5), ce qui fait allusion au fait que ses esclaves appartiennent à <b>une nation [<i>am</i>] semblable à un âne;</b> tout comme les fiançailles sont inefficaces avec les animaux, elles sont également inefficaces avec les servantes cananéennes. La Gemara commente : <b>Nous avons constaté que les fiançailles sont inefficaces avec</b> une servante cananéenne ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

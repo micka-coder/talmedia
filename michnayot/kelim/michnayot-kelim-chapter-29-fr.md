@@ -23,5 +23,5 @@ Le reste de la tige d'un aiguillon de bœuf, à son extrémité supérieure, est
 ### michna 8
 Le reste du manche d'un aiguillon à bœuf, à son extrémité inférieure, est considéré comme relié jusqu'à une longueur de sept millièmes de pouce. Le manche d'une pelle de ménage Bet Shammai disent : jusqu'à une longueur de sept palmes, et Bet Hillel disent : huit palmes. Celui des plâtriers : Bet Shammai disent : neuf paliers, et Bet Hillel disent : dix paliers. Toute partie dépassant ces longueurs, s'il voulait la conserver, est également susceptible d'être impure. Les tiges des instruments à feu sont susceptibles d'être impures quelle que soit leur longueur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

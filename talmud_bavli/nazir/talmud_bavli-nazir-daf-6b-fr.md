@@ -30,4 +30,4 @@ La Guemara répond : <b>Rav Mattana</b> aurait pu <b>vous dire : Tout le monde</
 La Guemara analyse maintenant la <i>baraita</i> qui cite les opinions de Rabbi Yoshiya et Rabbi Yonatan. <b>Le maître,</b> Rabbi Yonatan, <b>a dit : Quels sont les jours qui nécessitent un achèvement ? Tu dois dire</b> ceci fait référence aux <b>trente</b> jours d'un mois complet. La Gemara demande : <b>Mais dis</b> cela fait référence aux sept jours d'une <b>semaine.</b> La Gemara répond : Dans le cas d'une <b>semaine, y a-t-il</b> jamais une semaine qui soit <b>manquante ?</b> Toutes les semaines comptent sept jours. Inversement, puisque certains mois comptent vingt-neuf jours et d'autres trente jours, on peut dire que le trentième jour complète ce qui manquait.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

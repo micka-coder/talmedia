@@ -57,4 +57,4 @@ La Guemara cite une opinion en contradiction avec celle de Rav Dimi : <b>Lorsque
 <b>On ne demande pas</b> sur <b>deux sujets simultanément;</b> plutôt, on pose une question, et après qu'on lui ait répondu, on en pose une deuxième. <b>Et</b> même <b>s'il pose</b> deux questions simultanément, <b>on ne lui répond</b> qu'en ce qui concerne <b>une</b> d'entre elles, <b>et on ne lui répond que</b> pour ce qui est de <b>la première</b> question. <b>Comme il est dit</b> à propos du roi David qu'il a posé deux questions simultanément : <b>"Les hommes de Keïla me livreront-ils entre ses mains ? Saül descendra-t-il ?"</b> (I Samuel 23:11). Et il ne reçut de réponse qu'à l'égard d'une seule : <b>"Et Dieu a dit : Il descendra."</b> (I Samuel 23:11). La Gemara demande : <b>Mais n'avez-vous pas dit</b> que si l'on pose deux questions, on ne lui <b>répond que</b> par rapport à la <b>première</b> question ? Pourtant, le verset indique que David a reçu une réponse pour sa deuxième question, et non pour la première. La Gemara répond : <b>David a posé</b> les questions...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

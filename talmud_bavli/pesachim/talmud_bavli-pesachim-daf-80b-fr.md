@@ -57,4 +57,4 @@ Il a été enseigné dans la mishna que si l'on <b>devient rituellement impur pa
 La Guemara demande : <b>La plaque frontale <b>n'apaise-t-elle pas</b> Dieu en ce qui concerne <b>l'impureté rituelle des profondeurs</b> communiquée par <b>la décharge d'un <i>zava</i> ? N'a-t-on pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei dit : Une femme qui veille un jour pour un jour</b> est une femme qui évacue du sang pendant un ou deux jours à un moment où elle n'attend pas ses règles. Le cas dont il est question est celui où elle a connu des écoulements pendant un jour et où <b>on a abattu</b> un agneau pascal <b>et aspergé</b> le sang <b>pour elle</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

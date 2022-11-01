@@ -39,4 +39,4 @@ La Gemara demande : Du fait <b>qu'il est enseigné dans la première clause</b> 
 Par conséquent, <b>Venez</b> et <b>entendez</b> une preuve de ce que nous avons appris dans une autre mishna : <b>On peut hacher</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

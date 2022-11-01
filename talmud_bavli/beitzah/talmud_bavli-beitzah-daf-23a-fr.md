@@ -45,4 +45,4 @@ La Gemara exprime sa surprise : <b>Peut-il entrer dans votre esprit</b> que les 
 <b>Rava a dit</b> que <b>Rav Naḥman a dit</b> que <b>Shmuel a dit, et certains disent</b> que <b>Rav Naḥman a dit</b> cet enseignement <b>lui-même : </b> La <b><i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Shimon,</b> selon lequel un acte non intentionnel est permis le Chabbat, <b>comme Rabbi Elazar ben Azarya est d'accord avec lui. Rava a dit au Rav Naḥman : Et que le Maître dise</b> l'inverse, que la <b><i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda, car les sages sont d'accord avec lui. </b> Rav Naḥman lui <b>dit : </b> Fondamentalement, <b>je suis en accord avec</b> l'opinion de <b>Rabbi Shimon;</b> j'ajoute simplement <b>une autre</b> raison de le faire, qui est <b>que Rabbi Elazar ben Azarya est d'accord avec lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

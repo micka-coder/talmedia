@@ -36,4 +36,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue de la sui
 <b>Au contraire, Rava dit : Tout le monde,</b> y compris les rabbins, s'accorde à dire que <b>on ne dit pas que son interdiction</b> sert d'<b>intention. Et</b> en ce qui concerne l'âne premier-né, <b>si on lui <b>brisait le cou, de même,</b> les rabbins soutiennent qu'il n'est pas susceptible de l'impureté de la nourriture, puisque celui qui lui a brisé le cou n'avait pas l'intention qu'il soit mangé.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

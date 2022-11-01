@@ -45,7 +45,7 @@ La Guemara relate un incident similaire : <b>Le fils du beau-père de Rabbi Yirm
 Rabbi Avin <b>dit</b> à Rabbi Yirmeya : Ton beau-frère <b>revendique</b> la propriété de ce qui est <b>le sien,</b> puisqu'il conserve la propriété présumée de la maison de son père à la mort de ce dernier. Rabbi Yirmeya <b>lui a dit : Mais je peux amener des témoins qui peuvent attester que j'en ai pris possession du vivant de son père.</b> Rabbi Avin <b>lui dit : Mais est-ce que</b> le tribunal <b>accepte les témoins</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 il fait référence à un cas où c'est <b>avant</b> que les propriétaires ont <b>désespéré</b> de récupérer leurs biens. Par conséquent, les héritiers n'ont pas acquis le bien volé, et celui-ci doit être restitué.
 
@@ -92,4 +92,4 @@ La Guemara relate un incident similaire : <b>Le fils du beau-père de Rabbi Yirm
 Rabbi Avin <b>dit</b> à Rabbi Yirmeya : Ton beau-frère <b>revendique</b> la propriété de ce qui est <b>le sien,</b> puisqu'il conserve la propriété présumée de la maison de son père à la mort de ce dernier. Rabbi Yirmeya <b>lui a dit : Mais je peux amener des témoins qui peuvent attester que j'en ai pris possession du vivant de son père.</b> Rabbi Avin <b>lui dit : Mais est-ce que</b> le tribunal <b>accepte les témoins</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

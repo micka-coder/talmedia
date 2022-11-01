@@ -63,4 +63,4 @@ La Gemara conteste : <b>Mais</b> le <i>baraita</i> <b>enseigne</b> cette <i>hala
 <strong>MISHNA :</strong> Si <b>on abat</b> l'animal <b>dans le but de laisser son sang ou ses portions sacrificielles pour le lendemain, ou de les sortir</b> de l'endroit désigné, mais pas dans le but de les sacrifier le lendemain, <b>Rabbi Yehuda juge</b> l'offrande <b>inadéquate, et les rabbins la jugent</b> <b>adéquate. </b> Dans le cas de celui qui égorge l'animal <b>afin de placer</b> le sang <b>sur la rampe</b> ou sur le mur de l'autel <b>qui</b> n'est <b>pas opposé à la base</b> de l'autel, <b>ou</b> afin <b>de placer</b> le sang <b>qui est</b> à <b>placer au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge, <b>ou</b> de placer le sang <b>qui est</b> à <b>placer en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, <b>ou</b> le sang <b>qui est</b> à <b>placer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

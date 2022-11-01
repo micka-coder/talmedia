@@ -45,4 +45,4 @@ Rabbi Yehuda HaNasi <b>a dit à</b> Elijah : <b>Et y a-t-il quelqu'un</b> vivant
 <b>Rabbi</b> Yehuda HaNasi <b>faisait des efforts pour ordonner</b> Shmuel Yarḥina'a comme rabbin <b>mais n'y parvenait pas,</b> car Shmuel rechignait toujours. Shmuel Yarḥina'a <b>lui dit : Le Maître ne doit pas être contrarié</b> par mon refus, car je sais que je ne suis pas destiné à être ordonné rabbin. <b>J'ai vu moi-même le livre d'Adam le premier</b> homme, qui contient la généalogie de la race humaine, <b>et il y est écrit</b> que <b>Shmuel Yarḥina'a</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

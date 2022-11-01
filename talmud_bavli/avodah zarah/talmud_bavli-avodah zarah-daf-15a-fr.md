@@ -33,4 +33,4 @@ La Guemara répond : <b>L'adoration des idoles est différente, car il s'agit</b
 La Gemara relate : <b>Rav Huna a vendu une certaine vache à un Gentil. Rav Ḥisda lui dit : Quelle est la raison</b> pour laquelle <b>le Maître a agi de cette manière ?</b> Rav Huna <b>lui a répondu :</b> Je peux <b>dire</b> qu'il l'a achetée</b> dans le but <b>de l'abattre</b> et non de l'utiliser pour le travail.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

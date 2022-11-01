@@ -87,7 +87,7 @@
 <b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereshit 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et au gardien des enfants d'Achov.</b> Ceux qui ont élevé ses enfants.</sup>1</sup><i class="footnote">La traduction littérale est : "et à ceux qui ont élevé Achov."</i>
 
@@ -176,4 +176,4 @@
 <b>Pour montrer son dégoût.</b> Comme dans, "קַצְתִּי בְּחַיָּי [=je suis dégoûté de ma vie]."<sup>13</sup><i class="footnote">Bereshit 27:46. </i><sup>14</sup><i class="footnote">Alternativement, "a commencé à couper [=לְקַצוֹת] en Israël" comme dans Devorim 25:12, "tu couperas [=וְקַצוֹתָ]. "-Metzudas Tzion Ou, "a commencé à frapper ceux qui vivent à la frontière [=קָצֶה]," c'est-à-dire, ceux qui vivent dans la partie orientale de Eiver Hayardein. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

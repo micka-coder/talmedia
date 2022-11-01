@@ -36,4 +36,4 @@ A propos du sujet de la façon dont l'homme doit aborder son foyer, <b>Rav Yehud
 § A propos du sujet de la maltraitance verbale, <b>nous avons appris</b> dans une mishna <b>là</b> (<i>Kelim</i> 5:10) : Si <b>on coupe</b> un four en terre cuite dans le sens de la largeur <b>en segments, et qu'on place du sable entre chaque segment, Rabbi Eliezer le juge rituellement pur.</b> A cause du sable, son statut juridique n'est pas celui d'un récipient complet, et il n'est donc pas susceptible d'impureté rituelle. <b>Et les rabbins le jugent rituellement impur,</b> car il est fonctionnellement un four complet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

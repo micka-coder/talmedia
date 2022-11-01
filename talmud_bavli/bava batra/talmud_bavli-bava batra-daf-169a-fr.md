@@ -30,4 +30,4 @@ La Gemara demande plus loin : <b>Mais laissons</b> le tribunal <b>rédiger un ac
 <b>Les rabbins ont dit devant Rav Pappa</b> en réponse à cette question, <b>et certains disent</b> qu'il a été dit <b>devant Rav Ashi : Est-ce à dire</b> que la <i>tanna</i> de la <i>baraita</i> soutient qu'en général le tribunal ne <b>pas écrire de reçu</b> dans de tels cas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

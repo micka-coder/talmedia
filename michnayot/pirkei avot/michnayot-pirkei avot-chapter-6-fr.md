@@ -32,5 +32,5 @@ Le Saint Béni soit-Il a mis de côté cinq biens qui lui appartiennent en ce mo
 ### michna 11
 Tout ce que le Saint Béni soit a créé dans Son monde, il l'a créé uniquement pour Sa gloire, comme il est dit : "Tous ceux qui sont liés à Mon nom, que J'ai créés, formés et faits pour Ma gloire" (Esaie 43:7), Et il est dit : "Le Seigneur régnera aux siècles des siècles" (Exode 15:18).<br><br>Dit Rabbi Hananiah ben Akashya : Il a plu au Saint Béni soit-Il d'accorder des mérites à Israël, c'est pourquoi Il leur a donné la Torah et des commandements en abondance, comme il est dit : "Le Seigneur s'est plu pour sa justice, à rendre la Torah grande et glorieuse" (Isaïe 42:21).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara demande : <b>Qu'est-ce qui est considéré comme de la chair pourrie<
 <b>Rav Pappi a dit : Rav Beivai bar Abaye soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Abaye demande encore : <b>Et que Rabbi Natan soit en désaccord avec eux dans la
 § Il a été enseigné dans la mishna : <b>Et de même, celui qui a eu des rapports avec l'un de ceux avec qui les relations sont interdites</b> par <b>la Torah</b> sous quelque forme que ce soit est susceptible de recevoir une punition. <b>Rav Amram a dit : Cette affaire nous a été dite</b> par <b>Rav Sheshet,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

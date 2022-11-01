@@ -36,4 +36,4 @@ La Gemara conteste : Comment peut-on dire cela ? Après tout, <b>il y a des tém
 La Gemara cite une preuve à cet égard : C'est <b>comme dans</b> le cas <b>concernant les biens</b> d'un homme nommé <b>Bar Shatya,</b> auquel on se référait par ce nom parce qu'il devenait occasionnellement fou. L'affaire est la suivante : <b>Bar Shatya a vendu une propriété. Deux</b> témoins <b>s'avancent</b> et disent qu'il l'a vendu</b> alors qu'il était <b>en bonne santé</b> et donc que la vente était valide. <b>Et deux</b> autres <b>s'avancent</b> <b>et disent qu'il l'a vendu</b> <b>alors qu'il était <b>folle,</b> et donc la vente était nulle. <b>Rav Ashi a dit</b> à propos de cette question : <b>Placez deux</b> témoins <b>contre deux</b> témoins et laissez les témoignages s'annuler. Comme il n'y a pas de témoignage valable sur lequel s'appuyer,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

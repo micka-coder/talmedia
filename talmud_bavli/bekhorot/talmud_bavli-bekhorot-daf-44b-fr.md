@@ -54,4 +54,4 @@ La Guemara demande : Mais si c'est le cas, <b>c'est</b> identique à celui dont 
 <strong>MISHNA:</strong> La mishna énumère des tares supplémentaires qui disqualifient un prêtre pour accomplir le service du Temple : Celui dont les jambes sont tordues et pliées vers l'intérieur, ce qui l'amène à <b>frapper ses chevilles ou ses genoux</b> l'un contre l'autre lorsqu'il marche,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

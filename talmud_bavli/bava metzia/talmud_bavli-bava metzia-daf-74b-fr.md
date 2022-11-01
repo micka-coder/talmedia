@@ -45,4 +45,4 @@ En revanche, <b>dans le local du <i>tanna</i> du <i>baraita</i>, le propriétair
 § <b>Les Sages ont enseigné : Une personne peut dire à une autre :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

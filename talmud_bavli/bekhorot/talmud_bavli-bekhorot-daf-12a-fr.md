@@ -75,4 +75,4 @@ La Gemara clarifie : <b>Selon</b> l'avis <b>de Rabbi Shimon, il ne faut pas soul
 La Gemara commente : <b>Maintenant que vous êtes arrivés à cette</b> explication,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -160,5 +160,5 @@
 ### passuk 57
 <b>Pour enseigner [la loi] du jour où l'on devient impur.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Quel jour il doit déclarer [la maison] pure et quel jour il doit déclarer [la maison] impure.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

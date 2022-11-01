@@ -42,4 +42,4 @@ La Gemara conteste : <b>Mais</b> si c'est le cas, <b>laissez</b> le <i>tanna</i>
 La guemara soulève une autre difficulté. La <i>halakha</i> de la mishna selon laquelle les éléments dont il est interdit de tirer un bénéfice rendent un mélange interdit dans n'importe quelle quantité même <b>à une personne ordinaire</b>, comme cela a été énoncé à propos des offrandes pour le péché qui étaient condamnées à mourir et d'un bœuf qui était condamné à être lapidé, est <b>également enseignée</b> dans une mishna (<i>Avoda Zara</i> 74a) : <b>Et ces</b> articles suivants sont eux-mêmes <b>interdits, et toute quantité</b> d'entre eux <b>rend</b> d'autres articles avec lesquels ils deviennent mélangés <b>interdits : Le vin</b> utilisé pour <b>une libation</b> qui s'est mélangé à du vin casher, <b>et</b> les objets du <b>service des idoles</b> qui se sont mêlés à des objets autorisés.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

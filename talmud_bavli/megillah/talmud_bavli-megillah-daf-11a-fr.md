@@ -72,4 +72,4 @@ Le verset d'ouverture se poursuit en affirmant qu'Assuérus régnait "sur <b>sep
 <b>Nebuchadnezzar</b> régnait aussi sur le monde entier, <b>comme il est écrit : "Et il arrivera que la nation et le royaume</b> qui ne serviront pas ce même Nebucadnetsar, roi de Babylonie, et qui <b>ne mettront pas leur cou sous le joug du roi de Babylonie,</b> cette nation-là, je la visiterai, dit le Seigneur, par l'épée, la famine et la peste, jusqu'à ce que je l'aie consumée par sa main" (Jérémie 27:8). <b>Ahasuerus</b> a également régné sur le monde, <b>comme nous l'avons dit</b> ci-dessus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

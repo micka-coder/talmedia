@@ -84,4 +84,4 @@ C'est à propos de cette <i>baraita</i> que <b>Rabba bar bar Ḥana dit</b> que 
 La Gemara relate : <b>Les fils du beau-père de Mar Ukva</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

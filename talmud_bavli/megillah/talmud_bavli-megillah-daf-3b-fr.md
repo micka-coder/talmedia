@@ -51,4 +51,4 @@ La Guemara examine la <i>Tosefta</i> : <b>Grâce</b> qu'en ce qui concerne un li
 <b>Et Rabbi Yehoshua ben Levi dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

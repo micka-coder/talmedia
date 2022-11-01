@@ -12,4 +12,4 @@ La Guemara fournit les dimensions de la largeur du Temple <b>du sud au nord,</b>
 <b>Et s'il vous vient à l'esprit</b> de dire que les <i>mishnayot</i> du tractat <b><i>Middot</i></b> sont conformes à l'opinion de <b>Rabbi Yehuda, trouvez-vous l'autel au milieu de</b> la <b>cour intérieure ? La plus grande partie</b> de l'<b>autel se trouve dans la partie sud</b> de la cour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ De même, <b>Rav Yosef soulève un dilemme :</b> Le point médian des versets de
 § <b>Les Sages ont enseigné:</b> Le verset stipule : <b>"Et tu les enseigneras diligemment [<i>veshinnantam</i>]"</b> (Deutéronome 6:7). La racine <i>shin</i>, <i>nun</i>, <i>nun</i>, de <i>veshinnantam</i> doit être comprise comme signifiant tranchant, c'est-à-dire que <b>les questions de Torah doivent être tranchantes</b> et claires <b>dans ta bouche,</b> de sorte <b>que si une personne te demande quelque chose, ne bégaie pas</b> dans l'incertitude <b>et ne lui dis</b> pas une réponse incertaine <b>. Au contraire, répondez-lui immédiatement, comme il est dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

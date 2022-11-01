@@ -33,4 +33,4 @@ Rabba explique la preuve à partir de la mishna : On pourrait se demander : <b>M
 Le Rav Ḥisda <b>lui a dit : As-tu dit</b> qu'il existe une preuve à partir des <i>halakhot</i> de l'<b>encens ?</b> On ne peut pas comparer l'encens aux animaux consacrés pour les offrandes quotidiennes, car <b>l'encens est différent,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

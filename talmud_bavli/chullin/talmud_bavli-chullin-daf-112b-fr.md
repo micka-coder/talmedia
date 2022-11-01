@@ -18,4 +18,4 @@ La Guemara relate : <b>La viande d'un animal abattu</b> <b>a été salée pour R
 Rava <b>lui dit :</b> Lorsque le verset dit, à propos des aliments interdits : "Ce sont <b>les impurs</b> pour vous" (Lévitique 11:31), l'article défini ajouté sert <b>à interdire</b> non seulement leur chair mais aussi <b>leur jus</b> émis par le salage, <b>et leur sauce, et leurs épices</b> avec lesquels ils sont cuisinés. Même si la viande casher émet son sang, elle absorbe encore les jus de la viande non casher, qui sont absorbés plus facilement que le sang.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

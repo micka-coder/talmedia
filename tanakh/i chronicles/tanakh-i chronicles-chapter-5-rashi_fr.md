@@ -104,4 +104,4 @@
 <b>Et Jehozadak partit quand le Seigneur exila Juda et Jérusalem</b> Et le verset du livre d'Aggée (1:1) : " Josué, fils de Jéhozadak, [grand] prêtre ", ne [signifie] pas que Jéhozadak ait jamais exercé la haute prêtrise, car il a été exilé à Babylone à l'époque de Jéconia, comme il est écrit : "Mais Josué, son fils, était le Grand Prêtre lorsqu'ils sont sortis de Babylone à l'époque du Second Temple. Pourquoi Azaria, fils de Seraiah le savant, n'était-il pas le Grand Prêtre, mais son neveu Josué, fils de Jehozadak ? Voici la raison : parce que Josué est monté avec Zorobabel bien des jours et des années avant l'ascension d'Esdras.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ A ce propos, la Guemara cite la déclaration de la mishna à propos d'un hermaph
 Rabbi Yishmael <b>aussi</b> ne déclare pas</b> une décision <b>comme</b> celle de <b>Rava,</b> car <b>peut-être</b> sa conclusion qu'une fissure trouvée là où il n'y a pas d'os n'est pas une tare ne s'applique que dans un cas <b>où elle n'est pas apparente. Mais</b> dans un cas <b>où elle est ostensible,</b> comme l'organe sexuel féminin, <b>on l'appelle "une mauvaise tare"</b> (Deutéronome 15:21), et l'animal est disqualifié pour être utilisé comme offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

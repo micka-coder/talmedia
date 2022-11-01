@@ -39,4 +39,4 @@ La Gemara suggère : <b>Disons que c'est une réfutation concluante de</b> l'opi
 <b>Venez</b> et <b>entendez</b> un autre défi, <b>comme l'a dit Rabban Yoḥanan ben Zakkai : Quelle réponse la Voix Divine a-t-elle faite à ce méchant homme,</b> Nabuchodonosor, <b>quand il a dit : <b>Je m'élèverai au-dessus des hauteurs des nuages, je serai comme le Très-Haut"</b> (Isaïe 14.14) ? <b>Une voix divine émergea et lui dit : Méchant homme, fils de méchant homme,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

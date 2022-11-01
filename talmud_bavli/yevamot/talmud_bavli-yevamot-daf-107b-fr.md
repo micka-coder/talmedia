@@ -54,4 +54,4 @@ La Guemara conteste ce point : <b>Accordé,</b> l'explication de <b>Ulla est</b>
 <strong>GEMARA:</strong> <b>Rav Yehuda a dit, et certains disent que cela a été enseigné dans une <i>baraita</i> : Au début, ils écrivaient un acte de refus de cette manière : Je ne le désire pas, je ne veux pas de lui et je ne souhaite pas me marier avec lui. Lorsqu'ils ont vu que le texte était trop long, les</b> Sages <b>ont dit :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -6,4 +6,4 @@
 Nous avons appris dans la mishna que <b>Rabbi Tarfon dit:</b> Sur l'eau on recite : <b>Qui cree les nombreuses formes de vie et leurs besoins. Rava bar Rav Hanan dit a Abaye, et certains disent a Rav Yosef : Quelle est la <i>halakha</i></b> dans cette dispute ? <b>Il lui dit : Sors et observe ce que font les gens</b> et agis en consequence.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

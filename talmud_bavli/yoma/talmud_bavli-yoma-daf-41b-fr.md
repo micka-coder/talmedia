@@ -66,4 +66,4 @@ La Torah exige que, dans le cadre de la préparation des cendres de la vache rou
 <b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie <b>il a expliqué au nom de Rabbi Yonatan</b> quel poids requiert chaque article, comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@
 <b>Ils amenèrent à Gidon, à travers le Jourdain.</b> Le matin, quand Gidon traversa le Jourdain en poursuivant Zevach et Tzalmona.<sup>15</sup><i class="footnote"></i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

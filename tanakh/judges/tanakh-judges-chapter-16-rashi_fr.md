@@ -76,4 +76,4 @@
 <b>Chimshon embrassa.</b> Il saisit, "embrasser" en ancien français, comme dans "L'homme trembla, et fut embrassé"<sup>9</sup><i class="footnote">Rus, 3:8.</i>il fut enlacé dans les bras d'une femme.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

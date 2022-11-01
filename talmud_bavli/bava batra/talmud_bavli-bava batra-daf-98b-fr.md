@@ -45,4 +45,4 @@ La mishna enseigne : La <b>hauteur</b> standard de chacune de ces structures est
 La Gemara demande : <b>Qu'est-ce que</b> le verset <b>nous apprend</b> en ne considérant que la zone au-dessus des chérubins ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -86,5 +86,5 @@
 ### passuk 29
 <b>Comme vous le dites.</b> [C'est-à-dire que] "Vous avez bien parlé et vous avez parlé au bon moment. Il est vrai que je ne verrai plus jamais votre visage." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

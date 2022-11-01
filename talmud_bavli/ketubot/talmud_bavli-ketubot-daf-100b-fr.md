@@ -81,7 +81,7 @@ Shmuel a également dit : <b>Une personne qui refuse</b> de continuer à vivre a
 Une autre différence entre une femme qui refuse de continuer à vivre avec son mari et une femme qui a été divorcée normalement est la suivante : <b>La femme qui refuse</b> de continuer à vivre avec son mari <b>n'a pas besoin d'attendre trois mois</b> avant de se remarier, comme doivent le faire les autres femmes qui se séparent de leur mari.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Toute personne qui achète au tribunal achète avec</b> l'implicite <b>compréhension que</b> la vente <b>génère de la publicité,</b> car une vente au tribunal se déroule en public avec des avis. L'acheteur pourrait donc se dire que si aucun prétendant ne s'est manifesté jusqu'au moment de l'achat effectif, alors il est certain qu'il ne peut y avoir aucun problème avec son achat et il renonce à sa garantie de propriété. De peur que l'on dise cela, Rav Yosef <b>nous enseigne</b> qu'il existe néanmoins une garantie sur la propriété, et qu'elle repose sur les orphelins et non sur le tribunal.
 
@@ -164,7 +164,7 @@ Shmuel a également dit : <b>Une personne qui refuse</b> de continuer à vivre a
 Une autre différence entre une femme qui refuse de continuer à vivre avec son mari et une femme qui a été divorcée normalement est la suivante : <b>La femme qui refuse</b> de continuer à vivre avec son mari <b>n'a pas besoin d'attendre trois mois</b> avant de se remarier, comme doivent le faire les autres femmes qui se séparent de leur mari.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Toute personne qui achète au tribunal achète avec</b> l'implicite <b>compréhension que</b> la vente <b>génère de la publicité,</b> car une vente au tribunal se déroule en public avec des avis. L'acheteur pourrait donc se dire que si aucun prétendant ne s'est manifesté jusqu'au moment de l'achat effectif, alors il est certain qu'il ne peut y avoir aucun problème avec son achat et il renonce à sa garantie de propriété. De peur que l'on dise cela, Rav Yosef <b>nous enseigne</b> qu'il existe néanmoins une garantie sur la propriété, et qu'elle repose sur les orphelins et non sur le tribunal.
 
@@ -247,4 +247,4 @@ Shmuel a également dit : <b>Une personne qui refuse</b> de continuer à vivre a
 Une autre différence entre une femme qui refuse de continuer à vivre avec son mari et une femme qui a été divorcée normalement est la suivante : <b>La femme qui refuse</b> de continuer à vivre avec son mari <b>n'a pas besoin d'attendre trois mois</b> avant de se remarier, comme doivent le faire les autres femmes qui se séparent de leur mari.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

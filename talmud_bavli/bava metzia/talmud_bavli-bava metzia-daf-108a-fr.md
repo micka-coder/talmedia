@@ -45,7 +45,7 @@ Dans le cas inverse, si <b>il l'a acheté</b> <b>pour deux cents</b> dinars <b>e
 La Gemara discute d'un cas connexe : Si un <b>vend à</b> un autre <b>une <i>bien se'a</i> de terre au milieu de sa propriété</b> de sorte que l'acheteur soit entouré de tous côtés par les champs du vendeur, <b>on voit</b> de quel type de terre il s'agit : <b>Que</b> le terrain <b>soit un terrain de qualité supérieure</b> <b>ou que</b> il <b>soit un terrain de qualité inférieure</b>, <b>sa vente</b> est une <b>vente valable,</b> car il s'agit d'un terrain distinctif. Dans ce cas, les voisins du vendeur ne peuvent pas s'y opposer, car leurs champs ne bordent pas réellement cette parcelle.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>et sinon, ils ne pourront pas marcher,</b> mais devront passer de l'autre côté de la rivière. Par conséquent, il n'y a aucun avantage à couper les arbres qui bloquent une partie de la rivière.
 
@@ -92,4 +92,4 @@ Dans le cas inverse, si <b>il l'a acheté</b> <b>pour deux cents</b> dinars <b>e
 La Gemara discute d'un cas connexe : Si un <b>vend à</b> un autre <b>une <i>bien se'a</i> de terre au milieu de sa propriété</b> de sorte que l'acheteur soit entouré de tous côtés par les champs du vendeur, <b>on voit</b> de quel type de terre il s'agit : <b>Que</b> le terrain <b>soit un terrain de qualité supérieure</b> <b>ou que</b> il <b>soit un terrain de qualité inférieure</b>, <b>sa vente</b> est une <b>vente valable,</b> car il s'agit d'un terrain distinctif. Dans ce cas, les voisins du vendeur ne peuvent pas s'y opposer, car leurs champs ne bordent pas réellement cette parcelle.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

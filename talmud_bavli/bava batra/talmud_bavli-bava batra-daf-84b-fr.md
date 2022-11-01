@@ -42,4 +42,4 @@ La Gemara répond : <b>Quel</b> est le sens de la phrase : Si <b>il l'a tiré</b
 § La Guemara continue à discuter de la manière dont se déroule une acquisition. <b>Rav et Shmuel disent tous deux :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

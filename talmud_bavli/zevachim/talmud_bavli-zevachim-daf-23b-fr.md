@@ -33,4 +33,4 @@ La Guemara répond : <b>En fait,</b> le verset fait référence à <b>l'impuret�
 La Gemara répond : Cela est enseigné <b>parce que</b> le cas d'un prêtre <b>manquant</b> des <b>investissements sacerdotaux requis et</b> celui de <b>une personne dont les mains et les pieds ne sont pas lavés sont deux versets qui se rejoignent,</b> car le verset indique explicitement pour chaque cas que s'ils accomplissent des rites, ils sont susceptibles de recevoir la mort de la main du Ciel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,7 +30,7 @@ Rabbi Yehuda HaNasi <b>lui a dit : Je le juge crédible pour permettre</b> à so
 La Gemara demande : <b>Et</b> selon <b>Rabbi Ḥiyya, qu'est-ce qui est différent</b> dans le cas d'un <b>fils, où</b> un père n'est <b>pas</b> jugé crédible <b>parce que</b> le fils <b>est un parent de son père,</b> et donc le père est disqualifié pour témoigner sur son fils ? <b>Un frère est aussi un parent de son frère,</b> et donc le frère aurait dû être disqualifié pour témoigner sur son frère. Le rabbin Ḥiyya doit accepter le témoignage dans les deux cas ou rejeter le témoignage dans les deux cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Pas tous sont montés.</b> Comme la majorité du peuple n'est pas venue sur la terre, la séparation <i>ḥalla</i> n'a pas été rétablie au statut d'obligation par la loi de la Torah.
 
@@ -62,4 +62,4 @@ Rabbi Yehuda HaNasi <b>lui a dit : Je le juge crédible pour permettre</b> à so
 La Gemara demande : <b>Et</b> selon <b>Rabbi Ḥiyya, qu'est-ce qui est différent</b> dans le cas d'un <b>fils, où</b> un père n'est <b>pas</b> jugé crédible <b>parce que</b> le fils <b>est un parent de son père,</b> et donc le père est disqualifié pour témoigner sur son fils ? <b>Un frère est également un parent de son frère,</b> et donc le frère aurait dû être disqualifié pour témoigner sur son frère. Le rabbin Ḥiyya doit accepter le témoignage dans les deux cas ou rejeter le témoignage dans les deux cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

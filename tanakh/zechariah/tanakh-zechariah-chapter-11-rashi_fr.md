@@ -81,4 +81,4 @@
 <b>Son bras se flétrit</b> Dans le futur (comme en Ezéchiel 25, 14), "j'exercerai ma vengeance, etc.". Les commentateurs, cependant, ont interprété cela comme une référence à Sédécias, une allusion à (II Rois 25:7), "et ils aveuglèrent les yeux de Sédécias." Mais il est impossible de concilier "Voici ! J'établis un berger dans le pays" comme se référant à Sédécias, car soixante-dix ans s'étaient déjà écoulés après lui.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

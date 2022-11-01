@@ -39,4 +39,4 @@ Ce n'est pas le cas, car dans le cas de chaque agneau pascal, il y a la possibil
 <b>Et</b> Rava <b>me dit : Non,</b> cette analogie ne doit pas être acceptée : <b>Si tu dis</b> ceci <b>à propos d'un changement de caractère sacré,</b> c'est <b>parce que la disqualification qu'il</b> entraîne <b>est dans</b> l'offrande <b>elle-même,</b> car la disqualification porte sur le caractère sacré même de l'offrande, <b>et elle s'applique aux quatre rites,</b> car la disqualification causée par un changement de sainteté peut se produire non seulement pendant l'abattage mais aussi pendant n'importe lequel des quatre rites accomplis avec une offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

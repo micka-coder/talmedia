@@ -39,4 +39,4 @@ Dans un registre connexe, la Guemara cite une <i>halakha</i> qui était <b>ensei
 <b>Rabba bar Rav Huna a dit : Toute personne qui a la Torah en elle mais qui n'a pas</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

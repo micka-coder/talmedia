@@ -29,5 +29,5 @@ S'il fiance [une femme] avec de l'orla, ou des kilayim de la vigne, ou un bœuf 
 ### michna 10
 S'il la fiance avec des terumot, des dîmes, des dons sacerdotaux, de l'eau de purification ou des cendres de purification, la voici fiancée, même s'il est israélite.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

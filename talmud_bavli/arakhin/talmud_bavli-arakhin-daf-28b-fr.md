@@ -42,4 +42,4 @@ Comme les Sages l'ont expliqué : <b>Une personne peut dédier ses animaux sacri
 En ce qui concerne <b>un animal premier-né</b>, <b>qu'il soit <b>indifférent</b> ou <b>qu'il soit <b>différent,</b> son propriétaire <b>peut le consacrer. Et comment évalue-t-on</b> le paiement nécessaire pour le <b>dédicacer ? On estime combien</b> un <b>homme israélite</b> serait <b>prêt à donner en</b> échange de <b>ce premier-né</b> pour <b>le donner à</b> un prêtre qui est <b>le fils de sa fille ou à</b> un prêtre qui est <b>le fils de sa sœur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

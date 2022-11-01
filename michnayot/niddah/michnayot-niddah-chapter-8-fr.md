@@ -11,5 +11,5 @@ Il arriva qu'une femme se présenta devant Rabbi Akiva et lui dit : J'ai vu une 
 ### michna 4
 Si un tissu témoin a été placé sous un oreiller et que l'on y a trouvé du sang : S'il [le sang] est rond, il est propre S'il est allongé, il est impur, ce sont les paroles de Rabbi Elazar bar Zadok.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

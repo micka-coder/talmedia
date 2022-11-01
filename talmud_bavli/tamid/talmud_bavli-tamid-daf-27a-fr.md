@@ -54,4 +54,4 @@ La Gemara objecte : <b>Mais</b> selon cette interprétation, la mishna <b>elle-m
 La Guemara commente : <b>Aussi, il est raisonnable</b> de dire <b>que</b> la mishna permet que les vêtements soient placés uniquement <b>à côté de leur tête. Comme, si on dit</b> que la mishna permet que les vêtements soient placés littéralement <b>sous leur tête,</b> cela est difficile. <b>On admet qu'il est permis d'en tirer un bénéfice,</b> mais on <b>pourrait en déduire</b> qu'il est interdit de dormir dessus <b>en raison de l'interdiction de diverses sortes</b> de laine et de lin. Les vêtements sacerdotaux contiennent à la fois de la laine et du lin, ce qui est un mélange interdit dans tout autre contexte. La Torah autorise spécifiquement les prêtres à les porter lorsqu'ils accomplissent le service du Temple, mais cela ne s'étend pas à l'utilisation des vêtements comme coussin pendant le sommeil.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

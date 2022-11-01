@@ -66,4 +66,4 @@ A l'inverse, Rav Adda bar Ahava, <b>celui qui a dit qu'il y a réparation pour u
 <b>Dire : Non,</b> il est inutile d'accepter cette hypothèse. Il est possible que <b>Tout le monde soit d'accord</b> que l'impureté rituelle l'emporte dans</b> les cas impliquant <b>le public, et qu'ils soient en désaccord sur cette</b> autre question : Ce <b>Maître,</b> Rav Huna, qui a dit qu'il n'y a pas de recours, <b>tient :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

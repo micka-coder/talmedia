@@ -36,4 +36,4 @@ La Guemara note : Et cet avis <b>est en desaccord</b> avec l'avis <b>de Rabbi Ha
 La mesure halakhique determinee par les <b>vignes</b> est <b>la quantite d'un quart <i>log</i> de vin pour un nazirite</b> et non l'equivalent en vin d'un quart <i>log</i> d'eau, qui est une mesure legerement differente. <b>Les figues</b> servent de base a la mesure d'un <b>boulot de figues sechees,</b> typiquement la plus petite unite de nourriture pour laquelle quelqu'un sera tenu responsable <b>pour avoir effectue le Chabbat</b> d'un domaine a un autre. <b>Les grenades</b> nous enseignent egalement une mesure particuliere, <b>comme nous l'avons appris</b> dans une mishna : <b>Tous</b> les <b>ustensiles en bois rituellement impurs appartenant</b> a des <b>proprietaires ordinaires</b> deviennent purs en brisant l'ustensile,
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara commente : <b>Et ils ne sont pas en désaccord.</b> Ils se réfèrent 
 Pourquoi n'est-il pas obligé de servir le second maître ? Cette <i>halakha</i> est <b>conforme</b> à la déclaration <b>de Rava, comme le dit Rava : La consécration</b> d'un objet au Temple, le fait de devenir soumis à l'interdiction du <b>pain levé</b> à Pessah, <b>et</b> l'<b>émancipation</b> d'un esclave <b>abrogent</b> tout <b>lien</b> existant sur un objet. Par conséquent, dans le cas de la mishna, l'esclave doit être un homme libre après que son maître l'ait émancipé, et le créancier ne peut pas prendre possession de lui. <b>Cependant, pour l'amélioration du monde, de peur</b> que le créancier <b>trouve</b> l'esclave <b>sur le marché</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

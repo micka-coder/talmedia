@@ -64,7 +64,7 @@
 <b>Sur les hommes d'Anathoth</b> Heb. אל-אנשי ענתות, comme על-אנשי ענתות, sur les hommes d'Anathoth.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -130,4 +130,4 @@
 <b>Sur les hommes d'Anathoth</b> Heb. אל-אנשי ענתות, comme על-אנשי ענתות, sur les hommes d'Anathoth.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

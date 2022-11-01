@@ -57,4 +57,4 @@ La Guemara note : <b>Aussi, c'est raisonnable, comme l'a dit Rav Adda bar Ahava 
 Rabbi Yehuda HaNasi <b>leur a dit : Voici ce que je dis : </b> La <b>première</b> fille à se marier <b>prend un dixième de la succession;</b> la <b>seconde</b> prend un dixième <b>de ce que</b> la première <b>laissait,</b> plutôt qu'un dixième de la succession initiale ; <b>et</b> la <b>troisième</b> prend un dixième <b>de ce que</b> la deuxième <b>laisse ; et puis ils</b> plus tard <b>répartissent</b> les portions <b>également,</b> de sorte que chaque fille reçoit le même montant. De cette manière, le fils conserve une partie de l'héritage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

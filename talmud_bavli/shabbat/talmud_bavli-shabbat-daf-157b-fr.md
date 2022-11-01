@@ -6,4 +6,4 @@
 La mishna conclut : <b>Et de leurs déclarations</b> et de leurs actions, <b>on a déduit qu'on peut sceller</b> une fenêtre, <b>et mesurer, et faire</b> un nœud <b>pendant Chabbat.</b> La Gemara relate : <b>Ulla arriva</b> à venir <b>dans la maison de l'Exilarque. Il vit Rabba bar Rav Huna assis dans une baignoire [<i>avna</i>] d'eau et la mesurant.</b> Il <b>dit à</b> Rabba bar Rav Huna : <b>Dis que les Sages ont dit</b> qu'il est permis de mesurer le Chabbat uniquement <b>une mesure pour une mitsva.</b> Cependant, en ce qui concerne une mesure comme celle-ci, <b>qui n'est pas</b> pour <b>une mitsva, ont-ils dit</b> que c'est permis ? Rabba bar Rav Huna <b>lui a dit : Je ne fais qu'agir à l'insu</b> et ne suis pas du tout intéressé par les mesures. Par conséquent, ce n'est pas interdit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

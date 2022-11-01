@@ -66,4 +66,4 @@ La Gemara relate : <b>Un certain hérétique dit à Rabbi Yishmael, fils de Rabb
 La Guemara commente : C'est <b>comme l'a dit Rabbi Yoḥanan : Lorsque Rabbi Meir donnait son cours, il exposait un tiers de <i>halakha</i>, un tiers de <i>aggada</i>,</b> et <b>un tiers de paraboles. Et Rabbi Yoḥanan dit : Rabbi Meir avait,</b> c'est-à-dire enseignait, <b>trois cents paraboles de renards, et nous n'en avons que trois.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

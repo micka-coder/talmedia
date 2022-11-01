@@ -97,4 +97,4 @@
 <b>Votre pauvreté viendra en flânant</b> Les choses qui vous appauvrissent viendront à vous rapidement.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

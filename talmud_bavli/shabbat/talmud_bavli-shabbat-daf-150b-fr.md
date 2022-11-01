@@ -39,4 +39,4 @@ Nous avons appris dans la mishna : <b>Mais on peut attendre la tombée de la nui
 Nous avons appris dans la mishna : <b>Abba Shaul a énoncé un</b> <b>principe général : </b> En ce qui concerne <b>tout ce qu'il m'est</b> permis de discuter le Chabbat, il m'est permis d'attendre la tombée de la nuit à la limite de la frontière du Chabbat pour en parler. La Guemara soulève un <b>dilemme : à quelle</b> partie de la mishna <b>Abba Shaul's</b> déclaration <b>se réfère-t-elle ? Si on dit</b> qu'elle <b>se rapporte à la première clause</b> de la mishna, qui enseignait : <b>On ne doit pas attendre la tombée de la nuit à la</b> limite du Chabbat pour <b>engager des ouvriers ou apporter des produits,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

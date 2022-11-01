@@ -33,4 +33,4 @@ La Guemara répond : <b>L'une</b> de ces dérivations, à partir du verset "Et p
 La Guemara demande : <b>Et selon Rabbi Meir, qui a dit</b> qu'on <b>est fouetté et qu'on paie</b> dans les cas où on a enfreint un interdit punissable par les deux, <b>pourquoi ai-je</b> besoin de <b>deux dérivations</b> enseignant qu'on ne reçoit pas la peine de mort et qu'on paie ? La Gemara répond : <b>Une</b> dérivation est <b>en ce qui concerne la mort et l'argent,</b> exemptant de paiement celui qui est susceptible d'être exécuté,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

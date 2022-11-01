@@ -72,4 +72,4 @@
 <b>leur acte</b> Heb. עֲלִילוֹתָם, leurs actes.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

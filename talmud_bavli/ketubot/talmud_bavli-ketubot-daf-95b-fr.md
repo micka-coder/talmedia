@@ -39,4 +39,4 @@ Rav Ashi <b>lui a dit : Là,</b> dans le cas où le mari acquiert des droits exc
 <b>Et de même,</b> dans le cas d'une <b>femme créancière,</b> c'est-à-dire une femme qui cherche à récupérer son contrat de mariage sur la succession de son mari, <b>et de deux acheteurs</b> qui lui ont acheté ses biens.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

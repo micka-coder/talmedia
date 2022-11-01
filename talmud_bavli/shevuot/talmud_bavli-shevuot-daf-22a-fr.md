@@ -45,4 +45,4 @@ La Gemara demande : <b>Si c'est le cas,</b> comment le <b>Rabbi Meir a-t-il dit<
 La Guemara demande : Est-ce que c'est <b>pour dire que les Sages soutiennent</b> que les <i>halakhot</b> de <b>mauvais usage</b> des biens consacrés s'étendent <b>aux</b> articles interdits par <b><i>konamot</i> ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Si on dit : <b>Ce pain est consacré, et</b> par la suite <b>le manger,</b> alors <b>soit lui, soit un autre</b> qui l'a mangé, est responsable du <b>mauvais usage</b> d'un bien consacré ; <b>en conséquence,</b> puisque le pain est consacré, <b>il est sujet à rachat.</b> Si on a dit : <b>Ce pain est</b> interdit <b>à moi</b> comme s'il était <b>consacré,</b> c'est-à-dire, il est <i>konam</i> pour moi, puis il l'a mangé, <b>il</b> est responsable du <b>mésusage</b> d'un bien consacré, mais <b>un autre</b> n'est <b>pas</b> responsable du <b>mésusage</b> d'un bien consacré ; <b>en conséquence,</b> puisque le pain n'est pas entièrement consacré, <b>il n'est pas sujet au rachat. </b> C'est <b>la déclaration de Rabbi Meir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

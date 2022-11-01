@@ -60,4 +60,4 @@ La Gemara demande : <b>Ne sont-ils pas plus</b> que dix ? La Gemara répond que 
 La Guemara demande : <b>Quel</b> est le sens de la phrase :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

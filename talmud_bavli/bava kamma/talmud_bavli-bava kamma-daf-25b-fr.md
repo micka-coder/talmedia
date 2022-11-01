@@ -45,4 +45,4 @@ En réponse à cela, <b>Rava dit :</b> Cet avis ne conduit pas à cette conclusi
 La Gemara rejette cette idée : <b>Le verset indique</b> en ce qui concerne le fait de manger ou de piétiner (Exode 22:4) : <b>"Et il a consommé dans le champ d'un autre"</b>, ce qui signifie que la responsabilité de chacun pour cette forme de dommage est limitée aux dommages causés sur la propriété de la partie lésée, mais <b>pas</b> pour les dommages causés <b>dans le domaine public.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

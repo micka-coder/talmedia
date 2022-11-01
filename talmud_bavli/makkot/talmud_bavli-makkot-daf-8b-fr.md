@@ -51,4 +51,4 @@ La Guemara analyse la <i>baraita</i> : <b>Accordé, un esclave et un Samaritain 
 <b>Au contraire, Rav Aḥa bar Ya'akov a dit :</b> Cette <i>baraita</i> ne fait pas référence aux coups de fouet administrés pour avoir maudit ; on est plutôt fouetté dans un cas <b>où</b> un Juif <b>témoigne contre</b> un Samaritain et un Samaritain témoigne contre un Juif <b>et il est rendu témoin conspirateur.</b> La Gemara demande : Cela signifie-t-il que <b>dans la situation correspondante</b> <b>en ce qui concerne</b> un <b>esclave cananéen,</b> un esclave est fouetté dans un cas <b>où</b> il <b>témoigne contre</b> un Juif <b>et a été rendu témoin conspirateur ? Un esclave est-il éligible pour</b> donner un <b>témoignage ? Au contraire, Rav Aḥa, fils de Rav Ika, a dit : De quoi s'agit-il ici ? </b> Le Juif est fouetté à cause d'un esclave et d'un Samaritain, et l'esclave et le Samaritain sont fouettés à cause du Juif dans un cas <b>où l'un a frappé</b> l'autre avec <b>un coup</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

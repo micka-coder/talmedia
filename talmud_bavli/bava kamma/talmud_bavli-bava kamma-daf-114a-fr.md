@@ -87,4 +87,4 @@ La Guemara répond : <b>Ici aussi,</b> lorsque la <i>baraita</i> mentionne un vo
 La Gemara propose une explication alternative : <b>Et si tu veux, dis</b> plutôt que <b>cette <i>baraita</i></b> fait référence à un voleur réel, et <b>elle est</b> écrite conformément à l'opinion de <b>Rabbi</b> Yehuda HaNasi. <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>a dit : Un voleur</b> est <b>comme un brigand.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

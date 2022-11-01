@@ -42,4 +42,4 @@ Les Sages <b>soulevèrent un dilemme devant Rav Ulla : Jusqu'où</b> doit-on all
 <b>Avimi, fils de Rabbi Abbahou, a enseigné : Il y a</b> un type de fils <b>qui nourrit son père de faisans [<i>pasyonei</i>] et</b> pourtant ce comportement <b>le fait sortir du Monde,</b> c'est-à-dire du Monde-à-Venir ; <b>et il y a</b> un <b>qui le fait moudre avec une meule,</b> ce qui est un travail difficile,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

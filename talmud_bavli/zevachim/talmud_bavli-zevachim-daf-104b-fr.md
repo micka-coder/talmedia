@@ -54,4 +54,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> ce <b>que Lévi enseigne</b
 La Gemara clarifie : N'est-il pas <b>évident que nous ne faisons pas abstraction de la majorité de l'animal et</b> au contraire <b>suivre la majorité des membres ? Au contraire,</b> le dilemme de Rabbi Elazar doit être le suivant : Dans un cas <b>où la moitié de</b> l'animal <b>sort</b> de la cour de telle sorte que <b>la majorité de</b> un certain <b>membre</b> est sortie, mais qu'une minorité du membre est restée à l'intérieur, quelle est la <i>halakha</i> ? Est-ce que <b>nous</b> déterminons le statut de <b>cette minorité d'un membre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

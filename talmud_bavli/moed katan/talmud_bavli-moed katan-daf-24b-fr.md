@@ -36,4 +36,4 @@ On raconta que <b>Ravina arriva</b> à venir <b>à</b> la ville de <b>Sura sur l
 <strong>MISHNA :</strong> Les personnes en deuil <b>ne rendent pas</b> leurs vêtements pendant les jours intermédiaires d'une Fête <b>et ne retirent pas</b> leurs vêtements de leurs épaules. <b>Et</b> les autres <b>ne leur fournissent pas de repas [<i>mavrin</i>]</b> après l'enterrement, <b>sauf pour les proches parents du défunt. Et</b> les consolateurs <b>fournissent le</b> premier <b>repas</b> après l'enterrement <b>uniquement</b> pendant que la personne en deuil est assise <b>sur un lit droit,</b> et non sur un lit renversé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

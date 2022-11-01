@@ -30,4 +30,4 @@ La Gemara propose une réponse alternative. <b>Si vous le souhaitez, dites</b> �
 La Guemara revient pour discuter de la déclaration du Rav : En ce qui concerne <b>la</b> question <b>en soi, Rav dit</b> que <b>on ne peut pas établir</b> la <b>présomption</b> de propriété <b>en ce qui concerne les biens d'une femme mariée,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

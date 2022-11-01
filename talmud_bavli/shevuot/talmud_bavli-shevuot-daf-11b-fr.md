@@ -36,4 +36,4 @@ Abaye explique l'objection apportée par la mishna : <b>Mais</b> selon Rabba, <b
 La Guemara demande : <b>Et les rabbins qui ne sont pas d'accord avec Rabbi Shimon</b> et soutiennent que le tribunal fait de telles stipulations, <b>qui sont-ils ?</b> Où leur opinion est-elle enregistrée ? <b>Si nous disons</b> qu'ils sont <b>les Sages</b> qui ont statué, dans la mishna citée plus haut (<i>Shekalim</i> 4:5), <b>en ce qui concerne</b> l'excédent d'<b>encens</b> qu'il peut être racheté,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,7 +48,7 @@ La Guemara répond : <b>Venez</b> et <b>entendez, comme lorsque Ravin est venu</
 <b>Ulla</b> a également <b>dit : Ils soulèvent</b> le <b>dilemme suivant en Occident,</b> Eretz Yisrael : Si <b>un sillon a été soufflé par le vent sur toute sa longueur,</b> adjacent à d'autres champs qui ont été soufflés par le vent, <b>quelle</b> est la <i>halakha</i> ? Est-il considéré comme faisant partie de la catastrophe régionale ? A l'inverse, si <b>un sillon est resté</b> intact <b>sur toute sa longueur, quel est</b> le <i>halakha</i> ? Le sillon restant signifie-t-il que l'ensemble du champ n'est pas considéré comme faisant partie de la catastrophe régionale ? Si <b>un champ en jachère</b> <b>se divise</b> entre les champs cultivés et les champs qui ont été soufflés par le vent, <b>qu'est-ce</b> que le <i>halakha</i> ? Alternativement, s'il y avait un champ de <b>fourrage</b> entre ce champ et les autres qui ont été soufflés par le vent,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Si un <i>zav</i> et une personne rituellement pure <b>sont montés sur un arbre qui a peu de force,</b> qui a tremblé pendant qu'ils y grimpaient, <b>ou</b> s'ils sont montés sur <b>une branche qui a peu de force,</b> la personne rituellement pure est <b>rendue rituellement impure. </b> L'une des façons dont un <i>zav</i> transmet l'impureté est par le mouvement, et ici le <i>zav</i> est considéré comme ayant déplacé la personne pure.
 
@@ -98,4 +98,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez, comme lorsque Ravin est venu</
 <b>Ulla</b> a également <b>dit : Ils soulèvent</b> le <b>dilemme suivant en Occident,</b> Eretz Yisrael : Si <b>un sillon a été soufflé par le vent sur toute sa longueur,</b> adjacent à d'autres champs qui ont été soufflés par le vent, <b>quelle</b> est la <i>halakha</i> ? Est-il considéré comme faisant partie de la catastrophe régionale ? A l'inverse, si <b>un sillon est resté</b> intact <b>sur toute sa longueur, quel est</b> le <i>halakha</i> ? Le sillon restant signifie-t-il que l'ensemble du champ n'est pas considéré comme faisant partie de la catastrophe régionale ? Si <b>un champ en jachère</b> <b>se divise</b> entre les champs cultivés et les champs qui ont été soufflés par le vent, <b>qu'est-ce</b> que le <i>halakha</i> ? Alternativement, s'il y avait un champ de <b>fourrage</b> entre ce champ et les autres qui ont été soufflés par le vent,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -23,5 +23,5 @@ Les membres ou les morceaux de chair qui pendent d'un animal [vivant] sont susce
 ### michna 8
 Un membre ou un morceau de chair qui pend d'une personne sont purs. Si l'homme est mort, la chair est pure, le membre est impur comme un membre détaché du corps vivant mais n'est pas impur comme un membre détaché d'un cadavre, paroles de Rabbi Meir. Rabbi Shimon le déclare pur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

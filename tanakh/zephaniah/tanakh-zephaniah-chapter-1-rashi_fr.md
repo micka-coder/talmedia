@@ -60,4 +60,4 @@
 <b>comme du fumier</b> du fumier.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

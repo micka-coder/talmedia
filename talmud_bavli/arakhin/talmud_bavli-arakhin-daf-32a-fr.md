@@ -39,4 +39,4 @@ La Guemara remet en question la déclaration de Rabbi Meir : <b>Mais n'est-il pa
 § La mishna enseigne : <b>Et voici les maisons des villes fortifiées:</b> L'ancien fort de Tzippori, et la forteresse de Gush Ḥalav, et l'ancien Yodfat, et Gamla, et Gedod, et Ḥadid, et Ono, et Jérusalem, et de même d'autres villes similaires. Les Sages <b>enseignaient</b> dans une <i>baraita</i> : <b>Gamla</b> est <b>en Galilée, et Gedod</b> est <b>en Transjordanie, et Ḥadid et Ono et Jérusalem</b> sont <b>en Judée.</b> La Gemara demande : <b>Quelle est</b> la <i>tanna</i> de cette <i>baraita</i> <b>soumission ?</b> S'agit-il des seules villes fortifiées de Galilée, de Transjordanie et de Judée ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

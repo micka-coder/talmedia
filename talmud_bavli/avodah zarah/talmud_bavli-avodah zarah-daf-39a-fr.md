@@ -57,4 +57,4 @@ La Guemara commente : <b>Nous apprenons</b> ici <b>ce que les Sages ont enseign�
 § <b>Rav dit :</b> Les substances représentées par l'acronyme <b><i>ḥet</i>, <i>beit</i>, <i>yod</i>, <i>tav</i> sont interdites</b> si elles ont été déposées chez un Gentil alors qu'elles étaient scellées <b>avec</b> un seul <b>sceau. </b> Ceux représentés par l'acronyme <b><i>ḥet</i>, <i>beit</i>, <i>peh</i>, <i>gimmel</i> sont permis</b> s'ils ont été déposés chez un Gentil alors qu'ils étaient scellés <b>avec un seul sceau.</b> La Gemara développe : <b>Le lait [<i>ḥalav</i>], la viande [<i>basar</i>], le vin [<i>yayin</i>],</b> et la <b>coloration bleu-soleil [<i>tekhelet</i>]</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

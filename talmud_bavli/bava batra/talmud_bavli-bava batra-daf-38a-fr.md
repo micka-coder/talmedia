@@ -21,4 +21,4 @@ L'hypothèse selon laquelle le dépôt d'une protestation serait efficace doit �
 La Guemara répond : Le <i>tanna</i>, en citant spécifiquement un cas où chacun est situé dans une terre différente, <b>nous enseigne ceci :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

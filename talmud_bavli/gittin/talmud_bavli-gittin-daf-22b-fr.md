@@ -21,4 +21,4 @@
 <strong>GEMARA:</strong> La Gemara demande : <b>Mais</b> comment un sourd-muet, un imbécile ou un mineur peuvent-ils écrire un acte de divorce ? <b>Ils ne sont pas</b> halakhiquement <b>compétents,</b> et ils ne sont pas capables de rédiger un acte de divorce avec l'intention qu'il soit pour une femme en particulier. <b>Rav Huna dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,7 +30,7 @@ Si <b>il a donné</b> à la victime du vol <b>le principal</b> valeur de l'objet
 Si le voleur <b>donne</b> à la victime du vol <b>le principal et lui prête</b> un faux <b>serment concernant</b> le paiement supplémentaire d'un <b>cinquième</b>, en affirmant qu'il l'avait déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le vendeur n'est pas obligé de vendre</b> le champ <b>une autre fois,</b> c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire du champ. <b>Mais s'il lui dit :</b> J'achèterai le champ <b>à la condition</b> que vous fournissiez un acte à mon nom, <b>le vendeur est contraint de vendre</b> à nouveau le champ, c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire.
 
@@ -62,7 +62,7 @@ Si <b>il a donné</b> à la victime du vol <b>le principal</b> valeur de l'objet
 Si le voleur <b>donne</b> à la victime du vol <b>le principal et lui prête</b> un faux <b>serment concernant</b> le paiement supplémentaire d'un <b>cinquième</b>, en affirmant qu'il l'avait déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le vendeur n'est pas obligé de vendre</b> le champ <b>une autre fois,</b> c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire du champ. <b>Mais s'il lui dit :</b> J'achèterai le champ <b>à la condition</b> que vous fournissiez un acte à mon nom, <b>le vendeur est contraint de vendre</b> à nouveau le champ, c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire.
 
@@ -94,7 +94,7 @@ Si <b>il a donné</b> à la victime du vol <b>le principal</b> valeur de l'objet
 Si le voleur <b>donne</b> à la victime du vol <b>le principal et lui prête</b> un faux <b>serment concernant</b> le paiement supplémentaire d'un <b>cinquième</b>, en affirmant qu'il l'avait déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le vendeur n'est pas obligé de vendre</b> le champ <b>une autre fois,</b> c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire du champ. <b>Mais s'il lui dit :</b> J'achèterai le champ <b>à la condition</b> que vous fournissiez un acte à mon nom, <b>le vendeur est contraint de vendre</b> à nouveau le champ, c'est-à-dire de fournir à l'acheteur un document le désignant comme propriétaire.
 
@@ -126,4 +126,4 @@ Si <b>il a donné</b> à la victime du vol <b>le principal</b> valeur de l'objet
 Si le voleur <b>donne</b> à la victime du vol <b>le principal et lui prête</b> un faux <b>serment concernant</b> le paiement supplémentaire d'un <b>cinquième</b>, en affirmant qu'il l'avait déjà payé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

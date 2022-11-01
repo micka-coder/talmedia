@@ -89,5 +89,5 @@
 <b>Afin que tu puisses t'installer dans le pays de Gosen.</b> Et c'est [le pays] ce que tu demandes car c'est un pays de pâturage. Et lorsque tu lui diras que tu n'as aucune compétence dans d'autres travaux, il t'éloignera de lui-même et il t'installera là.
 <b>Puisque tout berger est odieux à l'Égypte.</b> Parce qu'ils [les moutons] sont des divinités pour eux. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

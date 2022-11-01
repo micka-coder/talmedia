@@ -18,4 +18,4 @@ La Guemara revient sur <b>la</b> question <b>même : Rav Yosef dit : La <i>halak
 La Gemara répond : <b>Rav Yossef établit</b> cette <i>halakha</i> <b>en ce qui concerne une personne en bonne santé,</b> pas une personne sur son lit de mort. La Guemara demande : <b>Mais il a dit</b> que l'argent devait être rendu <b>aux héritiers de l'expéditeur, et nous maintenons</b> que <b>c'est une mitsva d'accomplir la déclaration du mort,</b> même s'il a émis ces instructions alors qu'il était en bonne santé. La Guemara répond : Emendez la déclaration de Rabbi Shimon HaNasi et <b>enseigner : Rendez</b> l'argent <b>à l'expéditeur,</b> pas à ses héritiers, car cela fait référence à un cas où l'expéditeur n'était pas mort.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

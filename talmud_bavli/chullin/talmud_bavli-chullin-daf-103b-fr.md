@@ -42,4 +42,4 @@ La Guemara explique que Rabbi Elazar connaissait la réponse à sa question, mai
 Rabbi Asi <b>s'est tu et n'a rien dit.</b> Rabbi Elazar <b>lui a dit : Merveille de la génération, n'as-tu pas dit</b> ce cas <b>de nombreuses fois devant Rabbi Yoḥanan, et il t'a dit :</b> Cette personne est responsable <b>parce que sa gorge tire du plaisir d'un <b>boulot d'olives plein ?</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

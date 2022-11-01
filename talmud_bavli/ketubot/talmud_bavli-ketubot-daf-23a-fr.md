@@ -54,7 +54,7 @@ La déclaration du père de Shmuel <b>était "Comme une erreur qui surgit de dev
 La Guemara demande : <b>Mais le père de Shmuel n'a-t-il pas dit : Une fois</b> le tribunal <b>permis</b> à une femme <b>de se marier, même si elle ne s'est pas</b> encore <b>mariée,</b> elle reste permise ? <b>Rav Ashi a dit :</b> La discussion entre Rabbi Ḥanina et Rav Shemen <b>a été énoncée</b> en ce qui concerne les <b>témoins</b> qui ont assisté à leur <b>violation.</b> Dans ce cas, si les témoins venaient au tribunal et témoignaient, même si elle a plusieurs enfants, elle doit quitter le prêtre auquel elle est mariée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara demande : <b>Qu'est-ce qui est différent</b> dans <b>la première clause</b> de la <i>baraita</i> en ce qui concerne les fiançailles, où, si elle en épouse un autre, elle n'a pas besoin de quitter son mari ; <b>et qu'est-ce qui est différent</b> dans <b>la deuxième clause</b> en ce qui concerne le divorce, où, si elle se remarie, elle doit quitter son mari ?
 
@@ -110,4 +110,4 @@ La déclaration du père de Shmuel <b>était "Comme une erreur qui surgit de dev
 La Guemara demande : <b>Mais le père de Shmuel n'a-t-il pas dit : Une fois</b> le tribunal <b>permis</b> à une femme <b>de se marier, même si elle ne s'est pas</b> encore <b>mariée,</b> elle reste permise ? <b>Rav Ashi a dit :</b> La discussion entre Rabbi Ḥanina et Rav Shemen <b>a été énoncée</b> en ce qui concerne les <b>témoins</b> qui ont assisté à leur <b>violation.</b> Dans ce cas, si les témoins venaient au tribunal et témoignaient, même si elle a plusieurs enfants, elle doit quitter le prêtre auquel elle est mariée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

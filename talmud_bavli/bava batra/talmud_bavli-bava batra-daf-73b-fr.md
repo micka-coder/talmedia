@@ -33,4 +33,4 @@
 Cet arabe <b>me dit : Viens, je vais te montrer les morts du désert,</b> c'est-à-dire le peuple juif qui a quitté l'Égypte et qui est mort dans le désert. <b>J'y suis allé</b> et je les ai <b>vus ; ils avaient l'apparence de quelqu'un qui est enivré,</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

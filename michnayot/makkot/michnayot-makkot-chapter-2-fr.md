@@ -23,5 +23,5 @@ Si le procès a été conclu alors qu'il n'y avait pas de grand prêtre [en fonc
 ### michna 8
 Un meurtrier qui se rend dans sa ville de refuge et dont les hommes de cette ville veulent lui faire honneur, doit [refuser] en leur disant : "Je suis un meurtrier". S'ils lui disent : "Néanmoins", il doit accepter d'eux [l'honneur proposé], comme il est dit : Ils avaient l'habitude de payer un loyer aux Lévites, ce sont les paroles de Rabbi Juda. Rabbi Meir dit : "Ils ne leur payaient pas de loyer. "Et [à son retour chez lui], il reprend la fonction qu'il occupait auparavant, ce sont les paroles de Rabbi Meir. Rabbi Juda dit : "Il ne retourne pas à la fonction qu'il occupait auparavant".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

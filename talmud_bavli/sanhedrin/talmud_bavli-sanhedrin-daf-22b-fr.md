@@ -66,4 +66,4 @@ La Gemara demande : <b>Quel</b> est le sens de <b>"ils ne tailleront que leur t�
 Les Sages ont demandé à Rabbi Yehuda HaNasi : <b>Quelle était la coupe de cheveux du Grand Prêtre ? Il leur répondit : Sortez et voyez la coupe de cheveux de ben Elasa,</b> qui était le gendre de Rabbi Yehuda HaNasi, et qui arborait la coiffure du Grand Prêtre. <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>dit : Ce n'est pas pour rien que ben Elasa a déboursé son argent</b> pour ses coupes de cheveux, <b>mais afin de démontrer</b> sur lui-même <b>la coupe de cheveux du Grand Prêtre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

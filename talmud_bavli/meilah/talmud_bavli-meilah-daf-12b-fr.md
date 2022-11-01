@@ -33,4 +33,4 @@ La Guemara note : La <i>baraïta</i> <b>enseigne</b> qu'on <b>ne peut pas tirer 
 <strong>MISHNA : </strong>En ce qui concerne <b>tout objet consacré</b> qui est apte à</b> être sacrifié sur <b>l'autel</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

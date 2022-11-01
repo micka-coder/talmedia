@@ -68,5 +68,5 @@ Ben Bag Bag a dit : Retournez-le, et [encore] retournez-le, car tout y est. Et r
 ### michna 23
 Ben He He a dit : La récompense est à la mesure du travail accompli.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

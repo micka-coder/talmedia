@@ -27,4 +27,4 @@
 <b>O que</b> Alors arrivera le jour où Il donnera de Sion le salut d'Israël dans l'avenir ; alors Jacob se réjouira, Israël se réjouira.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

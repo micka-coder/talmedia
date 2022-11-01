@@ -44,4 +44,4 @@
 <b>et avec ton tourbillon</b> Tourbillon en français, whirlwind.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

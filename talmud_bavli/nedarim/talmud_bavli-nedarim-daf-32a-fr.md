@@ -57,4 +57,4 @@ La Torah précise qu'il emmena <b>"dix-huit et trois cents"</b> (Genèse 14:14) 
 <b>Et Rami bar Abba a dit</b> de manière similaire :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

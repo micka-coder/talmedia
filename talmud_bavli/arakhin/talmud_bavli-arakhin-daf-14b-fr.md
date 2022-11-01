@@ -75,4 +75,4 @@ La Guemara répond : <b>Vous</b> pouvez <b>même dire</b> que la mishna est conf
 <b>Abaye dit à</b> Rav Zeira : <b>Si oui,</b> la même revendication peut être appliquée <b>en ce qui concerne un esclave</b> tué par un bœuf. Les gens <b>vont aussi dire :</b> Est-il logique que <b>un esclave qui perce des perles [<i>margalit</i>]</b> vaille <b>trente</b> <i>sela</i>, et que <b>un esclave qui fait de l'aiguille</b> vaille aussi <b>trente</b> <i>sela</i> ? Néanmoins, la mishna indique clairement qu'il n'y a pas de distinction entre les deux esclaves, car la Torah énonce un paiement fixe. <b>Au contraire, Rav Zeira dit</b> qu'il existe une preuve différente :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

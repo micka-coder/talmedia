@@ -82,5 +82,5 @@
 ### passuk 23
 <b>Besueil a engendré Rivkah.</b> Toutes ces lignées familiales ont été écrites uniquement pour ce verset. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

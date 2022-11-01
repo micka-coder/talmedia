@@ -63,4 +63,4 @@ Un Sage <b>a enseigné au nom de Rabbi Neḥemya:</b> "Le travail d'un <b>brodeu
 <b>Rav Adda bar Ahava a soulevé une objection, et certains la disent non attribuée :</b> Il est enseigné dans une <i>baraita</i> : On <b>pourrait</b> avoir pensé que <b>le fils du prêtre oint pour la guerre sert à sa place,</b> c'est-à-dire qu'il hérite de la fonction, <b>de la même manière que le fils d'un Grand Prêtre sert à sa place</b> s'il est apte à la fonction ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

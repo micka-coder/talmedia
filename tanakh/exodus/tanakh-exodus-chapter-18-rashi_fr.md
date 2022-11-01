@@ -111,5 +111,5 @@
 ### passuk 27
 <b>Et il s'en alla dans son pays -</b> dans le but de convertir sa famille.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

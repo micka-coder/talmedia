@@ -72,4 +72,4 @@ Rabbi Shimon ben Yoḥai <b>dit à son fils : Ces</b> deux <b>personnes,</b> Rab
 Ils ont expliqué que ce n'est <b>pas difficile : Ici,</b> dans le premier verset cité plus haut, il est question d'une <b>mitzva qui peut être faite par d'autres,</b> et donc on doit considérer ce qui vaut le plus la peine qu'il l'accomplisse lui-même et ce qu'il laissera aux autres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

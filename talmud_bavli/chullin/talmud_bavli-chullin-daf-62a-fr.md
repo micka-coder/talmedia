@@ -27,4 +27,4 @@ La Guemara demande : <b>Accordé, selon celui qui dit</b> que <b>ils ne sont pas
 § <b>Raḥava dit</b> que <b>Rabbi Yehuda dit :</b> Un jeune <b><i>tasil</i>,</b> qui est semblable à une colombe, est <b>inapte</b> au sacrifice <b>comme une colombe,</b> qui n'est apte que lorsqu'elle est mature, <b>mais</b> il est <b>apte</b> au sacrifice <b>comme un pigeon,</b> qui n'est apte que lorsqu'il est immature. En d'autres termes, le <i>tasil</i> est considéré comme un type de pigeon, et non comme une colombe. Un oiseau <b><i>datzifi</i></b> mature, <b>et</b> <b>des colombes de Reḥava matures, sont aptes comme colombes, mais sont inaptes comme pigeons,</b> puisqu'ils sont des types de colombes. <b>Rav Daniel bar Rav Ketina soulève une objection</b> à partir d'une mishna (<i>Para</i> 9:3) : <b>Tous les oiseaux</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

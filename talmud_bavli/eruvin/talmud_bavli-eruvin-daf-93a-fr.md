@@ -51,4 +51,4 @@ Ces dilemmes ont été essentiellement laissés en suspens, <b>mais</b> le <b><i
 <b>Rav Ḥisda a dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

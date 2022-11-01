@@ -29,5 +29,5 @@ Les matériaux feutrés [peuvent être] interdits à cause des kilayim, car ils 
 ### michna 10
 Les marques de tisserand" ou de blanchisseur [peuvent être] interdites à cause des kilayim. Celui qui colle un fil [à travers un matériau], cela ne constitue pas un lien, et [l'interdiction de] kilayim ne s'applique pas non plus et celui qui dénoue [un tel lien] le Chabbat est exempt. Si l'un des fils fait sortir ses deux extrémités du même côté [du matériau], cela constitue une connexion, et cela tombe sous l'interdiction des kilayim, et celui qui dénoue une telle connexion pendant Chabbat est responsable. Rabbi Judah a dit : [l'interdiction ne s'applique pas] jusqu'à ce que l'on ait fait trois points de couture. Un sac et un panier [l'un ayant une bande de laine attachée à lui, et l'autre une bande de lin] se combinent pour former des kilayim.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

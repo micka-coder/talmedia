@@ -51,4 +51,4 @@ La Guemara demande : <b>Accordé, selon Reish Lakish, c'est</b> le différend <b
 La Guemara demande : <b>Et</b> est-ce que celui qui est revenu sur <b>une déclaration</b> d'engagement <b>est soumis</b> à la malédiction : <b>Mais</b> les Sages ont dit : Celui qui a exigé le paiement ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -74,4 +74,4 @@
 <b>Et je saisirai</b> [Héb. וְהֲחֲזַּקְתִּי,] une expression de saisie, que l'on saisit sa main pour la soutenir afin qu'elle ne tombe pas. La fin du texte le prouve : "et les bras de Pharaon tomberont", parce qu'Il ne les tient pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

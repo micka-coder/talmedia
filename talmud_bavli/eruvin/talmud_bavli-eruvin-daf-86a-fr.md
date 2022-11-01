@@ -48,4 +48,4 @@ Abaye <b>lui a dit : N'as-tu pas entendu ce que Rav Yehuda a dit</b> que <b>Rav 
 <b>Mais</b> la Guemara soulève une autre question. <b>Rav Yehouda dit :</b> S'il existe une <b>poutre transversale de quatre</b> centimètres, elle <b>permet</b> de porter en dessous <b>dans une ruine.</b> Si une poutre transversale de quatre centimètres de large est posée en travers des murs d'une ruine, ses bords sont considérés comme s'ils descendaient jusqu'au sol de chaque côté, formant ainsi des cloisons qui permettent de porter sous la poutre transversale. <b>Et Rav Naḥman dit</b> que <b>Rabba bar Avuh a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

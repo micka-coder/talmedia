@@ -26,7 +26,7 @@
 <b>Il pensait que je le récompenserais pour ses bonnes nouvelles.</b> Il pensait me faire plaisir afin que je le récompense pour ses bonnes nouvelles.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -54,4 +54,4 @@
 <b>Il pensait que je le récompenserais pour ses bonnes nouvelles.</b> Il pensait me faire plaisir afin que je le récompense pour ses bonnes nouvelles.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

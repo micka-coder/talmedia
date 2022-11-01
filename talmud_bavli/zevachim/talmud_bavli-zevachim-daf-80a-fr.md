@@ -45,4 +45,4 @@ La Guemara clarifie : <b>Accordé,</b> on peut comprendre pourquoi <b>les rabbin
 La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> contre l'opinion de Reish Lakish selon laquelle Rabbi Eliezer considère que l'aspersion nécessite une mesure minimale. <b>Rabbi</b> Yehuda HaNasi <b>dit : Selon la déclaration de Rabbi Eliezer</b> que si le prêtre effectue deux aspersions, le rituel de purification est valide, <b>une aspersion de n'importe quelle quantité rend</b> la personne impure <b>rituellement pure,</b> car <b>l'aspersion ne nécessite pas</b> une <b>mesure minimale,</b> et même <b>une aspersion</b> qui contient <b>une moitié d'eau apte</b> <b>et une moitié d'eau impropre</b> rend l'individu rituellement pur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

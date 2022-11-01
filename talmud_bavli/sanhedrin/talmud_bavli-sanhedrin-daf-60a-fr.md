@@ -75,4 +75,4 @@ La Guemara clarifie : <b>De qui</b> entend-on ces mentions du nom de Dieu au suj
 La mishna enseigne : <b>Et le troisième</b> témoin <b>dit : moi aussi</b> j'ai entendu <b>comme lui</b>. La Guemara commente : La <b>tanna</b> <i>non attribuée</b> de la mishna tient <b>conformément</b> à l'opinion de <b>Rabbi Akiva, qui compare trois</b> témoins <b>à deux. </b> Rabbi Akiva soutient que de même que dans un cas où il y a deux témoins, la disqualification de l'un disqualifie tout le témoignage, de même, même s'il y a trois témoins, et que l'un des trois est disqualifié, tout le témoignage est disqualifié. De même, ici aussi, il soutient que s'il y a trois témoins, chacun d'eux doit témoigner concernant la malédiction.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

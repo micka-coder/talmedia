@@ -48,4 +48,4 @@ La Guemara précise que <b>cela ne s'applique</b> que si l'oiseau est <b>brut ; 
 <b>Rav a dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

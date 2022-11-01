@@ -33,4 +33,4 @@ La Guemara rejette cet argument : La raison pour laquelle la mishna mentionne l'
 <b>Et certains disent</b> une version différente de l'objection de Rabbi Zeira : <b>Rabbi Zeira s'oppose fortement</b> à la déclaration de Rabbi Yoḥanan' selon laquelle un non-prêtre qui a arrangé le tas de bois encourt la peine de mort : <b>Et avez-vous un service qui n'est</b> pas complet en soi mais qui est <b>suivi d'un autre service,</b> tel que l'arrangement des deux log, <b>et</b> pourtant est <b>invalide</b> et est punissable de mort s'il est accompli <b>par un non-prêtre ?</b> Il a été enseigné plus tôt dans le chapitre qu'un non-prêtre n'encourt la peine de mort que pour avoir accompli un service qui est complet, c'est-à-dire, un service qui n'est pas suivi d'autres services qui complètent la tâche accomplie.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

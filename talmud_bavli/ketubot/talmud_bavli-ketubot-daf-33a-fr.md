@@ -30,4 +30,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si on n
 <b>Rav Ashi</b> s'oppose fermement à cette <b>preuve</b>. Tout d'abord, en ce qui concerne votre hypothèse initiale, <b>d'où</b> constatez-vous <b>que celui qui est prévenu en ce qui concerne une affaire grave est prévenu en ce qui concerne une affaire moins grave ? Peut-être n'est-il pas</b> considéré comme prévenu en ce qui concerne la question moins grave. En outre, même <b>si vous dites</b> que l'on <b>est</b> en fait prévenu en ce qui concerne un sujet moins grave, <b>d'où</b> pouvez-vous établir <b>que</b> la <b>peine de mort</b> est une punition plus <b>sévère</b> que les coups de fouet ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

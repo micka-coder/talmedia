@@ -57,4 +57,4 @@ Rava conclut : La première preuve citée par <b>Rabbi Yosei</b> était que si l
 <strong>GEMARA:</strong> La mishna cite un désaccord entre Rabbi Meir et les rabbins sur la question de savoir si les grains d'orge étaient d'abord chantés alors qu'ils étaient dans leurs tiges ou seulement après avoir été battus et retirés de leurs tiges, lorsqu'ils étaient placés dans un récipient creux. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> à propos du verset : "Et si tu apportes à l'Eternel une offrande de prémices, tu apporteras pour l'offrande de tes prémices du grain dans l'épi séché au feu, même des gruaux de l'épi frais" (Lévitique 2:14). <b>"Grain en épi" ; il s'agit</b> d'une référence au <b>grain,</b> c'est-à-dire au grain d'orge. <b>"Blanchi [<i>kalui</i>] au feu";</b> ceci <b>enseigne que le peuple juif le brûlait au feu, afin d'accomplir la mitsva d'apporter du <b>grain blanchi</b>. C'est <b>la déclaration de Rabbi Meir. Et les rabbins disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

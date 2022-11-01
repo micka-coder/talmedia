@@ -21,4 +21,4 @@ La Gemara explique la preuve : <b>Quoi, ne fait-elle pas référence</b> au cas 
 Cependant, <b>apprenez de</b> cette <i>baraita</i> que, selon Rabbi Eliezer, les vœux annulés par le mari dès le départ <b>ne prennent pas du tout effet</b>, car l'objection des rabbins présume que selon Rabbi Eliezer, les vœux ne prennent pas du tout effet. Leur argument est basé sur l'analogie entre l'annulation préemptive et la prévention préemptive de l'impureté. La prévention préventive de l'impureté consiste à empêcher un objet de devenir impur et, par analogie, l'annulation préventive consiste à empêcher un vœu de prendre effet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

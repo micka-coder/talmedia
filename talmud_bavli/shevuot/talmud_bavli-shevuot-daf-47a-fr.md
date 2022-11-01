@@ -39,4 +39,4 @@ Le fait que le terme : <b>Nos Sages en Eretz Yisrael,</b> fait référence à <b
 <b>Au contraire, n'est-ce pas que</b> le fils du prêteur <b>a dit au</b> fils de l'emprunteur : <b>Ce sont cent dinars</b> qui appartenaient à <b>mon père</b> qui sont restés <b>en possession de ton père,</b> et tu dois me rembourser, et le fils de l'emprunteur lui <b>dit :</b> En ce qui concerne les <b>cinquante</b> dinars, <b>je sais</b> que mon père les devait, <b>mais je ne sais</b> rien sur les autres <b>cinquante</b> dinars.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

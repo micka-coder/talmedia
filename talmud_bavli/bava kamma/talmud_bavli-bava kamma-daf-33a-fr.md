@@ -69,4 +69,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> les d
 <b>Rava demande à Rav Naḥman :</b> Si <b>le responsable du dommage a vendu</b> le bœuf, <b>qu'est-ce que</b> la <i>halakha</i> <b>selon Rabbi Yishmael ? </b> Est-ce que <b>puisque Rabbi Yishmael dit</b> que la partie lésée <b>est</b> considérée comme <b>un créancier, et que c'est</b> simplement <b>de l'argent qu'il lui réclame, il est vendu ? Ou peut-être</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

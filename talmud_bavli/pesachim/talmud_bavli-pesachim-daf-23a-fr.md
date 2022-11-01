@@ -51,4 +51,4 @@ La Guemara suggère : <b>Disons</b> que cette dispute entre Ḥizkiya et Rabbi A
 La Guemara explique leur différend : <b>Rabbi Yosei HaGelili</b> soutient que <b>en ce qui concerne la pureté et l'impureté, aucun verset n'est nécessaire,</b> car il n'y a aucune raison de supposer que la graisse d'une carcasse animale est impure. <b>Le verset est nécessaire pour</b> établir le statut <b>interdit ou permis</b> de cette graisse. <b>Et Rabbi Akiva</b> soutient que pour enseigner si cette graisse est <b>interdite ou permise, aucun <b>verset séparé n'est nécessaire ; il est nécessaire</b> d'établir son statut par rapport à <b>la pureté ou l'impureté rituelle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

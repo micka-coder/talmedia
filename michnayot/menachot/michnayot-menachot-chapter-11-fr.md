@@ -26,5 +26,5 @@ S'il a disposé les pains de proposition le Chabbat et les plats [d'encens] le l
 ### michna 9
 Les deux pains n'ont jamais été mangés plus tôt que le deuxième jour et jamais plus tard que le troisième jour. Comment cela ? Normalement, ils étaient cuits la veille de la fête et mangés le jour de la fête, c'est-à-dire le deuxième jour. Si la fête tombait le lendemain de Chabbat, ils étaient consommés le troisième jour. Les pains de proposition étaient consommés au plus tôt le neuvième jour et au plus tard le onzième jour. Comment cela ? Normalement, ils étaient cuits la veille du Chabbat et mangés le Chabbat [de la semaine suivante], c'est-à-dire le neuvième jour. Si une fête tombait la veille de Chabbat, il était mangé le dixième jour. Si les deux jours de Rosh Hashanah [tombaient avant Chabbat], il serait alors mangé le onzième jour. La cuisson] n'a pas d'incidence sur le Chabbat ni sur la fête. Rabban Shimon ben Gamaliel dit, au nom de Rabbi Shimon, fils du député [grand prêtre] : elle passe outre la fête mais pas le jour de jeûne (Yom Kippour).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

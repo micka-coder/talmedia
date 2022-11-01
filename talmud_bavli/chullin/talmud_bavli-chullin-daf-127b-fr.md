@@ -63,4 +63,4 @@ Un <b>Sage,</b> Rabbi Meir, <b>soutient</b> que bien que si l'on <b>grippe</b> e
 On peut <b>élever une contradiction</b> à cette affirmation à partir d'une mishna (<i>Tevul Yom</i> 3:1) : En ce qui concerne un morceau de <b>aliment qui a été tranché</b> d'un plus grand morceau d'aliment <b>et</b> reste <b>partiellement relié</b> au plus grand morceau, l'ensemble est considéré comme un seul et même élément en ce qui concerne l'impureté. Si celui qui était auparavant rituellement impur et qui s'est immergé ce jour-là et attend la tombée de la nuit pour que le processus de purification soit achevé a touché l'un ou l'autre des morceaux de l'article, l'article entier devient impur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

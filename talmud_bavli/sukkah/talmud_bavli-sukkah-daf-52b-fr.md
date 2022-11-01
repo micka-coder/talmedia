@@ -51,4 +51,4 @@ La Gemara demande : En <b>quel</b> sens ces jeunes prêtres étaient-ils <b>sup�
 § La mishna poursuit : <b>Et il n'y avait pas une cour à Jérusalem</b> qui n'était pas éclairée par la lumière du lieu du puisage de l'eau. L'un des Sages <b>a enseigné :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

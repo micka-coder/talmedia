@@ -99,7 +99,7 @@ La Guemara développe la déclaration de Rabbi Yehuda HaNasi : <b>Yosef Ḥeifan
 § Rabbi Yehuda HaNasi <b>a dit</b> encore <b>à</b> ses accompagnateurs : <b>J'ai besoin des Sages d'Israël. Les Sages d'Israël entrèrent dans sa</b> chambre. <b>Il leur dit : Ne faites pas mon éloge dans les</b> petites <b>villes</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Quel est le but de l'accentuation</b> : <b>A l'endroit où vit sa mère</b> ? <b>Conclure d'ici</b> qu'une <b>fille</b> vit <b>avec</b> sa <b>mère;</b> il n'en est <b>pas autrement</b> si elle est <b>une femme majeure, et</b> il n'en est <b>pas autrement</b> si elle est <b>une fille mineure.</b>
 
@@ -200,4 +200,4 @@ La Guemara développe la déclaration de Rabbi Yehuda HaNasi : <b>Yosef Ḥeifan
 § Rabbi Yehuda HaNasi <b>a dit</b> encore <b>à</b> ses accompagnateurs : <b>J'ai besoin des Sages d'Israël. Les Sages d'Israël entrèrent dans sa</b> chambre. <b>Il leur dit : Ne faites pas mon éloge dans les</b> petites <b>villes</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

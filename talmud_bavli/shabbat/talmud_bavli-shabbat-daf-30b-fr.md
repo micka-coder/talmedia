@@ -36,4 +36,4 @@ La Guemara relate comment les Sages se sont conduits dans ces deux circonstances
 Puisque la Guemara a discuté de l'indulgence des Sages, qui gardent le silence face à des commentaires insensés, elle cite d'autres exemples pertinents. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Une personne doit toujours être patiente comme Hillel et non impatiente comme Shammai.</b> La Gemara relate : Il y eut <b>un incident</b> impliquant <b>deux personnes</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

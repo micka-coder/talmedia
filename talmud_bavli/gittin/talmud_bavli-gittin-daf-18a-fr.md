@@ -48,4 +48,4 @@ La Gemara demande : <b>Devons-nous dire qu'il tient conformément</b> à l'opini
 <b>Reish Lakish dit : Rabbi Shimon juge</b> un tel acte de divorce <b>valide seulement</b> s'il est signé <b>immédiatement,</b> alors que les témoins ont signé l'acte de divorce pendant la nuit après qu'il ait été écrit. <b>Cependant,</b> si le retard dans la signature était <b>depuis maintenant,</b> c'est-à-dire lorsque l'acte de divorce a été écrit, <b>jusqu'à ce que dix jours</b> se soient écoulés, c'est-à-dire lorsqu'il y a un retard prolongé, il ne <b>pas</b> le considérer comme valide.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

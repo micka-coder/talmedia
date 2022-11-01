@@ -60,4 +60,4 @@ Il a été enseigné dans la mishna que les Babyloniens disaient : <b>Prenez</b>
 <strong>MISHNA :</strong> Des gens <b>parmi </b> les résidents éminents</b> de Jérusalem escortaient</b> celui qui conduisait le bouc <b>jusqu'à ce qu'ils atteignent <b>la première cabine.</b> Des cabines étaient installées le long du chemin vers le désert pour fournir à l'escorte un endroit où se reposer. Il y avait <b>dix cabines de Jérusalem à la falaise,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

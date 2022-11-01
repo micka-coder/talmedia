@@ -63,4 +63,4 @@ Par conséquent, si la Torah n'enseignait pas qu'une servante hébraïque quitte
 <b>Au contraire, Mar bar Rav Ashi dit :</b> Ce verset <b>n'est nécessaire qu'en ce qui concerne la <b>halakha</i> fondamentale de la <b>vente d'une <i>ailonit</i></b> comme servante hébraïque. Comme il pourrait <b>entrer dans votre esprit de dire que</b> si une femelle <b>présentera</b> les <b>signes d'une jeune femme,</b> c'est-à-dire, puberté, sa vente <b>est</b> une <b>vente valide, alors que dans un cas <b>où</b> elle <b>ne montrera pas</b> les <b>signes d'une jeune femme, sa vente n'est pas</b> une <b>vente valide.</b> La raison pour laquelle on pourrait penser que c'est le cas est que si la servante s'avère être une <i>ailonit</i>, on ne peut pas remplir les exigences du verset, car elle ne deviendra jamais une jeune femme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

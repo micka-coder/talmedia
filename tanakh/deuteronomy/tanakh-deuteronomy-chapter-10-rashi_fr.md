@@ -64,5 +64,5 @@
 ### passuk 20
 <b>Craignez Hachem votre Dieu.</b> Servez-le et attachez-vous à lui. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Après avoir acquis tous ces attributs, il faut ensuite " jurer en Son Nom ". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

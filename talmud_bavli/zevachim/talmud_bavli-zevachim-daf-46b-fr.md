@@ -54,4 +54,4 @@ Le terme <b>"agréable"</b> signifie <b>en vue de plaire</b> à l'<b>esprit de D
 <b>Rabbi Elazar dit :</b> En effet, <b>une offrande pour le péché que l'on</b> a intentionnellement <b>abattue pour l'amour d'un animal non sacré</b> est <b>valide,</b> comme le dit Rav. Mais s'il l'a abattu <b>comme un animal non sacré</b>, en pensant réellement qu'il était non sacré, il est <b>disqualifié,</b> car lorsqu'il l'a abattu, il n'avait pas l'intention d'accomplir un rite sacrificiel. Ceci est <b>comme le dilemme que Shmuel a soulevé devant Rav Huna :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

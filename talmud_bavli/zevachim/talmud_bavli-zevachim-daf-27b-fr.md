@@ -48,4 +48,4 @@ Mais si on avait l'intention <b>d'asperger son sang le lendemain</b> ou <b>une p
 <strong>GEMARA : </strong>Les étudiants ont <b>assumé</b> que <b>la peau de la queue</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

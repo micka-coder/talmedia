@@ -48,4 +48,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une autre mishna (<i>Ketub
 <b>Rav Natan bar Hoshaya soulève une objection</b> d'une <i>baraita</i> : Parfois <b>le pouvoir du fils est plus grand que le pouvoir du père,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

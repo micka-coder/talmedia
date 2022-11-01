@@ -57,4 +57,4 @@ La Gemara demande : <b>Que</b> signifie <b><i>tevonehu</i> ? Rav Ashi répond :<
 <b>Abaye dit : Et</b> on agit <b>similairement</b> avant de placer la viande <b>dans une marmite.</b> Si l'on souhaite faire cuire une viande et que l'on a besoin de la saler pour en extraire le sang, il suffit d'appliquer du sel sur les deux côtés et de la laisser reposer jusqu'à l'écoulement du sang. Ensuite, après avoir été lavée, la viande est prête à être cuite et consommée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

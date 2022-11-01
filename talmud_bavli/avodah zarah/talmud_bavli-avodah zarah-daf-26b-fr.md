@@ -39,4 +39,4 @@ La Guemara demande : <b>Et Rabbi Yehouda soutient-il</b> qu'il est <b>permis</b>
 <b>Au contraire,</b> suggère la Guemara, <b>en fait ne l'inversez pas.</b> Quant à l'apparente contradiction entre les deux déclarations de Rabbi Meir, la Guemara explique : <b>Et de quoi s'agit-il ici ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

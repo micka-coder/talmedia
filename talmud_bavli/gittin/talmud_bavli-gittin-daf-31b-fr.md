@@ -45,4 +45,4 @@ La Guemara relate également que <b>Rava et Rav Naḥman bar Yitzḥak étaient 
 <b>Rava dit : Ce</b> Sage <b>est issu des sourates, car elles sont précises</b> avec les <b>versets.</b> La Gemara demande : <b>Quoi</b> est la signification de : <b>"Bien qu'il soit fécond [<i>yafri</i>] parmi les plantes de roseau" ? Rava dit : Même</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

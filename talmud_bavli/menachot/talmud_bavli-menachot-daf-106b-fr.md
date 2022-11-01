@@ -66,7 +66,7 @@ La Guemara demande : <b>Et n'y a-t-il rien d'autre</b> qui soit entièrement sac
 La Gemara demande : <b>Mais n'y a-t-il pas un holocauste d'oiseau,</b> qui est entièrement brûlé sur l'autel, y compris sa peau ? La Gemara répond : <b>Il y a</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais peut-être</b> le vœu était d'apporter soixante dixièmes d'un épha, auquel cas <b>l'intégralité</b> de l'offrande de repas <b>est</b> nécessaire pour remplir l'<b>obligation.</b> Par conséquent, seule une poignée peut être retirée, et tout le reste est considéré comme le reliquat. <b>Et</b> il existe un principe : <b>Tout ce qui est partiellement</b> brûlé <b>dans le feu</b> sur l'autel <b>est soumis</b> à l'interdiction de : <b>Vous ne pouvez pas en faire une offrande</b> (voir Lévitique 2:11). Ce principe stipule que si une partie d'un objet, comme le sang d'une offrande d'animal ou la poignée d'une offrande de repas, a été sacrifiée, celui qui en sacrifie une autre partie non destinée au sacrifice a enfreint une interdiction. Dans ce cas, la deuxième poignée est considérée comme faisant partie du reste de l'offrande de repas, et il est interdit de la brûler.
 
@@ -134,7 +134,7 @@ La Guemara demande : <b>Et n'y a-t-il rien d'autre</b> qui soit entièrement sac
 La Gemara demande : <b>Mais n'y a-t-il pas un holocauste d'oiseau,</b> qui est entièrement brûlé sur l'autel, y compris sa peau ? La Gemara répond : <b>Il y a</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Mais peut-être</b> le vœu était d'apporter soixante dixièmes d'un épha, auquel cas <b>l'intégralité</b> de l'offrande de repas <b>est</b> nécessaire pour remplir l'<b>obligation.</b> Par conséquent, seule une poignée peut être retirée, et tout le reste est considéré comme le reliquat. <b>Et</b> il existe un principe : <b>Tout ce qui est partiellement</b> brûlé <b>dans le feu</b> sur l'autel <b>est soumis</b> à l'interdiction de : <b>Vous ne pouvez pas en faire une offrande</b> (voir Lévitique 2:11). Ce principe stipule que si une partie d'un objet, comme le sang d'une offrande d'animal ou la poignée d'une offrande de repas, a été sacrifiée, celui qui en sacrifie une autre partie non destinée au sacrifice a enfreint une interdiction. Dans ce cas, la deuxième poignée est considérée comme faisant partie du reste de l'offrande de repas, et il est interdit de la brûler.
 
@@ -202,4 +202,4 @@ La Guemara demande : <b>Et n'y a-t-il rien d'autre</b> qui soit entièrement sac
 La Gemara demande : <b>Mais n'y a-t-il pas un holocauste d'oiseau,</b> qui est entièrement brûlé sur l'autel, y compris sa peau ? La Gemara répond : <b>Il y a</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

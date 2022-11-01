@@ -60,4 +60,4 @@ La Guemara demande : Pourquoi ne pas <b>dire</b> qu'il s'agit de <b>laine ?</b> 
 La Gemara demande : <b>Quel est le sens de la phrase dans le verset : <b>"Ils ne se ceindront pas de <i>yaza</i>" ? Abaye a dit : Ils ne se ceindront pas dans un endroit</b> dans <b>lequel</b> les gens <b>sudent [<i>mezi'in</i>]. Comme il est enseigné</b> dans une <i>baraita</i> : <b>Lorsqu'ils se ceignent</b> de la ceinture, <b>ils ne doivent pas se ceindre</b> <b>au-dessous des reins ni au-dessus des coudes,</b> mais <b>plutôt</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

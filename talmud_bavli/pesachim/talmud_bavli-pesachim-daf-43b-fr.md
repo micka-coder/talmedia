@@ -45,4 +45,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> Ze'eiri a rendu sa décision ? C
 La Guemara soulève une difficulté : <b>Si oui,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

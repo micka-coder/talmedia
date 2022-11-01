@@ -90,4 +90,4 @@ Rabbi Yehoshua ben Levi a demandé : <b>Le Saint, Béni soit-Il,</b> se réjouit
 <b>Rav Dimi bar Yitzḥak a introduit ce passage par une introduction tirée d'ici :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

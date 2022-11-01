@@ -45,4 +45,4 @@ Rav Ḥisda dit à ces Sages : <b>Cela marche bien selon celui qui dit</b> que l
 <b>Rava dit :</b> La mishna fait référence à un cas <b>où la sœur <b>permet</b> à son frère de la violer et demande qu'il ne soit pas lésé <b>afin qu'il ne la tue pas, et il est</b> enseigné conformément à l'opinion de <b>Rabbi Yehuda,</b> qui dit que dans un tel cas, elle ne doit pas être sauvée au prix de la vie de son frère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

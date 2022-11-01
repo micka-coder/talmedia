@@ -12,4 +12,4 @@
 La Gemara explique : <b>Et nous avons dit</b> cette <i>halakha</i> <b>seulement lorsque</b> l'autre plaideur <b>ne descendait pas</b> au tribunal avec une revendication <b>concernant le produit,</b> et que l'affaire ne traite que de la propriété de la terre elle-même. <b>Mais</b> si <b>il est descendu</b> au tribunal avec une demande <b>concernant le produit,</b> par rapport à laquelle le mari est certainement la partie intéressée, alors <b>puisque</b> le mari <b>parle</b> devant le tribunal <b>de la loi concernant le produit, il</b> aussi <b>parle</b> devant le tribunal <b>de la loi concernant le</b> terrain <b>lui-même,</b> et donc il n'a pas besoin de l'autorisation de sa femme.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

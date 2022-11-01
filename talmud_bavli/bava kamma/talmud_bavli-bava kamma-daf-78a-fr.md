@@ -30,4 +30,4 @@ La Gemara demande : <b>Mais</b> qu'en est-il <b>selon</b> l'avis de <b>Rabbi Ela
 La Guemara s'interroge par rapport au cas qui nous occupe : <b>Mais un animal casher</b> peut-il <b>être fécondé par un animal non casher</b> en premier lieu ? Est-il même possible que cela se produise ? Pourquoi Rabbi Yehoshua et Rava ont-ils dû trouver une source biblique pour considérer cette progéniture comme non cachère ? La Guemara répond : <b>Oui,</b> c'est possible. <b>Comme nous le soutenons</b> ailleurs (<i>Bekhorot</i> 7a).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

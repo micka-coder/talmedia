@@ -70,4 +70,4 @@
 <b>et concernant les prémices</b> qu'ils apporteraient les prémices à un moment déterminé ; pour chaque espèce, j'ai fixé son moment. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

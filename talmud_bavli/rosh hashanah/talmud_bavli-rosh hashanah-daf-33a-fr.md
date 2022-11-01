@@ -27,4 +27,4 @@ La Guemara demande : <b>Cette question elle-même est difficile,</b> c'est-à-di
 La Gemara explique : Ceci n'est <b>pas difficile. Ici,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

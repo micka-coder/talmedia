@@ -96,4 +96,4 @@
 <b>Mais sonder leur honneur est un honneur</b> Mais quand sonder est-il approprié ? Dans les mots des Sages, dont l'honneur est l'honneur : On peut se demander pourquoi ils ont décrété tel ou tel décret, et pourquoi ils ont édicté une garantie dans chaque décret.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

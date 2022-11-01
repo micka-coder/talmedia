@@ -60,4 +60,4 @@ Comme remède <b>pour une fièvre externe, qu'il apporte trois <i>se'a</i></b> d
 Comme remède <b>à une fièvre interne, qu'il apporte sept poignées de feuilles de betterave provenant de sept sillons. Qu'il les fasse cuire avec leur terre et les mange</b>. <b>Et qu'il boive</b> des <b><i>feuilles de betterave</b> mélangées <b>à de la bière ou</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

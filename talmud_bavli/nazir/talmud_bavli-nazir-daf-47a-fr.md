@@ -12,4 +12,4 @@ La Guemara commente : <b>Aussi, il est raisonnable</b> que ce soit le sens de la
 La Guemara cite le reste de la mishna, qui indique également que les <i>tanna'im</i> sont en désaccord en ce qui concerne les offrandes. <b>Et un incident s'est également</b> produit <b>en ce qui concerne Miriam de Tarmod, que le sang d'une</b> de ses offrandes <b>a été aspergé en son nom, et on vint l'avertir que sa fille était mortellement malade. Et elle alla constater</b> que sa fille <b>était morte,</b> et contracta ainsi l'impureté. <b>Et les rabbins ont dit : Qu'elle apporte le reste de ses offrandes et se purifie.</b> La Guemara conclut : En effet, <b>apprenez de</b> la mishna qu'il en est ainsi.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

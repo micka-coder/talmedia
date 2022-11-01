@@ -75,4 +75,4 @@ Rava soulève un autre dilemme basé sur la comparaison entre <i>teruma</i> des 
 § <b>Le Maître a dit</b> dans le <i>baraita</i> : <b>Le verset dit : "Ils seront"</b>, indiquant que chaque pain levé doit provenir d'un dixième d'épha, de sorte que les pains de <i>matza</i> de l'offrande de remerciement sont préparés à partir de dix dixièmes d'épha. La Guemara demande : <b>Quelle est la</b> <b>dérivation biblique</b> de ceci ? Comment cela dérive-t-il de "ils seront" ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La <i>baraita</i> continue : C'est <b>parce que son divorce était un divorce à
 Le <i>baraita</i> poursuit : <b>Dans quel</b> cas <b>cette déclaration est-elle dite ? Lorsqu'il a divorcé d'elle alors qu'elle était</b> encore <b>une fille mineure et</b> ensuite <b>se remarier avec elle alors qu'elle était</b> encore <b>une fille mineure. Mais</b> si <b>il a divorcé d'elle alors qu'elle était</b> encore <b>une fille mineure, et</b> ensuite <b>se remarier avec elle alors qu'elle était une femme adulte, ou</b> si <b>il s'est remarié avec elle alors qu'elle était</b> encore <b>une fille mineure et qu'elle est devenue une femme adulte</b> tout en étant mariée <b>à lui,</b> le second mariage est contraignant, et elle a le statut de femme mariée à part entière. <b>Et</b> donc, si <b>il est mort, soit elle accomplit <i>ḥalitza</i>, soit elle entre en lévirat</b> comme toute autre veuve.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

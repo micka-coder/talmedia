@@ -60,4 +60,4 @@ La Gemara relate : Il y avait <b>ces Arabes qui sont venus à Tzikuneya,</b> et 
 <strong>MISHNA :</strong> Dans le cas de <b>celui qui abat</b> un animal <b>pour l'amour de,</b> c'est-à-dire pour adorer, <b>des montagnes, pour l'amour des collines, pour l'amour des mers, pour l'amour des rivières,</b> ou <b>pour l'amour des étendues sauvages, son abattage n'est pas valable.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

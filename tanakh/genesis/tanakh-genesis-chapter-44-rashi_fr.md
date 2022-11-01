@@ -88,5 +88,5 @@
 ### passuk 33
 <b>Laisse ton serviteur rester, etc.</b> Je lui suis supérieur à tous égards - en force, pour faire la guerre et pour le service. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

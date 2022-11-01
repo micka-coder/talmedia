@@ -45,4 +45,4 @@ Rav et Shmuel poursuivent : <b>Lorsqu'ils sont en désaccord</b> c'est au sujet 
 A l'inverse, <b>Rabba et Rav Yosef disent tous deux :</b> En ce qui concerne l'entrée par laquelle on entre <b>de la</b> <b>maison au jardin,</b> c'est-à-dire l'entrée entre la guérite et le jardin, <b>tout le monde est d'accord</b> pour dire qu'on est <b>exempté</b> de placer une <i>mezuza</i>. <b>Quelle en est la raison ? C'est</b> l'<b>entrée du jardin,</b> et le jardin ne nécessite pas de <i>mezuza</i>. <b>Lorsqu'ils sont en désaccord</b> c'est par rapport à l'entrée <b>du</b> <b>jardin à la maison,</b> c'est-à-dire l'entrée entre la guérite et la petite pièce. Un <b>Sage,</b> Rabbi Yosei, <b>soutient</b> que <b>c'est</b> la manière d'<b>entrer dans la maison,</b> et la maison nécessite une <i>mezuza</i>, <b>et</b> un <b>Sage,</b> les rabbins, <b>soutiennent</b> que <b>l'ensemble</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

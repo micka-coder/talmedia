@@ -18,4 +18,4 @@ La Gemara demande : <b>Au contraire, je</b> devrais <b>inclure le frère</b> com
 La Gemara commente : <b>La raison</b> qu'un fils est considéré comme un parent plus proche qu'un frère <b>est</b> spécifiquement <b>du fait de cette réfutation,</b> que là où il y a un fils, il n'y a pas de mariage lévirat. Cela indique que <b>sans cette réfutation</b> <b>je dirais</b> que <b>un frère est supérieur</b> à un fils en termes de proximité de parenté. La Gemara demande donc : Pourquoi ne pas <b>dériver</b> qu'un fils est plus proche du défunt qu'un frère....
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

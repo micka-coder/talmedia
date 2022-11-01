@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelle</b> est la différence d'opinion <b>entre</b> le p
 <b>Rava dit : Maintenant que Rabbi Yannai</b> est <b>dire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

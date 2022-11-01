@@ -47,5 +47,5 @@ Un cercueil qui est large en bas et étroit en haut, et qui contient un cadavre 
 ### michna 16
 Une jarre reposant sur son fond à l'air libre : Si un cadavre de la taille d'une olive est placé au-dessous ou à l'intérieur directement [au-dessus] de son fond, l'impureté se fend de haut en bas et la jarre devient impure. Si l'impureté se trouve] à l'extérieur sous un côté [saillant], l'impureté se fend de haut en bas, mais la jarre reste pure. Si l'impureté se trouve] à l'intérieur [de la jarre] et sous les côtés saillants, s'il y a à l'intérieur [de la cavité du] côté un espace d'un tefah [paume] cube, tout [dans la cavité] devient impur, mais ce qui se trouve directement [sous] l'embouchure reste pur. S'il n'y a pas [un espace d'un tefah [paume] cube], l'impureté s'étend de haut en bas. Quand ces règles s'appliquent-elles ? Lorsque la jarre est pure. Si elle était impure, ou si elle était à un tefah [paume] du sol, ou couverte, ou renversée [de manière à se tenir] sur sa bouche, s'il y a une impureté en dessous, à l'intérieur ou au-dessus, tout devient impur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

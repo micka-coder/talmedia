@@ -72,4 +72,4 @@ Les Sages <b>disent : Que</b> signifiait le <i>baraita</i> lorsqu'il disait que 
 La Guemara demande : Mais <b>ce verset</b> n'est-il pas <b>nécessaire</b> pour enseigner une <i>halakha</i> supplémentaire :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

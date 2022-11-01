@@ -87,4 +87,4 @@ Est-ce <b>dire que gracieux et compatissant sont</b> des <b>noms sacrés ?</b> L
 <b>Abaye a dit :</b> Dans <b>la mishna,</b> il est question de celui qui fait un serment ou une malédiction <b>au nom de <b>Chez Celui qui est gracieux,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

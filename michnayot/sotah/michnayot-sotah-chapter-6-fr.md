@@ -11,5 +11,5 @@ Car il aurait été logique : Or, si la première preuve [que la femme s'est ret
 ### michna 4
 Si un témoin dit qu'elle a été souillée et qu'un autre témoin dit qu'elle n'a pas été souillée ; ou si une femme dit [d'elle] qu'elle a été souillée et qu'une autre femme dit qu'elle n'a pas été souillée, elle boit. Si un témoin dit qu'elle a été souillée et que deux disent qu'elle n'a pas été souillée, elle boit. Si deux disent qu'elle a été souillée et un dit qu'elle ne l'a pas été, elle ne boit pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara conclut : <b>Au contraire, Rabbi Yoḥanan</b> est <b>actuellement</b
 La Gemara demande : <b>Et à partir</b> du fait <b>que Rabbi Yoḥanan a dit</b> qu'il est <b>lible,</b> est-il évident que <b>Rabbi Elazar a dit</b> qu'il est <b>exempté ? Mais Rabbi Elazar ne dit-il pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

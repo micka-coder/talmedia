@@ -45,4 +45,4 @@ La Guemara développe : S'il s'était soumis à elle <b>pour coucher avec elle d
 <b>Et voici ce qu'il dira</b> dans sa confession : <b>Je vous en prie, Dieu, j'ai péché, j'ai fait le mal,</b> et <b>je me suis rebellé devant Vous, moi et ma famille. S'il te plaît, Dieu, accorde l'expiation, s'il te plaît, pour les péchés, et pour les torts, et pour les rébellions que j'ai commis, et j'ai fait le mal, et je me suis rebellé devant Toi, moi et ma famille, comme il est écrit dans la Torah de Moïse ton serviteur : <b>Car en ce jour, l'expiation sera faite</b> pour toi, afin de te purifier de tous tes péchés ; tu seras pur devant l'Eternel</b> (Lévitique 16:30). <b>Et</b> les prêtres et le peuple qui étaient dans la cour <b>répondent après qu'il</b> ait récité le nom de Dieu : <b>Béni soit le nom de son glorieux royaume pour toujours et dans tous les temps.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ Avant de poursuivre, la Guemara fournit <b>un moyen mnémotechnique</b> pour la 
 <b>Rav Yehuda a dit que Rav a dit :</b> La mishna fait référence à un cas où les résidents des deux cours ont établi leur <i>eirouv</i> dans <b>la cour extérieure</b>. <b>Et pourquoi l'ont-ils appelé un</b> [<b><i>eḥad</i></b>] <b>lieu ?</b> Parce que c'est un lieu qui est <b>désigné</b> [<b><i>meyuḥad</i></b>] <b>pour</b> les résidents des <b>deux</b> cours, car les membres de la cour intérieure passent aussi par la cour extérieure. Par conséquent, si un membre de la cour extérieure a oublié de contribuer au <i>eirouv</i>, la cour intérieure est également interdite. Puisque le <i>eirouv</i> de la cour intérieure est situé dans la cour extérieure, les résidents de la cour intérieure ne peuvent pas se séparer de la cour extérieure. Cependant, si le <i>eirouv</i> a été déposé dans la cour intérieure et qu'un membre de la cour extérieure a oublié de contribuer au <i>eirouv</i>, il est permis de porter dans la cour intérieure, car dans cette situation, ils peuvent se séparer de la cour extérieure.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

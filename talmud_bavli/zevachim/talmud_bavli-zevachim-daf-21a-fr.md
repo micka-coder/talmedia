@@ -30,4 +30,4 @@ La Gemara répond : <b>Qu'est-ce que cela signifie <b>quand il est dit : Il ne p
 La Gemara demande : <b>Si c'est le cas, c'est</b> la même opinion que celle <b>de Rabbi Ḥiyya bar Yosef,</b> c'est-à-dire que pour les besoins du service de jour, l'eau du bassin est disqualifiée au coucher du soleil, et pour les besoins du service de nuit, elle est disqualifiée à l'aube.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

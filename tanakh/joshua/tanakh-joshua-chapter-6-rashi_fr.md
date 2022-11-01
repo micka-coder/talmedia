@@ -63,4 +63,4 @@
 <b>[La mort de] son premier né etc.</b> [la mort de] son plus jeune fils etc. Lorsqu'il commencera à poser les fondations sur lesquelles il la construit [la ville], son fils premier né mourra et il l'enterrera, et il continuera à le faire<sup>6</sup><i class="footnote">Il continuera à brûler ses fils.</i> jusqu'à ce que le fils cadet meure à l'achèvement de l'œuvre qui est la mise en place de ses portails.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

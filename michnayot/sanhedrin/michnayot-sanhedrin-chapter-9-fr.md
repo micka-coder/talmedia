@@ -17,5 +17,5 @@ Celui qui a été fouetté, puis fouetté à nouveau [pour deux transgressions, 
 ### michna 6
 Si quelqu'un vole le vase sacré appelé "kasvah" (Nombres 4:7), ou maudit le nom d'une idole, ou a des relations sexuelles avec une femme araméenne (non juive), il est puni par des zélateurs. Si un prêtre a accompli le service du temple alors qu'il était impur, ses collègues prêtres ne l'amènent pas au tribunal, mais les jeunes prêtres l'emmènent dans la cour et lui fendent le crâne avec des massues. Un laïc qui a accompli le service dans le Temple : Rabbi Akiva dit : "Il est étranglé." Mais les Sages disent :  "[Sa mort est] de la main du ciel".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

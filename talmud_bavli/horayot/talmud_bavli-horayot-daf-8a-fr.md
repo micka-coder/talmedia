@@ -66,4 +66,4 @@ La Gemara rejette cette idée : <b>Pourquoi</b> dites-vous que le verset qui met
 <b>L'école de Rabbi Yishmael a enseigné</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

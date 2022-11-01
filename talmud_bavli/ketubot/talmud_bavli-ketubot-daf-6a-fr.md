@@ -24,4 +24,4 @@ La Gemara répond : <b>En fait, Rav tient conformément</b> à l'avis de <b>Rabb
 Si, cependant, <b>son temps de voir</b> l'écoulement du sang menstruel <b>est arrivé,</b> car elle a atteint l'âge de la puberté, même si elle n'a pas encore eu ses règles, <b>et qu'elle s'est mariée, Beit Shammai disent : On lui donne la première nuit,</b> pendant laquelle le sang est attribué à la blessure. Par la suite, le sang est présumé être du sang menstruel, et elle est interdite à son mari. <b>Beit Hillel disent : On lui donne</b> du mercredi, jour désigné pour le mariage d'une vierge, <b>jusqu'à la conclusion de Chabbat, quatre nuits.</b> Pendant cette période, tout sang est attribué à la blessure, et elle est permise à son mari.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

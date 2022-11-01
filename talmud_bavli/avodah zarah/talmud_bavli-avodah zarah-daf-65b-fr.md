@@ -33,4 +33,4 @@ Rava se <b>rétracte</b> alors de sa décision et <b>permet de moudre</b> le bl�
 <b>Nous avons appris</b> dans la mishna : Dans le cas d'un <b>vin</b> utilisé pour <b>une libation qui est tombée sur des raisins, on les rince et ils sont autorisés. Mais si</b> les raisins <b>étaient fendus, ils sont interdits.</b> La Gemara en déduit : Si les raisins sont <b>fissurés,</b> ils <b>sont</b> interdits, mais les raisins <b>qui ne sont pas fissurés</b> sont <b>non</b> interdits. Si tel est le cas, quelle est la raison de s'inquiéter dans le cas où le vin s'est répandu sur le blé ? Il devrait être suffisant de rincer le blé. <Le Rav Pappa a dit : Le blé est différent, car, en raison de ses fentes,</b> son statut est <b>similaire</b> à celui du raisin qui est <b>fendu.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -14,5 +14,5 @@ Il disposait ensuite un grand tas sur le côté est de l'autel, avec son côté 
 ### michna 5
 On y choisissait de bonnes branches de figuier pour faire un second feu pour l'encens près de l'angle sud-ouest, à environ quatre coudées au nord de celui-ci, en utilisant autant de bois qu'il jugeait suffisant pour former cinq seahs de charbons, et le Chabbat autant qu'il pensait faire huit seahs de charbons, car c'est de là qu'on prenait le feu pour les deux plats d'encens pour les pains de proposition. Les membres et les morceaux de graisse qui n'avaient pas été consommés pendant la nuit étaient remis sur le bois. Ils allumaient ensuite les deux feux et descendaient pour se rendre dans la chambre de pierre taillée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

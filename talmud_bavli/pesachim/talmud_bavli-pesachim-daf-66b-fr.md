@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne <b>l'agneau pascal lui-même, d
 <b>Au contraire, Rabbi Shimon ben Lakish</b> a rejeté cette preuve et <b>a dit</b> qu'une preuve différente peut être apportée <b>à partir d'ici :</b> "Ordonne aux enfants d'Israël <b>de faire sortir du camp tout lépreux et tout <i>zav</i> et toute personne impure à cause d'un cadavre"</b> (Nombres 5:2). <b>Laissons</b> le verset <b>dire</b> seulement qu'ils doivent renvoyer <b>ceux qui sont rituellement impurs à cause d'un cadavre, et ne dire</b> rien sur le <b><i>zavin</i> et les lépreux, et je dirais</b> cette loi tout seul par une déduction <i>a fortiori</i> : <b>Si ceux qui sont rituellement impurs à cause d'un cadavre,</b> dont l'impureté n'est pas si grave puisqu'elle est contractée à partir d'une source extérieure, <b>sont renvoyés</b> du camp, en ce qui concerne les <b><i>zavins</i> et les lépreux</b> qui sont la source de leur propre impureté, <b>à plus forte raison</b> est-il <b>non évident</b> qu'ils doivent être renvoyés ? Ainsi, le verset contient des informations inutiles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

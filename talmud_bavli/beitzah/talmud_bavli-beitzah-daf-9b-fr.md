@@ -42,4 +42,4 @@ La Gemara demande : <b>Et les autres,</b> Rabbi Ḥiyya' fils, quel est leur rai
 La Guemara conteste cette explication : <b>Mais peut-être que ce n'est pas le cas,</b> car une autre explication est possible : <b>Beit Shammai n'énonce</b> que leur opinion indulgente, selon laquelle il est permis de couvrir le sang, <b>lorsqu'il y a une pelle enfoncée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

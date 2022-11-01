@@ -51,4 +51,4 @@ Et <b>quand</b> un autre verset <b>déclare à propos de</b> l'enlèvement de <b
 La Guemara demande : <b>Et que fait Rabbi Shimon de cette</b> phrase, énoncée à propos du taureau et du bouc de Yom Kippour : <b>"Hors du camp"</b> (Lévitique 16:27), étant donné qu'il considère que les vêtements ne deviennent pas impurs tant que l'offrande n'est pas brûlée ? La Gemara répond : <b>Il l'exige pour</b> ce <b>qui est enseigné</b> dans une <i>baraita</i> : <Rabbi Eliezer dit : Il est dit ici : "Hors du camp", et il est dit là,</b> à propos de la génisse rouge : "Il l'apportera <b>hors du camp"</b> (Nombres 19:3). <b>De même qu'ici,</b> le taureau et le bouc de Yom Kippour sont brûlés <b>hors des trois camps, de même là,</b> la génisse rouge est brûlée <b>hors des trois camps. Et tout comme là,</b> la génisse rouge est brûlée <b>à l'est de Jérusalem,</b> puisqu'elle doit être brûlée "vers le devant de la Tente de la Rencontre" (Nombres 19,4), en face de l'entrée du Temple, qui est à son est,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

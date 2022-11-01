@@ -60,4 +60,4 @@ La Guemara conclut : <b>Et la <i>halakha</i></b> est <b>conforme</b> à l'avis <
 La Gemara relate : <b>Eliezer Ze'eira</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -111,4 +111,4 @@ La Gemara explique : <b>Cette question, à savoir que</b> celui qui vole <b>acqu
 La Guemara note que <b>Rava dit : Nous avons enseigné</b> que toutes ces conditions doivent être réunies pour que l'acheteur puisse être contraint de rendre l'objet <b>uniquement</b> en ce qui concerne <b>un propriétaire qui a l'habitude de vendre ses récipients, mais</b> en ce qui concerne <b>un propriétaire qui n'a pas l'habitude de vendre ses récipients,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -11,5 +11,5 @@ Si le grand prêtre souhaitait brà "ler les offrandes [lui-même], il montait l
 ### michna 4
 Voici les psaumes que l'on chantait dans le Temple : Le premier jour, on disait : "La terre est au Seigneur et ce qu'elle contient, le monde et ceux qui l'habitent" (Psaumes 1 et 2). Le second jour, ils disaient : "Grand est le Seigneur et hautement louable, dans la ville de notre Dieu. Sa montagne sainte" (Psaumes. Le troisième jour, ils avaient l'habitude de dire : "Dieu se tient dans l'assemblée de Dieu, au milieu des juges il juge" (Psaumes. Le quatrième jour, ils disaient : "Seigneur, Dieu à qui appartient la vengeance. Dieu à qui appartient la vengeance, éclaire-nous" (Psaumes. Le cinquième jour, ils disaient : "Chantez à haute voix vers Dieu notre force, criez vers le Dieu de Jacob"(Psaumes. Le sixième jour, ils disaient : "Le Seigneur régne, il est vêtu de majesté, le Seigneur est vêtu, il s'est ceint de force" (Psaumes. Le jour du Shabbat, on disait : "Un psaume, un chant pour le jour du sabbat "(Psaumes.  Un psaume, un chant pour les temps à venir, pour le jour qui sera tout Shabbat et repos pour la vie éternelle. 
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

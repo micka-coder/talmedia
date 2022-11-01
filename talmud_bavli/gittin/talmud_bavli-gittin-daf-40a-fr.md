@@ -48,4 +48,4 @@ Ravina <b>leur dit : Je me tiens en accord avec</b> le rapport de <b>Rav Dimi,</
 <b>Rav Yosef, fils de Rava, envoya devant Rav Pappa</b> la question de savoir quelle est la <i>halakha</i> dans cette circonstance. <b>Il lui a envoyé</b> une réponse qui paraphrasait des versets bibliques : <b>Comme il a fait, il lui sera fait ainsi, son affaire retombera sur sa propre tête</b> (voir Lévitique 24:19 et Abdias 1:15). En d'autres termes, puisque le maître a agi de manière trompeuse pour contourner la décision des Sages, on doit traiter avec lui de manière trompeuse. <b>Nous savons qu'un enfant est attiré par l'argent. Nous</b> allons <b>nommer un intendant pour</b> l'enfant, qui clarifiera la valeur marchande de l'esclave,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Pour les transgressions intentionnelles des lois d'impureté liées au temple et
 ### michna 7
 Le bouc émissaire] apporte l'expiation aux Israélites, aux prêtres et au grand prêtre oint. Quelle est donc la différence entre les Israélites, les prêtres et le grand prêtre oint ? Aucune, si ce n'est que le taureau [offert le jour des expiations] apporte l'expiation aux prêtres pour les transgressions des lois d'impureté en rapport avec le temple et la nourriture sainte. Rabbi Shimon dit :  "De même que le sang du bouc offert dans [le Saint des saints] apporte l'expiation pour les Israélites, le sang du taureau [offert le jour des expiations] apporte l'expiation pour les prêtres ; et de même que la confession des péchés prononcée sur le bouc émissaire apporte l'expiation pour les Israélites, la confession prononcée sur le taureau apporte l'expiation pour les prêtres.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara répond : Il <b>était nécessaire</b> d'énoncer ce terme supplément
 La Guemara pose une question par rapport à la dérivation de base de la <i>halakha</i> du mandat : <b>Cela marche bien</b> selon <b>l'opinion de <b>Rabbi Yehoshua ben Korḥa,</b> qui explique que le verset : "Et toute l'assemblée de la congrégation d'Israël l'égorgera dans l'après-midi" (Exode 12:6), enseigne la <i>halakha</i> de l'agence en ce qui concerne les offrandes. <b>Mais</b> selon <b>l'opinion de <b>Rabbi Yonatan, qui tire une exposition différente de ce verset, d'où tirons-nous</b> la <i>halakha</i> de l'agence en ce qui concerne les offrandes ? <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yonatan dit : D'où tirons-nous</b> que <b>tous les juifs peuvent remplir</b> leurs obligations.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

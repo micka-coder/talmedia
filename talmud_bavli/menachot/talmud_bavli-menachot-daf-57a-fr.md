@@ -48,4 +48,4 @@ La Gemara demande : <b>Et maintenant que</b> la <i>tanna</i> de la <i>baraita</i
 La Guemara clarifie ces opinions : En ce qui concerne l'avis de Rabbi Yosei HaGelili, la Guemara demande : Comment est-il possible de faire lever <b>l'offrande de repas</b> apportée avec des <b>libations ?</b> Ce type d'offrande de repas est pétri uniquement avec de l'huile d'olive, qui <b>est</b> un type de <b>jus de fruit,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

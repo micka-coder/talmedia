@@ -21,4 +21,4 @@ La Guemara répond : Ils ont protesté <b>à cause des enfants, car ils avaient 
 La Gemara rejette la déduction d'Abaye : En général, le verset n'enregistrerait pas un cas où quelqu'un a crié si sa protestation n'était pas efficace, et <b>là,</b> le verset inclut la protestation des descendants de Joseph afin de <b>nous apprendre</b> une mesure de <b>bon conseil : Qu'une personne doit se méfier du mauvais œil. Et c'est ce que Josué leur a dit, comme il est écrit : "Et Josué leur dit : Si vous êtes un grand peuple, montez dans la forêt,</b> et coupez pour vous là-bas, dans le pays des Phéréziens et des Rephaïm" (Josué 17:15). Josué <b>leur a dit : Allez vous cacher dans les forêts, afin que le mauvais œil n'ait pas de prise sur vous.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

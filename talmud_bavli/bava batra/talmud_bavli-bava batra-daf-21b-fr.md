@@ -36,4 +36,4 @@ Fort de ces conclusions, <b>Rav Huna, fils de Rav Yehoshua, soulève un dilemme 
 La Gemara conteste : <b>Et soyons inquiets de peur</b> que les enseignants <b>ne deviennent</b> ainsi <b>négligents.</b> Rav Yosef <b>a répondu</b> au Sage qui a soulevé cette objection :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

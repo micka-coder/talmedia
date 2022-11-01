@@ -28,7 +28,7 @@
 <b>et des figues sèches</b> Heb. וקיץ, figues sèches.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La parole qui vint</b> Ce qui est dit à la fin de la section (42, 7) : "Et ce fut au bout de dix jours que la parole du Seigneur vint etc...", mais il a d'abord écrit sur le compte de ce qui lui a été dit. Et le Midrash Aggadah dans Lamentations Rabbah (Proem 34) : Quelle était la parole ? "Et retourne à Gedaliah." Il lui a dit : Ou bien tu descends avec eux et je reste ( ?) ici, ou bien tu restes ici et je descends avec eux. Il répondit : Si je descends avec eux, à quoi leur servirai-je ? Que leur Créateur descende plutôt avec eux, car Il leur sera d'un grand secours.
 <b>Depuis Rama</b> où il s'est exilé seul avec eux. Il voyait un groupe [de jeunes] réunis par un collier et mettait son cou entre eux, etc..., comme il est dit dans la Pesikta de la Haftarah Divrei Yirmiyahu (p. 113). Car il est impossible de dire que Nébuzaradan l'a mis aux fers puisque Nébucadnetsar lui a ordonné : " Ne lui fais pas de mal " (ci-dessus 39, 12).
@@ -58,4 +58,4 @@
 <b>et des figues sèches</b> Heb. וקיץ, figues sèches.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara relate encore : <b>Rav Naḥman a décrété un jeûne, a prié pour 
 La Gemara relate : <b>Rabba a décrété un jeûne. Il pria pour qu'on lui fasse grâce, mais la pluie ne vint pas. On lui dit : Mais quand</b> ce <b>Rav Yehuda a décrété un jeûne, la pluie venait. Il leur dit : Que puis-je faire ? Si</b> la différence entre nous est <b>due à</b> l'étude de la Torah, nous sommes supérieurs à</b> la génération précédente, <b>comme dans les années du Rav Yehuda tout leur apprentissage</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

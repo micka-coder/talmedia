@@ -45,4 +45,4 @@ Ceci est <b>comme il est enseigné</b> dans une <i>baraita</i> : <b>Si elle a du
 <b>Rabbi Yishmael dit :</b> Le mérite retarde le châtiment de <b>douze mois. Et bien qu'il n'y ait pas</b> de <b>preuve explicite pour le concept</b> de mérite retardant la punition pendant douze mois, il y a <b>une allusion au concept, comme il est écrit</b> que Daniel a dit à Nabuchodonosor après avoir interprété le rêve de Nabuchodonosor concernant le mal qui allait lui arriver : <b>"C'est pourquoi, ô roi, que mon conseil te soit agréable, et rachète tes péchés par la charité, et tes iniquités par la miséricorde envers les pauvres;</b>".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

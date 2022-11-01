@@ -42,4 +42,4 @@ La Guemara clarifie ce cas. <b>Avec quoi</b> on sonne l'alarme ? <b>Si l'on dit 
 § La Guemara relate : <b>Durant les années de Rabbi Yehuda Nesia, il y eut un trouble</b> qui affligea la communauté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

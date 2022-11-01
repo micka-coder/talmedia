@@ -12,4 +12,4 @@ La Guemara rejette cette conclusion : On pourrait <b>savoir</b> que <b>les rabbi
 La Guemara commente : <b>Et les rabbins, n'enseignent-ils pas</b> <i>halakhot</i> sur la base d'une <b><i>a fortiori</i></b> déduction de ce genre ? <b>Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Une personne peut-elle vendre sa fille</b> comme servante <b>alors qu'elle est une jeune femme ? Vous</b> pouvez <b>dire une <i>a fortiori</i></b> inférence pour montrer qu'il ne le peut pas : Une servante qui était <b>déjà vendue se libère</b> en devenant une jeune femme ; en ce qui concerne celle <b>qui n'a pas été vendue, n'est-il pas logique qu'elle ne puisse pas être vendue</b> dès lors qu'elle est déjà une jeune femme ? Cette <i>baraita</i> montre que les rabbins utilisent effectivement des déductions similaires <i>a fortiori</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

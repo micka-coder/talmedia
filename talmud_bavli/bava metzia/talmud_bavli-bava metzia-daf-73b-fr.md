@@ -36,4 +36,4 @@ La Gemara relate : <b>Rav Se'oram, le frère de Rava, saisissait par la force</b
 La Gemara demande : <b>Et</b> selon <b>le Rav Ashi,</b> en <b>quelle manière</b> ce cas <b>est-il</b> différent de celui que nous avons appris</b> dans une mishna (104a) concernant un contrat de location de terre, dans lequel un métayer acceptait de cultiver un champ en échange d'une part du produit et écrivait : <b>Si je laisse</b> le champ <b>en jachère et ne le cultive pas</b>, <b>je paierai avec le produit de meilleure</b> qualité ? Dans ce cas, le métayer a accepté de payer le montant qu'il a fait perdre au propriétaire en raison de son manque d'activité, et il n'a pas été jugé comme une <i>asmakhta</i>. La Guemara répond : <b>Dans ce cas,</b> la question est <b>en son pouvoir,</b> car il peut décider de travailler le champ ou de ne pas le travailler.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

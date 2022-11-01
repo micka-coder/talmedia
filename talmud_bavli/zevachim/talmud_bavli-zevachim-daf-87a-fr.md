@@ -39,4 +39,4 @@ En ce qui concerne les membres qui ont été laissés pendant la nuit au sommet 
 Reish Lakish <b>s'adressa à lui :</b> La mishna indique que les vases de service sanctifient ce qui y est placé dans le sens où ils ne peuvent plus être rachetés même s'ils deviennent disqualifiés. <b>Je soulève le dilemme</b> quant à savoir si les récipients de service sanctifient les objets disqualifiés de telle sorte qu'ils peuvent être <b>sacrifiés <i>ab initio</i>.</b> Rabbi Yoḥanan lui dit : <b>C'est aussi ce que nous apprenons</b> dans une mishna (84a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,5 +57,5 @@
 ### passuk 16
 <b>Avram avait quatre-vingt-six ans, etc.</b> Ceci est écrit à la louange de Yishmael, pour nous faire savoir qu'il avait treize ans lorsqu'il a été circoncis et qu'il ne s'y est pas opposé. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

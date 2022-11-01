@@ -63,4 +63,4 @@ La Gemara conteste : <b>Si c'est le cas,</b> alors <b>même</b> dans un cas <b>o
 <b>Les Sages ont dit à Rava :</b> Une <i>baraita</i> <b>est enseignée qui soutient ton</b> avis : En ce qui concerne <b>le pain levé des transgresseurs,</b> qui n'éradiquent pas leur pain levé avant Pessah, <b>après Pessah</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Et</b> est-ce que <b>chaque</b> instance du mot <b>"ou"</
 <b>Rava dit</b> en réponse : La dérivation du mot "ou" dépend du verset en question. <b>Ici,</b> il est interprété <b>en fonction du contexte du verset, et là,</b> il est également interprété <b>en fonction du contexte du verset. Ici, en ce qui concerne le vol,</b> la raison pour laquelle le mot "ou" sert d'inclusion est <b>qu'il est écrit : "Un bœuf ou un mouton"</b> qui sont deux animaux <b>dont on ne peut produire des espèces diverses,</b> car ils ne peuvent pas procréer ensemble, et donc le mot <b>"ou"</b> sert <b>à inclure</b> un animal de <b>espèces diverses. </b> En revanche, <b>en ce qui concerne les animaux sacrificiels</b>, la raison pour laquelle le mot "ou" sert d'exclusion est <b>qu'il est écrit "mouton" et "chèvre"</b> qui sont deux animaux <b>dont on peut produire des sortes diverses.</b> Par conséquent, le mot <b>"ou"</b> sert <b>à exclure</b> des sortes diverses.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ Le <i>baraita</i> conclut : <b>Non plus, deux</b> résidents <b>qui n'ont pas é
 <b>Rava a soulevé un dilemme devant Rav Naḥman :</b> En ce qui concerne <b>un héritier, quelle est</b> la <i>halakha</i> concernant le fait de savoir si <b>il</b> peut <b>renoncer à des droits</b> dans une cour. Si une personne qui avait oublié d'établir un <i>eirouv</i> est décédée le Chabbat, son héritier peut-il renoncer à ses droits à sa place ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

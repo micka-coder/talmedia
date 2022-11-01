@@ -48,4 +48,4 @@ Ishbibenob <b>les poursuivit,</b> avec l'intention de les tuer. <b>Quand ils att
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> à propos de la contraction de terres pour raccourcir un voyage : <b>Pour trois</b> individus <b>la terre s'est contractée,</b> et chacun a miraculeusement atteint rapidement sa destination : <b>Eliezer, serviteur d'Abraham, et Jacob notre ancêtre, et Abishai, fils de Zeruiah.</b> La Gemara développe : Le cas de <b>Abishai, fils de Zeruiah,</b> est <b>ce que nous avons dit.</b> Le cas de <b>Eliezer, serviteur d'Abraham,</b> est <b>comme il est écrit : "Et je suis venu ce jour-là au puits"</b> (Genèse 24:42). Son intention était de <b>dire</b> aux membres de la famille de Rebecca <b>que ce jour-là il est parti</b> de Canaan et que le même jour il est arrivé, pour souligner le caractère miraculeux de son entreprise pour le compte d'Abraham. Le cas de <b>Jacob notre aïeul</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

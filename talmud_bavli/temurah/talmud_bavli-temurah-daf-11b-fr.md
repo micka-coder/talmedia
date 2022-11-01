@@ -57,4 +57,4 @@ Abaye <b>a dit à</b> Rava : <b>Lorsque</b> ce <i>baraita</i> <b>enseigne</b> qu
 <b>Abaye a posé un dilemme à Rav Yosef :</b> Si l'on consacre un animal gravide comme offrande de paix mais que l'on exclut son fœtus, et que par conséquent <b>il est</b> sanctifié comme <b>offrande de paix et que sa progéniture n'est pas sacrée, et qu'il a abattu</b> l'animal gravide <b>à l'intérieur</b> de la cour du Temple comme il convient pour une offrande de paix, <b>qu'est-ce que</b> la <i>halakha</i> ? Ou bien, si l'on consacre un animal et qu'il tombe ensuite enceinte, alors <b>selon celui qui a dit</b> que la <b>descendance des animaux sacrifiés</b> <b>est sanctifiée</b> seulement <b>lorsqu'elle prend naissance,</b> c'est-à-dire, au moment de leur naissance, <b>cette progéniture est-elle</b> soumise à l'interdiction d'abattre des animaux <b>non sacrés</b> <b>dans la <b>cour</b> du Temple,</b> puisqu'ils ne sont pas encore nés ? <b>Ou</b> sont-ils <b>non</b> soumis à l'interdiction, puisqu'ils n'ont eux-mêmes pas été abattus ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

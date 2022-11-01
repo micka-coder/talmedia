@@ -23,5 +23,5 @@ Parmi les récipients en terre, les suivants sont susceptibles d'être impurs : 
 ### michna 8
 Une torche est susceptible d'impureté. Et le réservoir d'une lampe contracte l'impureté à travers son espace d'air. Le peigne d'un tzartzur : Rabbi Eliezer dit : il n'est pas sensible à l'impureté, mais les sages disent qu'il est sensible.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

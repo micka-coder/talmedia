@@ -57,4 +57,4 @@ La Gemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord ?
 La mishna a enseigné que <b>les rabbins jugent valides</b> les actes de divorce qui ont été écrits sur du papier effacé ou sur du cuir inachevé. La Guemara demande : <b>Qui sont</b> ces <b>Rabbins ?</b> La <i>amora</i> <b>Rabbi Elazar a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

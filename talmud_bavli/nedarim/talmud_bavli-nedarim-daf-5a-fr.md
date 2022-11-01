@@ -27,4 +27,4 @@ La Gemara demande : <b>Si oui, que Shmuel dise comme suit : Et s'il a dit seulem
 <b>C'est plutôt</b> ainsi que l'opinion de Shmuel <b>a été énoncée : La raison est qu'il a dit : Ce</b> que <b>je mange</b> de <b>vos, ou : Ce</b> que <b>je goûte</b> de <b>votre ; c'est</b> dans ces cas-là <b>qu'il lui est interdit</b> de manger tout objet appartenant à son compagnon. <b>Cependant,</b> si <b>il dit</b> simplement : <b>Je suis avoué de toi,</b> cette déclaration <b>n'indique pas qu'il a dit</b> qu'il est <b>interdit</b> de manger un élément appartenant à son semblable. <b>Quel est le motif</b> de cette affirmation ? La déclaration : <b>Je suis avoué de vous, indique : Je ne parle pas avec vous.</b> De même, l'énoncé : <b>Je suis séparé de vous, indique : Je ne fais pas affaire avec vous.</b> L'affirmation : <b>Je suis éloigné de toi, indique : je ne me tiendrai pas à moins de quatre coudées de toi.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

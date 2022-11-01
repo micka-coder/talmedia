@@ -21,4 +21,4 @@ Ceci est <b>similaire</b> à un enseignement <b>que Rav Naḥman a dit</b> que <
 <b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

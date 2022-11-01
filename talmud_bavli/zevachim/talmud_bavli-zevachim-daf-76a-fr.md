@@ -33,4 +33,4 @@ La Guemara demande : <b>Et</b> comment <b>Rav Yosef</b> répondrait-il à l'affi
 Rav Yosef <b>souleve une objection à</b> l'opinion de Rabba à partir d'une <i>baraita</i> (<i>Tosefta</i>, <i>Nazir</i> 6:1) : Comment celui dont le statut de lépreux confirmé n'a pas été déterminé doit-il apporter son offrande de culpabilité et son <i>log</i> d'huile le huitième jour de sa purification ? <b>Rabbi Shimon dit : Le jour suivant,</b> après ses sept jours de purification, <b>il apporte son offrande de culpabilité et son <i>log</i></b> d'huile <b>avec elle, et dit</b> la stipulation suivante : <b>Si cette</b> offrande est celle <b>d'un lépreux,</b> c'est-à-dire si je suis un lépreux confirmé, <b>c'est son,</b> c'est-à-dire mon, <b>offrande de culpabilité et c'est son <i>log</i></b> d'huile.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Pourquoi</b> est-ce ainsi ? N'est-il pas la <b>victime de
 <b>Et si vous vouliez dire</b> que <b>cette question ne s'applique</b> que <b>en ce qui concerne</b> l'exemption de la <b>peine de mort</b>, <b>mais en ce qui concerne les dommages et intérêts</b> on est <b>responsable</b> même pour des circonstances indépendantes de sa volonté, <b>mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : Si la <b>jarre de quelqu'un s'est brisée et qu'il n'en a pas retiré les tessons</b>, ou si <b>son chameau</b> est tombé <b>et qu'il ne l'a pas relevé, Rabbi Meir le juge responsable</b> de payer <b>pour</b> tout <b>dommage</b> qu'ils causent, <b>et les rabbins disent</b> que .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

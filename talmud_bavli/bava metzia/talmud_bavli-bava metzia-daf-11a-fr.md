@@ -66,7 +66,7 @@ La Gemara conteste : <b>Mais</b> la phrase "tu ne retourneras pas" <b>est encore
 <b>Rabbi Abba soulève une objection à Ulla</b> à partir de ce qui est enseigné dans une mishna (<i>Ma'aser Sheni</i> 5:9) : Il y eut <b>un incident impliquant Rabban Gamliel et</b> d'autres <b>Vieux, qui voyageaient sur un bateau.</b> Comme il se souvenait qu'il n'avait pas donné la dîme du produit de ses champs, <b>Rabban Gamliel dit</b> aux autres : <b>Un dixième</b> de mes produits, <b>que je mesurerai à l'avenir</b> et que je séparerai de mes produits, <b>est donné à Yehoshua</b> ben Ḥananya, qui est un Lévite et a le droit de recevoir la première dîme,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>On dérive</b> la <i>halakha</i> en ce qui concerne l'acquisition d'un <b>objet trouvé de</b> la <i>halakha</i> en ce qui concerne <b>un acte de divorce, et</b> un <b>Sage, </b> Abba Kohen Bardela, <b>soutient</b> que <b>on ne dérive pas</b> la <i>halakha</i> en ce qui concerne <b>un objet trouvé de</b> la <i>halakha</i> en ce qui concerne <b>un acte de divorce. </b>
 
@@ -134,4 +134,4 @@ La Gemara conteste : <b>Mais</b> la phrase "tu ne retourneras pas" <b>est encore
 <b>Rabbi Abba soulève une objection à Ulla</b> à partir de ce qui est enseigné dans une mishna (<i>Ma'aser Sheni</i> 5:9) : Il y eut <b>un incident impliquant Rabban Gamliel et</b> d'autres <b>Vieux, qui voyageaient sur un bateau.</b> Comme il se souvenait qu'il n'avait pas donné la dîme du produit de ses champs, <b>Rabban Gamliel dit</b> aux autres : <b>Un dixième</b> de mes produits, <b>que je mesurerai à l'avenir</b> et que je séparerai de mes produits, <b>est donné à Yehoshua</b> ben Ḥananya, qui est un Lévite et a le droit de recevoir la première dîme,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

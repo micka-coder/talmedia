@@ -39,4 +39,4 @@ Le <i>baraita</i> continue : <b>Voyons à quel</b> des paradigmes la mitsva de <
 Puisqu'il est impossible de déterminer la source la plus appropriée sur la base d'une déduction logique, dérivez la question comme <b>le verset le dit:</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

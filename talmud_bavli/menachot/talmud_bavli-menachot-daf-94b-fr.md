@@ -21,4 +21,4 @@ La Guemara commente : <b>Selon celui qui a dit</b> que les pains de mie étaient
 La Gemara demande : <b>Selon l'avis de qui</b> <b>est ce que Rabbi Yehouda a dit : Les pains soutiennent les panneaux et les panneaux soutiennent les pains,</b> c'est-à-dire qu'ils s'appuient les uns sur les autres ? C'est <b>conforme</b> à l'avis de <b>celui qui a dit</b> que les pains de mie étaient <b>comme un bateau à bascule,</b> c'est-à-dire Rabbi Yoḥanan. Selon l'avis de Rabbi Ḥanina, les panneaux reposaient sur le sol et n'avaient pas besoin du support des pains.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

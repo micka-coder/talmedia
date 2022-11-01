@@ -48,4 +48,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent</b> en ce qui concerne la <b
 <strong>MISHNA :</strong> <b>On ne peut pas mêler des produits</b> achetés chez un fournisseur <b>avec</b> d'autres <b>produits, même</b> s'il mêle des <b>nouveaux</b> produits <b>avec</b> d'autres <b>nouveaux</b> produits et qu'ostensiblement l'acheteur ne subit aucune perte de ce fait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

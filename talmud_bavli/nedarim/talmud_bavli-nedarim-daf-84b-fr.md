@@ -27,4 +27,4 @@ Mais <b>Dites la dernière clause</b> de la mishna, qui stipule que si la person
 <b>Rav Hoshaya a dit :</b> Ceci n'est <b>pas difficile ; cette</b> deuxième décision est conforme à l'opinion de <b>Rabbi</b> Yehuda HaNasi, <b>et cette</b> première décision est conforme à l'opinion de <b>Rabbi Yosei, fils de Rabbi Yehuda, comme il est enseigné</b> dans une <i>baraita</i> : Si <b>quelqu'un vole le produit non mutilé d'un autre et le mange, il doit lui payer la valeur de son produit non mutilé,</b> soit. e., la valeur totale de ce qu'il a volé. C'est la déclaration de Rabbi</b> Yehuda HaNasi. <b>Rabbi Yosei, fils de Rabbi Yehuda,</b> n'est pas d'accord et <b>dit : Il lui paie</b> <b>seulement la valeur du produit non sacré</b> <b>qu'il contenait.</b> Le voleur n'a pas à lui payer la valeur de la <i>teruma</i> et de la dîme incluses dans le produit non sacré, car ces portions n'appartiennent pas au propriétaire du produit. <b>Quoi, ce n'est pas</b> le cas que <b>ils sont en désaccord sur ce point :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

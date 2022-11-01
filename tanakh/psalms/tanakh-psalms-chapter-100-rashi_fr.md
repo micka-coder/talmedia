@@ -14,4 +14,4 @@
 <b>Et jusqu'à ce que génération après génération</b> sa foi perdure. Toute expression de vérité (אמת) et de foi (אמונה") signifie la réalisation d'une promesse, qu'Il rend vraie et assure Sa promesse.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

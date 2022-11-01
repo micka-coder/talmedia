@@ -45,4 +45,4 @@ Une femme <b>qui danse pour</b> s'assurer que le <b><i>kutaḥ</i>,</b> une épi
 Celui qui dit en buvant : <b>Vin et vie à la bouche des Sages,</b> cela n'entre <b>pas dans la catégorie des voies de l'Amorite. Il y eut un incident avec Rabbi Akiva qui fit un banquet pour son fils, et sur chacune des coupes qu'il apporta, il dit : Vin et vie à la bouche des Sages, vin et vie à la bouche des Sages et à la bouche de leurs élèves.</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

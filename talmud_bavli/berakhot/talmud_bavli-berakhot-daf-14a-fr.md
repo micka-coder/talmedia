@@ -63,4 +63,4 @@ Nous avons appris dans la mishna : <b>Ce sont</b> les pauses <b>entre les paragr
 <b>Rabbi Abbahou a dit</b> que <b>Rabbi Yohanan a dit : La <i>halakha</i> est conforme</b> a l'avis de <b>Rabbi Yehuda qui a dit qu'on ne peut pas s'interrompre entre <i>eloheikhem</i> et <i>emet veyatziv</i>.</b> De plus, <b>Rabbi Abbahou a dit</b> que <b>Rabbi Yohanan a dit : Quelle est la raison de l'opinion de Rabbi Yehudas</b> ? Cette phrase evoque le verset <b>comme il est ecrit:</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

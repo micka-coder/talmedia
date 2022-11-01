@@ -39,4 +39,4 @@ La mishna poursuit : <b>Celui qui frappe son père ou sa mère et leur cause</b>
 Rabbi Elazar explique le dilemme : <b>Dit-on</b> que <b>puisque le Miséricordieux a accordé les bénéfices de</b> sa <b>jeunesse au père,</b> comme il reçoit l'argent de ses fiançailles, la compensation pour <b>lésion appartient aussi à son père ? Quelle est la raison</b> pour laquelle il devrait la recevoir ? La raison est <b>que</b> celui qui l'a blessée a <b>abaissé sa valeur monétaire</b>, ce qui fait que son père reçoit des cadeaux de moindre valeur lorsqu'elle est fiancée. <b>Ou peut-être est-ce</b> seulement <b>les bénéfices de</b> sa <b>jeunesse que le Miséricordieux a accordé à</b> son père, <b>car s'il désire la donner</b> en mariage <b>à un</b> homme <b>affligé de furoncles, il peut la donner</b> à celui-ci, <b>mais</b> en ce qui concerne le <b>blessure, puisque s'il désire la blesser, il ne peut pas la blesser,</b> comme il ne peut blesser aucune autre personne, <b>le Miséricordieux ne lui a pas accordé</b> le droit de recevoir la compensation lorsqu'elle est blessée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

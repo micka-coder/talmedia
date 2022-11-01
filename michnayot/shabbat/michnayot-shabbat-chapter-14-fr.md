@@ -12,4 +12,4 @@ Il n'est pas permis de manger de l'eizoveyon le Chabbat car les personnes en bon
 Celui qui est préoccupé par la douleur de ses dents ne peut pas boire du vinaigre à travers elles le Chabbat à des fins médicinales : cependant, il peut tremper sa nourriture dans le vinaigre de la manière habituelle et la manger, et s'il est guéri par le vinaigre, il est guéri. Celui qui est préoccupé par une douleur dans les reins ne peut pas s'enduire de vin et de vinaigre le Chabbat, car il s'agit d'un traitement médical. En revanche, il peut s'enduire d'huile. Cependant, on ne peut pas utiliser de l'huile de rose, qui est très chère et utilisée exclusivement comme remède. Cependant, les princes peuvent s'enduire d'huile de rose sur leurs plaies le Chabbat car ils ont l'habitude de s'enduire d'huile de rose pendant la semaine pour le plaisir. Rabbi Shimon dit : Tous les juifs sont des princes, et il leur est permis de s'enduire d'huile de rose le Chabbat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara conteste : <b>Dites la dernière clause : Sauf le transgresseur, et ce
 La Guemara demande : <b>Et cette</b> <i>halakha</i> selon laquelle on n'accepte pas l'offrande d'un transgresseur est-elle <b>dérivée</b> du verset cité <b>ici ? Il est dérivé</b> du verset écrit <b>là</b> à propos d'une offrande de péché :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

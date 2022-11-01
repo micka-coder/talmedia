@@ -30,4 +30,4 @@ La Guemara pose la question suivante à propos de l'avis de Rabbi Meir selon leq
 <b>Rabba a dit : En fait,</b> contrairement à l'explication de Rabbi Yoḥanan de la <i>baraita</i>, elle fait référence <b>à celui qui abat</b> l'animal <b>lui-même,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

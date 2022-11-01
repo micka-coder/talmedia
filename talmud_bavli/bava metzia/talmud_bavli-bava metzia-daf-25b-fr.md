@@ -45,7 +45,7 @@ La Gemara demande : <b>Accordé, selon Rav Pappa, c'est</b> la raison <b>pour la
 <strong>GEMARA:</strong> La mishna enseigne que si l'on a trouvé un objet perdu dans un tas de gravats ou dans un vieux mur, il lui appartient. Les Sages <b>enseignent</b> dans une <i>baraïta</i> : C'est son <b>en raison</b> du fait <b>que</b> lorsque le propriétaire du tas ou du mur réclame le bien, le trouveur <b>peut lui dire : Ils</b> appartiennent <b>aux Amorites,</b> qui vivaient en Eretz Yisrael avant sa conquête par les Juifs. La Gemara demande : <b>Est-ce à dire</b> que les <b>Amorites dissimulent</b> des objets mais que les <b>Juifs ne dissimulent pas</b> des objets ? Peut-être est-ce le propriétaire de la maison qui a placé l'objet dans le mur ou dans le tas. La Guemara répond : <b>Non,</b> la <i>baraita</i> <b>nécessaire</b> seulement dans le cas précis...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 S'ils étaient configurés <b>comme les pierres de la maison</b> de culte dédiée à la divinité romaine <b>Mercure, qu'est-ce que</b> le <i>halakha</i> ?
 
@@ -92,4 +92,4 @@ La Gemara demande : <b>Accordé, selon Rav Pappa, c'est</b> la raison <b>pour la
 <strong>GEMARA:</strong> La mishna enseigne que si l'on a trouvé un objet perdu dans un tas de gravats ou dans un vieux mur, il lui appartient. Les Sages <b>enseignent</b> dans une <i>baraïta</i> : C'est son <b>en raison</b> du fait <b>que</b> lorsque le propriétaire du tas ou du mur réclame le bien, le trouveur <b>peut lui dire : Ils</b> appartiennent <b>aux Amorites,</b> qui vivaient en Eretz Yisrael avant sa conquête par les Juifs. La Gemara demande : <b>Est-ce à dire</b> que les <b>Amorites dissimulent</b> des objets mais que les <b>Juifs ne dissimulent pas</b> des objets ? Peut-être est-ce le propriétaire de la maison qui a placé l'objet dans le mur ou dans le tas. La Guemara répond : <b>Non,</b> la <i>baraita</i> <b>nécessaire</b> seulement dans le cas précis...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

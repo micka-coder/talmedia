@@ -21,4 +21,4 @@ La Guemara répond : <b>Il est appris</b> comme une tradition qu' <b>il y a ving
 La Guemara demande : <b>Mais</b> si l'on apprend du <i>nesher</i> qu'un oiseau possédant ne serait-ce qu'un seul signe est cachère, <b>pourquoi ai-je besoin</b> des <b>colombes dont le Miséricordieux a écrit</b> qu'elles sont cachères, qui en possèdent les quatre ? <b>Rav Ukva bar Ḥama dit :</b> La colombe n'a pas été mentionnée pour enseigner qu'elle est cachère, mais plutôt <b>pour</b> enseigner qu'elle est le seul oiseau apte à être sacrifié comme <b>offrande</b>. Le Rav Naḥman dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

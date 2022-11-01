@@ -23,5 +23,5 @@ Un ancien four se trouvait à l'intérieur d'un nouveau four et un filet recouvr
 ### michna 8
 Si des casseroles [en terre cuite] sont placées l'une dans l'autre et que leurs bords sont au même niveau, et qu'il y a un sheretz dans la casserole supérieure ou dans la casserole inférieure, cette casserole seule devient impure mais toutes les autres restent propres. Si [elles étaient perforées] au point d'admettre un liquide, et que le sheretz se trouvait dans la plus haute, toutes deviennent impures. S'il se trouvait dans la plus basse, celle-ci est impure tandis que les autres restent propres. Si le sheretz était dans la plus haute et la plus basse projetée au-dessus, les deux sont impurs. Si le sheretz était dans le plus haut et que le plus bas se projetait au-dessus, tout ce qui contient un liquide qui coule devient impur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

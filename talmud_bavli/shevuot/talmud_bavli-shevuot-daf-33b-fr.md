@@ -57,4 +57,4 @@ La Gemara rejette cette idée : <b>On déduit</b> de multiples occurrences du te
 <b>Et en outre,</b> on peut déduire cette <i>halakha</i> au moyen d'une <b>a fortiori</i></b> déduction de la <i>halakha</i> d'un dépôt. <b>Si</b> dans le cas d'un <b>dépôt, par rapport auquel</b> la Torah a <b>rendu</b> le statut halakhique <b>des femmes comme</b> celui des <b>hommes, </b> le statut halakhique des <b>parents comme</b> celui des <b>non-parents,</b> et le statut halakhique des <b>inaptes</b> témoins <b>comme</b> celui des <b>aptes</b> à témoigner, <b>et</b> il est <b>responsable de</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

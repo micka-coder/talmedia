@@ -45,4 +45,4 @@ La Guemara répond : <b>Ceci</b> n'est <b>pas difficile : Cette</b> <i>baraita</
 La Gemara demande : Cependant, <b>si c'est</b> conforme à l'avis de <b>Rabbi Meir, ce qu'il enseigne</b> est difficile. Elle enseigne que si l'on dit : <b>L'offrande [<i>hakorban</i>],</b> et ajoute : <b>Ce que je mangerai de toi,</b> la nourriture <b>est interdite.</b> Mais <b>n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>les rabbins concèdent à Rabbi Yehuda</b> que <b>en ce qui concerne</b> celui qui dit : Cette offrande [<i>ha korban</i>], ou cet holocauste [<i>ha ola</i>], ou cette offrande de repas [<i>ha minḥa</i>], ou ce sacrifice pour le péché [<i>ha ḥatat</i>],</b> puis ajoute : <b>Je mangerai de toi,</b> le vœu ne prend pas effet et la nourriture <b>est permise ?</b> La raison en est <b>que</b> l'individu <b>n'a pas fait le vœu</b> que cet objet soit associé à une offrande ; <b>au contraire,</b> il a fait un vœu <b>par la vie de l'offrande,</b> ce qui n'est pas une expression valide d'un vœu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

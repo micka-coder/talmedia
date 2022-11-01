@@ -66,4 +66,4 @@ La Guemara demande : <b>Qu'as-tu vu</b> qui t'a conduit à <b>inclure le vêteme
 La Guemara demande : <b>Et les rabbins</b> qui ne sont pas d'accord avec Rabbi Shimon,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

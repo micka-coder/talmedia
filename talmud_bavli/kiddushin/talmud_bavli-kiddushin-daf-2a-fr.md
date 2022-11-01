@@ -15,4 +15,4 @@ La Guemara poursuit son explication : <b>Et d'où dérive-t-on</b> le fait que l
 La Guemara poursuit : <b>Et</b> la <b>prise</b> du champ d'Ephron <b>est appelée une acquisition</b> dans la Torah, <b>comme il est écrit</b> à propos de la même question : <b>"Le champ qu'Abraham a acquis"</b> (Genèse 25, 10).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

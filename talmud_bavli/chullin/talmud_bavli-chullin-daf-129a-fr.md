@@ -51,4 +51,4 @@ La Guemara répond : Rabbi Shimon ne répond pas à la déclaration de Rabbi Mei
 <b>Rabbi Asi a dit</b> que <b>Rabbi Yoḥanan a dit : Quelle est la raison</b> de l'avis <b>de Rabbi Shimon ? Le verset dit</b> à propos de l'impureté en tant qu'aliment : <b>"De toute nourriture qui peut être mangée,</b> celle sur laquelle l'eau vient sera impure" (Lévitique 11:34). L'expression répétitive "aliments qui peuvent être mangés" indique que seuls les <b>aliments que l'on est capable de donner à manger à d'autres personnes,</b> y compris les gentils, <b>sont appelés aliments</b> en ce qui concerne leur susceptibilité à l'impureté en tant que nourriture, mais <b>les aliments que l'on ne peut pas donner à manger</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

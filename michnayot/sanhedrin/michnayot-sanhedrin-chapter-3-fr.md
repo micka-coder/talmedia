@@ -23,5 +23,5 @@ Lorsque les juges ont pris leur décision, ils font entrer les plaideurs. Le che
 ### michna 8
 Tant qu'un plaideur peut produire des preuves, il peut renverser le verdict. Si on lui avait dit : "Apporte toutes les preuves que tu as dans les trente jours" et qu'il les ait apportées dans les trente jours, le tribunal peut annuler le verdict. Mais s'il a apporté une preuve après trente jours, le tribunal ne peut pas annuler le verdict. Rabban Shimon ben Gamaliel a dit :  Si on lui a dit : "Apportez des témoins" et qu'il a répondu : "Je n'ai pas de témoins", ou [si on lui a dit] : "Apportez des preuves" et qu'il a répondu : "Je n'ai pas de preuves", et qu'il a ensuite trouvé des preuves ou des témoins, alors ils sont totalement invalides. Rabban Shimon ben Gamaliel a dit :  "Qu'aurait-il pu faire pour ne pas savoir qu'il avait des témoins, puis trouver des témoins, ou pour ne pas savoir qu'il avait des preuves, puis trouver des preuves ? Si on lui avait dit : "Apportez des témoins" et qu'il ait répondu : "Je n'ai pas de témoins", ou [si on lui avait dit] : "Apportez des preuves" et qu'il ait répondu : "Je n'ai pas de preuves", mais que, voyant qu'il était sur le point d'être reconnu coupable, il ait dit : "Approchez, untel et untel, et témoignez pour moi !", ou qu'il ait sorti une preuve de son portefeuille, alors ils sont totalement invalides.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

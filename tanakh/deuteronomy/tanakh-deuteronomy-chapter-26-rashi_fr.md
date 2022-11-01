@@ -78,5 +78,5 @@
 ### passuk 19
 <b>Et, afin que vous soyez un peuple sanctifié comme Il l'a dit.</b> "Vous serez sanctifiés pour moi." 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

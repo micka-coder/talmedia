@@ -72,4 +72,4 @@ A propos de la vertu de l'étude de la Torah, <b>Rabbi Yehoshua ben Levi dit : Q
 § La mishna enseigne : <b>Et des routes furent alignées pour eux</b> de cette ville à cette ville. <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer ben Ya'akov dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

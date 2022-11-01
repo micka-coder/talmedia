@@ -40,4 +40,4 @@
 <b>Lorsque toute la terre se réjouit</b> lorsque je revendique mon royaume, car alors toute la terre se réjouira, comme l'idée est énoncée (Ps. 97:1) : "Le Seigneur a régné, la terre exulte." Alors Je ferai de toi une désolation.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

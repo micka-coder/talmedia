@@ -36,4 +36,4 @@ La Gemara répond : <b>Il y a</b> la différence suivante, <b>car alors que</b> 
 § <b>Rabbi Abbahou dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>tous les interdits qui sont</b> écrits <b>dans la Torah, une substance permise</b> <b>ne se combine pas avec une substance interdite</b>. Si quelqu'un mange un aliment permis avec un aliment interdit et qu'ensemble ils constituent la mesure minimale interdite, il est exempt de punition pour cet acte de consommation. Ce principe s'applique à toutes les <i>halakhot</i> <b>sauf pour les interdictions d'un nazirite,</b> qui est responsable de la consommation d'un mélange de ce genre, <b>comme la Torah l'a dit</b> à propos d'un nazirite : "Il ne boira pas non plus de chose <b>trempée</b> dans du raisin" (Nombres 6:3). Ce verset indique qu'il est interdit à un nazirite de consommer non seulement du vin et du vinaigre, mais aussi tout aliment qui a été trempé dans ces liquides.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

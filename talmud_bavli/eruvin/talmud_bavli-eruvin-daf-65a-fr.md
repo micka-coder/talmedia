@@ -63,4 +63,4 @@ La Guemara relate que <b>Le père de </b>Shmuel</b>, lorsqu'il rentrait</b> chez
 <b>Rabbi Ḥanin bar Pappa a dit : Quiconque dans la maison duquel le vin ne coule pas comme l'eau n'est pas</b> encore <b>inclus</b> dans la <b>bénédiction de la Torah, comme il est dit : "Et Il bénira ton pain et ton eau"</b> (Exode 23:25). L'eau mentionnée dans ce verset fait en réalité référence au vin, comme on l'apprend de la manière suivante : <b>De même que le pain</b> est quelque chose <b>qui peut être acheté avec</b> l'argent du second</b> <b>tithe,</b> c'est-à-dire qu'il est permis d'acheter du pain avec l'argent utilisé pour racheter le second-tithe, <b>de même</b> le mot <b>eau</b> dans le verset fait référence à un liquide <b>qui peut être acheté avec</b> l'argent du second</b> <b>tithe. Et qu'est-ce que c'est ? </b> C'est du <b>vin,</b> car on peut acheter du vin avec de l'argent de second-tithe, mais on ne peut pas acheter de l'eau ; <b>et</b> néanmoins, le verset <b>l'appelle "eau". </b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

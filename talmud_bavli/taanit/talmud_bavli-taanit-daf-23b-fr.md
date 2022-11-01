@@ -45,4 +45,4 @@ La Gemara raconte : <b>Ces deux étudiants, qui étaient assis devant Rabbi Yitz
 La Guemara cite une autre histoire impliquant une plainte. <b>Rabbi Yosei bar Avin se trouvait fréquemment devant Rabbi Yosei de Yokrat.</b> A un moment donné, <b>il le quitta et vint</b> étudier <b>devant Rav Ashi,</b> qui ne le reconnut pas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

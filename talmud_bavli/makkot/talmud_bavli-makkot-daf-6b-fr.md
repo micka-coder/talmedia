@@ -33,4 +33,4 @@ Abaye lui a dit : Cette</b> déclaration dans la mishna que tu as citée et qui 
 § La mishna enseigne : <b>Alternativement,</b> de la phrase du verset <b>"à la bouche de deux témoins"</b> on déduit <b>que</b> le <b>Sanhedrin n'entendra pas</b> le témoignage <b>de la bouche d'un interprète.</b> La Gemara relate : Il y avait <b>certaines</b> personnes qui parlaient <b>une langue étrangère</b> <b>qui se présentèrent devant Rava</b> pour un jugement. <b>Rava installa un interprète entre eux</b> et entendit le témoignage par l'intermédiaire de l'interprète. La Guemara demande : <b>Et comment a-t-il fait ? Mais n'avons-nous pas appris</b> dans la mishna <b>que</b> le <b>Sanhedrin n'entendra pas</b> le témoignage <b>de la bouche d'un interprète ?</b> La Gemara répond : <b>Rava savait ce qu'ils disaient,</b> car il comprenait leur langue, <b>mais il ne savait pas</b> comment leur <b>répondre</b> dans leur langue. Il posait des questions par l'intermédiaire de l'interprète mais comprenait les réponses par lui-même, comme l'exige la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

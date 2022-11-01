@@ -33,4 +33,4 @@
 <b>Qui m'amènera</b> au temps du Messie, pour étendre ma main sur Esaü dans ses villes fortifiées ? <b>Celui qui</b> qui nous a déjà conduits sur Edom, pour que je les frappe dans la vallée du sel, dix-huit mille.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

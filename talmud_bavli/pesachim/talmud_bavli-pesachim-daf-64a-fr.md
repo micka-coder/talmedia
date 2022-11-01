@@ -48,4 +48,4 @@ La Guemara exprime sa surprise : <b>Pourquoi</b> doit-il déclarer expressément
 <b>Comment suspendait-on et écorchait-on</b> l'agneau pascal dans le Temple ? <b>Des crochets en fer [<i>unkelayot</i>] étaient fixés dans les murs et les piliers, et sur eux on suspendait</b> l'offrande <b>et on l'écorchait</b>. Si <b>quelqu'un manquait de place</b> parmi les crochets de la cour du Temple <b>pour suspendre et écorcher</b> l'offrande, <b>il y avait là des tiges fines et lisses,</b> qu'il <b>plaçait sur sa</b> propre <b>épaule et sur l'épaule d'un autre', et</b> de là <b>il suspendait</b> l'offrande et l'écorchait. <b>Rabbi Eliezer dit :</b> Lorsque <b>le quatorze</b> de Nisan...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

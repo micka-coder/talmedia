@@ -63,4 +63,4 @@ La Guemara clarifie cette <i>baraita</i> : <b>Ils peuvent tirer de l'eau à trav
 <b>Et si</b> on s'est levé tôt uniquement <b>pour ne pas négliger son</b> <b>travail habituel,</b> ceci <b>n'est pas considéré</b> comme un cas de <b>s'il est mis,</b> car ce n'était pas son intention de placer la rosée sur le produit. Le contact involontaire avec un liquide ne rend pas un aliment susceptible d'impureté rituelle. <b>Et normalement,</b> à moins qu'ils ne précisent le contraire,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

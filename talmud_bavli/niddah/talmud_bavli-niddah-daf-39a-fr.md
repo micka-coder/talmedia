@@ -51,4 +51,4 @@ Abaye poursuit : <b>Et vous nous avez dit à propos de cette</b> mishna que <b>R
 Rav Yehuda de Diskarta <b>s'est tu et n'a rien dit à</b> Rav Pappa. Par conséquent, <b>Rav Pappa a dit : Voyons</b> et essayons de résoudre cela <b>nous-mêmes.</b> La mishna citée plus haut dit : Si la femme <b>avait l'habitude de voir</b> une émission de sang <b>le quinzième jour, et qu'elle a dévié</b> de son cycle <b>pour</b> voir une émission le <b>vingtième jour,</b> alors à la fois <b>ce jour-là</b> et ce</b> jour-là, il lui est <b>interdit</b> d'avoir des rapports sexuels.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

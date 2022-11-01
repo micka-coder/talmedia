@@ -9,4 +9,4 @@ La Gemara soulève une difficulté : <b>Si c'est le cas, que</b> la mishna <b>en
 La Gemara propose une autre explication : <b>Plutôt,</b> expliquez <b>qu'elle a dit : Le bénéfice du bain est</b> <i>konam</i> <b>pour moi à jamais si je me baigne aujourd'hui. Et Rabbi Yosei soutient</b> que rien ne se produira si elle s'abstient de se baigner aujourd'hui, car la <b>défiguration</b> résultant <b>de l'absence de bain pendant <b>une journée n'est pas appelée défiguration.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

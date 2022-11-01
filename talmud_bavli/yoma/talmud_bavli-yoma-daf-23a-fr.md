@@ -48,4 +48,4 @@ La Gemara demande : Si la compétition de course à pied a été supprimée imm�
 La Guemara revient sur l'incident du prêtre tué et en discute plusieurs détails. On raconte que <b>Rabbi Tzadok s'est levé sur les marches du hall d'entrée</b> du Sanctuaire <b>et a dit : Ecoutez</b> ceci, <b>mes frères de la maison d'Israël.</b> Le verset <b>dit : "Si l'on trouve quelqu'un tué dans le pays,</b> etc." Mais qu'en est-il de <b>nous,</b> dans notre situation ? <b>Sur qui pèse</b> l'obligation <b>d'apporter</b> la génisse dont le cou est brisé ? L'obligation incombe-t-elle <b>à la ville,</b> Jérusalem, <b>ou</b> l'obligation incombe-t-elle <b>aux <b>cours</b> du Temple ? </b> La Gemara demande : Est-ce que <b>Jérusalem est soumise à l'obligation d'apporter une génisse dont le cou est brisé ? N'a-t-on pas enseigné</b> dans une <i>baraïta</i> : <b>Dix choses ont été dites</b> à propos de <b>Jérusalem</b> pour la distinguer de toutes les autres villes d'Eretz Yisraël, <b>et ceci est l'une d'entre elles:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Rav Yossef <b>lui dit :</b> La raison pour laquelle seul un voleur paie le doubl
 Abaye <b>a soulevé une objection à</b> l'opinion de Rav Yosef à partir de ce qui est enseigné dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

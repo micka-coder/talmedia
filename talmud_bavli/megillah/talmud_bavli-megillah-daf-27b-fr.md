@@ -72,4 +72,4 @@ La Guemara traite de la deuxième occasion où un Sage a expliqué sa longévit�
 A la troisième occasion, <b>Rabbi Perida</b> fut un jour <b>interrogé par ses disciples : Au</b> mérite de <b>quelle</b> vertu <b>vous a-t-on</b> béni avec la <b>longévité ? Il leur répondit : Dans</b> tous <b>mes jours, aucune personne</b> n'est jamais arrivée <b>avant moi à la salle d'étude,</b> car j'étais toujours le premier à arriver.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

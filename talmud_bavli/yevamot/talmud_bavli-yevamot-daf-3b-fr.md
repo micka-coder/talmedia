@@ -51,4 +51,4 @@ Le <i>baraita</i> ajoute : <b>Nous avons appris l'avertissement</b> concernant c
 La Guemara demande si ce principe est applicable dans ce cas. On peut <b>dire que nous avons dit</b> qu'une <b>mitsva positive</b> <b>n'intervient et ne prime sur une interdiction</b> que lorsqu'il y a <b>une interdiction</b> pour laquelle on est puni par des coups de fouet <b>seuls.</b> Cependant, en ce qui concerne <b>une interdiction qui inclut</b> la peine de <b><i>karet</i>, une mitsva positive <b>passe-t-elle</b> ? Cette interdiction est plus sévère qu'une interdiction ordinaire, et donc peut-être qu'une mitzva positive ne l'annule pas. <b>Et en outre,</b> en ce qui concerne <b>un interdit</b> pour lequel on est puni par des coups de fouet <b>seuls, d'où tire-t-on</b> <b>que</b> une mitzva positive <b>y déroge</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

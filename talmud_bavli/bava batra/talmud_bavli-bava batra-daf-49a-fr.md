@@ -24,4 +24,4 @@ La Gemara demande : <b>Et si</b> il <b>écrit</b> ceci <b>à elle, qu'en est-il 
 Les savants <b>de l'école de Rabbi Yannai ont dit</b> à propos de <b>ceci : La mishna</b> énonce sa décision <b>à l'égard</b> de celui qui <b>écrit</b> cette formulation <b>à son intention alors qu'elle n'est encore</b> que <b>femme mariée,</b> avant qu'il ait des droits sur ses biens. Il est donc en mesure d'empêcher ses droits de prendre effet après le mariage. <b>Et</b> ceci est <b>conforme</b> à la déclaration <b>du Rav Kahana, car le Rav Kahana dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

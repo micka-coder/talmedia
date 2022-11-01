@@ -39,4 +39,4 @@ La Gemara ajoute : <b>Et cette déclaration</b> ne s'applique qu'à <b>une aigui
 La Gemara demande : <b>Et</b> en <b>quelle manière <b>cette affaire est-elle</b> différente de</b> celle d'une <b>aiguille que l'on trouve</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

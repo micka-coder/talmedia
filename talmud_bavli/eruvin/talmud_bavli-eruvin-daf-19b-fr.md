@@ -90,4 +90,4 @@ La Gemara réfute cette affirmation : <b>Non,</b> il peut peut-être faire réf�
 La Guemara rejette cet argument : <b>Quoi donc ? </b> Dirais-tu que la <i>baraita</i> fait référence à <b>un fourré de roseaux ?</b> Si oui, <b>c'est un arbre. Au contraire, que devez-vous dire</b> est...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -15,4 +15,4 @@ La Guemara commente : On peut <b>apprendre de</b> cette <i>baraita</i> <b>trois<
 Rabbi Yoḥanan statue conformément à cet avis <b>à l'exclusion de ce que nous avons appris</b> dans une mishna : <b>Celui qui échange des fruits avec son ami,</b> ce qui est considéré comme une transaction commerciale, si leur intention était pour <b>celui-ci de manger et celui-là de manger,</b> ou pour <b>celui-ci d'en faire des fruits secs et celui-là d'en faire des fruits secs, celui-ci de manger et celui-là d'en faire des fruits secs,</b> ils sont tous deux <b>obligés</b> en dîmes. <b>Rabbi Yehuda,</b> cependant, <b>dit : </b> Celui qui a pris les fruits pour <b>manger est obligé,</b> car pour lui leur travail est achevé, mais celui qui avait l'intention <b>d'en faire des fruits secs est exempté</b> et peut prendre part aux fruits de manière désinvolte, car pour lui leur travail n'est pas encore achevé. Rabbi Yoḥanan statue en opposition à la première <i>tanna</i>. Il soutient que la transaction elle-même ne rend pas le fruit passible de la dîme, à moins que son travail n'ait été achevé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

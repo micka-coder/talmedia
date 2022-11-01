@@ -54,4 +54,4 @@ La Gemara répond : <b>En fait,</b> le mishna fait référence <b>au Second Temp
 <b>Abaye a dit</b> que <b>cette</b> question <b>est</b> une dispute entre <b><i>tanna'im</i>. Et Abaye a dit : Il est raisonnable</b> d'expliquer <b>conformément</b> à l'avis de <b>celui qui a dit</b> qu'il entasse l'encens dans la section du bac à charbon <b>la plus proche</b> de l'Arche, <b>qui est la plus éloignée de lui. Comme nous l'avons appris</b> dans une mishna que <b>ils</b> allaient <b>enseigner</b> le prêtre qui brûle l'encens : <b>Faites attention</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

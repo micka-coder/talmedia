@@ -99,4 +99,4 @@ En se basant sur les prieres de Moise, <b>Rabbi Simlai a enseigne : On doit touj
 La Guemara fait preceder le discours suivant d'un <b>symbole mnemotechnique : Actes, charite, offrande, pretre, jeune, chaussure, fer.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

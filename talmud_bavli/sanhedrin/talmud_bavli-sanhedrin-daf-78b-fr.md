@@ -45,4 +45,4 @@ La Gemara demande : <b>À partir de quand</b> l'évaluation initiale de la valeu
 Si quelqu'un <b>avait l'intention de frapper</b> un autre <b>sur ses reins, et</b> le coup <b>n'était pas</b> assez puissant <b>pour le tuer</b> s'il tombait <b>sur ses reins, mais</b> au lieu de cela le coup est tombé <b>sur</b> sa poitrine au-dessus du <b>cœur de la victime, et qu'il était</b> assez puissant <b>pour le tuer</b> lorsqu'il est tombé <b>sur</b> sa poitrine au-dessus de <b>son cœur, et</b> la victime <b>est morte</b> à la suite du coup, l'agresseur est <b>exempté</b> de l'exécution, car il n'avait pas l'intention de porter à la victime un coup qui causerait sa mort. Si <b>il avait l'intention de le frapper sur</b> sa poitrine au-dessus de <b>son cœur</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -29,5 +29,5 @@ Un bloc [de bois] qui a été peint en rouge ou en safran, ou qui a été poli :
 ### michna 10
 Une toilette est sujette à la fois à l'impureté des midras et des cadavres. Si le siège en cuir a été séparé, le cuir est sujet à l'impureté midras et le fer n'est sujet qu'à l'impureté cadavre. Un tabouret pliant dont le revêtement est en cuir est sujet à la fois à l'impureté midras et à l'impureté du cadavre. S'il a été démonté, le cuir est sujet à l'impureté midras alors que le tabouret est entièrement propre. Un banc de bain qui a deux pieds en bois est susceptible d'être impur. Si l'un des pieds était en bois et l'autre en pierre, il est propre. Les planches d'une maison de bain qui ont été jointes ensemble : Rabbi Akiva dit qu'elles sont susceptibles d'être impures [midras] ; mais les sages disent qu'elles sont pures, car elles sont faites uniquement pour que l'eau coule en dessous d'elles. Une cage de fumigation qui contient un réceptacle pour des vêtements est susceptible d'être impure, mais celle qui est faite comme une ruche d'abeilles est propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -87,4 +87,4 @@ La Gemara répond : <b>Au contraire, il est nécessaire</b> que le verset énonc
 <b>Au contraire, si elle n'est pas</b> nécessaire pour la <b>matière de protection d'une carcasse, appliquez-la</b> à la <b>matière de la poignée d'une carcasse. Et si elle n'est pas</b> nécessaire pour la <b>matière de la poignée d'une carcasse, on l'applique</b> à la <b>matière de la poignée en général,</b> et on en déduit qu'une poignée importe une impureté. Donc, en résumé, on peut déduire que <b>une poignée exporte</b> l'impureté et que <b>une poignée importe</b> l'impureté, <b>et</b> on peut déduire du verset concernant la protection à l'égard de l'impureté des aliments que la <b>protection se joint</b> à l'aliment pour constituer la mesure requise pour conférer l'impureté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

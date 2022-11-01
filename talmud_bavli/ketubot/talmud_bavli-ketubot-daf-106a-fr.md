@@ -42,7 +42,7 @@ La Guemara répond : <b>Il fait ici référence aux rideaux <b>des portes,</b> q
 <b>Rav Huna soulève un dilemme devant Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>C'est une mitzva positive,</b> pour que les juges jugent correctement les affaires, <b>et c'est une mitzva positive,</b> pour honorer les savants de la Torah et leurs familles. Rav Naḥman en conclut que <b>la mitzva positive de</b> donner <b>l'honneur à la Torah a la priorité.</b> Par conséquent, <b>il mit de côté le cas des orphelins et s'installa pour juger</b> le cas de cet homme, en supposant à tort qu'il était un parent de Rav Anan. <b>Lorsque l'autre <b>plaignant</b> vit l'honneur qui était accordé à</b> cet homme par le juge, il devint nerveux jusqu'à ce que sa bouche, c'est-à-dire sa capacité à argumenter <b>sa demande, devienne fermée,</b> et il perdit le procès. De cette manière, la justice a été pervertie par Rav Anan, bien qu'involontairement et indirectement.
 
@@ -86,4 +86,4 @@ La Guemara répond : <b>Il fait ici référence aux rideaux <b>des portes,</b> q
 <b>Rav Huna soulève un dilemme devant Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

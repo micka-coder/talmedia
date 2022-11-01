@@ -81,4 +81,4 @@ La Gemara riposte : Cette dérivation <b>peut être réfutée : Qu'est-ce qui es
 <b>Et</b> troisièmement, elle est unique en ce que la déviation du type d'offrande <b>s'applique</b> même <b>après</b> la <b>mort</b> du propriétaire, lorsque l'héritier du propriétaire apporte l'offrande, alors que l'intention par égard pour le propriétaire n'est pas pertinente après la mort du propriétaire. <b>Et</b> quatrièmement, elle est unique en ce que la déviation du type d'offrande <b>s'applique à l'égard des offrandes communales</b> <b>ainsi qu'à l'égard des offrandes individuelles</b>, alors que l'emploi du terme propriétaire n'est pas pertinent à l'égard des offrandes communales, qui appartiennent au public.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

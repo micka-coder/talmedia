@@ -42,4 +42,4 @@ La Gemara demande : <b>Et si on oublie et qu'il arrive qu'il sorte</b> après av
 <b>Ameimar a dit : Le chef des sorcières m'a dit : Celui qui rencontre des sorcières</b> doit <b>dire cette</b> incantation : <b>Des excréments chauds dans des paniers de dattes déchirés dans votre bouche, sorcières ; que vos cheveux tombent</b> car vous les utilisez pour la sorcellerie ; <b>vos miettes,</b> que vous utilisez pour la sorcellerie, <b>doivent se disperser</b> dans le vent ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

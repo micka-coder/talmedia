@@ -38,4 +38,4 @@
 <b>Dans les paroles de Shemaiah le prophète</b> Chaque prophète écrivait son livre, contenant ce qu'il prophétisait, et c'est le Shemaiah qui a été mentionné plus haut (11:2, 12:5). Et le verset écrit plus loin (13:22), "Et le reste des actions d'Abijah et ses manières et ses paroles sont écrites dans le midrash du prophète Iddo," prouve ceci, [que chaque prophète a écrit un livre de ses prophéties, et] son livre [celui d'Iddo] a été appelé midrash.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

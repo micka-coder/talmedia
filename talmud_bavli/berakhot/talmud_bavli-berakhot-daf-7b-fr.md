@@ -84,4 +84,4 @@ En prelude a une autre des declarations de Rabbi Yohanan au nom de Rabbi Shimon 
 Rav Nahman vit que Rabbi Yitzhak avait du mal a trouver un moyen pour lui de s'engager dans la priere communautaire. <b>Il lui a demande : Quelle est</b> la raison de <b>toute cette agitation</b> ? Rabbi Yitzhak <b>lui repondit : Comme Rabbi Yohanan a dit au nom de Rabbi Shimon ben Yohai :</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

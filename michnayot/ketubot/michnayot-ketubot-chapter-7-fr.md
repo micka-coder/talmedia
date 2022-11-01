@@ -29,5 +29,5 @@ Un homme chez qui des défauts sont apparus [après le mariage] ne peut être co
 ### michna 10
 Voici ceux qui sont obligés de divorcer [de leurs femmes] : celui qui est affligé de furoncles, celui qui a un polypus, un ramasseur [d'excréments de chiens pour le traitement des peaux], un forgeron ou un tanneur, qu'ils aient été [dans cette condition] avant de se marier ou qu'ils soient apparus après leur mariage. Et à propos de tous ces cas, Rabbi Meir a dit : bien que l'homme ait posé une condition avec elle [qu'elle l'accepte malgré ces défauts], elle peut néanmoins dire, "Je pensais que je pouvais l'accepter, mais maintenant je ne peux pas l'accepter". Les Sages disent : elle doit accepter [une telle personne] contre sa volonté, la seule exception étant un homme affligé de furoncles, car elle [par ses rapports] l'affaiblira. Il arriva une fois à Sidon qu'un tanneur mourut, et il avait un frère qui était également tanneur. Les Sages ont dit : elle peut dire : "J'ai pu accepter ton frère mais je ne peux pas t'accepter".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La mishna explique la décision de Rabbi Shimon : <b>Comme le dirait Rabbi Shimo
 La Gemara demande : <b>Quelle est la raison</b> que <b>Reish Lakish n'a pas dit conformément</b> à l'avis du <b>Rabbi Yoḥanan ?</b> La Gemara répond : Reish Lakish aurait pu <b>vous dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

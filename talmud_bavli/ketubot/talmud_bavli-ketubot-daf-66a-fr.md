@@ -30,4 +30,4 @@ La mishna aborde une autre question. Si la femme s'était <b>engagée à lui app
 Si l'<b>évaluation</b> est fixée <b>à cent dinars et</b> le bien <b>est</b> effectivement <b>valeur de cent dinars,</b> alors puisque l'évaluation est effectuée à la valeur marchande <b>il a</b> un droit sur un bien valant <b>seulement cent dinars.</b> De même, il ne peut enregistrer une somme diminuée de biens. Son <b>évaluation</b> enregistrée des biens meubles qu'elle apporte dans le mariage est de <b>cent dinars</b> uniquement lorsque <b>elle donne trente et une <i>sela</i> et</b> un <b>dinar,</b> égal à 125 dinars. Cela s'explique par le fait que la valeur réelle est inférieure d'un cinquième à l'évaluation gonflée, comme expliqué. <b>Et</b> de même, il ne gage <b>quatre cents</b> dinars contre ses biens que lorsque <b>elle en donne cinq cents,</b> sur la base de l'évaluation gonflée de leur valeur, de sorte que la valeur réelle est de quatre cents dinars. En revanche, <b>ce que</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

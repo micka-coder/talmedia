@@ -27,4 +27,4 @@ La Guemara répond : <b>Si c'est le cas, Abraham</b> n'aurait pas non plus dû �
 <b>Rabbi Yitzḥak a dit : Pour quelle raison nos ancêtres</b> ont-ils été initialement <b>infertiles ? Parce que le Saint, Béni soit-Il, désire les prières des justes,</b> et Il voulait donc qu'ils prient pour avoir des enfants. De même, <b>Rabbi Yitzḥak a dit : Pourquoi les prières des justes sont-elles comparées à une fourche [<i>eter</i>],</b> comme dans le verset : "Et Il s'est laissé prier [<i>vaye'ater</i>]" ? Cela indique que <b>tout comme cette fourche retourne les produits d'un endroit à l'autre, la prière des justes retourne les attributs du Saint, Béni soit-Il, de</b> l'<b>attribut de rage à</b> l'<b>attribut de miséricorde. Rabbi Ami a dit : Abraham et Sarah étaient</b> originellement des <b><i>tumtumin</i>,</b> des personnes dont les organes sexuels sont dissimulés et non fonctionnels, <b>comme il est dit : "Regarde vers le rocher</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

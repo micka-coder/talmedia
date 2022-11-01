@@ -82,5 +82,5 @@
 ### passuk 20
 <b>C'était bon à ses yeux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il admit [la justesse de l'argument d'Aharon], et n'eut pas honte de dire : "Je n'avais pas entendu [cela]". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

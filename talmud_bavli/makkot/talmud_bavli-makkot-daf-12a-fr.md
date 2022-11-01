@@ -66,4 +66,4 @@ La Guemara rejette le parallèle entre les deux cas. <b>Soulevez-vous une contra
 <b>Et</b> la Gemara <b>souleve une contradiction</b> entre la <i>baraita</i> précédente concernant la <i>halakha</i> du second <b>tithe et</b> une autre <i>baraita</i> concernant la <i>halakha</i> du second <b>tithe, comme il est enseigné</b> dans une <i>baraita</i> (voir <i>Ma'asrot</i> 3 : 10) : <b>À Jérusalem, suivez les rameaux</b> pour déterminer le statut de l'arbre en ce qui concerne la consommation de produits de second-tithe, et de même, <b>en ce qui concerne les villes de refuge, suivez les rameaux</b> pour déterminer le statut de l'arbre en ce qui concerne le refuge d'un meurtrier involontaire. <b>Rav Kahana a dit :</b> Cette contradiction apparente n'est <b>pas difficile,</b> car <b>cette</b> <i>baraita</i> est conforme à l'avis de <b>Rabbi Yehuda, et cette</b> <i>baraita</i> est conforme à l'avis de <b>les rabbins. Comme il est enseigné</b> dans une <i>baraita</i> en ce qui concerne la participation à la seconde dîme à Jérusalem :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

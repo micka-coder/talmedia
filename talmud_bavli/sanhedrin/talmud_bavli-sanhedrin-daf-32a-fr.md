@@ -51,4 +51,4 @@ La Gemara cite la première réponse. <b>Rabbi Ḥanina dit : Par la loi de la T
 La Gemara demande : <b>Si c'est ainsi</b> que les Sages ont supprimé l'obligation d'enquête et d'interrogatoire dans les cas de droit monétaire,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ De même, l'apparente contradiction entre la <i>baraita</i> qui affirme qu'on n'
 § En ce qui concerne les <b>testicules</b> qui ont été <b>écrasés</b> alors que l'animal était vivant mais qui étaient encore attachés à leurs cordons dans le scrotum, il y a un différend entre <b>Rav Ami et Rav Asi. L'un</b> d'entre eux <b>interdit</b> de manger les testicules après l'abattage de l'animal <b>et l'autre</b> d'entre eux <b>permet</b> de les manger. La Guemara clarifie : <b>Celui qui les interdit</b> tient que...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

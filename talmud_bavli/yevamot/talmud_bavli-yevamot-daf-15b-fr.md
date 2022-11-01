@@ -42,4 +42,4 @@ La Guemara développe : <b>Disons-nous</b> la suivante <b>une <i>a fortiori</i><
 <b>Ou peut-être</b> cette comparaison <b>peut-elle être réfutée : Qu'en est-il</b> du fait <b>qu'une veuve</b> est différente, <b>puisqu'elle est elle-même disqualifiée</b> pour épouser un prêtre, c'est-à-dire que si un Grand Prêtre a des rapports sexuels avec elle, elle est disqualifiée pour épouser n'importe quel membre du sacerdoce tout entier, y compris les prêtres roturiers, alors qu'une divorcée remariée n'est elle-même pas disqualifiée pour se marier dans le sacerdoce ? <b>Et</b> Rabbi Yehoshua <b>leur a dit : Je crains</b> que si j'émets une décision décisive concernant les <b>épouses rivales</b>, cela pourrait conduire à un conflit,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

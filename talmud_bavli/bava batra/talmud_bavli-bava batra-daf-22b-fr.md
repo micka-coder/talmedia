@@ -39,4 +39,4 @@ La Gemara répond : <b>Vous</b> pouvez <b>même dire</b> que la mishna suit l'op
 La Gemara relate : <b>Rav Yossef avait certains petits palmiers [<i>talei</i>],</b> et...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

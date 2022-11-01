@@ -161,5 +161,5 @@
 <b>Tes ennemis te prévaudront.</b> Par exemple, les Givonites, qui ont dit : " Tes serviteurs sont venus d'un pays lointain, etc. ". 
 <b>Alors que tu fouleras leurs hauts lieux.</b> Comme il est dit : "Pose tes pieds sur la nuque de ces rois." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

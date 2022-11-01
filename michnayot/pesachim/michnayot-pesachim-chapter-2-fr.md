@@ -24,4 +24,4 @@ On ne peut pas faire tremper le son grossier pour nourrir les poulets, de peur q
 Il est interdit d'ajouter de la farine à l'á¸¥aroset, un aliment assaisonné et piquant, ou à la moutarde, pour en atténuer le goût piquant. Dans les deux cas, le piquant de ces aliments pourrait accélérer le levage de la farine. Et si l'on ajoute de la farine à l'un ou l'autre de ces aliments, le mélange peut être mangé immédiatement avant qu'il ne soit levé ; et Rabbi Meir l'interdit, de peur que l'aliment ne soit levé immédiatement. La mishna poursuit : On ne peut pas faire bouillir l'agneau pascal dans des liquides ordinaires ou dans des jus de fruits, car la Torah indique explicitement qu'il doit être rôti. Cependant, on peut l'arroser pendant qu'il rôtit et le plonger dans un liquide pendant qu'on le mange. Le tanna ajoute : L'eau qui a été utilisée par un boulanger pour se rafraîchir les mains ou pour laver la vaisselle doit être versée, car cette eau ameublit la pâte, étant donné qu'elle contient probablement une petite quantité de farine et de pâte.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

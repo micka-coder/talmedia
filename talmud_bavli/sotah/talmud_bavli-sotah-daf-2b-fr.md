@@ -87,4 +87,4 @@ La Guemara clarifie la déclaration de Rabbi Yoḥanan : <b>Au contraire, s'il a
 <b>Et Rav Yeimar bar Rabbi Shelemya dit au nom de Abaye :</b> Le terme <i>kinnui</i> signifie <b>une affaire qui provoque la colère entre lui et elle,</b> c'est-à-dire entre mari et femme. La Gemara commente : <b>Apparemment, il soutient</b> qu'un <b>avertissement</b> est efficace <b>sur la base</b> du témoignage de <b>deux témoins.</b> Et puisqu'il y a deux témoins, <b>tout le monde sait qu'il lui a adressé un avertissement.</b> Par conséquent, l'avertissement ne provoque pas de colère entre elle et les autres. <b>Et le mari est celui qui viendra agir en colère contre elle,</b> car ils auront un antagonisme mutuel l'un envers l'autre.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

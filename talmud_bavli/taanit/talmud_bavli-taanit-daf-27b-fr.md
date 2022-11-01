@@ -45,4 +45,4 @@ La Guemara <b>souleve une objection</b> d'une <i>baraita</i> : <b>Un chapitre</b
 La Guemara explique cette objection : <b>Selon celui qui a dit</b> qu'ils <b>répètent</b> le verset du milieu, <b>laissons</b> le second lecteur <b>répèter</b> un verset ici aussi. <b>Et selon celui qui a dit</b> qu'ils <b>séparent</b> un verset, ici aussi, <b>laissons</b> les <b>séparer</b>. Apparemment, la <i>baraita</i> contredit les avis de Rav et de Shmuel. La Guemara répond : <b>C'est différent là,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Dans une résolution alternative de la contradiction entre les déclarations de 
 <b>Abaye dit à Rav Yosef :</b> Selon <b>Rabbi Yehuda, qui a dit</b> l'immersion n'est pas une obligation réelle mais <b>c'est une immersion accessoire</b> pour rappeler à l'individu son ancienne impureté,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

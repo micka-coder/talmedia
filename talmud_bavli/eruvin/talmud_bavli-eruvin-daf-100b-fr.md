@@ -90,4 +90,4 @@ De même, <b>Rabbi Yoḥanan a dit : Même si la Torah n'avait pas été donnée
 <b>Que fait</b> le coq pour <b>apprivoiser</b> la poule ? <b>Rav Yehuda dit</b> que <b>Rav a dit :</b> Avant l'accouplement, il déploie ses ailes comme pour <b>dire ceci : Je vais t'acheter un manteau qui descendra</b> jusqu'à <b>tous tes pieds. Après</b> l'accouplement, le coq penche la tête comme pour <b>dire ceci : Que la crête de ce coq tombe s'il a</b> les moyens <b>de t'en acheter un.</b> Je n'ai tout simplement pas d'argent pour le faire.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

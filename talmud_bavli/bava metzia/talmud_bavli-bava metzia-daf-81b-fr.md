@@ -42,4 +42,4 @@ La Gemara réfute cette suggestion : <b>Même</b> si <b>on dit</b> que la mishna
 La Gemara soulève une difficulté : <b>Mais ne font pas</b> à la fois <b>ceci et ça,</b> la mishna et la <i>baraita</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

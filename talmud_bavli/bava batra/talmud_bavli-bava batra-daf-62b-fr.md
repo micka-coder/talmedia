@@ -39,4 +39,4 @@ Si la quatrième limite <b>est incluse</b> dans les deux limites adjacentes, <b>
 <b>Abaye lui dit : Qu'est-ce qui est différent</b> dans <b>cette formulation, <b>et qu'est-ce qui est différent</b> dans <b>cette</b> formulation, pour que vous statuiez différemment dans les deux cas ? Rabba <b>s'est tu,</b> et n'a pas répondu. Les Sages <b>comprirent de ce silence</b> qu'Abaye comprenait que Rabba rétractait sa décision et concédait que dans <b>cette</b> affaire <b>et cette</b> affaire, l'acheteur acquiert <b>la moitié</b> du champ.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

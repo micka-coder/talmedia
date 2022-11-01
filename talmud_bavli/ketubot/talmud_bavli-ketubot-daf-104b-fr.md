@@ -51,7 +51,7 @@ La femme <b>dit à</b> Rava : <b>Si c'est le cas, il doit partir</b> et <b>me re
 Rava poursuit : <b>Mais ce n'est pas le cas. Parfois</b> la veuve <b>allera améliorer</b> le bien de l'héritier, pensant qu'elle recevra son paiement de ce bien, <b>et</b> le bien <b>de son</b> <b>mari</b> décédé se <b>dépréciera</b> en raison de la négligence de l'héritier, qui sait que c'est ce bien qui est grevé pour assurer le paiement du contrat de mariage de la veuve. <b>Et</b> finalement, l'héritier va <b>s'adresser à elle : Prends tes</b> biens, c'est-à-dire les biens qui appartenaient à ton mari, <b>et donne-moi mes</b> biens. <b>Et</b> les gens <b>en viendront à jeter l'anathème sur le tribunal</b> comme n'étant pas soucieux du bien-être de la femme, qui se retrouvera avec les biens dépréciés. Par conséquent, le document d'autorisation de saisie des biens doit spécifier exactement les biens qui appartenaient au mari décédé de la veuve et qu'elle est en droit de percevoir. Puisque Rabba bar Sheila a commis une erreur et n'a pas écrit cette spécification, le document d'autorisation qu'il a rédigé était inutile.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 c'est <b>comme si elle était au début</b> de sa période de veuvage, et elle a encore vingt-cinq ans à partir de ce moment-là pendant lesquels elle peut exiger le paiement de son contrat de mariage. <b>Et si elle a un contrat de mariage en sa possession, elle peut percevoir</b> le paiement de <b>son contrat de mariage pour toujours.</b>
 
@@ -104,4 +104,4 @@ La femme <b>dit à</b> Rava : <b>Si c'est le cas, il doit partir</b> et <b>me re
 Rava poursuit : <b>Mais ce n'est pas le cas. Parfois</b> la veuve <b>allera améliorer</b> le bien de l'héritier, pensant qu'elle recevra son paiement de ce bien, <b>et</b> le bien <b>de son</b> <b>mari</b> décédé se <b>dépréciera</b> en raison de la négligence de l'héritier, qui sait que c'est ce bien qui est grevé pour assurer le paiement du contrat de mariage de la veuve. <b>Et</b> finalement, l'héritier va <b>s'adresser à elle : Prends tes</b> biens, c'est-à-dire les biens qui appartenaient à ton mari, <b>et donne-moi mes</b> biens. <b>Et</b> les gens <b>en viendront à jeter l'anathème sur le tribunal</b> comme n'étant pas soucieux du bien-être de la femme, qui se retrouvera avec les biens dépréciés. Par conséquent, le document d'autorisation de saisie des biens doit spécifier exactement les biens qui appartenaient au mari décédé de la veuve et qu'elle est en droit de percevoir. Puisque Rabba bar Sheila a commis une erreur et n'a pas écrit cette spécification, le document d'autorisation qu'il a écrit est inutile.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

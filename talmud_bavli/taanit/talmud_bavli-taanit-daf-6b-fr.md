@@ -51,4 +51,4 @@ La Gemara demande : <b>Quelle bénédiction</b> récite-t-on sur la pluie ? <b>R
 La Gemara demande : Pourquoi la bénédiction spécifie-t-elle <b>des actions de grâces abondantes</b> et pas toutes les actions de grâces ? Rava dit :</b> Emendez la formule de la bénédiction et <b>dites : Dieu des actions de grâces. Rav Pappa a dit : </b> Donc,</b> comme il y a des divergences d'opinion à ce sujet,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

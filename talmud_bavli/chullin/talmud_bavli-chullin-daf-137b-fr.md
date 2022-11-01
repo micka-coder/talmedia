@@ -51,4 +51,4 @@ Abaye développe : <b>Accordé,</b> vous avez résolu une contradiction entre de
 <b>Mais</b> la contradiction entre une déclaration <b>du Rav et</b> une autre déclaration <b>du Rav</b> pose <b>une difficulté, car Rav a dit</b> que la toison pesant <b>cent dinars [<i>maneh</i>] et la moitié</b> de cent dinars [<i>maneh</i>] est obligatoire dans la première laine tondue, alors que Rav Dimi a déclaré que selon Rav l'obligation s'applique à soixante <i>sela</i>, soit 240 dinars. La Guemara répond : La contradiction apparente entre l'une des déclarations <b>du Rav et</b> l'autre déclaration <b>du Rav</b> n'est <b>pas non plus difficile,</b> car <b>qu'est-ce</b> que le <b><i>maneh</i></b> dont</b> Rav <b>a dit</b> qu'un <i>maneh</i> et demi sont obligatoires ? Rav faisait référence non pas à un <i>maneh</i> de cent dinars mais à un <i>maneh</i> <b>de quarante <i>sela</i>,</b> soit 160 dinars, un <i>maneh</i> et demi de <b>qui est</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,4 +17,4 @@
 <b>Magnifié en hauteur</b> Il était très haut, car Salomon l'a élevé à cent vingt coudées, comme il est écrit : (I Rois 6:3) : "Et le portique devant le Temple de la Maison, etc.".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

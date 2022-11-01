@@ -54,4 +54,4 @@ Il est dit dans le <i>baraita</i> : <b>Si</b> la hauteur du <b>foin a été réd
 <b>Et Rav Huna, fils de Rav Yehoshua, dit : Même</b> si <b>tu dis</b> que le <i>baraita</i> traite <b>d'une maison de dix</b> coudées de haut,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

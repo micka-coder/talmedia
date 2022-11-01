@@ -48,4 +48,4 @@ La Guemara répond que les deux versets <b>sont nécessaires. Comme, si le Misé
 La Gemara demande : <b>D'où dérive-t-on</b> que la literie <b>au-dessus d'un <i>zav</i></b> impureté rituelle uniquement à la nourriture et à la boisson ? <b>Comme il est écrit</b> à propos d'un <i>zav</i> : <b>"Et quiconque touchera une chose qui était sous lui sera impur"</b> (Lévitique 15:10). <b>Quel est le sens de l'expression <b>"sous lui" ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara relate : Les membres <b>du foyer du Rav Pappa</b> versaient soigneusem
 <b>Et</b> nous avons encore appris dans la mishna : <b>On peut placer un œuf dans</b> une moutarde <b>filtre</b> le Chabbat afin de séparer le jaune du blanc de l'œuf. Le Sage, <b>Ya'akov Korḥa, a enseigné</b> une raison à cela :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

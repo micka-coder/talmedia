@@ -51,4 +51,4 @@ La Gemara demande : <b>Quelle</b> différence <b>y a-t-il entre</b> les avis de 
 <b>Reish Lakish dit</b> en résumé : En ce qui concerne <b>une offrande de repas qui vient par elle-même</b> et n'accompagne pas une autre offrande, <b>selon les déclarations de tous</b> les <i>tanna'im</i> dans la mishna, <b>elle ne descendra pas</b> une fois qu'elle est montée, soit parce qu'elle est apte à être consumée par le feu, soit parce qu'elle vient par elle-même. <b>Selon les déclarations de Rabbi Yosei HaGelili et Rabbi Akiva,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

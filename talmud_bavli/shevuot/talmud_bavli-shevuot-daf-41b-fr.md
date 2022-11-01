@@ -45,4 +45,4 @@ La Gemara relate : Il y avait <b>une certaine</b> personne <b>qui a dit à une a
 La Gemara relate : Il y avait <b>une certaine</b> personne <b>qui a dit à une autre : Donne-moi</b> les <b>six cents dinars que je te réclame.</b> Cette dernière <b>lui a dit : Mais ne t'ai-je pas remboursé</b> de <b>cent <i>kav</i></b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

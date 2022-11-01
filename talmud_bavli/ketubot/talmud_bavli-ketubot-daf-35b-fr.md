@@ -24,4 +24,4 @@ La Gemara répond : Cette notion ne doit pas entrer dans votre esprit, car il es
 La Guemara développe. <b>Quel est</b> le sens de <b>parents interdits, et quel est</b> le sens de <b>parents interdits secondaires</b> dans le contexte de cette <i>baraita</i> ? <b>Si nous disons</b> que <b>parents interdits</b> signifie...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

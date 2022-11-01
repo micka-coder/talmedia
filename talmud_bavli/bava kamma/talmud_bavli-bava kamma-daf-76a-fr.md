@@ -60,4 +60,4 @@ La Gemara demande : <b>Mais</b> en abattant et en sacrifiant l'animal sacrifié 
 <b>Lorsque Ravin est venu</b> d'Eretz Yisrael, il a cité une version différente de cette réponse, et a dit que <b>Rabbi Yoḥanan dit :</b> Cela fait référence à un cas <b>où</b> le voleur <b>abat</b> l'animal, <b>sans tache, à l'intérieur</b> du Temple, mais <b>pas pour le bien</b> de son <b>propriétaire. </b> La <i>halakha</i> dans ce cas est que la viande de l'animal peut être consommée mais que le propriétaire n'a pas rempli son obligation avec cette offrande. Dans ce cas, l'abattage de l'animal rend sa viande propre à la consommation. Cependant, on ne considère pas que l'animal a été rendu à son propriétaire.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

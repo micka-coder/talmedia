@@ -39,4 +39,4 @@ La Gemara demande : <b>N'est-ce pas l'inverse [<i>kelapei layya</i>] ? </b> Il e
 La Gemara demande : Pourquoi la <i>baraita</i> doit-elle préciser qu'on est fouetté pour l'un ou l'autre type de serment ? N'est-ce pas <b>évident ? Ceci est une interdiction et cela est une interdiction,</b> et pour les deux on est susceptible de recevoir des coups de fouet. La Guemara répond : <b>A moins que vous ne disiez, comme Rav Pappa l'a dit à Abaye,</b> que le verset : "Car l'Eternel <b>n'absoudra pas de sa faute</b> celui qui prend Son nom en vain" (Exode 20:7), pourrait indiquer que Dieu ne l'absoudra pas <b>du tout,</b> et que même s'il est puni, il ne pourra pas expier son péché,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

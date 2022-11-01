@@ -30,4 +30,4 @@ La Gemara suggère : <b>Mais que</b> Rabbi Tarfon lui <b>dise : </b> Va et <b>pr
 Rav Pappa <b>lui a dit : Oui,</b> la <i>halakha</i> est conforme à l'avis de Rabbi Chimon Shezuri, même en ce qui concerne les produits non mis en valeur qui ont été mélangés avec des produits soumis à la dîme. <b>Rav Ashi a dit : Mar Zutra m'a dit : Rabbi Ḥanina de Sura a soulevé une difficulté à ce sujet :</b> N'est-ce pas <b>évident ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

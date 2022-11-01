@@ -36,4 +36,4 @@ Puisque la Gemara a cité Rav Ḥinnana bar Shelamya, elle cite une autre de ses
 La Guemara demande : <b>Mais avons-nous besoin de tout ce</b> temps d'une nuit et de la moitié d'un jour pour une période complète ? <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir d'une <i>baraïta</i> : Dans le cas de celui <b>dont les pressoirs à vin ou à olives étaient impurs et qui souhaitait préparer</b> ses raisins et ses olives <b>dans</b> un état de pureté <b>rituelle, comment doit-il agir ? </b> Il doit <b>rincer les planches</b> utilisées pour presser les raisins dans le pressoir, <b>et les branches de palmier</b> utilisées comme balais, <b>et les auges,</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

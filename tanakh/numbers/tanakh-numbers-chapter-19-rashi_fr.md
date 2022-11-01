@@ -78,5 +78,5 @@
 <b>Bois de cèdre, hysope et laine cramoisie.</b> Ces trois espèces correspondent aux trois mille hommes qui ont péri à cause du veau. Le cèdre est le plus haut de tous les arbres, l'hysope le plus bas de tous, signifiant que quelqu'un de hautain qui a péché par arrogance doit s'humilier comme l'hysope et le ver pour obtenir l'expiation. 
 <b>Un souvenir.</b> Tout comme la transgression du veau, qui est conservée à travers les générations pour être punie, car il n'y a pas de compte qui ne comprenne un compte pour le veau, comme il est dit : "au jour de mon compte, je tiendrai compte .... [le péché du veau], et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de même que le veau a souillé tous ceux qui y ont participé, de même la <i>parah</i> souille tous ceux qui y ont participé. De même qu'ils ont été purifiés avec ses cendres, comme il est dit : " il les a répandues sur l'eau, etc. ", de même " ils prendront, pour celui qui s'est souillé, de la poussière de l'holocauste pour le péché, [et placeront, sur elle, de l'eau de source "]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

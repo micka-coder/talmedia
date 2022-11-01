@@ -33,4 +33,4 @@ La Guemara répond : <b>Les Sages ont fait une</b> <b>distinction ostensible, af
 La Guemara demande : <b>Quelle que soit la manière</b> <b>dont vous le regardez</b>, il y a une difficulté : <b>Si elle est</b> considérée comme <b>un lien,</b> elle doit être considérée comme telle <b>même</b> en ce qui concerne <b>l'aspersion;</b> et <b>si elle n'est pas</b> considérée comme <b>un lien,</b> elle ne doit <b>pas</b> être considérée comme telle <b>même</b> en ce qui concerne <b>l'impureté rituelle. Rava a dit : Selon la loi de la Torah, lorsqu'il est utilisé,</b> il est considéré comme <b>une connexion, à la fois</b> en ce qui concerne <b>l'impureté rituelle</b> et en ce qui concerne <b>l'aspersion. Et lorsqu'il n'est pas utilisé,</b> même si les parties sont maintenant ensemble, puisqu'elles sont faites pour se séparer éventuellement et sont typiquement démontées, il n'est <b>ni</b> considéré comme <b>une connexion</b> en ce qui concerne <b>l'impureté rituelle ni</b> en ce qui concerne <b>l'aspersion.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

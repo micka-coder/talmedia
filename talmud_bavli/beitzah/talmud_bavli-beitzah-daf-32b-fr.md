@@ -45,4 +45,4 @@ Dans un cas connexe, <b>Ravina a dit à Rav Ashi : Rav Aḥa de Hutzal nous a di
 <b>Rav Yehuda a dit :</b> En ce qui concerne <b>ce feu de joie,</b> dans lequel le bois est disposé en forme de maison, si on le dispose <b>de haut en bas, c'est permis,</b> car ce n'est pas la manière régulière de construire. En revanche, si on le prépare de la manière habituelle, <b>de bas en haut, c'est interdit,</b> car cela est considéré comme une construction.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

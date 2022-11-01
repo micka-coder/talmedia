@@ -11,5 +11,5 @@ Si une citerne est pleine d'eau puisée et qu'un canal y entre et en sort, elle 
 ### michna 4
 [Si trois log d'eau puisée tombent] depuis des récipients [à l'intérieur d'un bassin d'eau de moins de 40 séah], si c'est deux ou trois, [récipients] elles se combinent ensemble ; mais si elles [les eaux] tombent de quatre [récipients], elles ne se combinent pas ensemble. Si un homme qui a eu un écoulement séminal [baal keri] était malade et que neuf kavs d'eau tombaient sur lui, ou si sur la tête - et la plus grande partie du corps d'une personne pure - tombaient trois log d'eau puisée provenant d'un récipient ou de deux ou de trois, elles se combinent ensemble ; mais si elles proviennent de quatre, elles ne se combinent pas ensemble. Dans quel cas cela s'applique-t-elle [la règle qu'avec moins de 3 récipients les eaux se combinent] ?   Lorsque le second [écoulement d'eau] a commencé avant que le premier se soit terminé. Et dans quel cas [la règle qu'avec plus de 3 récipients les eaux ne se combinent pas] s'applique-t-elle ? Lorsqu'il n'y a pas eu d'intention d'augmenter [le volume d'eau du bassin]. Mais s'il y avait une intention de l'augmenter, ne serait-ce que d'un kortov dans une année entière, ils se combinent ensemble pour atteindre les trois log.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

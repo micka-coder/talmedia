@@ -45,4 +45,4 @@ La Gemara conteste cette dérivation : <b>Dérivons</b> plutôt le nombre de bri
 La Guemara continue d'expliquer la <i>baraïta</i> : que la <b>robe</b> doit être tissée à partir de fils filés de <b>douze</b> brins, <b>d'où dérive-t-on</b> cela ? <b>Comme il est écrit : "Et tu feras la robe de l'éphod</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

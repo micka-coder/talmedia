@@ -15,4 +15,4 @@ A propos de la purification d'un récipient en terre, la Gemara cite que <b>Rava
 <b>Rav Asi a dit : J'ai entendu</b> qu'en ce qui concerne <b>un récipient en terre cuite,</b> la <b>mesure</b> du trou qui le rend incapable de devenir rituellement impur est assez grande <b>pour permettre à une grenade de sortir. Rava lui dit : Peut-être n'as-tu entendu cela</b> que lorsque <b>sa</b> bouche <b>est entourée</b> d'un <b>couvercle étanche,</b> mais un récipient ordinaire en terre devient rituellement pur avec un trou assez grand pour permettre à une olive de sortir. La Gemara demande : <b>N'est-ce pas Rava</b> lui-même <b>celui qui a <b>dit</b> qu'un récipient en terre cuite qui est <b>entouré d'un couvercle scellé</b> protège ce qui se trouve à l'intérieur du récipient de contracter l'impureté <b>à moins que la majorité</b> du récipient <b>soit brisée ?</b> La Gemara répond : Ce n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Pendant la <b>troisième semaine, elle</b> est tenue de s'immerger</b> tous les 
 Elle est également tenue de s'immerger <b>pendant</b> chaque <b>nuit</b> de la troisième semaine, selon Beit Shammai. <b>Beit Shammai</b> se conforment <b>à leur ligne de <b>raisonnement, car ils disent</b> dans une mishna (71b) qu'une femme qui a terminé sa période de pureté après l'accouchement, désignée comme <b>une femme qui s'est immergée cette longue journée</b> et qui attend que son processus de purification soit terminé, <b>demande une immersion</b> à la fin de cette période. La femme doit donc s'immerger chaque nuit de la troisième semaine, au cas où cette nuit serait la fin de sa période de pureté, pour un total de trente-cinq immersions à la fin de la semaine. Elle doit continuer à s'immerger toutes les nuits jusqu'à ce que sa période de pureté soit certainement terminée, quelle que soit la date de son accouchement, c'est-à-dire jusqu'au quatre-vingtième jour depuis son arrivée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

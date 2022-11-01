@@ -30,4 +30,4 @@ La Guemara note que <b>cette</b> <i>baraita</i> <b>elle-même</b> est <b>diffici
 La Guemara répond que la première clause est conforme à l'opinion de Rabbi Shimon, qui dit : Toute offrande pour le péché dont les propriétaires ont obtenu l'expiation</b> par le biais d'un autre animal doit être <b>laissée à l'abandon.</b> Par conséquent, si le propriétaire a obtenu l'expiation, l'argent du mauvais usage doit être jeté dans la mer Morte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ Rabbi Yoḥanan a dit : <b>Toutes ces quarante années où le peuple juif était
 <b>Rava dit à Rabba bar Mari : D'où vient cette affaire</b> <b>par laquelle les gens disent : La pauvreté suit le pauvre ?</b> Rabba bar Mari <b>lui répondit : Comme nous l'avons appris</b> dans une mishna (<i>Bikkurim</i> 3:8) : <b>Les riches</b> apporteraient les prémices dans des corbeilles d'or et d'argent, et les pauvres</b> apporteraient les prémices <b>dans des corbeilles d'osier</b> faites <b>de saule pelé,</b> et <b>ils donneraient les corbeilles et les prémices aux prêtres.</b> Les riches verraient leurs corbeilles leur être rendues, tandis que les pauvres ne le seraient pas. Rava <b>lui a dit : Tu as dit</b> la preuve <b>de là,</b> d'une mishna, <b>et je dis</b> la preuve <b>de là,</b> d'un verset de la Torah :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Rabbi Yonatan poursuit . <b>J'ai dit à</b> ben Azzai : <b>Mais est-il écrit : 
 En outre, <b>une <i>ḥayya</i> cachère est incluse</b> lorsque la Torah fait référence à <b>une <i>Behema</i> cachère,</b> et <b>une <i>Behema</i> non cachère est incluse</b> lorsque la Torah fait référence à <b>une <i>Behema</i> non cachère.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La raison en est que <b>puisque tant qu'on n'a pas aspergé le sang, il n'est pa
 Mais si l'on égorge d'abord la progéniture qui est <b>une offrande de paix</b> et que l'on asperge son sang, <b>et qu'ensuite</b> on égorge la mère <b>non sacrée</b>, il est <b>faisable</b> de recevoir des coups de fouet pour avoir égorgé la mère. Une fois que la mère non sacrée est abattue, la viande est apte ; par conséquent, l'avertissement préalable est définitif. <b>Et Rava dit : </b> Si <b>elle,</b> la mère, <b>est non sacrée, et que sa progéniture est</b> sacrifiée comme <b>un holocauste,</b> et que les deux sont abattus le même jour, <b>Il n'est pas nécessaire</b> d'affirmer que si quelqu'un <b>abattait</b> la mère <b>non sacrée</b>, <b>et qu'ensuite</b> il <b>abattait</b> sa progéniture comme <b>un holocauste, qu</b> il est <b>exempté. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

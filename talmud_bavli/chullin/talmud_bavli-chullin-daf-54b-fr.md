@@ -39,4 +39,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue de la sui
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve d'une autre mishna (<i>Kelim</i> 2:2) : En ce qui concerne <b>les plus petits des récipients en terre cuite,</b> si <b>ils, ou</b> même <b>leurs</b> cassés <b>des bases ou des côtés,</b> peuvent <b>s'asseoir,</b> c'est-à-dire rester debout, <b>sans être soutenus,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

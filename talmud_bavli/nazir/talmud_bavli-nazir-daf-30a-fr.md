@@ -24,4 +24,4 @@ La Guemara clarifie : <b>Cela se passe bien selon</b> l'avis de <b>Rabbi Yosei, 
 La Guemara répond : <b>Non,</b> cette <i>halakha</i> est <b>nécessaire</b> dans un cas <b>où il n'a qu'une fille,</b> qui hérite de lui. <b>Au cas où vous diriez</b> que <b>nous avons appris</b> cette <i>halakha</i> à propos des <b>héritiers,</b> c'est-à-dire que la <i>halakha</i> est que tous les héritiers, y compris une fille, peuvent se raser grâce aux offrandes de leur père,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

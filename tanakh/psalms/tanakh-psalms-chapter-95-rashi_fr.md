@@ -29,4 +29,4 @@
 <b>Mon lieu de repos</b> [Dans]le pays d'Israël et Jérusalem, que j'ai appelé "lieu de repos", comme il est dit (ci-dessous 132:14) : " C'est mon lieu de repos pour toujours ".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

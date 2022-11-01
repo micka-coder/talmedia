@@ -30,4 +30,4 @@ La Guemara répond : <b>En fait,</b> la déclaration de Rava doit être expliqu�
 S'ils marchaient dans la même direction, de sorte que <b>le propriétaire de la <b>poutre transversale</b> marchait</b> le premier,</b> devant, <b>et le propriétaire d'un tonneau le dernier,</b> derrière lui, et que <b>le tonneau a été brisé par la</b> poutre transversale, le propriétaire de la</b> poutre transversale</b> est <b>exempté,</b> puisque le propriétaire du tonneau l'a vu devant lui et aurait dû faire plus attention.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Les Sages ont dit que les fortunes de <b>Caesarea,</b> qui représente Rome, <b>
 <b>Et Rabbi Yitzḥak</b> a également <b>dit : Quel est</b> le sens de ce <b>qui est écrit : " N'accède pas, ô Seigneur, aux désirs du méchant ; ne pousse pas son mauvais dessein, afin qu'ils ne s'élèvent pas. Selah"</b> (Psaumes 140.9) ? <b>Jacob a dit devant le Saint, Béni soit-Il : Maître de l'Univers, n'accorde pas au méchant Esaü les désirs de son cœur,</b> car il veut nous détruire. <b>Ne favorise pas son mauvais dispositif [<i>zemamo</i>] ; </b> n'enlève pas la muselière [<i>zamam</i>] qui le contraint et l'empêche d'éclater et de rassembler davantage de force. <b>C'est</b> une référence à...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

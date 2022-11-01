@@ -42,4 +42,4 @@ Rav Pappa rejette cette idée : <b>Et d'où</b> relevez-vous votre défi ? <b>Ma
 Rav Ashi lui a dit : Il existe un moyen d'éviter le transfert dans une autre tribu : <b>Lorsque nous la marions à un homme dont le père</b> est <b>de la tribu de son père et sa mère est de la tribu de sa mère,</b> le transfert est évité car la terre conserve le statut exact qu'elle avait lorsqu'elle était en possession de la femme.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -88,5 +88,5 @@
 ### passuk 26
 <b>Lorsque tu entres dans les greniers à blé de ton compagnon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>L'Écriture fait également référence au travailleur. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

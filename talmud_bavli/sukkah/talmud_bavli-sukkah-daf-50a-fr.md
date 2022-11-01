@@ -12,4 +12,4 @@
 La Gemara répond : <b>Même</b> si <b>tu dis</b> que c'est conforme à l'avis du <b>Rabbi Neḥemya, dis que Rabbi Neḥemya a dit</b> son avis permettant l'eau filtrée <b>pour une personne commune</b>. <b>Cependant, a-t-il</b> réellement <b>dit</b> que l'eau filtrée est autorisée même pour être sacrifiée <b>à Dieu ?</b> Même s'il est possible de rendre cette eau potable, elle n'est certainement pas de la qualité sélective qui la rendrait éligible pour être utilisée dans le service du Temple. <b>Rabbi Neḥemya n'est-il pas d'avis</b> qu'il est inapproprié de sacrifier sur l'autel tout objet que l'on ne donnerait pas à une personne d'envergure ? Comme il est dit : " Et lorsque vous offrez un aveugle en sacrifice, ce n'est pas un mal ; et lorsque vous offrez un boiteux et un malade, ce n'est pas un mal. <b>Présente-le maintenant à ton gouverneur ; sera-t-il satisfait de toi ou acceptera-t-il ta personne, dit le Seigneur des Armées"</b> (Malachie 1:8).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

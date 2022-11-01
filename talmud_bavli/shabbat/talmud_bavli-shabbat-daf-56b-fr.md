@@ -57,4 +57,4 @@ La Guemara note que Rabbi Yonatan <b>n'est pas d'accord avec Rav, car Rav a dit 
 <b>Rav Yosef a dit : Et il y a un autre</b> grand pénitent <b>dans notre génération. Et qui est-il ? </b> C'est <b>Okvan, fils de Neḥemya l'Exilarque. Et c'est</b> celui que l'on appelle aussi <b>Natan <i>detzutzita</i>,</b> c'est-à-dire celui de la tête duquel sont sorties des étincelles. <b>Rav Yosef a dit : J'étais</b> un jour <b>assis à la conférence donnée sur la Fête [<i>pirka</i>] et je somnolais. Et j'ai vu en rêve comment</b> un ange <b>étendit ses mains et reçut</b> Natan <i>detzutzita</i>, démontrant que son repentir était accepté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

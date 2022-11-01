@@ -93,4 +93,4 @@ Ceci est <b>comme il est enseigné</b> dans un <i>baraita</i> : Dans le cas de <
 <strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Rav dit : Ils ont enseigné</b> que le propriétaire de la cruche n'est responsable <b>que lorsque les vêtements de</b> celui qui a glissé <b>étaient souillés par la</b> <b>eau sale.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

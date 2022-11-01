@@ -48,4 +48,4 @@ Pour en revenir à la question qui nous occupe, si une offrande pascale désign�
 <b>Rabbi Avin lui dit : Apprends :</b> Il ne faut <b>pas s'inquiéter</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

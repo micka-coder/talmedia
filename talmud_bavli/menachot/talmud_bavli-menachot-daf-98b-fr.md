@@ -66,4 +66,4 @@ La Guemara répond : <b>Mais selon votre raisonnement,</b> la dernière question
 <b>Au contraire, maintenez-vous</b> qu'il n'y avait <b>qu'une seule rangée</b> de tables ? Il n'en était pas ainsi ; <b>elles étaient</b> disposées en <b>deux rangées,</b> avec la table de Moïse entre les rangées. Il y avait donc de la place pour toutes les tables et il était également possible pour le Grand Prêtre de passer devant elles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

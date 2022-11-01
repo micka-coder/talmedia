@@ -60,4 +60,4 @@ La Gemara demande : <b>C'est une interdiction qui vient par déduction d'une mit
 La Guemara répond que <b>Rav Ḥisda a dit :</b> Conformément à <b>l'avis de qui</b> <b>est ce</b> <i>baraita</i> ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

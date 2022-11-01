@@ -69,4 +69,4 @@ Les sages lui <b>ont dit : Quand</b> cela s'applique-t-il ? <b>Quand</b> la grot
 <b>Et quant à celui qui mesure</b> sa limite de Chabbat, à l'égard duquel les Sages ont <b>dit</b> que <b>on lui donne deux mille coudées,</b> cette mesure s'applique <b>même si l'extrémité de sa mesure se termine au</b> milieu d'une <b>caverne.</b> Il ne peut marcher plus loin dans la grotte, même si celle-ci est habitée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

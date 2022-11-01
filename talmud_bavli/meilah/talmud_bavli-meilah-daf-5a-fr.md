@@ -45,4 +45,4 @@ Rav Yosef analyse cette mishna : <b>Quelles sont les circonstances</b> du cas du
 La Guemara explique pourquoi la conclusion ci-dessus est intenable : <b>Lisez ici</b> le verset qui stipule, à propos du blanchiment d'un vêtement sur lequel a été pulvérisé le sang d'une offrande pour le péché : "Et <b>si une partie de son sang est aspergée</b> sur un vêtement, tu laveras celui sur lequel il a été aspergé dans un lieu saint" (Lévitique 6:20). Les Sages déduisent du verset que cette <i>halakha</i> s'applique uniquement au sang d'une offrande pour le péché qui n'a pas encore été aspergé, <b>et non</b> au sang d'une offrande pour le péché dont le sang <b>avait déjà été aspergé. On peut plutôt conclure que le langage de la mishna en ce qui concerne le sujet du sang d'une offrande pour le péché n'est <b>pas exact,</b> car la même <i>halakha</i> s'applique même si le sang a été collecté et aspergé par ceux qui sont aptes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

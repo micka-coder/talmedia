@@ -42,4 +42,4 @@ La Guemara réinterprète le dilemme : <b>Nous ne soulevons pas le dilemme en ce
 <b>Rava a dit : Mais</b> il n'y a pas de preuve d'ici, car la saumure de poisson qui est permise par la mishna peut se référer à la saumure qui <b>déjà émergé d'eux</b> avant la prise du vœu, et n'était donc pas incluse dans les poissons qui ont été rendus interdits par le vœu. Le dilemme n'est donc pas résolu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

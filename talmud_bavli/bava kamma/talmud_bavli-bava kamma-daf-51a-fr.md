@@ -90,4 +90,4 @@ Les Sages <b>ont dit</b> en réponse : <b>Et ne pouvez-vous pas apprendre de</b>
 Sur un sujet similaire, <b>les Sages ont enseigné :</b> Dans le cas de <b>quelqu'un qui creuse une fosse</b> à une profondeur de <b>dix</b> coudées, <b>et un autre vient et complète</b> la profondeur <b>à vingt</b> coudées en creusant dix coudées supplémentaires, <b>et un autre vient et la complète à trente,</b> ils sont <b>tous responsables</b> de tout dommage causé par cette fosse. La Guemara commente : <b>Et</b> on peut <b>soulever une contradiction</b> contre cela à partir d'une <i>baraita</i> : Dans le cas de <b>quelqu'un qui creuse une fosse</b> à une profondeur de <b>dix</b> coudées, <b>et un autre est venu et l'a plâtrée</b> <b>et cimentée [<i>vekhiyyeid</i>]</b>, <b>ce dernier</b> est <b>responsable</b> du dommage, et non le premier.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

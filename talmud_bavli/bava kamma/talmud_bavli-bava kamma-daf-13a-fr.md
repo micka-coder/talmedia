@@ -69,4 +69,4 @@ La Guemara explique : <b>Si tu veux, dis</b> que la décision de Rabbi Abba est 
 <b>Et si vous voulez, dites</b> que la décision de Rabbi Abba est conforme à <b>Rabbi Natan</b> C'est seulement <b>là que</b> le <b>propriétaire du</b> <b>bœuf endommagé</b> peut <b>dire au propriétaire de la fosse :</b> Puisque <b>J'ai trouvé mon bœuf dans votre fosse,</b> en fin de compte, vous portez la responsabilité de tout dommage, et donc <b>tout ce que je ne peux pas récupérer de l'autre</b>, c'est-à-dire. e., le propriétaire du boeuf, <b>je le récupérerai auprès de toi.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

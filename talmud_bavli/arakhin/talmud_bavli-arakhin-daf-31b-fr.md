@@ -57,4 +57,4 @@ La Gemara demande : <b>Pourquoi ai-je</b> besoin de la phrase dans le verset ci-
 <strong>GEMARA</strong> <b>Rava dit :</b> On peut déduire <b>de l'ordonnance de Hillel</b> dans la mishna que si on dit à sa femme : <b>Voici ton acte de divorce à la condition que tu me donnes deux cents dinars, et qu'elle a donné</b> l'argent à <b>lui avec son consentement,</b> alors elle est <b>divorcée.</b> Mais si elle le lui a donné <b>contre sa volonté, elle n'est pas divorcée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

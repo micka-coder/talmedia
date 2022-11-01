@@ -36,4 +36,4 @@ La Gemara note : <b>En tout cas, c'est difficile,</b> car à un endroit, ses ann
 <b>Rav Kahana s'oppose fortement à cette</b> explication : <b>A-t-il</b> réellement <b>devenu corrompu</b> après qu'Ezra soit parti en Eretz Yisrael ? <b>Mais n'est-il pas écrit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

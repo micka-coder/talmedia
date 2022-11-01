@@ -33,4 +33,4 @@ La Guemara répond : <b>Rabbi Yoḥanan tient conformément à cette</b> autre <
 § Les Sages <b>demandent à Rav Kahana :</b> En ce qui concerne <b>un Gentil, quelle est</b> la <i>halakha</i> concernant la question suivante : <b>Peut-il apporter des raisins au pressoir</b> sans rien leur faire d'autre ? Rav Kahana <b>leur a répondu :</b> C'est <b>interdit</b> par décret rabbinique <b>en raison</b> de la maxime : <b>Allez, allez, on dit</b> à <b>un nazirite ; faites le tour</b> et <b>faites le tour,</b> mais <b>ne vous approchez pas de la vigne. Rav Yeimar a soulevé une objection à Rav Kahana</b> à partir d'une <i>baraita</i> : En ce qui concerne <b>un Gentil qui apportait des raisins au pressoir dans des paniers</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

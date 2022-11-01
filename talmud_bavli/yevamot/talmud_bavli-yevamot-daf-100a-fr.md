@@ -42,4 +42,4 @@ La Gemara demande : <b>Cela marche bien selon Rabbi Elazar. Cependant, selon les
 <strong>MISHNA : </strong>En ce qui concerne une femme <b>qui n'a pas attendu trois mois après</b> se séparer de <b>son mari, et qui s'est remariée et a donné naissance</b> à un fils, <b>et on ne sait pas s'il est né après neuf</b> mois de grossesse <b>chez l'ancien</b> mari ou <b>s'il est né après sept</b> mois <b>chez le second</b> mari, si <b>elle avait des fils</b> de certain patrilignage <b>du premier</b> mari <b>et des fils</b> de certain patrilignage <b>du second</b> et que le fils de patrilignage incertain s'est marié et est mort sans enfant, alors les frères des deux maris <b>doivent accomplir <i>ḥalitza</i></b> avec sa femme, comme ils pourraient être ses frères paternels. <b>Mais ils ne peuvent pas accomplir le lévirat</b> avec elle, au cas où il ne serait que leur demi-frère maternel, et que sa femme leur soit interdite. <b>Et de même,</b> en ce qui concerne <b>lui et leurs</b> femmes, si l'un d'eux meurt sans enfant, <b>il accomplit la <i>ḥalitza</i> et non le mariage lévirat.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara répond : <b>Parce qu'il peut dire</b> la menace suivante <b>à eux : 
 La Gemara demande : <b>Si oui,</b> que c'est la raison de la décision de la <i>baraita</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

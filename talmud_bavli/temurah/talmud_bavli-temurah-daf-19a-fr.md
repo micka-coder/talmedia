@@ -33,4 +33,4 @@ Abaye a demandé à Rava : <b>Si donc,</b> que la raison pour laquelle Rabbi Ela
 <b>Mar Zutra, fils de Rav Mari, dit à Ravina : Ceci aussi est logique, nous avons affaire</b> à un cas où il a désigné <b>un animal en gestation, à partir</b> du fait <b>que</b> la <i>baraita</i> <b>enseigne : Elle et sa progéniture.</b> Cela indique que la mère et sa progéniture existaient au moment de la consécration. La Guemara commente : <b>Concluez d'ici</b> que cette explication est correcte.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

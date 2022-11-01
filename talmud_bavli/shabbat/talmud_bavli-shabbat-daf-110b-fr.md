@@ -21,4 +21,4 @@ La Guemara a discuté du remède <b>pour la jaunisse,</b> en disant qu'il faut b
 La Gemara demande : <b>N'est-ce pas Rabbi Ḥiyya bar Abba qui dit</b> que <b>Rabbi Yoḥanan a dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

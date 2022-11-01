@@ -54,4 +54,4 @@ La Guemara relate que <b>Rav Asi lisait la Megilla dans</b> la ville de <b>Huzal
 Accessoirement à la discussion précédente concernant Tibériade, la Gemara relate que <b>Rabbi Yoḥanan a dit : Quand j'étais enfant, j'ai dit quelque chose que j'ai</b> plus tard <b>demandé aux Anciens</b>,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara développe : <b>Rav dit</b> que le tribunal <b>ne la lapide pas</b>, c
 La Gemara commente : Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>du Rav Ḥisda</b> que si l'on dit : <b>Ce fils à moi a treize ans et un jour,</b> ou : <b>Cette fille à moi a douze ans et un jour,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

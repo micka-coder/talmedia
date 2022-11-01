@@ -45,4 +45,4 @@ On a <b>compris de</b> l'incident ci-dessus que <b>cette question,</b> c'est-à-
 <b>Un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

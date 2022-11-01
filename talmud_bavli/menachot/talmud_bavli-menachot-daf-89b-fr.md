@@ -57,4 +57,4 @@ La Guemara détourne l'objection : <b>Oui, c'est bien ainsi</b> que la décision
 <b>Rabbi Abba a dit</b> qu'il existe une résolution différente : En fait, la décision de Rabbi Yoḥanan se limite à l'offrande de culpabilité d'un lépreux. Les autres offrandes que Rav Menashya bar Gadda a mentionnées seraient valables même si les conditions supplémentaires qui s'y appliquaient à l'origine n'étaient pas remplies. La raison en est la suivante : <b>Accordé, ces</b> autres offrandes que Rav Menashya bar Gadda ont mentionné seraient valides, car <b>elles sont des offrandes brûlées;</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

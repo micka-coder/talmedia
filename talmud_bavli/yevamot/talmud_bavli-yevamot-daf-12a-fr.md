@@ -66,4 +66,4 @@ La Gemara rejette cette suggestion : <b>Non,</b> la déclaration de Rav Yosef av
 La Guemara commente : Le langage de la mishna <b>est également précis, car il enseigne : Ont été trouvés</b> un <i>aylonit</i>, <b>et elle n'enseigne pas : Etaient</b> un <i>aylonit</i>. Cela indique que son état n'était pas connu du mari au moment du mariage, mais qu'il ne l'a découvert que plus tard. La Gemara résume : <b>Conclure de ceci</b> que c'est l'interprétation correcte de la mishna. Par conséquent, la mishna ne contredit pas l'opinion du Rav Asi. <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

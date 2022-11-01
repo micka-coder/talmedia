@@ -33,4 +33,4 @@ La Guemara demande plus loin : <b>Et Rabbi Yehuda n'est-il pas concerné par</b>
 La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> les deux versions de la déclaration du Rav Aḥa bar Ya'akov ? La Guemara répond : <b>Il y a</b> une différence pratique <b>entre elles</b> dans le cas où <b>on établit</b> une partition <b>avec une outre gonflée. Selon celui qui a dit</b> que <b>une cloison</b> qui <b>se tient par</b> moyen de <b>l'air n'est pas une cloison,</b> cette cloison se tient également <b>par moyen de <b>l'air</b> et est donc impropre. <b>Selon celui qui a dit que</b> si <b>elle n'est pas établie par une personne</b> ce n'est pas une partition,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

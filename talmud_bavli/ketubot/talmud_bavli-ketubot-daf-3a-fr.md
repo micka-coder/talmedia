@@ -42,4 +42,4 @@ La Gemara demande : <b>Avant</b> l'institution de <b>l'ordonnance d'Ezra ? Ce qu
 La Gemara demande : <b>N'avons-nous pas besoin</b> de la raison supplémentaire qu'une vierge se marie le mercredi parce que les Sages <b>étaient assidus</b> à veiller au bien-être des femmes juives et s'assuraient que le marié aurait plusieurs jours pour se préparer à la fête de mariage avant le mariage ? La Gemara répond : Ceci fait référence à un cas <b>où il</b> s'est déjà <b>exercé</b> et a tout préparé avant Chabbat, ainsi le festin sera préparé même si le mariage a lieu dimanche ou lundi.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

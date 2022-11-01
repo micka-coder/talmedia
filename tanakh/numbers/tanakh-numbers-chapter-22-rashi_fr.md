@@ -145,5 +145,5 @@ tous les monarques <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 
 ### passuk 41
 <b>Bamos Ba'al.</b> Comme le rend le Targum [Onklos], "vers les hauteurs de sa divinité". [Ba'al est] le nom d'une idole. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

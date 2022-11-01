@@ -51,4 +51,4 @@ Si le fœtus <b>étendait sa patte antérieure</b> à l'extérieur <b>et</b> on 
 Si <b>on a abattu sa mère et</b> seulement <b>par la suite coupé</b> la patte antérieure qui était sortie à l'extérieur,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

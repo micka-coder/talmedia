@@ -87,4 +87,4 @@
 <b>et du vin nouveau</b> Qui fait parler les jeunes filles en chansons et en joie. D'autres interprètent יְנוֹבֵב [comme ce] qui sera fécond et poussera dans un sol vierge, qui est un vin supérieur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

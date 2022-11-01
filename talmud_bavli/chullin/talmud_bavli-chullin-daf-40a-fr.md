@@ -15,4 +15,4 @@ S'il y avait <b>deux</b> personnes <b>griffant ensemble un couteau</b> <b>et aba
 <b>Rav Naḥman soulève une objection à</b> l'opinion de <b>Rav Huna</b> à partir d'une <i>baraita</i> : <b>Quelqu'un qui</b> involontairement <b>abatte</b> un animal qui a été désigné comme <b>offrande pour le péché le Chabbat en dehors</b> du Temple, <b>pour le culte des idoles, est susceptible</b> d'apporter <b>trois offrandes pour le péché :</b> une pour avoir accompli le travail interdit de l'abattage le Chabbat, une pour avoir abattu un animal sacrificiel en dehors du Temple, et une pour avoir abattu un animal pour le culte des idoles. <b>Et si vous dites</b> que <b>dès lors qu'il coupe un <i>siman</i>, il rend</b> l'animal <b>interdit</b> comme une offrande idolâtre, alors <b>il n'est pas susceptible</b> d'apporter une offrande pour le péché <b>pour l'abattage</b> d'un animal sacrificiel <b>à l'extérieur</b> de la cour du Temple,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

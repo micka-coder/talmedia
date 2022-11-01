@@ -60,4 +60,4 @@ Nous avons appris dans la mishna : <b>Celui qui construit ses phylactères</b> e
 <strong>MISHNA:</strong> Si <b>quelqu'un dit</b> dans ses prières :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

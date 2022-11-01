@@ -48,4 +48,4 @@ De même, <b>Hugras ben Levi connaissait un chapitre</b> dans l'art de la <b>mus
 <b>À partir de là,</b> en ce qui concerne les cas des artisans du Temple que les Sages ont rétablis à leurs postes, <b>ben Azzai a dit :</b> Il ne faut pas s'inquiéter que d'autres usurpent son gagne-pain et son succès, car au moment opportun, <b>par ton nom on t'appellera</b> pour que tu retournes à ton poste précédent, <b>et à ta place, on te fera asseoir,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

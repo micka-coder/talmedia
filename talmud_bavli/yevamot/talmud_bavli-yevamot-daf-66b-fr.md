@@ -30,4 +30,4 @@ La Gemara relate un incident : <b>Une certaine femme avait apporté dans</b> son
 La Guemara ajoute qu'à cet égard <b>Rava</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>, car Rava a dit : La consécration</b> des biens, l'interdiction de bénéficier du <b>pain levé</b> à Pessah,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

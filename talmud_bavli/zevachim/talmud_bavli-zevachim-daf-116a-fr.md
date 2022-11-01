@@ -81,4 +81,4 @@ La Guemara propose une autre explication de ce que Yitro a entendu : <b>Rabbi El
 La Gemara demande : <b>Qu'y a-t-il de différent,</b> c'est-à-dire par rapport à la scission du Jourdain, <b>où</b> le verset <b>déclare : "Il ne restait plus d'esprit en eux", et ce qui est différent ici,</b> c'est-à-dire dans la déclaration de Rahab, <b>où</b> le verset <b>déclare : "Il ne restait [<i>kama</i>] plus d'esprit dans aucun homme"</b> (Josué 2:11) ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

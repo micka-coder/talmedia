@@ -57,4 +57,4 @@ La Gemara demande : N'est-ce pas <b>ce qui est enseigné explicitement</b> dans 
 <b>Rav Huna dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

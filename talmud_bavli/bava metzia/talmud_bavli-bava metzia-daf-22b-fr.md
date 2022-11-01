@@ -48,7 +48,7 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve d'un <i>baraita<
 La Guemara développe. <b>Rabba explique, selon sa</b> ligne de <b>raisonnement,</b> que le <i>baraita</i> fait référence aux ballots <b>avec une marque distinctive :</b> Si l'on trouve des <b>ballots</b> de céréales <b>dans un lieu public, ceux-ci</b> lui appartiennent <b>en raison</b> du fait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 le produit <b>n'est pas</b> dans la catégorie de : "Mais <b>lorsque</b> l'eau <b>est placée [<i>khi yuttan</i>]</b> sur la graine," et le produit n'est pas susceptible de contracter une impureté rituelle.
 
@@ -98,4 +98,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve d'un <i>baraita<
 La Guemara développe. <b>Rabba explique, selon sa</b> ligne de <b>raisonnement,</b> que le <i>baraita</i> fait référence aux ballots <b>avec une marque distinctive :</b> Si l'on trouve des <b>ballots</b> de céréales <b>dans un espace public, ceux-ci</b> lui appartiennent <b>en raison</b> du fait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

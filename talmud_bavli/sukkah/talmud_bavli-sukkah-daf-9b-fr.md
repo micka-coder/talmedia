@@ -39,4 +39,4 @@ Il y a des <b>moments où les deux</b> <i>sukkot</i> <b>sont inaptes. Quelles so
 Il y a des <b>moments où la <i>sukka</i> inférieure <b>est apte et la <i>sukka</i> supérieure <b>est inapte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

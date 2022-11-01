@@ -42,4 +42,4 @@ Une histoire quelque peu similaire est racontée à propos de <b>Rav Sheshet,</b
 <b>Rav Ashi a dit : Et même selon ce que Rabbi Eliezer a dit,</b> que se réjouir lors d'une <b>fête est facultatif, il y a une réfutation : Si</b> lors d'une <b>Fête, lorsqu'un <b>travail interdit bibliquement,</b> comme l'abattage, la cuisson ou la cuisine, <b>est permis</b> même s'il est effectué <b>pour une activité facultative</b>, néanmoins <b>un décret rabbinique qui l'accompagne n'est pas permis,</b> et nous ne disons pas que puisqu'ils ont permis une activité facultative, ils ont permis tout ce qui y est associé ; à combien plus forte raison le <b>Shabbat, lorsqu'un</b> <b>travail interdit par la Bible n'est autorisé</b> que lorsqu'il est effectué <b>pour une mitzva, n'est-il pas juste de ne pas autoriser un décret rabbinique qui l'accompagne ? </b> Les activités interdites en raison d'un décret rabbinique devraient donc être interdites le Chabbat même dans le but d'une mitzva, contre l'avis de Rabbi Eliezer.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

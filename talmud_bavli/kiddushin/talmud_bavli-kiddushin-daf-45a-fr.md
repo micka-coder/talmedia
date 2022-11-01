@@ -18,4 +18,4 @@ Si <b>il n'a pas effectué de fiançailles léviriennes avec elle, elle ne requi
 § La Gemara raconte : Il y avait <b>ces deux</b> personnes <b>qui étaient</b> assises et <b>buvaient du vin sous des peupliers [<i>tzifei</i>] en Babylonie. L'un d'eux prit une coupe de vin</b> et <b>la donna à son ami. Il dit : Fonde pour moi ta fille à mon fils</b> en recevant cette coupe de vin. <b>Ravina dit : Même selon celui qui dit</b> que dans le cas d'une fille mineure qui s'est fiancée sans le consentement de son père, <b>nous sommes concernés</b> que <b>peut-être le père a désiré</b> les fiançailles,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

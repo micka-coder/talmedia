@@ -18,4 +18,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une difficulté d'un <i>ba
 <b>En tout état de cause,</b> cette <i>baraita</i> <b>enseigne à propos</b> d'une transaction dans <b>le domaine public ou dans une cour qui n'appartient à aucun d'eux</b> que si le navire de mesure appartenait à l'un d'eux, l'acheteur acquiert les objets de la vente un par un au fur et à mesure qu'ils sont placés dans le navire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

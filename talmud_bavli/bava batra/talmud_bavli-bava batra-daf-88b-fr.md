@@ -36,4 +36,4 @@ La Guemara demande : <b>Mais</b> si la peine est en fait moins sévère, <b>quel
 <b>Et pourtant Moïse, notre maître,</b> qui est chair et sang, <b>les a bénis de huit</b> lettres, <b>et les a maudits de vingt-deux. Il les a bénis avec huit</b> lettres,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

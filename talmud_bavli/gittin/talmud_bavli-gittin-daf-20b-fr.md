@@ -57,4 +57,4 @@ Quoi qu'il en soit, la question de Rami bar Ḥama n'est pas résolue. Si tel es
 <b>Rava a dit : Et quelle</b> est la <b>difficulté ?</b> Comment peut-on prouver quoi que ce soit à partir de la mishna ? <b>Peut-être</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

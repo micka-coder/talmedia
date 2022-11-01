@@ -118,4 +118,4 @@
 <b>et seront tranquilles</b> Heb.  ושאנן  et seront tranquilles et en repos. Le mot  ושאנן  est au futur ; par conséquent, [le "nun"] est voyellé avec un "pattah".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

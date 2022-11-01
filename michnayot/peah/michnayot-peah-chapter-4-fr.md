@@ -33,4 +33,4 @@ Qu'est-ce que le Leket ? Ce qui tombe au moment de la récolte. S'il était en t
 Produire dans les fourmilières qui se trouvent dans la culture sur pied : elles appartiennent au propriétaire. [Produire dans des fourmilières qui sont] après que les moissonneurs [aient récolté cette récolte], les parties supérieures appartiennent aux pauvres et les parties inférieures appartiennent au propriétaire. Rabbi Meir dit : Tout est pour les pauvres, car le Leket douteux est [néanmoins considéré] comme du Leket.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

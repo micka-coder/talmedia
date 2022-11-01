@@ -30,4 +30,4 @@ La Gemara demande : Cela <b>fonctionne bien,</b> selon <b>celui qui a dit</b> qu
 Puisque les dix-huit décrets décrétés ce jour-là n'ont pas encore été énumérés, la Gemara demande : <b>Et</b> qu'est-ce que <b>l'autre ? Dit</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

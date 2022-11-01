@@ -51,4 +51,4 @@ Nous avons appris dans la mishna : <b>Un cheval</b> peut sortir <b>avec une cha�
 Il a été enseigné plus loin dans notre mishna : Si ces chaînes ont contracté une impureté rituelle, <b>on peut asperger</b> de l'eau de purification <b>sur elles et les immerger à leur place</b> sur l'animal. La Guemara demande : <b>C'est pour dire que</b> ces chaînes <b>sont aptes à contracter l'impureté rituelle ? N'avons-nous pas appris</b> dans une mishna : <b>Une bague</b> portée par <b>une personne est rituellement impure. Cependant, l'anneau d'un animal, et</b> les anneaux <b>d'ustensiles, et tous les autres anneaux</b> non portés par des personnes.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

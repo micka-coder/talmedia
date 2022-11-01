@@ -59,4 +59,4 @@
 <b>S'ils observent.</b> La lettre <span>ה</span> est vocalisée avec l'abrégé <i>pasach</i>,<sup>15</sup><i class="footnote">Cette vocalisation est utilisée pour exprimer l'enquête.</i> car elle exprime l'enquête impliquée dans le test.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

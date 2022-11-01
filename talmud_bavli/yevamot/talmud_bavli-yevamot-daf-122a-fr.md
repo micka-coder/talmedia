@@ -51,4 +51,4 @@ Cette déclaration indique que selon Rabbi Akiva, <b>c'est</b> spécifiquement <
 Rabbi Akiva <b>leur a dit : Quand</b> une femme <b>serait aussi</b> convaincante que <b>l'aubergiste,</b> alors <b>elle sera</b> également <b>jugée crédible. L'aubergiste leur apporta son bâton, son sac, et le rouleau de Torah qui était en sa possession,</b> fournissant ainsi des preuves à l'appui pour renforcer son affirmation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

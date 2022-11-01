@@ -48,4 +48,4 @@ En ce qui concerne le principe susmentionné, la Guemara demande : <b>Et est-ce 
 <b>Rav Yehuda a dit : Celui qui cherche</b> du levain <b>doit réciter une bénédiction.</b> La Gemara demande : <b>Quelle bénédiction doit-il réciter,</b> c'est-à-dire quelle est la formule correcte de la bénédiction ? <b>Rav Pappi a dit au nom de Rava</b> que l'on <b>récite :</b> Qui nous a rendus saints par Ses mitzvot et nous a ordonné <b>de supprimer le pain levé. Rav Pappa a dit au nom de Rava :</b> On doit réciter : <b>A l'égard de la suppression du pain levé.</b> La Gemara commente : <b>Pour ce qui est</b> de la formule : <b>Enlever, tout le monde s'accorde à dire</b> qu'elle <b>se réfère certainement à l'avenir.</b> Cette formulation indique sans aucun doute que la personne qui récite la bénédiction est sur le point de commencer à accomplir la mitzva d'enlever le levain, et c'est donc une bénédiction appropriée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

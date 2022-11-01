@@ -42,4 +42,4 @@ L'Arabe lui <b>dit : Tous les trente jours, la Géhenne les ramène</b> à cet e
 Il est <b>enseigné au nom de Rabbi Meir : A partir du moment où</b> l'enfant <b>dit amen, comme il est dit : "Ouvrez les portes, afin que la nation juste qui garde la fidélité puisse entrer"</b> (Isaïe 26, 2). <b>Ne lisez pas</b> le verset comme <b>"qui garde la fidélité [<i>shomer emunim</i>]" ; plutôt,</b> lisez-le comme : <b>Ce qui dit amen [<i>she'omer amen</i>].</b> A partir du moment où il dit amen, les portes du Monde-à-Venir s'ouvrent.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -126,4 +126,4 @@ Une fenêtre.
 <b>La terre fut tranquille pendant quarante ans.</b> Ces mots ne sont pas de Devorah, mais de l'auteur.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

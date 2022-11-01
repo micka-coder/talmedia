@@ -48,4 +48,4 @@ Il ressort de la <i>baraita</i> que Shimon HaTzaddik portait les vêtements sace
 § Il a été encore enseigné dans la mishna : <b>Le Grand Prêtre se tient debout</b> et reçoit le rouleau de la part du député. <b>Par déduction,</b> jusqu'à ce moment-là <b>il</b> avait été <b>assis. Mais n'avons-nous pas appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

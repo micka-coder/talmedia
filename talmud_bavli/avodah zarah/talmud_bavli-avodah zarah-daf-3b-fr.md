@@ -54,4 +54,4 @@ La Guemara clarifie : <b>Si tu veux, dis</b> que cela s'applique <b>dans ce mond
 <b>Et si vous le souhaitez, dites</b> plutôt que cela fait référence <b>au Monde-à-Venir, conformément</b> à la déclaration <b>de Rabbi Shimon ben Lakish. Comme Rabbi Shimon ben Lakish le dit : Il n'y a pas de Géhenne dans le Monde-à-Venir. Au contraire, le Saint, Béni soit-Il,</b> <b>enlèvera le soleil de sa gaine [<i>minnarteikah</i>],</b> où il se trouve en ces temps, <b>et chauffera [<i>umakdir</i>]</b> ce monde avec lui. <b>Les méchants seront punis par elle</b> et consumés par la chaleur, <b>mais les justes seront guéris par elle. Les méchants seront punis</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara répond : <b>Initialement,</b> Shmuel <b>maintient</b> que <b>puisqu'
 La Guemara demande : <b>Et Rabbi Yoḥanan</b> a-t-il réellement <b>dit cela ? Mais Rabbi Yoḥanan n'a-t-il pas</b> dit par principe que <b>la <i>halakha</i></b> est toujours en accord avec <b>une mishna non attribuée. Et nous avons appris</b> dans une mishna : <b>Bien que</b> les Sages aient <b>dit,</b> en ce qui concerne la lecture du rouleau d'Esther, que <b>quelqu'un</b> peut le lire <b>avant mais qu'un</b> peut <b>ne pas</b> le lire <b>après,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

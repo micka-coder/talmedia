@@ -36,4 +36,4 @@ Rabbi Elazar <b>dit à</b> Rabbi Shimon ben Elyakim : <b>Cette</b> <i>baraita</i
 La Guemara répond que <b>cette déclaration</b> <b>échappe</b> à cette <i>tanna</i> : <b>Comme Rabbi Asi dit</b> que <b>Rabbi Yoḥanan dit :</b> Si on <b>achetait dix</b> <b>fœtus</b> d'animaux alors qu'ils étaient encore <b>dans le ventre de leur mère, ils entrent tous dans l'enclos pour être soumis à la dîme.</b> Par conséquent, la <i>baraita</i> peut être comprise comme faisant référence à un animal qui a été donné à une prostituée en guise de paiement et racheté à celle-ci alors qu'il était encore dans le ventre de sa mère.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

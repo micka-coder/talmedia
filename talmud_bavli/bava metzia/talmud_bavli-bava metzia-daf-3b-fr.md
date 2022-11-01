@@ -42,4 +42,4 @@ La Guemara propose une autre réfutation : <b>Au contraire, qu'est-ce qui</b> es
 La Guemara rejette cette déduction : <b>Qu'est-ce qui est notable <b>au sujet</b> du témoignage d'un <b>seul témoin ?</b> Il est notable <b>en ce que</b> le défendeur <b>prête serment en ce qui concerne la question au sujet de laquelle il témoigne,</b> pas en ce qui concerne les autres revendications soulevées par le demandeur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

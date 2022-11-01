@@ -42,4 +42,4 @@ La Gemara répond : La mishna <b>ici</b> est la source <b>primaire</b>. <b>Là, 
 La Gemara demande : <b>Cette personne rituellement impure</b> mentionnée dans la mishna est une <b>qui est devenue impure avec quelle</b> forme d'impureté ? <b>Si nous disons qu'il est devenu impur avec</b> l'impureté communiquée par <b>un cadavre,</b> cela est difficile, car <b>Le Miséricordieux déclare :</b> "Et quiconque en plein champ touche <b>une personne tuée par une épée"</b> (Nombres 19:16).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -98,4 +98,4 @@
 <b>Cela aussi.</b> C'est une des vanités qui ont été données aux créatures, qu'elles travaillent, et quelqu'un d'autre prend. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

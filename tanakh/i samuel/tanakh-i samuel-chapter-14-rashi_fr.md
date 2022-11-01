@@ -150,4 +150,4 @@
 <b>Et chaque fois que Shaoul voyait.</b> C'est au présent, c'est-à-dire que lorsque Shaoul voyait un vaillant soldat, il le faisait entrer [dans son armée].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

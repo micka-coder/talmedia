@@ -21,4 +21,4 @@ La Gemara demande : <b>Quel est le raisonnement qui sous-tend</b> l'avis de <b>M
 La Gemara demande : <b>Et que font les sages de</b> la juxtaposition dérivée de <b>ce verset</b> : <b>Une loi ?</b> La Gemara répond : <b>Ils l'exigent pour ce que Rabbi Yehoshua ben Levi a enseigné à son fils.</b> Il est écrit : <b>"Il y aura une seule loi pour vous, pour celui qui agit sans le vouloir.</b> Et il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

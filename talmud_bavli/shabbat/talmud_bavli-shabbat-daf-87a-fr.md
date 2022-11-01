@@ -27,4 +27,4 @@ La Gemara demande : <b>Qu'a dit le Saint, Béni soit-Il, à Moïse, et qu'a dit 
 <b>Venez</b> et <b>entendez</b> une preuve à partir de ce qui a été enseigné dans une <i>baraïta</i> : Le <b>sixième</b> était <b>le sixième</b> jour <b>du mois</b> et <b>le sixième</b> jour <b>de la semaine.</b> Ceci est également <b>difficile</b> selon <b>l'avis des <b>rabbébés.</b> La Gemara répond : <b>Cette</b> <i>baraita</i> est <b>également</b> selon l'avis de <b>Rabbi Yosei.</b> Mais si c'est le cas, selon l'avis des Rabbins, ce jour était le <b>sixième</b> jour de <b>quelle</b> décompte ? <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

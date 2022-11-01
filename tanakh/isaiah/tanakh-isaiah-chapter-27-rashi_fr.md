@@ -61,7 +61,7 @@
 <b>Ceux qui se sont perdus dans le pays d'Assyrie</b> Comme ils étaient dispersés dans un pays lointain, au sein du fleuve Sambatyon, il les appelle, "perdus".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Sur Léviathan le serpent barré</b> Jonathan rend : Sur le roi qui s'est aggrandi comme Pharaon le premier roi, et sur un roi aussi hautain que Sennacherib le deuxième roi. בָּרִיחַ est une expression de 'droit' comme une barre, puisqu'il est le premier. (La question de la simplicité est liée à l'unicité. Pharaon étant le premier grand roi, il est désigné comme 'le serpent en forme de barre', un serpent droit, pénétrant, qui ne s'enroule pas).
 <b>Enroulé</b> Expression du " double ", puisqu'il est le deuxième. (C'est-à-dire que la courbure du serpent indique la dualité, d'où le nombre deux.) Et je dis que ce sont trois nations importantes : l'Égypte, l'Assyrie et Édom. Il a donc déclaré à leur sujet comme il l'a dit à la fin de la section (v. 13) : "Et ceux qui se sont perdus dans le pays d'Assyrie viendront, ainsi que ceux qui se sont perdus dans le pays d'Égypte", et puisque les nations sont comparées à des serpents qui mordent.
@@ -124,4 +124,4 @@
 <b>Ceux qui se sont perdus dans le pays d'Assyrie</b> Comme ils étaient dispersés dans un pays lointain, au sein du fleuve Sambatyon, il les appelle, "perdus".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -56,4 +56,4 @@
 <b>et leurs femmes à part</b> à cause de la décence. Or, pourquoi les familles du sacerdoce et du royaume ont-elles été [mentionnées] ? Afin de leur restituer leurs couronnes, comme il est dit au début du Livre (4:14) : "Ce sont les deux oints qui se tiennent devant le Seigneur de toute la terre".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

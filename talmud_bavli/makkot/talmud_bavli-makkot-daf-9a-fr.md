@@ -36,4 +36,4 @@ La Gemara demande : <b>Et selon votre raisonnement</b> que sur la base de la for
 <b>Abaye soulève une objection à</b> l'opinion de <b>Rava</b> à partir de la réponse d'Abimélech : <b>"Vas-tu même tuer une nation juste ?"</b> (Genèse 20:4). Dieu semble accepter la thèse d'Abimélech, car Il n'a pas répondu en le qualifiant de méchant, ce qui indique que celui qui dit qu'il est permis d'accomplir une transgression est victime de circonstances indépendantes de sa volonté. La Guemara rejette cette compréhension. <b>Là,</b> la raison du rejet de l'affirmation d'Abimélec <b>est qu'ils lui ont répondu</b> du Ciel : <b>"Et maintenant, rendez la femme de cet homme, car il est prophète"</b> (Genèse 20:7).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

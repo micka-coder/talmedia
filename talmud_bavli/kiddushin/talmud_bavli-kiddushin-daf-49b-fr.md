@@ -39,4 +39,4 @@ Ou s'il a dit qu'elle est fiancée à lui <b>à condition qu'il ait une grande f
 <strong>GEMARA:</strong> La Gemara raconte : Il y avait <b>un certain homme qui a vendu sa propriété avec l'intention de monter en Eretz Yisrael, mais au moment où il a vendu</b> la propriété <b>il n'a rien dit</b> en ce qui concerne son intention. Finalement, il ne s'est pas élevé à Eretz Yisrael, et il a souhaité revenir sur la vente. <b>Rava dit :</b> Puisqu'il n'a pas déclaré explicitement qu'il vendait sa propriété à la condition qu'il monte à Eretz Yisrael, <b>c'est</b> un <b>matière non exprimée qui</b> est restée <b>dans le cœur, et</b> les <b>matières non exprimées qui</b> restent <b>dans le cœur ne sont pas</b> des <b>matières significatives.</b> La Gemara demande : <b>D'où Rava</b> apprend-il <b>cette</b> principe ? <b>Si l'on dit</b> c'est <b>de ce que l'on apprend</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

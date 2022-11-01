@@ -54,4 +54,4 @@ La Gemara demande : <b>Au contraire, quelle</b> alors <b>est</b> la différence 
 § <b>Nous avons appris</b> dans une mishna (9a) : En ce qui concerne un agent <b>qui apporte un acte de divorce d'un pays d'outre-mer, et il est incapable de dire : Il a été écrit en ma présence et il a été signé en ma présence, si</b> l'acte de divorce <b>a des témoins</b> signés <b>sur lui</b> alors <b>il sera ratifié par ses signataires,</b> c'est-à-dire qu'il peut être ratifié en validant les signatures des témoins. <b>Et nous avons discuté</b> de cette <i>halakha</i> : <b>Quel est le sens</b> de cette phrase : <b>Et il est incapable de dire ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

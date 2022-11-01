@@ -45,4 +45,4 @@ La Gemara demande : En <b>quelle</b> manière <b>cette affaire est</b> différen
 La Gemara rejette cette idée : <b>Comment</b> ces cas peuvent-ils <b>être comparés ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara <b>souleve une objection</b> de ce qui a été enseigné dans une <i>
 La Guemara considère l'opinion présentée dans la <i>baraita</i> : <b>Accordé, conformément à cette</b> première <b>version</b> du litige, <b>dans laquelle vous avez dit : Conformément</b> à l'avis de <b>Rabbi Yehuda tout le monde,</b> c'est-à-dire Rabbi Yannai et Rabbi Yoḥanan, <b>convient que</b> le tirage au sort <b>n'est pas indispensable,</b> conformément à <b>l'avis de qui <b>cette <b>baraita</i> est-elle enseignée ? <b>C'est</b> conformément à l'avis de <b>Rabbi Yehuda,</b> selon tous les avis.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

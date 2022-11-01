@@ -37,7 +37,7 @@
 <b>Veux-tu te taire et nous affliger</b> Veux-tu te taire sur ce qui nous est fait ? Voici la prière du prophète. Elle commence ainsi (supra 63, 7) : " Les actes bienveillants du Seigneur, je les mentionnerai. "
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Comme le feu brûle</b> quelque chose qui fond à cause de lui, et comme le feu fait bouillonner l'eau ; quand on met un charbon ou un métal incandescent dans l'eau, l'eau bouillonne. Tout cela, tu l'as fait en Egypte, comme il est écrit (Ex. 9, 24) : "Il y eut de la grêle, et le feu brûla au milieu de la grêle". Jonathan, cependant, rend : "Comme le feu brûle les matériaux qui fondent", en référence à Elie sur le Carmel, à propos duquel il est dit (I Rois 18:38) : "et l'eau qui était dans le fossé, il l'a léchée".
 <b>Pour faire connaître Ton nom à Tes adversaires</b> comme ce qui est dit à propos de cette plaie (Ex. 9:16) : "Mais, à cause de cela, Je t'ai préservé, [afin de te montrer Ma force, et afin de faire connaître Mon nom dans tout le pays]". Si Tu avais fait cela maintenant, alors les nations trembleraient devant Toi.
@@ -76,4 +76,4 @@
 <b>Veux-tu te taire et nous affliger</b> Veux-tu te taire sur ce qui nous est fait ? Voici la prière du prophète. Elle commence ainsi (supra 63, 7) : " Les actes bienveillants du Seigneur, je les mentionnerai. "
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

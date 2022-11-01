@@ -223,5 +223,5 @@
 ### passuk 49
 <b>Une loi, etc.</b> Mettre sur le même plan le converti et le natif concernant les autres <i>mitzvos</i> de la Torah. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

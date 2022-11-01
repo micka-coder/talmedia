@@ -51,4 +51,4 @@ La Guemara revient sur <b>la</b> question de la <i>baraita</i> <b>elle même.</b
 § La mishna a enseigné que <b>Ils sonnent l'alarme pour l'épée. Les Sages ont enseigné : En ce qui concerne</b> l'<b>épée qu'ils ont mentionnée, il n'est pas nécessaire de préciser</b> que cela inclut <b>une épée qui n'est pas de paix,</b> c'est-à-dire une armée ennemie venue faire la guerre aux Juifs. <b>Au contraire, même</b> dans un cas de <b>épée de paix,</b> lorsqu'une armée passe sans intention de faire la guerre aux Juifs, mais qu'elle est simplement en route vers un autre endroit, cela suffit pour obliger le tribunal à donner l'alerte, <b>car vous n'avez pas de plus grand</b> exemple de <b>épée de paix que le pharaon Neco. </b> Il est passé par Eretz Yisrael pour faire la guerre à Nabuchodonosor, <b>et pourtant le roi Josias a trébuché dans cette</b> affaire, <b>comme il est dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

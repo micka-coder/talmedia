@@ -30,4 +30,4 @@ Le destinataire <b>a dit : S'ils sont à moi, ils sont</b> tous <b>désormais co
 <b>Certains disent une autre version</b> de cette déclaration. <b>Rava dit : Ne dis pas</b> que <b>la raison</b> de l'interdiction <b>est parce qu'il lui a dit : Et</b> les cadeaux <b>sont</b> donnés <b>avant toi</b> uniquement pour que mon père vienne, et <b>c'est</b> pourquoi <b>c'est</b> <b>interdit ; mais</b> si <b>il lui a dit : Ils sont devant toi pour que</b> mon <b>père vienne manger,</b> ce serait <b>permis.</b> Il n'en est rien. <b>Au contraire, même s'il lui disait : Ils sont devant toi,</b> mon <b>père devrait venir et manger,</b> c'est <b>interdit. Quelle est la raison</b> pour cela ? <b>Son</b> repas de mariage <b>prouve à son sujet</b> que sa seule intention était de contourner le vœu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

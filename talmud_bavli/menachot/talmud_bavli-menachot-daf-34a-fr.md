@@ -51,4 +51,4 @@ La Gemara demande : <b>Et puisqu'il est écrit :</b> "Et tu les écriras", d'où
 <b>Rav Yehuda dit</b> que <b>Rav dit :</b> Il est <b>nécessaire</b> d'énoncer cette décision <b>seulement</b> pour enseigner <b>que</b> même l'absence de <b>l'épine,</b> c'est-à-dire d'un petit trait, <b>de</b> une lettre <b><i>yod</i></b> empêche l'accomplissement de la mitsva. La Guemara demande : <b>Mais</b> n'est-ce pas également évident,</b> puisque la lettre n'est pas formée correctement ? <b>Au contraire, cela n'est nécessaire que selon une autre</b> affirmation <b>du Rav Yehuda</b>. <b>Comme le dit Rav Yehuda</b> ce <b>Rav dit : Toute lettre qui n'est pas entourée de</b> <b>parchemins vierges sur</b> l'ensemble de ses <b>quatre côtés,</b> alors que son encre se relie à la lettre qui se trouve au-dessus d'elle, en dessous, qui la précède ou qui lui succède, est <b>inadaptée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

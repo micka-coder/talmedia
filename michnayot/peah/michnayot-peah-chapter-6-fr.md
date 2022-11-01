@@ -33,4 +33,4 @@ Les céréales destinées à la nourriture des animaux ou à lier [d'autres cér
 Celui qui récolte la nuit et celui qui fait des gerbes, et aussi un aveugle, ils sont [soumis à] la Shikhechah. Et si l'on avait l'intention de ne prendre que les plus grossiers, ils ne seront pas [soumis à] la Shikhechah. S'il dit : "En effet, je récolte à condition de prendre tout ce que j'oublie", il est [soumis] à la Shikhechah.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

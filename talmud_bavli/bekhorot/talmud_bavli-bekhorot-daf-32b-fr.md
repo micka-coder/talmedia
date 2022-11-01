@@ -33,4 +33,4 @@ La Guemara soulève une difficulté : <b>Mais</b> si c'est le cas, <b>que le Mis
 La Guemara explique : <b>Quelle est la raison de Beit Shammai ? Comme il est écrit</b> dans un verset discutant de l'offrande du premier-né, adressé à Aaron et à ses fils : "Mais le premier-né d'un bœuf, ou le premier-né d'un mouton, ou le premier-né d'une chèvre, vous ne les racheterez pas ; ils sont saints...<b>et leur chair sera à vous,</b> comme la poitrine ondulée et comme la cuisse droite, elle sera à vous" (Nombres 18:17-18). <b>Comme là,</b> en ce qui concerne la poitrine et la cuisse, <b>les prêtres peuvent</b> y participer mais <b>un Israélite,</b> c'est-à-dire un non-prêtre, ne peut <b>pas,</b> comme le précise le verset : "Vous mangerez dans un lieu pur, vous, vos fils et vos filles avec vous" (Lévitique 10:14), <b>ainsi ici,</b> en ce qui concerne l'offrande des premiers-nés, seuls les <b>prêtres peuvent</b> y participer, mais <b>un Israélite</b> ne peut <b>pas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

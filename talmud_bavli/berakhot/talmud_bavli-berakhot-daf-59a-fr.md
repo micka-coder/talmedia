@@ -45,4 +45,4 @@ Nous avons appris dans la mishna que <b>sur les montagnes et les collines</b> on
 La Gemara note : <b>Et</b> en cela ils <b>sont en desaccord avec Rafram bar Pappa</b> qui a dit que <b>Rav Hisda a dit, comme Rafram bar Pappa a dit</b> que <b>Rav Hisda a dit : Depuis le jour ou le Temple a ete detruit, le firmament n'a pas ete vu dans sa purete, comme il est dit : "Je revets les cieux de noirceur et je fais du sac leur couverture"</b> (Isaie 50:3).
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

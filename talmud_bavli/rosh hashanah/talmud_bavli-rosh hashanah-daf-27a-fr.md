@@ -54,4 +54,4 @@ On raconte que <b>Rav Pappa bar Shmuel pensait agir conformément à la mishna</
 <strong>MISHNA :</strong> <b>Une <i>shofar</i> qui a été fissurée et</b> ensuite <b>collée ensemble,</b> même si elle semble entière, est <b>infirme.</b> De même, si <b>on collait ensemble des fragments brisés de <i>shofarot</i></b> pour former une <i>shofar</i> complète, la <i>shofar</i> est <b>infirme.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

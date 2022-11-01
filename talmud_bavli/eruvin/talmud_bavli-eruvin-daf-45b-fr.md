@@ -66,4 +66,4 @@ La Gemara demande : <b>Laissons</b> l'eau <b>acquérir une résidence dans les n
 La Gemara rejette cet argument : <b>En fait,</b> je peux <b>vous dire : Il y a</b> une interdiction de chabbat <b>limites</b> même au-delà de dix brins de main, <b>et l'eau</b> n'acquiert pas de résidence dans les nuages parce qu'elle <b>est absorbée dans les nuages.</b> Puisque l'eau n'existe pas dans son état habituel au sein des nuages, mais prend plutôt une forme différente, elle n'y acquiert pas de résidence.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara poursuit en abordant un sujet connexe. <b>Les Sages ont enseigné une
 La Guemara demande : <b>A l'égard de quel</b> principe <b>le ben Zoma et Rabbi Yehuda, qui ont fourni deux raisonnements différents pour l'immersion, <b>sont en désaccord?</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

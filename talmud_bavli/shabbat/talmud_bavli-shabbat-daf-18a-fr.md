@@ -24,4 +24,4 @@ Puisque l'obligation de reposer les ustensiles le Chabbat a été mentionnée, l
 <b>Et maintenant que Rav Oshaya a dit</b> que <b>Rav Asi a dit : Qui est le <i>tanna</i></b> qui affirme que l'obligation de <b>reposer les ustensiles</b> le Chabbat <b>est par la loi de la Torah ?</b> Le <i>tanna</i> <b>est Beit Shammai et non Beit Hillel.</b> Par conséquent, selon <b>Beit Shammai, que</b> l'ustensile <b>réalise une action ou qu'il ne réalise pas d'action, il est interdit. Et</b> selon <b>Beit Hillel, même s'il effectue une action, il est</b> néanmoins <b>permis.</b> La Gemara demande : <b>Et maintenant</b> que <b>vous avez dit</b> que selon <b>Beit Shammai même si</b> l'ustensile <b>n'effectue pas une action, il est interdit, si oui,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

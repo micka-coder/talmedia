@@ -51,4 +51,4 @@ En ce qui concerne les <b>gobelets,</b> l'absence de <b>chacun empêche l'accomp
 La Guemara demande : <b>Grâce,</b> il y avait <b>vingt-deux gobelets</b> sur le Candélabre, <b>comme il est écrit : "Et dans le Candélabre quatre gobelets</b> faits comme des fleurs d'amandier" (Exode 25:34), <b>et il est écrit : "Trois gobelets faits comme des fleurs d'amandier dans une branche, un bouton et une fleur;</b> et trois gobelets faits comme des fleurs d'amandier dans l'autre branche, un bouton et une fleur ; ainsi pour les six branches qui sortent du Candélabre" (Exode 25:33). Par conséquent, le Candélabre contient les <b>quatre</b> gobelets <b>de sa tige principale</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

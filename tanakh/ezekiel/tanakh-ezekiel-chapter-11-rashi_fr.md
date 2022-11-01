@@ -70,4 +70,4 @@
 <b>Dans la vision, avec l'esprit de Dieu</b> Il me semblait qu'Il me ramenait maintenant de Jérusalem à Babylone.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

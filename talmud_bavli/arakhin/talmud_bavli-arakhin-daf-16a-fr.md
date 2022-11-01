@@ -69,4 +69,4 @@ La Gemara demande : <b>Si l'on sait qui l'a tué,</b> le meurtrier <b>mérite la
 La Gemara poursuit : En ce qui concerne la contradiction apparente <b>entre</b> une déclaration traitant de la <b>parole malveillante</b> et l'autre déclaration concernant la <b>parole malveillante,</b> elle n'est également <b>pas difficile,</b> car <b>ceci,</b> l'encens, expie la parole malveillante prononcée <b>en privé,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

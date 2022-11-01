@@ -63,4 +63,4 @@ La Gemara commente ceci : <b>Et</b> il <b>vaut la peine de raisonner</b> que le 
 <b>Rav Ashi dit : Toute personne qui a de l'arrogance en elle finira par être diminuée</b> en stature, <b>comme il est dit</b> en ce qui concerne les différents types de lèpre :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

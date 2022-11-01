@@ -60,4 +60,4 @@ La Gemara pose une question par rapport au nombre accepté de bailees : <b>Si do
 § La Gemara raconte : Il y avait <b>un certain berger qui gardait des animaux sur la rive de la rivière Pappa,</b> quand <b>l'un d'eux glissa et tomba dans l'eau</b> et se noya. <b>Il se présenta devant Rabba, et</b> Rabba <b>l'exempta</b> du paiement. Rabba <b>déclara</b> le raisonnement suivant à l'appui de sa décision : <b>Que pouvait-il faire ?</b> Une noyade de ce type est une circonstance indépendante de sa volonté, et bien qu'un berger soit un dépositaire rémunéré, il est exempté de responsabilité dans des circonstances indépendantes de sa volonté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

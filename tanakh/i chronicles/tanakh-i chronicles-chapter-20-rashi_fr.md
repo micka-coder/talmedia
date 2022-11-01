@@ -21,4 +21,4 @@
 <b>Et ses doigts étaient six et six</b> Douze à ses mains et douze à ses pieds, et dans Samuel (II 21, 20), il est dit : " vingt-quatre en nombre ", c'est-à-dire l'un à côté de l'autre, de sorte qu'on peut les compter, et c'était aussi sa force, car il était capable de saisir l'épée avec la grande force de sa main. Et dans le Tractate <i>Bechoroth</i> (45b), on explique pourquoi il est écrit : "six et six, soit un total de vingt-quatre." C'est nécessaire, car s'il était écrit : " six et six ", on dirait six sur une main et six sur un pied. Par conséquent, il est écrit : "vingt-quatre". Et si c'était écrit "vingt-quatre", je dirais sept sur une main et cinq sur l'autre. Par conséquent, on dit : "six et six, soit un total de vingt-quatre".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

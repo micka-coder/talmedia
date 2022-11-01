@@ -51,4 +51,4 @@ Après avoir identifié la <i>tanna</i> de la mishna, la Gemara demande : <b>Et<
 <b>Et voici</b> les actions qu'ils ont accomplies pour <b>lesquelles</b> les Sages <b>ne les ont pas réprimandées : Ils</b> greffaient des palmiers toute la journée, et ils</b> regroupaient <b>le <i>Shema</i>, et ils</b> moissonnaient et empilaient</b> le grain <b>avant que l'offrande <i>omer</i></b> soit apportée. <b>Et voici</b> les actions qu'ils accomplissaient pour <b>ce pourquoi</b> les Sages les <b>réprimandaient :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

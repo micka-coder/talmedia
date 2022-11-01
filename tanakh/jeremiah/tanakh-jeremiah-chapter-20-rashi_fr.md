@@ -65,7 +65,7 @@
 <b>Douleur et chagrin</b> La destruction du Temple.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -132,4 +132,4 @@
 <b>Douleur et chagrin</b> La destruction du Temple.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

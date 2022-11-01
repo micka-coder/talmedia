@@ -24,4 +24,4 @@ Cependant, cette preuve n'est pas concluante, car <b>peut-être est-ce différen
 <b>Au contraire,</b> on peut apprendre que c'est l'avis du Rav <b>de cet</b> enseignement, <b>que Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit</b> que <b>Rav a dit : </b> S'il y a <b>deux maisons avec trois ruines entre elles,</b> l'habitant de <b>cette</b> maison <b>peut utiliser</b> la ruine <b>adjacente à lui en jetant</b> dans la ruine par ses fenêtres qui donnent sur cette ruine, <b>et</b> l'habitant de <b>l'autre</b> maison <b>peut utiliser</b> la ruine <b>adjacente à lui en jetant</b> par ses fenêtres,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara clarifie la différence entre ces deux avis. Si l'on <b>sélectionne 
 <b>Et</b> la Gemara <b>souleve une contradiction</b> à l'affirmation selon laquelle tout le monde est d'accord pour dire que celui qui mange à la fois un membre d'un animal vivant et de la chair sectionnée d'une <i>térifa</i> est susceptible de recevoir deux séries de coups de fouet, en se basant sur la déclaration suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

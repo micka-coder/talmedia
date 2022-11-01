@@ -63,5 +63,5 @@
 <b>Parler avec lui.</b> Cela enseigne que Moshé entendait de Dieu puis tous deux révisaient et étudiaient la <i>halachah</i> ensemble.
 <b>Tablettes.</b> Il est écrit לֻחַת (sans un ו' après le ח') pour indiquer qu'elles étaient toutes deux de [dimensions] égales.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

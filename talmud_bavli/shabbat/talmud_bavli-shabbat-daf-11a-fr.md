@@ -33,4 +33,4 @@ En ce qui concerne l'essence de cette déclaration, la Guemara demande : <b>N'av
 <strong>GEMARA :</strong> Parmi les <i>halakhot</i> concernant les décrets qui ont été émis de peur que l'on ne vienne à commettre une transgression, <b>on a appris</b> dans une mishna <b>là : Une personne ne peut pas se tenir dans le domaine privé et boire</b> de l'eau située <b>dans le domaine public,</b> ou, inversement, se tenir <b>dans le domaine public et boire</b> de l'eau située dans le <b>domaine privé,</b> de peur qu'elle ne transfère le récipient dans lequel elle boit l'eau à l'endroit où elle se tient et qu'elle ne devienne passible d'apporter un sacrifice pour le péché. <b>Toutefois, s'il a introduit sa tête et la plus grande partie de son</b> corps <b>dans le lieu</b> où se trouve l'eau <b>qu'il boit</b>, il n'y a plus lieu de s'inquiéter, et <b>il est permis,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

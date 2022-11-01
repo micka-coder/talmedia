@@ -48,4 +48,4 @@ La Guemara répond : Les Sages <b>disent</b> en réponse : <b>Cette affirmation,
 La Guemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabbi Eliezer ben Ya'akov,</b> car le verset ne fait pas explicitement référence à l'agitation ? La Guemara explique : La question <b>est dérivée</b> au moyen d'une analogie verbale de <b>"main"</b> écrite à propos des prémices, et <b>de "main"</b> écrite à propos d'<b>une offrande de paix. Il est écrit ici,</b> en ce qui concerne les premiers fruits : <b>"Et le prêtre prendra la corbeille de ta main"</b> (Deutéronome 26:4), <b>et il est écrit là:</b> l'offrande "Celui qui présente son offrande de paix à Dieu... <b>ses mains l'apporteront,</b> le feu de Dieu... pour l'élever comme une ondulation devant Dieu" (Lévitique 7:29-30).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

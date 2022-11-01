@@ -27,4 +27,4 @@ Reish Lakish <b>se présenta devant Rabbi Yoḥanan</b> et lui raconta l'inciden
 La Guemara note que <b>Rabbi Yoḥanan</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

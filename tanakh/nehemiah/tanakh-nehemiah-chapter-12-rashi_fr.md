@@ -87,4 +87,4 @@
 <b>Et ils [les] consacrèrent pour les Lévites</b> Et ils donnaient la dîme aux Lévites, qui prenaient la dîme de la dîme et la donnaient aux prêtres. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

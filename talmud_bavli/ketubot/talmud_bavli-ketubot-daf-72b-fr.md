@@ -42,4 +42,4 @@ S'il l'a fiancée <b>à condition qu'elle n'ait pas de défauts, et</b> qu'il a 
 § <b>Il a été dit</b> que les Sages ont eu un différend concernant la question suivante : S'il l'a <b>fiançée sous condition,</b> telle qu'elle n'avait pas de vœux lui incombant, <b>et qu'il</b> l'a ensuite <b>mariée sans spécification,</b> et que l'on découvre ensuite que la condition n'avait pas été remplie, <b>Le Rav a dit :</b> Bien qu'il puisse divorcer d'elle sans paiement de son contrat de mariage, les fiançailles ne sont pas annulées, et donc <b>elle exige de lui un acte de divorce. Et Shmuel a dit :</b> Les fiançailles étaient invalides dès le départ, et donc <b>elle n'a pas besoin d'un acte de divorce de sa part. Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre eux,</b>
 La Guemara demande : <b>Et</b> selon l'opinion de <b>Rabbi Yehuda,</b> pourquoi n'est-il pas permis de retarder l'examen par le prêtre des symptômes lépreux sur le corps d'un individu pour une question facultative, tout comme en ce qui concerne les symptômes lépreux sur sa maison ? La Guemara répond : <b>Nous n'apprenons pas</b> un principe halakhique <b>de là car</b> la <i>halakha</i> de la lèpre des maisons <b>est</b> elle-même <b>une nouveauté,</b> une loi biblique unique à partir de laquelle on ne peut extrapoler à d'autres cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -136,4 +136,4 @@
 <b>sifflé</b> [Heb. שָּׁרְקוּ,] sibler en vieux français, siffler. Ainsi, les gens sifflent-ils une chose qui a disparu.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

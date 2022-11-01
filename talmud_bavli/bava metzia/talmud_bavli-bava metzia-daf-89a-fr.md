@@ -39,4 +39,4 @@ La Guemara soulève une difficulté concernant cette réponse : <b>Est-ce que</b
 § <b>Un dilemme a été soulevé devant</b> les Sages : En ce qui concerne <b>un ouvrier, quelle est</b> la <i>halakha</i> concernant la possibilité <b>qu'il singe</b> un fruit ou un grain <b>dans le feu,</b> pour en améliorer le goût, <b>et le manger</b> ? La question est de savoir <b>si cela <b>est</b> considéré <b>comme</b> le fait de manger <b>des raisins et autre chose,</b> ce qui est interdit, <b>ou pas ?</b> La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution de ce problème par un <i>baraita</i> : <b>Un propriétaire est autorisé à donner</b> à ses <b>travailleurs du vin à boire, afin qu'ils ne mangent pas beaucoup de raisins</b> de sa récolte, et de leur côté les <b>travailleurs sont autorisés à tremper leur pain dans la saumure, afin qu'ils mangent beaucoup de raisins.</b> Cette <i>baraita</i> indique qu'une telle pratique est autorisée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

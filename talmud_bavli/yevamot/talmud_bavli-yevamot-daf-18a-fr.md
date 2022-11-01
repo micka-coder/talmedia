@@ -39,4 +39,4 @@ Rabba <b>dit à</b> Abaye : Veux-tu <b>soulez-vous soulever une contradiction en
 En ce qui concerne le différend actuel entre Rav Huna et Rav Yehuda, <b>Abaye dit à Rav Yosef : Cette</b> <i>halakha</i> énoncée <b>par Rav Yehuda,</b> selon laquelle même si une femme en attente de lévirat meurt, sa mère reste interdite au <i>yavam</i>, <b>est</b> issue de son maître <b>Shmuel</b> et non de Rav, qui était également l'un de ses maîtres. La preuve de cela se trouve dans <b>cette</b> que <b>nous avons appris</b> dans une mishna (41a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

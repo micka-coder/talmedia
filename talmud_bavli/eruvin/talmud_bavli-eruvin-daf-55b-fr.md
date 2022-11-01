@@ -69,4 +69,4 @@ La Guemara demande : <b>Quelle est la</b> différence pratique <b>entre</b> les 
 Après avoir mentionné divers lieux de résidence, la Guemara cite ce que <b>Rav Huna a dit : Toute ville qui n'a pas de légumes, un érudit de la Torah n'est pas autorisé à y habiter</b> pour des raisons de santé. La Guemara demande : <b>C'est pour dire que les légumes sont bénéfiques</b> à la santé d'une personne ? <b>Ce n'était pas enseigné</b> dans une <i>baraita</i> : <b>Trois</b> choses <b>augmentent les déchets d'une personne, courbent</b> sa <b>stature, et enlèvent un cinq centième de la lumière des yeux d'une personne ; et ce sont</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

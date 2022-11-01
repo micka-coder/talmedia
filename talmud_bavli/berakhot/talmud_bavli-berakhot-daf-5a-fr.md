@@ -72,4 +72,4 @@ De plus, <b>il a ete enseigne</b> dans une <i>baraita</i> en ce qui concerne l'a
 <b>Un <i>tanna</i> a enseigne</b> la <i>baraita</i> suivante <b>avant Rabbi Yohanan : Si on s'engage dans la Torah et les actes de charite</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

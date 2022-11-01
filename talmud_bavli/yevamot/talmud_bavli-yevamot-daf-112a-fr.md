@@ -42,4 +42,4 @@ Quant à la femme qui dit : <b>Je me retire des Juifs,</b> son mari <b>doit annu
 <b>Rav dit : Un <i>yavam</i> n'est pas comme un mari.</b> Elle n'a pas du tout voulu que son vœu soit dirigé contre lui, et il peut contracter un mariage lévirat avec elle. <b>Et Shmuel dit : Un <i>yavam</i> est comme un mari</b> à cet égard et le vœu s'applique à lui aussi, il doit donc accomplir <i>ḥalitza</i>. <b>Abaye a dit : Statuer selon l'opinion de Rav</b> <b>s'appuie sur la raison, comme nous l'avons appris</b> dans la mishna : Si une femme <b>fait vœu du vivant de son mari</b> de ne tirer aucun <b>bénéfice de son <i>yavam</i>,</b> le tribunal <b>l'oblige à accomplir la <i>ḥalitza</i>. Et si c'est</b> le cas <b>qu'il lui vient à l'esprit</b> que le mari va mourir et qu'elle deviendra candidate au lévirat avec le <i>yavam</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

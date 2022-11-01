@@ -42,4 +42,4 @@ La Guemara répond : En ce qui concerne le sang versé, ce n'est <b>pas difficil
 <b>Et</b> en ce qui concerne la contradiction entre ce qui est énoncé à propos de <b>la parole malveillante et</b> ce qui est énoncé à propos de <b>la parole malveillante,</b> elle n'est <b>pas difficile non plus. Ceci,</b> l'encens, effectue l'expiation des paroles malveillantes prononcées <b>en privé,</b> tandis que <b>cette,</b> la robe, sur laquelle sont placées les cloches qui produisent du bruit, effectue l'expiation des paroles malveillantes prononcées <b>en public.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

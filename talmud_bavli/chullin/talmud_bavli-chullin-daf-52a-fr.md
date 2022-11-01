@@ -63,4 +63,4 @@ La Gemara objecte : <b>Mais on lui a posé</b> cette question <b>et il ne s'est 
 La Gemara demande : Shmuel a-t-il vraiment dit que si <b>une côte a été arrachée de sa racine,</b> l'animal est <b>un <i>tereifa</i> ? Mais soulève une contradiction</b> d'une mishna (<i>Oholot</i> 2:3) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

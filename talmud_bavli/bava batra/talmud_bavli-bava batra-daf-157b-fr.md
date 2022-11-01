@@ -33,4 +33,4 @@ La Guemara <b>souleve une objection</b> à partir de la <i>baraïta</i> précit�
 La Guemara répond : <b>Que</b> signifie le <i>baraita</i>, <b>aussi,</b> quand <b>il enseigne</b> que l'acheteur <b>collecte</b> la mise en valeur ? Le <i>baraita</i> signifie qu'il perçoit <b>la moitié</b> de la valeur de <b>la mise en valeur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

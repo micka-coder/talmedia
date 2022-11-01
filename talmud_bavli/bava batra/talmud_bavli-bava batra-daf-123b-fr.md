@@ -36,4 +36,4 @@ Le <i>baraita</i> déclare : Si <b>leur père leur a laissé une vache</b> qui �
 La Guemara répond que <b>c'est</b> ce que la <i>baraita</i> <b>nous enseigne : </b> Elle enseigne <b>que</b> le cas où l'animal était <b>loué ou loué est similaire</b> au cas où il <b>pâtrait dans le pré,</b> en ce sens que <b>comme</b> dans le cas où il <b>pâtrait dans le pré, la mise en valeur venait d'elle-même et</b> les frères <b>ne perdaient pas</b> d'argent pour <b>sa subsistance,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

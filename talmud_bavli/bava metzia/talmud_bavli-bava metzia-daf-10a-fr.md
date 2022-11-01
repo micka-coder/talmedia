@@ -57,7 +57,7 @@ La Guemara demande : <b>Mais si les Sages ont institué</b> une ordonnance selon
 La Gemara répond : Ce cas est différent. <b>Puisqu'il est tombé</b> dessus <b>il</b> a ainsi <b>révélé son intention : Qu'il est satisfaisant pour lui d'acquérir</b> le produit <b>en tombant</b> dessus et <b>qu'il n'est pas satisfaisant pour lui d'acquérir</b> le produit <b>par le biais</b> de l'ordonnance concernant ses <b>quatre</b> <b>cubits carrés.</b> Puisqu'il a décidé de renoncer au mode d'acquisition que les Sages ont institué, et que tomber sur le produit n'est pas un mode d'acquisition valide, il n'a pas acquis le produit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Quel est l'avis exprimé dans la mishna ? C'est</b> l'avis des <b>Rabbins,</b> qui considèrent qu'on ne peut pas acquérir un bien pour un autre de cette manière. <b>Mais si l'on dit</b> que le <b>dispute</b> est spécifiquement <b>dans</b> un cas de <b>un riche et un pauvre mais</b> dans un cas où le <i>pe'a</i> a été glané <b>par un pauvre pour le compte d'un pauvre tout le monde est d'accord</b> pour dire que <b>il l'a acquis</b> <b>sur</b> le compte de ce dernier, </b> conformément à <b>l'avis de qui</b> cette mishna</b> ? Elle n'est <b>ni</b> conforme à l'avis des <b>rabbins ni</b> à l'avis du <b>rabbin Eliezer.</b>
 
@@ -116,4 +116,4 @@ La Guemara demande : <b>Mais si les Sages ont institué</b> une ordonnance selon
 La Gemara répond : Ce cas est différent. <b>Puisqu'il est tombé</b> dessus <b>il</b> a ainsi <b>révélé son intention : Qu'il est satisfaisant pour lui d'acquérir</b> le produit <b>en tombant</b> dessus et <b>qu'il n'est pas satisfaisant pour lui d'acquérir</b> le produit <b>par le biais</b> de l'ordonnance concernant ses <b>quatre</b> <b>cubits carrés.</b> Puisqu'il a décidé de renoncer au mode d'acquisition que les Sages ont institué, et que tomber sur le produit n'est pas un mode d'acquisition valide, il n'a pas acquis le produit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

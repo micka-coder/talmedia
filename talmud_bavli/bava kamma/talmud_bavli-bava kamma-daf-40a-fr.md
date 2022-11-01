@@ -84,4 +84,4 @@ La Gemara répond : L'emprunteur ne peut pas dire cela, <b>parce que</b> le prop
 La Gemara demande : <b>Mais</b> si tel est le cas, <b>laissons</b> l'emprunteur lui <b>dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

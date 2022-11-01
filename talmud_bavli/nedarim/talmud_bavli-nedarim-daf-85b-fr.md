@@ -21,4 +21,4 @@ Mais si c'est le cas, <b>laissons</b> Shmuel clairement <b>dire :</b> La <b><i>h
 La Gemara conteste cette interprétation : <b>Et si elle a dit</b> son vœu <b>comme ça, sont-ils consacrés</b> et interdits ? <b>Mais ses mains ne sont-elles pas engagées envers son mari,</b> pour faire le travail qu'elle est tenue d'accomplir pour lui ? La Guemara répond : La mishna fait référence à une femme <b>qui a dit :</b> Le vœu prendra effet <b>lorsque je serai divorcée.</b> La Gemara soulève une difficulté : <b>Elle n'est de toute façon pas divorcée maintenant, et d'où</b> est-il appris <b>que lorsqu'elle dit</b> son vœu <b>comme cela,</b> le vœu <b>est effectif ?</b> Comment est-il appris qu'elle peut consacrer quelque chose de telle manière qu'il ne deviendra consacré que dans le futur ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

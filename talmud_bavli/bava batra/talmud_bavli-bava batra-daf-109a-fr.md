@@ -27,4 +27,4 @@ La Gemara conteste : <b>Mais les versets ne sont pas écrits ainsi, puisqu'il es
 La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> que <b>dans un cas</b> où il y a <b>une fille, on lui transmet</b> l'<b>héritage</b> <b>des frères,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

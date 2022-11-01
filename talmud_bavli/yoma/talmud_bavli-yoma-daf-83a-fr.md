@@ -51,4 +51,4 @@ S'ils ont des <b>produits non traités et des <i>teruma</i>,</b> il y a <b>un di
 <b>Lorsqu'ils sont en désaccord,</b> c'est dans un cas <b>où il est impossible</b> de lui donner de la <b>alimentation non sacrée</b> car il n'y a pas moyen de séparer les dîmes. <b>Un Sage soutient</b> que l'interdiction des <b>produits non sacrés est plus sévère ; et un Sage soutient</b> que l'interdiction des <b><i>teruma</i> est plus sévère.</b> Les deux parties raisonnent comme suit . Un <b>Sage soutient que</b> l'interdiction des <b>produits non traités est</b> plus <b>sévère</b> parce qu'ils sont interdits à tout le monde ; <b>mais <i>teruma</i> convient à un prêtre,</b> et donc on pourrait dire que son interdiction est moins sévère. <b>Et un Sage soutient que le <i>teruma</b> est</b> plus <b>sévère</b> parce que les non-prêtres ne peuvent jamais en manger, <b>alors que les produits non traités peuvent être rendus propres</b> à la consommation, et donc, même s'ils ne sont pas encore traités, l'interdiction de les manger est moins sévère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

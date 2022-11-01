@@ -24,4 +24,4 @@ La Guemara demande également : En ce qui concerne la violation de l'interdictio
 <b>Rava a dit :</b> C'est, <b>par exemple, lorsqu'il a dit : Je ne quitterai pas le monde avant de devenir nazirite, car il est nazirite dès ce moment-là</b> car il ne sait pas quand il quittera ce monde. Il en est ainsi <b>comme il en est</b> dans le cas d'un homme <b>qui dit à sa femme : Voici ton acte de divorce</b> qui prendra effet <b>une heure avant ma mort.</b> S'il est prêtre et qu'elle est la fille d'un non-prêtre, <b>elle est interdite de participation au <i>teruma</i> immédiatement. Apparemment, on dit à chaque instant</b> que <b>peut-être qu'il est</b> maintenant <b>mort</b> et qu'elle est donc déjà divorcée. <b>Ici aussi,</b> en ce qui concerne la naziréité, <b>il est naziréité immédiatement, puisque nous disons</b> que <b>peut-être il est maintenant</b> sur le point de <b>mourir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

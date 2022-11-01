@@ -51,4 +51,4 @@ La Gemara répond : <b>Dites</b> que <b>ils le rendent</b>, <b>mais on ne l'acce
 La Guemara ajoute : <b>Et maintenant que Rav Naḥman dit</b> que lorsque les Sages disent qu'il ne rend pas ce qu'il a volé, ils se réfèrent uniquement à un cas <b>où l'objet volé n'existe pas</b> dans sa forme initiale, et <b>vous</b> pouvez <b>même dire</b> que <b>ceci et ça,</b> tous deux <i>baraitot</i>, font référence à un moment <b>après que l'ordonnance</b> ait été instituée, <b>et</b> ce n'est <b>pas difficile. </b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

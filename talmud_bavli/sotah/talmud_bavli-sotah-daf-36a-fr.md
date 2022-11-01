@@ -42,4 +42,4 @@ Il découle de ce verset que seuls les noms sur la <b>deuxième</b> pierre étai
 <b>Rabbi Ḥanina ben Gamliel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

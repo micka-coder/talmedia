@@ -42,4 +42,4 @@ Il poursuit : Pour <b>l'audition d'une voix,</b> c'est-à-dire un faux serment d
 La Guemara exprime sa surprise : <b>Cette</b> <i>baraita</i> <b>elle-même</b> est <b>difficile. Vous avez dit qu'un prêtre oint</b> n'est <b>pas responsable de la souillure</b> du <b>Temple ou de ses aliments sacrificiels</b>, et par déduction : <b>C'est pour la souillure</b> du <b>Temple ou de ses aliments sacrificiels</b> <b>qu'il est exempt, mais</b> il est <b>responsable pour l'audition d'une voix et</b> pour <b>une déclaration des lèvres. Dites la dernière clause</b> de la <i>baraita</i> : Pour <b>tous</b> les cas pour <b>lesquels</b> un individu est tenu <b>d'apporter <b>une offrande dégressive</b>, le statut d'un <b>roi</b> est <b>comme</b> celui de l'individu, <b>et un prêtre oint</b> <b>et un tribunal sont exemptés. Il enseigne : Un prêtre oint et une cour sont exempts ; de même qu'une cour est exempte de toutes</b> les offrandes dégressives, <b>de même, un prêtre oint est exempt de toutes ces offrandes,</b> pas seulement de l'offrande pour la souillure du Temple ou de ses aliments sacrificiels.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

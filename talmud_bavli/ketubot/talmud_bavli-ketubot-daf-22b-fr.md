@@ -33,7 +33,7 @@ La Gemara demande : <b>Et la femme est-elle</b> <b>impudente</b> à <b>ce point,
 § <b>Les Sages ont enseigné :</b> Dans un cas où <b>deux</b> témoins <b>disent :</b> Cette femme <b>était fiancée, et deux</b> témoins <b>disent : Elle n'était pas fiancée, cette</b> femme <b>ne peut pas en épouser</b> un autre, <b>et si elle se remarie,</b> elle n'a pas besoin de <b>séparer</b> son mari. Dans un cas où <b>deux</b> témoins <b>disent :</b> Cette femme <b>a été divorcée, et deux</b> témoins <b>disent : Elle n'a pas été divorcée, cette</b> femme <b>ne peut pas se remarier. Et si elle se remarie,</b> elle doit <b>laisser</b> son mari.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Raison de sa déclaration, elle est jugée crédible.</b> La Gemara relate : Shmuel <b>a appris</b> cette <i>halakha</i> <b>de lui quarante fois</b> pour s'assurer qu'il ne l'oublierait pas, <b>et malgré cela,</b> lorsqu'il fut confronté à une situation similaire, <b>Shmuel ne s'est pas</b> appuyé sur cette décision clémente et n'a pas <b>pris de mesures à l'égard de lui-même</b> et de sa femme.
 
@@ -68,4 +68,4 @@ La Gemara demande : <b>Et la femme est-elle</b> <b>impudente</b> à <b>ce point,
 § <b>Les Sages ont enseigné :</b> Dans un cas où <b>deux</b> témoins <b>disent :</b> Cette femme <b>était fiancée, et deux</b> témoins <b>disent : Elle n'était pas fiancée, cette</b> femme <b>ne peut pas en épouser</b> un autre, <b>et si elle se remarie,</b> elle n'a pas besoin de <b>séparer</b> son mari. Dans un cas où <b>deux</b> témoins <b>disent :</b> Cette femme <b>a été divorcée, et deux</b> témoins <b>disent : Elle n'a pas été divorcée, cette</b> femme <b>ne peut pas se remarier. Et si elle se remarie,</b> elle doit <b>laisser</b> son mari.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

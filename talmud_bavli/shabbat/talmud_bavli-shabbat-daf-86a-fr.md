@@ -21,4 +21,4 @@ La Guemara explique la source de cet avis : <b>Il monta</b> le Mont Sinaï <b>t�
 La Guemara demande : <b>Pourquoi avait-il besoin de leur dire</b> de se séparer pendant les heures du matin ? <b>N'est-ce pas Rav Huna qui a dit : Le peuple juif est saint et n'a pas de relations pendant la journée ?</b> Il n'était pas nécessaire de leur ordonner jusqu'à la nuit. La Guemara répond : Il était nécessaire de leur dire le matin, <b>comme l'a dit Rava : Si c'était une maison sombre, il est permis</b> d'avoir des relations pendant la journée. <b>Et</b> de même, <b>Rava a dit,</b> et <b>certains disent</b> que <b>Rav Pappa</b> a dit : <b>Un érudit de la Torah obscurcit</b> la lumière de la pièce <b>avec son manteau et est</b> ainsi <b>permis</b> d'avoir des relations pendant la journée. Il était donc nécessaire d'ordonner au peuple de se séparer même pendant les heures de la journée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

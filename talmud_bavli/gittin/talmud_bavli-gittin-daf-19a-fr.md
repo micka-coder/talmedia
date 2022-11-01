@@ -51,4 +51,4 @@ La Gemara répond : Ceci n'est <b>pas difficile. Cette</b> suggestion de Rabbi A
 On raconte <b>que</b> il y avait <b>une certaine personne qui a accompli une action</b> et a permis aux témoins de tracer leurs noms <b>dans</b> un cas de <b>autres documents,</b> qui n'étaient pas des actes de divorce, et <b>Rav Kahana</b> a ordonné qu'il soit <b>fouetté</b> pour avoir agi ainsi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

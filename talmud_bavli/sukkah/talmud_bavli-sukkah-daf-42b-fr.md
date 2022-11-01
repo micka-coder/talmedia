@@ -9,4 +9,4 @@ S'il s'agit de celui qui <b>est capable de manger une botte d'olives de céréal
 Si c'est quelqu'un qui <b>est capable de manger une olive-bulk de viande rôtie</b>, <b>on abat l'agneau pascal en son</b> nom, et il est inclus dans le groupe assemblé pour manger l'agneau pascal, <b>comme il est dit : Â "Â Selon ce que chacun aura mangé</b> vous ferez votre compte pour l'agneauÂ " (Exode 12:4). <b>Rabbi Yehouda dit :</b> La capacité à consommer une olive-bulk est insuffisante pour l'inclure dans le groupe ; au contraire, il n'est pas inclus <b>jusqu'à ce qu'il soit capable de discerner</b> ce qu'il <b>mange. Comment</b> cela est-il déterminé ? Si <b>on lui donne un caillou et qu'il le jette</b>, et si on lui donne <b>une noix et qu'il la prend,</b> il peut être inclus dans le groupe pour manger l'agneau pascal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

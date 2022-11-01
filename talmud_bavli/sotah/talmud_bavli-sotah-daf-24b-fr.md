@@ -18,4 +18,4 @@ La Guemara répond : L'avis de Rabbi Yonatan est <b>conforme</b> à l'avis de <b
 La Guemara demande : <b>Si c'est le cas, disons</b> que <b>Rav a énoncé</b> son opinion <b>conformément</b> à l'opinion de <b>Rabbi Yoshiya, et Shmuel a énoncé</b> son opinion <b>conformément</b> à l'opinion de <b>Rabbi Yonatan.</b> La Gemara rejette cette interprétation : <b>Rav</b> aurait pu vous <b>dire : Je déclare</b> mon opinion <b>même selon</b> l'opinion de <b>Rabbi Yonatan. Puisque</b> il <b>était nécessaire</b> que <b>le verset exclue</b> une <i>yevama</i> qui s'engageait dans un rapport sexuel avec son <i>yavam</i> du rituel de la <i>sota</i>, <b>par déduction</b> on peut en déduire <b>qu'elle est sa femme à part entière</b> en ce qui concerne toutes les autres questions.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

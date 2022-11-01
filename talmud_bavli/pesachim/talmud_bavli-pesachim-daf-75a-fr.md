@@ -60,4 +60,4 @@ La Guemara demande : <b>Une fois qu'il y a</b> la raison du <b>Rav Naḥman, pou
 La Gemara objecte : <b>Là aussi,</b> en ce qui concerne les taureaux que l'on brûle, <b>on écrit brûler à la fin, comme il est écrit</b> à la fin de ce verset :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

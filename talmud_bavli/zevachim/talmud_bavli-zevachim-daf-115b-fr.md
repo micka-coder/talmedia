@@ -54,4 +54,4 @@ La Gemara demande : <b>Accordé, selon celui qui dit</b> que le commandement aux
 § <b>Le Maître a dit</b> dans la <i>baraita</i> : Avant l'établissement du Tabernacle, <b>tous</b> les animaux étaient <b>adaptés au sacrifice :</b> Un animal domestiqué, un animal non domestiqué, ou un oiseau. La Gemara demande : <b>D'où viennent ces questions</b> ? <b>Rav Huna dit : Comme le dit le verset</b> en ce qui concerne l'offrande qui a été sacrifiée après le déluge : <b>"Noé bâtit un autel à l'Eternel, il prit de tous les animaux purs et de tous les volatiles purs,</b> et offrit des holocaustes sur l'autel" (Genèse 8:20). La Gemara explique : <b>"Animal [<i>behema</i>],"</b> est compris <b>selon son sens ordinaire,</b> un animal domestiqué, et il en est de même pour la volaille ; <b>un animal non domestiqué [<i>ḥayya</i>]</b> est <b>inclus dans</b> le terme <b>"<i>behema</i>"</b> qui est énoncé dans le verset.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

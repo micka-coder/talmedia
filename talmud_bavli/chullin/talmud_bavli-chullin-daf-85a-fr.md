@@ -63,4 +63,4 @@ La Guemara commente : <b>Et c'est ce que dit Rabbi Ḥiyya</b> quand il dit que 
 § <b>Rabbi Abba dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

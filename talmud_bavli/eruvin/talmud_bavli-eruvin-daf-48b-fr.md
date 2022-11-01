@@ -27,4 +27,4 @@ La Guemara rejette cet argument : <b>Même si l'on dit</b> que cela est conforme
 Rav Yehuda raconte : <b>Lorsque j'ai récité</b> cet enseignement <b>devant Shmuel, il m'a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

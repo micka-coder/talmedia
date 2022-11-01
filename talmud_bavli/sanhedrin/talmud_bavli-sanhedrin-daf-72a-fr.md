@@ -51,4 +51,4 @@ On raconte que des <b>rams</b> furent un jour <b>volés à Rava par des cambriol
 La Gemara répond : Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@ La Guemara clarifie cette dispute : <b>Quel est</b> le sens de <b>absorbe et non
 La Gemara affirme que ce n'est pas necessairement parallele : <b>Non, tout le monde,</b> les deux <i>tannaim</i>, s'accordent a dire que <b>tant qu'il s'humidifie, il est interdit,</b> et que s'il n'y a pas d'humidite mais que sa <b>marque est apparente, il est permis.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

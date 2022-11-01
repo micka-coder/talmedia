@@ -54,7 +54,7 @@ La Gemara demande : <b>Comment peut-on</b> ces cas <b>être comparés ? Là,</b>
 <b>Rav Ashi soulève un dilemme :</b> S'il y avait une cachette dans la ville et qu'une femme mariée à un prêtre dit : <b>Je ne me suis pas cachée et je n'ai pas été violée, quelle est</b> la décision ? <b>Disons-nous</b> le principe :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Si elle a été prise en garantie,</b> dans un cas où son mari a stipulé que s'il ne paie pas une dette, les Gentils peuvent prendre sa femme et en faire ce qu'ils veulent, <b>oui,</b> elle a besoin de témoins pour attester qu'elle n'a pas été violée. En revanche, si elle a été <b>imprisonnée</b> par les autorités, <b>non,</b> elle est réputée non violée même sans témoins. Apparemment, la distinction n'est pas basée sur la dominance du peuple juif. Elle est plutôt basée sur la manière dont elle a été appréhendée. La Guemara répond : <b>Il en est de même</b> qu'elle est interdite à son mari même <b>si elle a été emprisonnée, et</b> la raison pour laquelle les <i>tanna'im</i> ont témoigné d'un cas où elle a été prise en sécurité est que <b>l'incident qui a transpiré, a transpiré</b> de <b>cette</b> manière.
 
@@ -110,4 +110,4 @@ La Gemara demande : <b>Comment peut-on</b> ces cas <b>être comparés ? Là,</b>
 <b>Rav Ashi soulève un dilemme :</b> S'il y avait une cachette dans la ville et qu'une femme mariée à un prêtre dit : <b>Je ne me suis pas cachée et je n'ai pas été violée, quelle est</b> la décision ? <b>Disons-nous</b> le principe :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

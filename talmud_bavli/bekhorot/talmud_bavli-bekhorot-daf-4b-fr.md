@@ -72,4 +72,4 @@ La Guemara rejette cette preuve. <b>Rav Naḥman bar Yitzḥak a dit :</b> La <i
 <b>Rav Pappa s'oppose à cela : Et ils ne les ont pas sanctifiés</b> <b>dans le désert ? Mais n'est-il pas écrit : "Comptez tous les premiers-nés mâles des enfants d'Israël</b> à partir d'un mois et plus" (Nombres 3:40), commandement qui a été accompli (voir Nombres 3:42) ? Les premiers-nés dont il est question comprennent certainement ceux qui sont nés dans le désert, puisque ce comptage a eu lieu la deuxième année après l'exode d'Égypte. <b>Au contraire, si</b> un différend entre Rabbi Yoḥanan et Reish Lakish <b>a été énoncé</b> à propos de cette question, il <b>a été énoncé ainsi : Rabbi Yoḥanan dit</b> les premiers-nés qui sont nés dans le désert <b>étaient sanctifiés et</b> leur sainteté <b>n'a pas cessé, et Reish Lakish dit</b> qu'ils <b>étaient sanctifiés</b> seulement jusqu'au moment du décompte mentionné ci-dessus,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

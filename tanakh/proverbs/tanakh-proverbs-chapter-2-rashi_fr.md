@@ -60,4 +60,4 @@
 <b>Ils y resteront</b> quand les méchants descendront à Gehinnom.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

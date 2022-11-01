@@ -60,4 +60,4 @@ Le <i>baraita</i> affirme : <b>Rabbi Yosei, fils de Rabbi Yehuda, dit :</b> L'ex
 On <b>pourrait</b> avoir pensé <b>que j'inclus</b> un holocauste <b>qui n'a pas été égorgé pour lui-même</b> mais pour une autre offrande. <b>Puisqu'elle ne satisfait pas</b> l'obligation <b>du propriétaire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara présente maintenant une version différente de l'endroit où Joseph a
 <b>Et pendant toutes ces années où le peuple juif était dans le désert, ces deux arches, l'une</b> un cercueil <b>d'un mort,</b> Joseph, <b>et l'autre</b> l'Arche <b>de la Présence Divine,</b> c'est-à-dire l'Arche d'Alliance, <b>tournaient ensemble, et les passants disaient : Quelle est la nature de ces deux arches ? Ils leur répondaient</b> : <b>L'une</b> est <b>d'un mort et l'autre</b> est <b>de la Présence Divine.</b> Les passants demandaient : <b>Et</b> en <b>quel sens est-ce que c'est <b>la manière d'un mort de voyager avec la Présence Divine ? Ils répondaient</b> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

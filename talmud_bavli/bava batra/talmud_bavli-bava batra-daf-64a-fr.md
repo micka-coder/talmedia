@@ -24,4 +24,4 @@ Si le vendeur a gardé la maison, mais <b>vendu</b> le puits et la citerne <b>à
 § La mishna enseigne : <b>Et</b> le vendeur <b>doit acheter pour lui-même un chemin</b> à travers le domaine de l'acheteur ; c'est <b>la déclaration de Rabbi Akiva. Et les rabbins disent :</b> Le vendeur <b>n'a pas besoin</b> d'acheter un tel chemin. <b>Quoi, n'est-ce pas sur cette</b> question, qui va être immédiatement expliquée, que Rabbi Akiva et les Rabbins <b>sont en désaccord ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

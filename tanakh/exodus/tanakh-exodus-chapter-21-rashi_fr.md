@@ -175,5 +175,5 @@
 <b>Cinq bœufs, etc.</b> Dit Rabbon Yochanan ben Zakkai : Dieu respecte l'honneur de ses créatures : Un bœuf, qui marche sur ses propres jambes, [lorsqu'il est volé] et que le voleur n'a pas été avili en devant le porter sur ses épaules, il doit rembourser cinq fois. [Par contre, s'il vole] un mouton, qu'il doit porter sur ses épaules, il doit payer [seulement] le quadruple, puisqu'il a été humilié dans le processus. Rabbi Meir a dit : Viens et vois combien grande est la puissance du travail : [Le voleur qui, en volant] un bœuf, l'a empêché de travailler, doit payer cinq fois. [alors que, s'il vole] un mouton, par lequel il ne l'a pas empêché de travailler, [il ne paie que] quatre fois. 
 <b>Pour chaque bœuf... pour chaque mouton.</b> La Torah les répète, (c'est-à-dire שׁוֹר et שֶׂה ) pour indiquer que les paiements de quatre ou cinq fois ne s'appliquent qu'à un bœuf ou à un mouton. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

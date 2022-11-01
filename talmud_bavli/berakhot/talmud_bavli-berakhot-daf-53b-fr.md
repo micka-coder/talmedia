@@ -96,4 +96,4 @@ La Gemara repond : Ceci est sujet a <b>une dispute tannaitique, car il a ete ens
 <b>Rav Nahman bar Yitzhak a dit</b> a ce sujet : <b>Je ne connais ni Zilai, ni Zivai, ni Zuhamai ; je connais plutot une <i>baraita</i>, comme l'a dit Rav Yehuda</b> ce <b>Rav a dit, et certains disent</b> qu'il a ete <b>enseigne dans une <i>baraita</i> :</b> Il est dit : "Et vous vous sanctifierez, et vous serez saints, car je suis saint, moi, le Seigneur votre Dieu" (Levitique 20:26). A propos de ce verset, les Sages ont dit : <b>Et vous vous sanctifierez, ce sont les premieres eaux</b> avec lesquelles on se lave les mains avant le repas ; <b>et vous serez saints, ce sont les dernieres eaux ; car sainte, c'est l'huile</b> que l'on repand sur ses mains ; <b>Moi, le Seigneur ton Dieu, c'est</b> la Grace apres les repas <b>la benediction.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

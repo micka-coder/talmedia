@@ -57,4 +57,4 @@ La Guemara soulève une difficulté par rapport à l'affirmation de Rabbi Elazar
 <b>Et</b> si tel est le cas, <b>comment puis-je réaliser</b> le sens du verset : "Et <b>si une femme a un écoulement, et que son écoulement sur sa chair soit du sang,</b> elle restera dans son impureté sept jours ; et quiconque la touchera sera impur jusqu'au soir" (Lévitique 15:19) ? Ceci fait référence <b>à</b> celle <b>qui voit</b> du sang pendant seulement <b>un jour.</b> Mais peut-être que celle qui voit du sang pendant trois jours au début de ses jours de menstruation devrait devenir une <i>zava</i> ? <b>Le verset indique :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

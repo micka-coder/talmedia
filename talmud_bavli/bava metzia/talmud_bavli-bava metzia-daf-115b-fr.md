@@ -21,7 +21,7 @@ La Guemara répond : <b>Rava</b> aurait pu vous <b>dire : J'énonce</b> mon avis
 <b>Et Abaye</b> aurait pu <b>vous dire : J'énonce</b> mon avis <b>même en accord</b> avec l'avis du <b>Rav Huna.</b> C'est parce que <b>Rav Huna énonce</b> son avis <b>uniquement là,</b> en ce qui concerne la garantie, <b>parce que</b> l'interdiction <b>"Car il prend la vie d'un homme en garantie"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il vient</b> enseigner <b>l'interdiction <b>de prendre en garantie</b> d'autres objets</b> utilisés dans la préparation des aliments.
 
@@ -44,4 +44,4 @@ La Guemara répond : <b>Rava</b> aurait pu vous <b>dire : J'énonce</b> mon avis
 <b>Et Abaye</b> aurait pu <b>vous dire : J'énonce</b> mon avis <b>même en accord</b> avec l'avis du <b>Rav Huna.</b> C'est parce que <b>Rav Huna énonce</b> son avis <b>uniquement là,</b> en ce qui concerne la garantie, <b>parce que</b> l'interdiction <b>"Car il prend la vie d'un homme en garantie"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ De même, <b>Rav Yehuda dit</b> : <b>Il est permis à une personne de prêter à
 <strong>MISHNA:</strong> <b>Une personne peut dire à une autre : Désherbe</b> les pousses sauvages de mon champ <b>avec moi</b> maintenant, <b>et je désherberai</b> ton champ <b>avec toi</b> plus tard, ou : <b>Trouve</b> mon champ <b>avec moi</b> aujourd'hui <b>et je le labourerai avec toi</b> un autre jour. <b>Mais il ne peut lui dire : Désherbe avec moi</b> aujourd'hui <b>et je labourerai avec toi</b> un autre jour, ou : <b>Till avec moi</b> aujourd'hui <b>et je sarclerai avec toi,</b> car en raison de la nature différente des tâches, il est possible que l'un d'eux doive travailler plus dur que l'autre ne l'a fait, ce qui est une sorte d'intérêt, puisqu'il l'a remboursé par un travail supplémentaire.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

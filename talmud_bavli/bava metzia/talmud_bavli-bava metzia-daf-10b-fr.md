@@ -54,7 +54,7 @@ La Guemara s'interroge sur l'explication de l'avis de Abba Kohen Bardela : <b>Ma
 La Gemara répond : <b>En ce qui concerne l'acte de divorce, tout le monde est d'accord pour dire que</b> placer un objet dans <b>une cour est inclus</b> comme un moyen d'acquisition valable <b>en raison</b> du fait qu'elle agit comme <b>sa main. Lorsqu'ils sont en désaccord,</b> c'est <b>en ce qui concerne</b> l'acquisition d'un <b>objet trouvé</b> qui a été découvert dans sa cour. Un <b>Sage,</b> Rabbi Yannai, <b>soutient</b> que
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Rav Pappa a dit</b> une réponse différente : <b>Lorsque les Sages ont institué</b> une ordonnance selon laquelle les <b>quatre</b> <b>cubits</b> carrés d'une personne effectuent l'acquisition d'un bien <b>pour elle,</b> c'était <b>dans le monde,</b> c'est-à-dire sur un terrain public. Mais <b>les Sages n'ont pas institué</b> ce mode d'acquisition <b>pour lui dans un champ appartenant à un propriétaire. Et même si le Miséricordieux a accordé</b> à un pauvre certains <b>droits dans</b> le champ d'un propriétaire lors de la distribution de la <i>pe'a</i>, ce mode d'acquisition n'est pas inclus dans ces droits ; <b>lorsque le Miséricordieux lui a accordé des droits</b> c'était spécifiquement <b>de marcher dans</b> le champ <b>et de collecter la <i>pe'a</i>,</b> mais <b>le Miséricordieux ne lui a pas accordé le droit</b> que le champ <b>soit considéré comme sa cour</b> en ce qui concerne l'acquisition de la <i>pe'a</i>. Par conséquent, la mishna du tractate <i>Pe'a</i> ne contredit pas la déclaration de Reish Lakish.
 
@@ -110,4 +110,4 @@ La Guemara s'interroge sur l'explication de l'avis de Abba Kohen Bardela : <b>Ma
 La Gemara répond : <b>En ce qui concerne l'acte de divorce, tout le monde est d'accord pour dire que</b> placer un objet dans <b>une cour est inclus</b> comme un moyen d'acquisition valable <b>en raison</b> du fait qu'elle agit comme <b>sa main. Lorsqu'ils sont en désaccord,</b> c'est <b>en ce qui concerne</b> l'acquisition d'un <b>objet trouvé</b> qui a été découvert dans sa cour. Un <b>Sage,</b> Rabbi Yannai, <b>soutient</b> que
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

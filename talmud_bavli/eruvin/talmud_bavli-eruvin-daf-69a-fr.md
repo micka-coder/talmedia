@@ -33,4 +33,4 @@ En rapport avec la discussion précédente concernant celui qui ne se conforme p
 <b>Si</b> il a dit cela <b>conformément</b> à l'avis des <b>sages,</b> c'est difficile. <b>N'ont-ils pas dit :</b> Celui qui est <b>suspecté de</b> transgresser <b>une matière n'est pas suspecté de</b> transgresser <b>l'ensemble de la Torah,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

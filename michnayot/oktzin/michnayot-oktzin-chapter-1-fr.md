@@ -17,5 +17,5 @@ Les tiges de tous les aliments qui ont été battus sur l'aire de battage sont p
 ### michna 6
 Les tiges des figues et des figues sèches, des kelusim et des caroubes sont toutes deux souillées et souillées, et elles se rejoignent. Rabbi Yose dit : également les tiges de la courge. Les tiges des poires et des poires krutumelin, des coings et des pommes-crabes, les tiges de la courge et de l'artichaut [jusqu'à la longueur] d'un palme. Rabbi Elazar bar Zadok dit : deux palmes ; [Tout] cela est souillé et souille ; mais ne vous joignez pas ensemble. Quant aux autres tiges, elles ne sont pas souillées et ne souillent pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

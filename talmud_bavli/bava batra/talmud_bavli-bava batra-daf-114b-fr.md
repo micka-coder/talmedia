@@ -12,4 +12,4 @@ La Gemara répond : <b>Cela nous apprend que</b> la <i>halakha</i> de <b>une fem
 § En ce qui concerne la <i>halakha</i> qu'une mère hérite de son fils, la Guemara note que <b>Rabbi Yoḥanan dit au nom de Rabbi Yehuda ben Rabbi Shimon : Par la loi de la Torah, un père hérite</b> de <b>son fils, et une femme hérite</b> de <b>son fils</b> si le père n'est plus en vie, <b>comme il est dit</b> à propos d'une femme recevant un héritage : "Et toute fille qui possède un héritage des <b>tribus</b> des enfants d'Israël" (Nombres 36, 8). Comme le terme pluriel "tribus" comprend à la fois la tribu de son père et la tribu de sa mère, le verset <b>juxtapose</b> la <b>tribu de la mère à la tribu du père, </b> en ce que <b>comme</b> en ce qui concerne <b>la tribu du père, un père hérite</b> de <b>son fils, de même,</b> en ce qui concerne <b>la tribu de la mère, une femme hérite</b> de <b>son fils</b> si le père est décédé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

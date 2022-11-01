@@ -81,4 +81,4 @@ La Guemara répond : <b>Mais l'autre</b> prêtre, celui qui s'est immergé ce jo
 La Guemara revient sur la déclaration de Rava selon laquelle Rabbi Elazar, fils de Rabbi Shimon, a enseigné cette <i>halakha</i> dans la salle de bain. <b>Et comment</b> Rabbi Elazar, fils de Rabbi Shimon, a-t-il <b>fait cela ? Mais Rabba bar Ḥana ne dit-il pas</b> que <b>Rabbi Yoḥanan dit :</b> Il est <b>permis de contempler</b> des questions de Torah <b>dans tous les endroits sauf dans les bains publics et les toilettes ?</b> La Gemara répond : Un cas où la question était <b>involontaire est différent.</b> Rabbi Elazar, fils de Rabbi Shimon, était tellement préoccupé par la question qu'il l'enseignait même s'il était dans la salle de bain.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

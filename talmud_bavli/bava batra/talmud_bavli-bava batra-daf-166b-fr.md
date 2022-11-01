@@ -24,4 +24,4 @@ La Guemara continue à discuter des divergences entre les informations écrites 
 § La Gemara raconte : Il y avait <b>un certain</b> document <b>dans lequel il était écrit</b> que le montant dû était de <b>six cents et un dinar,</b> sans préciser à quelle dénomination le montant de six cents faisait référence. <b>Rav Sherevya a envoyé</b> cette question <b>devant Abaye :</b> Le détenteur du document perçoit-il <b>six cents <i>istira</i> et un dinar ?</b> <i>Istira</i> est un autre nom pour une <i>sela</i>, qui équivaut à quatre dinars. <b>Ou</b> est-il <b>peut-être</b> en droit de percevoir seulement <b>six cents <i>perutot</i> et un dinar,</b> un <i>peruta</i> étant une petite fraction d'un dinar ? Abaye <b>lui a dit : Enlève</b> la possibilité de six cents <b><i>perutot</i>, car</b> les gens <b>n'écrivent pas</b> de grands nombres de <i>perutot</i> <b>dans un document, car ils</b> les <b>combinent</b> plutôt dans des dénominations plus importantes.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

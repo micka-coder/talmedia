@@ -75,4 +75,4 @@ La Gemara demande : <b>Et quelle crainte y a-t-il ici,</b> dans le cas de Rav Ye
 <b>Et si tu veux, dis</b> que Shmuel <b>a statué pour</b> Rav Yehuda <b>conformément à cette</b> <i>baraita</i>, <b>que Abba, fils de Rabbi Binyamin bar Ḥiyya, enseigne : </b> On ne peut pas tenir le pénis lui-même en urinant, <b>mais</b> un homme qui souhaite uriner <b>peut assister</b> le processus <b>en</b> tenant les <b>testicules par le bas. </b> Shmuel a instruit Rav Yehuda d'agir de cette manière. <b>Et si vous le souhaitez, dites</b> que <b>Shmuel a statué</b> pour Rav Yehuda <b>conformément à ce que Rabbi Abbahou a dit</b> que <b>Rabbi Yoḥanan dit : Il y a</b> une <b>démarche claire</b> dans l'interdiction de tenir son pénis en urinant : <b>Depuis la couronne et en dessous,</b> vers l'extrémité du pénis, il est <b>permis</b> de tenir, car cela n'entraînera pas d'excitation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

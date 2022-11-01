@@ -21,4 +21,4 @@ Par conséquent, les Sages <b>disent</b> une réponse différente : En ce qui co
 <b>Et en outre,</b> cette explication est problématique pour une autre raison : <b>En ce qui concerne</b> un vœu de <b>cette</b> type, <b>Rabbi Yosei dirait-il</b> que <b>ce ne sont pas des vœux d'affliction ?</b> Il y a certainement lieu de s'inquiéter du fait que <b>peut-être qu'elle se baignera et que les produits du monde lui seront interdits,</b> une situation qui implique certainement une privation.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

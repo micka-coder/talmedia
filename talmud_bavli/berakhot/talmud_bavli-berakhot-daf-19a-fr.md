@@ -69,4 +69,4 @@ Nous avons appris dans la mishna que, dans un cas ou <b>ils enterrent le defunt 
 La Guemara repond : <b>C'est aussi ce que</b> le <i>tanna</i> de la mishna <b>a dit</b> et c'est la conclusion tiree de sa declaration : <b>Si l'on peut commencer et conclure ne serait-ce qu'un chapitre ou un verset avant d'arriver a la rangee</b> de consolateurs, <b>on doit commencer. Et si ce n'est pas le cas, ils ne devraient pas commencer.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

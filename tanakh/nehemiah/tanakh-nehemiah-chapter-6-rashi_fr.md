@@ -89,4 +89,4 @@
 <b>Tobiah envoyait des lettres</b> Il envoyait constamment des lettres pour me faire peur afin que nous ne construisions pas le mur. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

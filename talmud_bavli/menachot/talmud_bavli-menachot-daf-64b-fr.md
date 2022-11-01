@@ -36,4 +36,4 @@ Les Sages <b>comprirent de</b> la déclaration de la première femme : <b>Pour m
 <b>Mordekhai dit aux</b> autres Sages : <b>Peut-être</b> la première femme <b>a été mise en danger</b> au cours <b>de</b> son <b>écoulement menstruel [<i>zov</i>].</b> De même, <b>peut-être</b> la seconde femme <b>a été mise en danger en mer [<i>yam</i>]. </b> Enfin, <b>peut-être</b> la troisième femme <b>était mise en danger par son œil [<i>ayin</i>],</b> car <i>ayin</i> est phonétiquement similaire à <i>ona</i>. Selon ces explications, chaque femme a cherché à apporter une offrande volontaire pour remercier Dieu d'avoir été sauvée du danger. Si c'est le cas, l'offrande appropriée dans chaque cas n'est pas une offrande pour le péché, <b>car ce sont toutes des offrandes d'holocauste.</b> On <b>a vérifié et</b> on <b>a trouvé</b> que l'interprétation de Mordekhai était en fait correcte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara cite la source des opinions de Rabbi Yaakov et de Rabbi Yehouda : <b>
 <b>Au contraire,</b> Rabbi Yoḥanan <b>a trouvé cette mishna non attribuée</b>, qui enseigne (27b) : Si l'on déclare : Sur mon <b>serment je ne mangerai pas ce pain,</b> et déclare immédiatement : Sur mon <b>sermon je ne le mangerai pas,</b> et</b> ensuite <b>il l'a mangé,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ Une fois de plus, la Guemara demande : <b>Qu'est-ce que</b> signifie le terme : 
 La Guemara répond : Il ne s'agit pas d'une contradiction, car il y a <b>deux <i>tanna'im</i> et</b> ils sont en désaccord <b>en ce qui concerne</b> l'avis <b>de Rabbi Yehuda ben Agra. Ce <i>tanna</i> tient</b> que <b>le crépuscule de Rabbi Yehuda se termine,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -67,5 +67,5 @@
 <b>Le chef majordome ne s'est pas souvenu.</b> Ce jour-là. 
 <b>Mais l'a oublié.</b> Par la suite. Parce que Yoseif dépendait de lui pour se souvenir de lui, cela a nécessité qu'il reste emprisonné pendant deux ans, comme il est dit : "Heureux l'homme qui a fait de Dieu sa confiance, et qui ne s'est pas tourné vers l'arrogant". [c'est-à-dire] et qui ne met pas sa confiance dans les Égyptiens qu'on appelle arrogants. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

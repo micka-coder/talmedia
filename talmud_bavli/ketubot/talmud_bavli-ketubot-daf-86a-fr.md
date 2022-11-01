@@ -30,4 +30,4 @@ Rav Pappa répondit : <b>Dites-moi l'incident lui-même, ce qui s'est passé</b>
 <b>Rav Kahana a dit à Rav Pappa : Selon votre</b> avis, <b>que vous dites que le remboursement d'un créancier</b> est <b>une mitsva,</b> si le débiteur <b>a dit : Il ne m'est pas loisible d'accomplir une mitzva, quelle</b> serait la <i>halakha</i> ? S'il n'y a pas d'obligation de rembourser un prêt autre que celle d'accomplir une mitzva, alors que se passe-t-il si quelqu'un n'est pas intéressé à accomplir la mitzva ? <b>Il lui dit : Nous</b> avons déjà <b>appris</b> cette <i>halakha</i> dans une <i>baraita</i> : <b>Dans quel cas</b> <b>on dit cette déclaration,</b> que l'on est susceptible de recevoir quarante coups de fouet pour avoir commis une transgression ? Il est dit <b>en ce qui concerne les mitzvot négatives. Cependant, en ce qui concerne les mitzvot positives, par exemple, si</b> le tribunal <b>dit à</b> quelqu'un : <b>Exécuter</b> la mitzva de la <b><i>sukka</i>, et qu'il ne le fait pas</b> ou : Effectuer la mitzva de la <b>branche de palmier</b>, et il ne le fait pas</b> ainsi,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

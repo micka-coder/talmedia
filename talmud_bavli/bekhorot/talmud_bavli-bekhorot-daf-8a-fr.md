@@ -51,4 +51,4 @@ La Gemara demande : <b>D'où provient cette affaire,</b> que la période de gest
 La Gemara conteste : <b>Disons</b> que le verset peut être interprété comme suit : <b>De même que les animaux non domestiqués ont été maudits</b> plus <b>que les animaux domestiqués</b> dans une mesure de <b>une</b> année <b>à trois ans;</b> la Gemara interjette : <b>Et</b> dans <b>quel cas</b> <b>c'est ça ? </b> C'est dans le cas d'un <b>lion,</b> dont la période de gestation est de trois ans, comparé <b>à un âne,</b> dont la période de gestation est d'un an. La Guemara poursuit son défi : <b>Aussi,</b> le serpent <b>a été maudit</b> plus <b>que les animaux non domestiqués,</b> c'est-à-dire le lion, dans une proportion de <b>un</b> an <b>à trois ans, soit neuf ans.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

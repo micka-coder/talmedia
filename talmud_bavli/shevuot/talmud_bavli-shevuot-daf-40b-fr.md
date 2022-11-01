@@ -66,4 +66,4 @@ La Gemara objecte : <b>Au contraire;</b> il existe <b>une présomption</b> que <
 La Guemara explique la différence entre les deux versions de la déclaration de Rav Naḥman : A l'égard de <b>celui qui l'enseigne</b> en référence <b>à la première clause,</b> où le défendeur a nié l'existence de la dette, <b>à plus forte raison</b> cette <i>amora</i> convient-elle qu'un serment d'incitation est administré <b>dans</b> le cas de <b>la dernière clause,</b> où le défendeur a admis l'existence de la dette, et s'est contenté de prétendre qu'il l'a payée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

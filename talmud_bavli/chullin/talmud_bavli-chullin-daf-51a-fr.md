@@ -39,4 +39,4 @@ La Guemara relate qu'il y avait <b>une certaine brebis qui se trouvait</b> dans 
 § <b>Rav Naḥman dit : Le ventre de la mère n'est pas sujet à</b> préoccupation quant à d'éventuels <b>membres brisés.</b> En d'autres termes, il ne faut pas s'inquiéter que les membres d'un veau nouveau-né aient pu être brisés par l'étroitesse du canal de naissance. <b>Rava dit à Rav Naḥman :</b> Ce qui <b>est enseigné</b> dans une <i>baraita</i> <b>soutient ton</b> avis : <b>Un bébé d'un jour</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

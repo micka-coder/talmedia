@@ -54,4 +54,4 @@ La Guemara relate que les fils de Rabbi Ḥiyya, <b>Yehouda et Ḥizkiyya, étai
 <b>L'affaire finit par être révélée,</b> et Rabbi Ḥiyya découvrit ce que Yehudit avait fait. <b>Il lui a dit : Si seulement tu avais donné naissance à un ventre de plus pour moi,</b> c'est-à-dire une autre paire de jumeaux. <b>Comme l'a dit le Maître : Yehouda et Ḥizkiyya</b> étaient des <b>frères jumeaux</b> et sont devenus d'éminents érudits de la Torah, et <b>Pazi et Tavi,</b> les filles de Rabbi Ḥiyya,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara rejette cette idée : <b>Et</b> cela <b>n'est pas ainsi.</b> Même s'i
 § <b>Rava dit :</b> Si quelqu'un dit : Sur mon <b>serment, je ne mangerai pas ce pain si je mange celui-ci, et</b> ensuite <b>il a mangé le premier</b>, c'est-à-dire le pain dont la consommation était la condition pour que le serment prenne effet, <b>sans le vouloir, et</b> a mangé <b>le second intentionnellement,</b> il est <b>exempté.</b> Puisqu'il a rempli la condition involontairement, le serment ne prend pas effet, car il était sans pleine intention. Mais s'il a mangé le <b>premier intentionnellement,</b> en sachant que s'il le mange, il lui sera interdit de manger l'autre pain, <b>et</b> qu'il a ensuite mangé le <b>second involontairement,</b> il est <b>faisable</b> d'apporter une offrande pour avoir rompu son serment involontairement. S'il les a mangés <b>les deux involontairement</b> il est <b>exempté,</b> car le serment ne prend pas effet lorsqu'il remplit la condition involontairement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

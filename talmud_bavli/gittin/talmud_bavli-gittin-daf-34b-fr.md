@@ -27,4 +27,4 @@ La mishna énumère des ordonnances supplémentaires qui ont été instituées p
 <strong>GEMARA : </strong>La Gemara demande : <b>Pourquoi</b> discuter <b>spécifiquement d'une veuve ?</b> Cette <i>halakha</i> devrait s'appliquer à <b>toute personne, car nous soutenons</b> que toute personne <b>qui vient percevoir</b> le paiement <b>des biens des orphelins ne peut percevoir qu'au</b> moyen d'un <b>serment.</b> La Gemara répond : Il <b>était nécessaire</b> que la mishna mentionne <b>une veuve,</b> comme il pourrait <b>entrer dans votre esprit de dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

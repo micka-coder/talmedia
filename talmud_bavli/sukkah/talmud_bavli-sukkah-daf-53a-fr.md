@@ -39,4 +39,4 @@ La Gemara s'interroge : <b>C'est le cas ? Mais Rabbi Yoḥanan n'a-t-il pas dit 
 Rav Ḥisda poursuivit et lui <b>dit : Puisque tu m'as rappelé</b> cette <b>affaire, voici</b> ce qui <b>était</b> initialement <b>déclaré : Au moment où David a creusé les tuyaux d'évacuation,</b> les eaux des <b>profondeurs sont montées et ont cherché à inonder le monde. David a dit : Y a-t-il quelqu'un qui sache s'il est permis d'écrire le</b> <b>nom sacré</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

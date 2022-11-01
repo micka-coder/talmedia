@@ -45,7 +45,7 @@ La Guemara propose une deuxième explication : <b>Alternativement,</b> c'est <b>
 § La Gemara discute d'une autre question relative à la désignation d'un agent. <b>Rav Yehuda dit</b> que <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <Rabbi Tarfon concède qu'un voleur qui souhaite se repentir doit faire tout son possible pour rendre l'objet volé à son propriétaire. Si la mishna est ici en accord avec son opinion, elle n'aurait pas dû énoncer sa décision spécifiquement dans un cas où le voleur a fait un faux serment.
 
@@ -92,7 +92,7 @@ La Guemara propose une deuxième explication : <b>Alternativement,</b> c'est <b>
 § La Gemara discute d'une autre question relative à la nomination d'un agent. <b>Rav Yehuda dit</b> que <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <Rabbi Tarfon concède qu'un voleur qui souhaite se repentir doit faire tout son possible pour rendre l'objet volé à son propriétaire. Si la mishna est ici en accord avec son opinion, elle n'aurait pas dû énoncer sa décision spécifiquement dans un cas où le voleur a fait un faux serment.
 
@@ -139,7 +139,7 @@ La Guemara propose une deuxième explication : <b>Alternativement,</b> c'est <b>
 § La Gemara discute d'une autre question relative à la nomination d'un agent. <b>Rav Yehuda dit</b> que <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <Rabbi Tarfon concède qu'un voleur qui souhaite se repentir doit faire tout son possible pour rendre l'objet volé à son propriétaire. Si la mishna est ici en accord avec son opinion, elle n'aurait pas dû énoncer sa décision spécifiquement dans un cas où le voleur a fait un faux serment.
 
@@ -186,4 +186,4 @@ La Guemara propose une deuxième explication : <b>Alternativement,</b> c'est <b>
 § La Gemara discute d'une autre question relative à la nomination d'un agent. <b>Rav Yehuda dit</b> que <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

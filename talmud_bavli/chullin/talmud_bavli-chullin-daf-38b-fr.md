@@ -33,4 +33,4 @@ La Gemara demande : <b>Qu'est-ce que</b> Rava <b>nous apprend</b> en statuant co
 <b>Il y a</b> ceux <b>qui disent</b> une explication alternative de la mishna. C'est <b>en ce qui concerne</b> un cas <b>où l'on a entendu</b> le gentil dire <b>qu'il destine</b> l'animal au culte des idoles que les <i>tanna'im</i> <b>sont en désaccord. Le premier <i>tanna</i> soutient</b> que <b>lorsque nous disons</b> dans un cas où <b>ce</b> propriétaire <b>a</b> une <b>intention impropre et que</b> une autre personne <b>exécute</b> l'abattage que l'intention du propriétaire invalide l'abattage, <b>cette affirmation</b> ne s'applique qu'à <b>l'intérieur</b> du Temple, dans l'abattage des offrandes. <b>Mais</b> en ce qui concerne l'abattage non sacré <b>en dehors</b> du Temple, l'intention du propriétaire n'invalide <b>pas</b> l'abattage, comme en ce qui concerne la dérivation des <i>halakhot</i> de l'abattage non sacré <b>en dehors</b> du Temple <b>à partir</b> des <i>halakhot</i> de l'abattage des animaux sacrifiés <b>à l'intérieur</b> du Temple,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

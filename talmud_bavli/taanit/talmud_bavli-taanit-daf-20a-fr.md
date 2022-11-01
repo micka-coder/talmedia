@@ -48,4 +48,4 @@ Rabbi Yoḥanan développe : <b>Ahijah le Shilonite a maudit</b> le peuple juif 
 <b>Les Sages</b> ont encore <b>enseigné</b> à la louange du roseau : <b>Une personne doit toujours être douce comme un roseau, et elle ne doit pas être raide comme un cèdre. Un incident</b> est survenu dans <b>lequel Rabbi Elazar, fils de Rabbi Shimon, venait de Migdal Gedor, de sa maison rabbinique, et il était monté sur un âne et se promenait sur la rive du fleuve. Et il était très heureux, et sa tête était gonflée de fierté car il avait beaucoup étudié la Torah.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

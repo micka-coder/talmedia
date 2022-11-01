@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle</b> différence <b>y a-t-il entre</b> celui <b>qu
 § <b>Il a été déclaré</b> que dans un cas de <b>vin</b> utilisé pour <b>une libation qui est tombé dans</b> une <b>citerne à vin, et</b> où <b>une cruche d'eau</b> est également <b>tombée là,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

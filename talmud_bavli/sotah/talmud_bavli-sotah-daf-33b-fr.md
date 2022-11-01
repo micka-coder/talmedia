@@ -36,4 +36,4 @@ De même, la phrase <b>"qui habitent dans la plaine d'Arabie"</b> ne peut pas ê
 <b>Il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 8:2) que <b>Rabbi Yosei dit : En trois</b> différents <b>lieux, les prêtres portaient l'Arche. </b> Ils l'ont portée <b>lorsque le peuple juif a <b>traversé le Jourdain, et lorsqu'il a encerclé Jéricho</b> (Josué 6:6), <b>et lorsqu'ils l'ont ramenée à sa</b> véritable <b>place</b> dans le Saint des Saints sous le règne du roi Salomon (I Rois 8:6).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

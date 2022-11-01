@@ -63,4 +63,4 @@ La Guemara relate : <b>Aivu mordait et mangeait le pain</b> des Gentils <b>aux l
 § La mishna enseigne : <b>Et leur huile</b> était initialement interdite mais autorisée par la suite par Rabbi Yehuda HaNasi et son tribunal. La Guemara cite une dispute concernant l'origine de l'interdiction de l'<b>huile</b>. Le Rav dit : Daniel a décrété</b> que l'huile est interdite, <b>et Shmuel dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

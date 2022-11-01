@@ -57,4 +57,4 @@ Rava continue à développer les différents termes du verset : Et <b>pourquoi a
 <b>Rav Yehuda dit</b> que <b>Rav dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

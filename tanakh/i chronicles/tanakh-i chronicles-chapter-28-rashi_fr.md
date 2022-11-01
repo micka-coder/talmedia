@@ -77,4 +77,4 @@
 <b>et tout le peuple pour toutes tes paroles</b> pour exécuter ton commandement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

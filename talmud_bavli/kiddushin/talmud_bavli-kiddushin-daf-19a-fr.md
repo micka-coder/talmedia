@@ -45,4 +45,4 @@ La Guemara développe : <b>Rabbi Yosei, fils de Rabbi Yehuda, n'a-t-il pas dit q
 <b>Et Rava dit</b> que <b>Rav Naḥman dit :</b> En ce qui concerne <b>celui qui fiance</b> une femme <b>avec un prêt pour lequel il y a une garantie,</b> c'est-à-dire, il renonce à sa créance sur un prêt qu'elle lui doit et il rend la garantie qu'elle lui a donnée, <b>elle est fiancée.</b> Ceci est dérivé <b>de ce</b> que <b>Rabbi Yosei, fils de Rabbi Yehuda,</b> a dit. <b>Rabbi Yosei, fils de Rabbi Yehuda, n'a-t-il pas dit que l'argent initial</b> de la vente de la servante <b>n'était pas donné dans le but</b> d'une <b>fiançailles ? </b> Si c'est le cas, l'obligation de cette fille de servir <b>est</b> similaire à un <b>prêt,</b> car il n'y a pas d'argent réel mais seulement une obligation, <b>et elle est elle-même la garantie.</b> En d'autres termes, son corps est la garantie que le prêt sera remboursé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

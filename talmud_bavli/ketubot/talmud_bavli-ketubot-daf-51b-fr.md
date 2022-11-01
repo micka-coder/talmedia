@@ -60,4 +60,4 @@ De même, la contradiction apparente entre la décision d'un <i>baraita</i> à l
 § La mishna a enseigné : <b>Et dans</b> le cas d'une <b>prêtresse,</b> c'est-à-dire la femme d'un prêtre, même si son mari n'a pas écrit : Si tu es emmenée en captivité <b>Je te</b> rachète et te <b>retourne dans ta</b> <b>province natale,</b> il est obligé de le faire. <b>Abaye a dit :</b> Dans le cas d'une <b>veuve</b> qui était mariée <b>à un grand prêtre,</b> bien que le mariage soit interdit par la loi de la Torah, si elle est faite captive, il est <b>obligé de la racheter, car j'applique</b> à <b>elle</b> la clause : <b>Et dans</b> le cas d'une <b>prêtresse : je te rendrai à ta</b> <b>province natale.</b> Son mari peut, et donc doit, remplir cette clause tout comme il le ferait s'il avait épousé une femme qui lui est permise.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara demande : <b>Et d'où tirons-nous</b> <b>qu'ils ne les ont pas accompl
 <b>Mar, fils de Ravina, a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

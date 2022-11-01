@@ -66,4 +66,4 @@ La Guemara demande : <b>En ce qui concerne</b> une femme qui <b>entretient des r
 § La Guemara a suggéré que le raisonnement de l'opinion de Shammai est que la femme aurait senti tout écoulement menstruel antérieur, ou que tout sang menstruel antérieur se serait écoulé auparavant. Pourtant, la Gemara a suggéré plus tôt que sa raison était que la femme conserve son statut présumé de pureté rituelle. En ce qui concerne les explications données pour l'opinion de Shammai, la Gemara demande : <b>Quelle</b> différence <b>y a-t-il entre ces versions et cette version</b> suggérée plus tôt ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

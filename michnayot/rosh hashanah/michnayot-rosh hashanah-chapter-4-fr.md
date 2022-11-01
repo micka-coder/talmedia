@@ -26,5 +26,5 @@ Pour le shofar de Roch Hachana, il n'est pas permis de dépasser la frontière [
 ### michna 9
 L'ordre des souffles : trois séries de trois chacun. La longueur d'un teki"ah est égale à trois teru'ahs, et la longueur d'un teru'ah est égale à trois yevavot. Si l'on prolonge le premier teki'ah de façon à ce qu'il passe directement dans le second, il ne compte que pour un seul. Celui qui a béni [récité la Amida] et à qui l'on donne un shofar, sonne trois fois un teki'ah teru'ah teki'ah. Tout comme le shaliah tzibbur est obligé, chaque individu est obligé. Rabban Gamaliel dit : le shaliah tzibbur (chef de la prière communautaire) fait en sorte que toute la congrégation s'acquitte de son obligation.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

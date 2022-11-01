@@ -51,4 +51,4 @@ La Guemara demande : <b>Mais ce que dit Rava</b> en ce qui concerne les phrases 
 La Gemara répond : Les deux dérivations sont nécessaires, <b>une pour</b> le retrait de la <b>manche</b> d'une offrande de repas, <b>et une pour la sanctification de</b> la <b>manche,</b> c'est-à-dire la placer dans un second récipient de service. Les deux doivent être effectuées avec la main droite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

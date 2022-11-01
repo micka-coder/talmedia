@@ -30,4 +30,4 @@
 <b>Jeshua</b> Il s'agit de Josué, fils de Jehozadak, le grand prêtre. Ces chiffres coïncident parfois avec les chiffres ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>) ; parfois il y en a qui ne coïncident pas. L'Écriture n'était pas aussi exacte avec les chiffres, mais le total est le même dans les deux endroits, comme il est indiqué (<a class="refLink" href="/Ezra.2.64" data-ref="Esdras 2:64">Ezra 2:64</a>, <a class="refLink" href="/Néhémie.7.66" data-ref="Néhémie 7:66">Néh. 7:66</a>) : L'auteur s'est appuyé sur ce total et n'a pas été aussi exact dans les chiffres des différents nombres. Tout est expliqué ci-dessus (<a class="refLink" href="/Ezra.2" data-ref="Ezra 2">Ezra 2</a>). 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara conteste : <b>Et laissons</b> Rava <b>résoudre</b> le dilemme <b>à p
 <strong>GEMARA :</strong> La mishna enseigne : Si <b>on coupe le gosier...</b> Et Rabbi Akiva a concédé à son</b> avis. <b>Et</b> la Guemara <b>souleve une contradiction</b> d'une mishna au début du chapitre suivant (42a) : <b>Ces</b> blessures constituent des <b><i>tereifot</i> chez un animal :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

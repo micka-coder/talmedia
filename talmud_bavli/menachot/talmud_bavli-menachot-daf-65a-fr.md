@@ -36,4 +36,4 @@ La Guemara discute de la période suivante énumérée dans la <i>baraita</i> : 
 A ce moment-là, <b>Rabban Yoḥanan ben Zakkai se joignit</b> à la discussion avec les Boethusiens <b>et leur dit : Imbéciles ! D'où</b> avez-vous <b>tiré ceci ? <b>Et il n'y eut aucun homme qui lui répondit, à l'exception d'un vieillard qui bavardait [<i>mefatpet</i>] avec lui, et il dit : Moïse, notre maître, était un amoureux du peuple juif et il savait que <i>Chavouot</i> n'est</b> qu'un <b>jour.</b> C'est pourquoi <b>il s'est levé et l'a établi après Chabbat, afin que le peuple juif s'amuse pendant deux jours.</b> Rabban Yoḥanan ben Zakkai <b>a récité ce verset</b> en réponse <b>à</b> ce vieillard : <b>"Il y a onze jours de voyage d'Horeb à Kadesh Barnea par le chemin du mont Seir"</b> (Deutéronome 1:2).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

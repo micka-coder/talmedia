@@ -50,5 +50,5 @@
 <b>Après avoir entendu.</b> Après avoir entendu et approuvé, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> en disant : "J'approuve", il se rétracte et l'annule, même au cours de la même journée. 
 <b>Il doit porter sa transgression.</b> Il doit prendre sa place. Nous apprenons ici que celui qui cause la chute d'un autre, doit porter la totalité de la punition à sa place. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

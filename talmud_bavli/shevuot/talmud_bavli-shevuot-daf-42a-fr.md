@@ -51,4 +51,4 @@ La Gemara demande : Comment le <i>baraita</i> peut-il faire référence à la r�
 La Gemara demande : <b>Dans ce cas,</b> si le fils qui fait la réclamation a déjà atteint la majorité, le langage de la <i>baraita</i> est imprécis. Pourquoi la <i>tanna</i> décrit-elle l'individu comme celui qui prête serment sur la base de <b>sa propre revendication ?</b> Ce n'est pas sa propre revendication ; <b>c'est la revendication d'autrui.</b> La Gemara répond : Le <i>baraita</i> a employé ce langage car bien qu'il s'agisse de <b>la revendication d'autrui,</b> il prête serment sur la base de cette revendication <b>et de sa propre</b> <b>admission partielle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

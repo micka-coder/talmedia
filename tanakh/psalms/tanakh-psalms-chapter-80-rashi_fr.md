@@ -79,4 +79,4 @@
 <b>O Seigneur Dieu des Armées</b> Ici sont mentionnés trois noms saints, pourtant dans le cas intermédiaire deux noms et dans le premier cas un seul nom. Tout cela est en fonction de l'intensité de l'exil, de la détresse et de la rédemption (qui viendra sûrement).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

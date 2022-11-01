@@ -81,4 +81,4 @@ Rav <b>a dit à</b> Rav Ḥanina bar Shelamya : <b>Je dis</b> que <b>tous les de
 <b>Et on ne l'examine pas avec de l'eau</b> pour découvrir son sexe, <b>car l'eau est</b> trop <b>forte,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

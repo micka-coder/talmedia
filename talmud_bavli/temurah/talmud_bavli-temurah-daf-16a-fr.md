@@ -72,4 +72,4 @@ En ce qui concerne les offrandes communautaires <b>dont les propriétaires</b> o
 Mais <b>vous</b> devez <b>dire : Une personne peut apprendre</b> en ce qui concerne un cas dans lequel certains détails ne sont <b>pas spécifiés à partir</b> d'un cas similaire où ces détails <b>sont spécifiés. Tout comme</b> en ce qui concerne les offrandes dont les détails sont <b>spécifiés,</b> c'est-à-dire, un rejeton d'une offrande pour le péché, une substitution d'une offrande pour le péché et une offrande pour le péché dont le propriétaire est mort, la <i>halakha</i> qu'elle meurt ne s'applique qu'à <b>une offrande</b> d'un individu et non à une offrande</b> communautaire, <b>de même, </b> en ce qui concerne une offrande de péché <b>dont le propriétaire a réalisé l'expiation, et</b> une offrande de péché <b>dont</b> la première <b>année est passée, ces choses sont dites en ce qui concerne</b> l'offrande d'un <b>individu, mais pas en ce qui concerne une offrande</b> communautaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

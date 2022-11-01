@@ -72,4 +72,4 @@ Le <i>baraita</i> demande : <b>Si</b> la <i>halakha</i> de la fille du prêtre q
 Le verset indique : <b>"La fille d'un prêtre."</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

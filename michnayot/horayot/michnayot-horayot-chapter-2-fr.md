@@ -20,5 +20,5 @@ Pour tous les commandements de la Torah, dont la peine est le kareth s'ils sont 
 ### michna 7
 L'individu et le dirigeant sont tous deux tenus d'apporter un asham talui, mais le prêtre oint et la cour en sont exemptés. L'individu, le dirigeant et le prêtre oint sont tenus d'apporter un asham vadai, mais le tribunal en est exempté. Pour l'audition de la voix [d'adjuration] ; pour un serment fait par une expression, ou pour une impureté relative au Temple et à ses choses saintes, le tribunal n'est pas obligé, mais l'individu, le dirigeant et le prêtre oint sont obligés. Sauf que le prêtre oint n'est pas responsable de l'impureté relative au Temple et à ses choses saintes ; ce sont les paroles de Rabbi Shimon.Qu'apportent-ils ? Un sacrifice à échelle mobile. Rabbi Eliezer dit : le dirigeant apporte une chèvre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

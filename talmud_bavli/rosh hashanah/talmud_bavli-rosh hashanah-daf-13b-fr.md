@@ -36,4 +36,4 @@ Rabba <b>dit à</b> Abaye : <b>Tu parles de</b> l'opinion de <b>Rabbi Shimon She
 La Guemara répond : Rabbi Zeira <b>a oublié ce que Shmuel a dit : Dans tous</b> les cas, l'année de la dîme <b>suit</b> l'époque de <b>la pleine maturité du produit.</b> Par conséquent, toutes les graines de niébé peuvent être soumises à la dîme ensemble, que les plantes dont elles sont issues aient pris racine avant ou après Roch HaShana. Ceci n'est pas dû au raisonnement de Rabbi Shimon Shezuri selon lequel il y a mélange, mais parce que toutes les graines de niébé atteignent leur pleine maturité en même temps, et par conséquent, elles sont toutes considérées comme des produits de l'année entrante.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

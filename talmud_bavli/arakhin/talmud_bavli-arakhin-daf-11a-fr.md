@@ -60,4 +60,4 @@ Le Sage nommé <b>Balvatei</b> a dit que <b>Rabbi Yoḥanan a dit</b> que l'obli
 <b>Ḥananya, fils du frère de Rabbi Yehoshua, dit</b> que l'obligation pour les Lévites de chanter dans le Temple découle <b>de cet endroit : "Moïse parla, et Dieu lui répondit par une voix"</b> (Exode 19:19).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

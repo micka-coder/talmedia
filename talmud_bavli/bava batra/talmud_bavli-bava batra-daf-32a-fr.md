@@ -21,4 +21,4 @@ La Gemara explique la dispute : <b>Et ici</b> c'est <b>en ce qui concerne la pr�
 § La Guemara relate un incident où deux personnes se disputaient la propriété d'un terrain. Il y avait <b>une certaine</b> personne <b>qui disait à une autre : Que veux-tu de cette terre</b> qui m'appartient ? Le possesseur lui <b>a dit : Je te l'ai acheté, et voici</b> l'acte <b>de vente</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

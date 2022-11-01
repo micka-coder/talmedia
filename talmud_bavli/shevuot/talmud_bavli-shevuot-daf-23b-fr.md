@@ -60,4 +60,4 @@ La Gemara demande : <b>Donné,</b> on comprend pourquoi <b>Rabbi Yoḥanan n'a p
 La Guemara répond : Reish Lakish pourrait <b>vous dire : Lorsque nous disons</b> qu'une interdiction plus <b>inclusive,</b> qui ajoute des aspects supplémentaires à l'interdiction pour le même individu, peut prendre effet là où il y a déjà une interdiction en place,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Ulla explique : <b>De quoi s'agit-il ici ?</b> Nous traitons d'un cas dans leque
 La Gemara demande : <b>Quelle est la raison</b> de cette différence ? La Gemara explique : La désignation de <b>cette</b> esclave génère une <b>publicité,</b> puisqu'un esclave est significatif et identifiable, donc tout acheteur potentiel est supposé avoir été conscient du statut de l'esclave et avoir accepté les conséquences de son achat. <b>Mais</b> la désignation de <b>cette</b> bœuf <b>ne génère pas</b> de <b>publicité,</b> puisqu'un bœuf n'est pas facilement distinguable d'un autre, et qu'on ne peut pas supposer qu'un acheteur sache que le bœuf a été mis de côté comme remboursement désigné. Il est donc injuste que celui qui achète un tel bœuf se le voit confisquer. C'est pourquoi les Sages ont décrété qu'un créancier ne peut pas agir ainsi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

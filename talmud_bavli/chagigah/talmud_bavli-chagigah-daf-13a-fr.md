@@ -42,4 +42,4 @@ La Guemara pose une question : <b>Et on peut tout de même enseigner sur l'élec
 La Gemara demande : <b>Qu'est-ce que</b> le <b>électrum ? Rav Yehuda répond :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

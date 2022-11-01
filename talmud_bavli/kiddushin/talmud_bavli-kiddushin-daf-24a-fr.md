@@ -21,4 +21,4 @@
 La Guemara demande : <b>Mais</b> on peut <b>saisir</b> que les exemples d' <b>une dent et d'un œil sont comme deux versets qui ne font qu'un,</b> c'est-à-dire qu'ils enseignent la même matière, <b>et</b> il existe un principe selon lequel <b>tous deux versets qui ne font qu'un n'enseignent pas</b> leur <i>halakha</i> de manière à pouvoir l'appliquer à d'autres cas. Si tel est le cas, un esclave ne doit être émancipé que pour une blessure à une dent ou à un œil. La Guemara répond : Il est <b>nécessaire</b> de mentionner à la fois une dent et un œil, car aucune <i>halakha</i> ne pourrait être dérivée de l'autre. Par conséquent, ils ne sont pas considérés comme deux versets qui viennent en un seul. La Guemara développe : <b>Aussi, si le Miséricordieux n'avait écrit</b> que <b>la dent, je dirais</b> que <b>même</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

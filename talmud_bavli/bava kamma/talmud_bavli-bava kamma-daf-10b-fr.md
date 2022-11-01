@@ -84,7 +84,7 @@ La Guemara explique : Elle <b>est nécessaire uniquement pour</b> la question de
 La Gemara demande : <b>Devons-nous dire</b> que la question de la <b>diminution</b> de la valeur <b>de la carcasse est</b> un différend entre <b><i>tanna'im</i> ? Comme il est enseigné</b> dans une <i>baraita</i> : Le verset stipule à propos d'un cas où un animal a été confié à un bailli rémunéré et a été attaqué par une bête sauvage : <b>"S'il est déchiré en morceaux, qu'il apporte un témoin [<i>ed</i>]"</b> (Exode 22:12).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Si</b> le feu <b>ne se serait pas propagé</b> au champ d'une autre personne <b>sans qu'elle</b> ajoute des fagots au feu, il <b>est évident</b> qu'elle est seule responsable du dommage car elle seule a fait tout ce qui a conduit au dommage. <b>Au contraire,</b> le cas doit être celui où le feu <b>se serait propagé</b> même <b>sans lui.</b> La Gemara demande : Mais si c'est le cas, <b>Que faisait-il</b> en ajoutant des fagots de bois ? Le feu se serait propagé sans lui, il n'a donc pas causé même une partie des dégâts. Il est donc évident que la mishna ne fait pas référence à ce cas.
 
@@ -170,4 +170,4 @@ La Guemara explique : Elle <b>est nécessaire uniquement pour</b> la question de
 La Gemara demande : <b>Devons-nous dire</b> que la question de la <b>diminution</b> de la valeur <b>de la carcasse est</b> un différend entre <b><i>tanna'im</i> ? Comme il est enseigné</b> dans une <i>baraita</i> : Le verset stipule à propos d'un cas où un animal a été confié à un bailli rémunéré et a été attaqué par une bête sauvage : <b>"S'il est déchiré en morceaux, qu'il apporte un témoin [<i>ed</i>]"</b> (Exode 22:12).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara analyse les leçons tirées de cette histoire. <b>Accordé,</b> quand
 <strong>GEMARA : </strong>La mishna semble se contredire. La première déclaration interdit complètement de placer de l'eau dans une urne, et plus tard, cela est partiellement autorisé. La Guemara demande : <b>Qu'est-ce que</b> le mishna <b>dit ? Rav Adda bar Mattana dit</b> qu' <b>elle dit ce qui suit : Une urne qui a été vidée de son eau chaude, on ne peut pas y mettre une petite quantité d'eau pour qu'elle devienne</b> très <b>chaude. Cependant, on peut y mettre une grande quantité d'eau afin de la réchauffer.</b> Une grande quantité d'eau froide ne sera pas réchauffée dans ces circonstances.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

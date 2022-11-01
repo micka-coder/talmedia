@@ -60,4 +60,4 @@ La Gemara présente une explication alternative de la <i>baraita</i> : <b>Et si 
 La Guemara demande : <b>Mais un mineur est-il sujet à l'humiliation ?</b> La Gemara répond : <b>Oui, comme l'a dit Rav Pappa</b> à propos d'une autre <i>halakha</i> : Le cas implique un mineur <b>qui</b> a atteint un stade où, lorsque <b>les autres l'humilient, il ressent une humiliation ; ici aussi,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -137,5 +137,5 @@ et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> l'autel de cuivr
 ### passuk 49
 <b>Et ils furent comptés, comme Hachem l'avait ordonné à Moshé.</b> Ceux qui furent comptés étaient, comme ordonné, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de trente à cinquante ans. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

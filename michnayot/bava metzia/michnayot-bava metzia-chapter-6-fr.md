@@ -23,5 +23,5 @@ Si quelqu'un a fait un prêt et a pris un gage, il est considéré comme un tute
 ### michna 8
 Si quelqu'un a déplacé une jarre d'un endroit à l'autre et l'a cassée, qu'il soit un gardien rémunéré ou non, il peut prêter serment [qu'il ne l'a pas cassée par négligence et être exempté de responsabilité]. Rabbi Eliezer dit :  "[J'ai moi aussi entendu dire que] dans les deux cas, il peut prêter serment, mais je me demande si, dans les deux cas, le serment est valable".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara clarifie : Pour <b>quelle</b> raison est-il nécessaire d'avoir la <b
 <b>Comme le dit Rabba : Pour quelle</b> raison <b>la Torah a-t-elle dit</b> que celui qui <b>admet une partie de la créance doit prêter serment ?</b> C'est parce qu'il y a <b>une présomption</b> que <b>une personne ne fait pas preuve d'insolence</b> en mentant <b>en présence de son créancier,</b> qui lui avait fait une faveur en lui prêtant de l'argent. <b>Et cette</b> personne qui nie une partie de la créance veut en fait <b>nier toute</b> la dette, afin d'être exemptée, <b>et ce</b> fait <b>qu'elle ne nie pas</b> tout <b>cela</b> est <b>parce qu'une personne ne fait pas preuve d'insolence.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

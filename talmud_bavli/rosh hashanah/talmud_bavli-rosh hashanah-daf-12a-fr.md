@@ -30,4 +30,4 @@ La Guemara soulève une question concernant la <i>baraita</i> : <b>Mais que</b> 
 § <b>Les Sages ont enseigné</b> dans une <i>baraïta</i> : Si <b>quelqu'un a cueilli des légumes la veille de Rosh HaShana avant que le soleil ne se soit couché,</b> de sorte qu'ils appartiennent à l'année précédente, <b>et</b> qu'ensuite <b>il est revenu et il a cueilli</b> d'autres légumes...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

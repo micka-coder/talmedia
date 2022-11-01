@@ -45,4 +45,4 @@ A propos du verset discutant des jours de <i>ziva</i>, <b>Rav Shemaya a dit à R
 La Guemara conclut le tractat par une déclaration générale concernant l'étude de la Torah. <b>L'école d'Elijah a enseigné : Quiconque étudie les <i>halakhot</i> chaque jour a la garantie d'être destiné au Monde-à-Venir, comme il est dit : "Ses voies [<i>halikhot</i>] sont éternelles"</b> (Habacuc 3:6). <b>Ne lisez pas</b> le verset comme <b><i>halikhot</i>, mais plutôt,</b> lisez-le comme <b><i>halakhot</i>.</b> Le verset indique que l'étude de <i>halakhot</i> amène à la vie éternelle dans le monde futur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

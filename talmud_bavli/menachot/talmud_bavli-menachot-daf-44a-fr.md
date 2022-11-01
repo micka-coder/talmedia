@@ -60,4 +60,4 @@ Plus tard, les étudiants <b>lui dirent :</b> Est-ce que <b>vous</b> continuez �
 <b>Et Reish Lakish dit : Toute personne qui revêt des phylactères vit</b> une <b>longue vie, comme il est dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

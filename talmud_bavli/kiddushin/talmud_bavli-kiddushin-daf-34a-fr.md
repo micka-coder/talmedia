@@ -33,4 +33,4 @@ La Guemara demande en outre : <b>Mais il y a</b> la mitzva de résider dans <b>u
 <b>Et Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

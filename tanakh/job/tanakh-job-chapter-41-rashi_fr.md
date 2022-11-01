@@ -108,4 +108,4 @@
 <b>Il est roi de toutes les bêtes fières</b> C'est une expression répétée. Il regarde toutes les bêtes orgueilleuses et il est roi sur toutes les bêtes orgueilleuses, sur toutes les créatures hautaines que j'ai créées dans mon monde, qui n'ont aucun pouvoir ni aucune domination contre lui. Maintenant, comment as-tu osé lever la tête devant Moi, puisque J'accomplis tous ces prodiges ?
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

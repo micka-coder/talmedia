@@ -36,4 +36,4 @@ De même, <b>Rabbi Shmuel bar Rav Yitzḥak a dit : Pour quelle</b> raison l'int
 La mishna indique que <b>les fenêtres et l'épaisseur du mur</b> sont considérées comme étant à l'intérieur. <b>Rav a dit : Les toits et les étages supérieurs n'étaient pas sanctifiés.</b> Par conséquent, les toits des chambres dans la cour du Temple n'avaient pas la sainteté de la cour, et les toits des bâtiments à Jérusalem n'avaient pas la sainteté de Jérusalem. La Gemara demande : <b>C'est le cas ? Rav n'a-t-il pas dit</b> l'aphorisme suivant <b>au nom de Rabbi Ḥiyya : L'agneau pascal est</b> de la taille d'un <b>bulot d'olive,</b> car il était courant que tant de personnes s'inscrivent pour un seul agneau pascal que chacun ne reçoive qu'un bulot d'olive de sa viande. <b>Et le <i>hallel</i></b> qui est dit pendant sa consommation <b>brise le toit;</b> il y avait tellement de personnes qui disaient le <i>hallel</i> ensemble, qu'il semblait que les toits se brisaient à cause de toute l'agitation et du bruit.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara répond : Cette <i>baraïta</i> fait référence à un cas <b>où le 
 § La mishna enseigne : <b>Et les rabbins disent : Dans quel</b> cas <b>cette déclaration est-elle dite ? A l'égard des tares cachées.</b> Mais il ne peut prétendre avoir ignoré les tares visibles. <b>Rav Naḥman dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

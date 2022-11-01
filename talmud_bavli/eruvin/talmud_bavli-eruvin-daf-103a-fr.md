@@ -66,4 +66,4 @@ La Gemara commente : <b>Et</b> quant à <b>Abaye,</b> pourquoi n'a-t-il pas acce
 <b>Rava a énoncé</b> une résolution différente de la contradiction entre les deux <i>mishnayot</i> : La mishna qui permet de couper une verrue, <b>est</b> d'après <b>Rabbi Eliezer, qui a dit</b> que les <b>préparations</b> pour l'accomplissement <b>d'une mitzva l'emportent</b> sur les interdictions de <b>Shabbat,</b> et il est donc permis de couper la verrue à la main. <b>Et</b> si l'on dit que dans ce cas, il devrait être permis de le faire également avec un instrument, <b>Rabbi Eliezer concède</b> que <b>dans la mesure où il est possible de modifier</b> la manière d'effectuer une procédure pour éviter la violation d'un interdit de la Torah, <b>nous la modifions</b>, pour souligner que le jour est Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

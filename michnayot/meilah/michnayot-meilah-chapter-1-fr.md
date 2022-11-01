@@ -11,5 +11,5 @@ Si les entrailles des sacrifices d'un degré de sainteté inférieur ont été s
 ### michna 4
 L'acte d'[asperger] le sang des sacrifices les plus saints peut avoir un effet indulgent ou rigoureux, mais pour les sacrifices d'un degré de sainteté moindre, il n'a qu'un effet rigoureux. Comment cela ? Dans le cas des sacrifices très saints, avant l'aspersion, la loi du sacrilège s'applique à la fois aux entrailles et à la chair ; après l'aspersion, elle s'applique aux entrailles mais pas à la chair ; dans les deux cas, on est coupable de [transgresser les lois de] notar, iggul et impureté. On constate donc qu'avec les sacrifices les plus saints, l'acte d'aspersion a un effet aussi bien indulgent que rigoureux. Avec les sacrifices d'un degré de sainteté moindre, il n'a qu'un effet rigoureux. Comment cela ? Avec les sacrifices d'un degré de sainteté moindre, avant l'aspersion, la loi du sacrilège ne s'applique ni aux entrailles ni à la chair ; après l'aspersion, elle s'applique aux entrailles mais pas à la chair ; dans les deux cas, on est coupable de transgresser les lois du notaire, du porc et de l'impureté. On constate donc qu'avec les sacrifices d'un degré de sainteté moindre, elle n'a qu'un effet rigoureux.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

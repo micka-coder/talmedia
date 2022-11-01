@@ -27,4 +27,4 @@ La Gemara relate que <b>Mar Yehuda</b> a un jour <b>trouvé les habitants de Mav
 <b>Rava lui dit : Argumenteur ! En ce qui concerne</b> les <i>halakhot</i> de <b><i>eirouv</i>, personne n'est concerné par cet</b> avis de <b>Rabbi Akiva,</b> car la <i>halakha</i> est conforme à l'avis des sages. Par conséquent, quel que soit l'endroit où l'on place son <i>eirouv</i> dans une ville, la ville entière est considérée comme si elle était de quatre coudées, et il lui est permis de marcher deux mille coudées au-delà du bord de la ville.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara conteste : Il est <b>évident</b> que le Tabernacle pouvait être dém
 § La <i>baraita</i> susmentionnée enseigne que même lorsque le Tabernacle était démantelé, les <i>zavim</i> et les lépreux étaient envoyés à l'extérieur du camp, car la sainteté du camp lévite et du camp israélite restait intacte même lorsque le Tabernacle était démantelé. <b>Et</b> la Gemara <b>souleve une contradiction</b> d'une autre <i>baraita</i> : Une fois que <b>le rideau</b> entourant la cour du Tabernacle <b>a été roulé, les <i>zavim</i> et</b> les <b>lépreux étaient autorisés à entrer dans cette</b> zone où le Tabernacle s'était tenu. Cela indique que les camps n'ont pas conservé leur statut sacré une fois le Tabernacle démantelé. <b>Rav Ashi a dit :</b> Ceci n'est <b>pas difficile ; cette</b> <i>baraita</i> est conforme à l'avis de <b>Rabbi Eliezer</b> et <b>cette</b> <i>baraita</i> est conforme à l'avis des <b>Rabbis. Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

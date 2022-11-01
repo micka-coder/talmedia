@@ -51,4 +51,4 @@ La Guemara affirme que <b>Ameimar a autorisé la femme du frère du père de son
 Rav Ashi a défendu l'opinion de Ameimar : <b>Et selon votre raisonnement,</b> Rav Hillel, selon lequel ces cas doivent être inclus, <b>il y a dix-sept</b> cas, <b>car il y a</b> le cas supplémentaire de <b>la femme du demi-frère</b> maternel d'une mère, dont</b> le statut <b>a été résolu</b> plus tôt, en concluant <b>qu'elle est interdite.</b> Si c'est comme vous le dites, alors il devrait y avoir dix-sept cas. La Guemara répond en faveur de Rav Hillel : <b>Ceci</b> n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

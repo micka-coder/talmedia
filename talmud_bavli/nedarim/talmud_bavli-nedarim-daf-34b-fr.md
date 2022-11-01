@@ -9,4 +9,4 @@
 Rava <b>lui dit :</b> Il <b>est évident que bien qu'il l'ait donné à</b> l'autre personne <b>comme un cadeau,</b> il est <b>interdit.</b> Rav Ḥiyya bar Avin lui demande : <b>Mais</b> si c'est le cas, quand il a dit : <b>Mon pain</b> est interdit <b>à toi,</b> en insistant sur le mot mon, <b>qu'est-ce que cela vient <b>exclure ? Ne vient-il pas</b> <b>exclure</b> un cas <b>où il le lui a volé,</b> puisque dans ce cas il est permis ? Il en serait de même s'il le lui a offert en cadeau. Rava <b>lui a dit : Non, il</b> vient <b>exclure</b> un cas où <b>il l'a invité</b> à manger du pain avant de faire son vœu. Dans ce cas, la partie du pain qu'il l'a invité à manger lui appartient, et le propriétaire ne peut pas la rendre interdite. Cependant, même s'il a invité l'autre personne avant de faire son vœu, le pain entier reste interdit s'il le lui a donné en cadeau.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Au regard de cet enseignement, la Guemara pose une question : <b>Quelle est</b> 
 <b>Les Sages ont enseigné : On ne cherche pas</b> du levain, <b>ni par la lumière du soleil, ni par celle de la lune, ni par celle d'une torche. Au contraire,</b> la recherche doit être menée <b>à la lumière d'une lampe,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

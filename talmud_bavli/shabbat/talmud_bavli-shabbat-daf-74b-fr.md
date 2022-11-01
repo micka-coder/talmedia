@@ -30,4 +30,4 @@ Nous avons appris dans la mishna, parmi les personnes redevables de l'exécution
 Nous avons appris dans la mishna, parmi les personnes responsables d'effectuer des catégories primaires de travail : <b>Celui qui déchire pour coudre deux points de suture.</b> La Gemara demande : <b>Y avait-il des déchirures dans</b> la construction du <b>Tabernacle ?</b> La Guemara répond que c'était <b>Rabba et Rabbi Zeira qui ont tous deux dit</b> l'explication suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

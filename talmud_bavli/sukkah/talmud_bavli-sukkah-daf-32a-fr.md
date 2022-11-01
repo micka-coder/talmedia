@@ -42,4 +42,4 @@ La Guemara demande : <b>Et disons</b> que le verset fait référence à <b>la br
 <b>Cela a été enseigné</b> dans une <i>baraïta</i> <b>aussi :</b> Un <i>lulav</i> provenant des <b>palmes de la montagne de fer sont impropres.</b> La Guemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna qu'il est <b>inapte ? Apprenez-en plutôt conformément</b> à la déclaration de <b>Abaye,</b> qu'il existe une distinction basée sur la configuration des feuilles du <i>lulav</i>. En effet, <b>en tirer des enseignements.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara rapporte une autre déclaration <b>que Rabbi Yitzḥak, fils de Rabbi
 § <b>Et Rabba dit : Une membrane apparue à cause d'une blessure dans le gosier,</b> c'est-à-dire une croûte qui a recouvert une perforation, <b>n'est pas</b> considérée comme <b>une membrane</b> qui empêche de rendre l'animal <i>tereifa</i>. <b>Et Rabba dit :</b> Le <b>gullet ne peut pas être inspecté de l'extérieur</b> pour déterminer si l'animal est une <i>tereifa</i>, car la doublure extérieure elle-même est rouge, et donc on ne peut y discerner une rougeur due à une blessure. <b>Au contraire,</b> il doit être inspecté <b>de l'intérieur,</b> où la doublure est blanche. La Gemara demande : <b>Quelle différence y a-t-il</b> à la suite de cette déclaration, c'est-à-dire dans quel cas le gosier doit-il être inspecté de l'intérieur ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

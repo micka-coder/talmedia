@@ -45,4 +45,4 @@ La Guemara commente : Cette décision fait <b>une différence pratique pour celu
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>ceux qui sont redevables</b> de vœux de <b>paiement monétaire</b>, <b>ou de vœux de <b>valorisations,</b> ou <b>de dédicaces, ou de consécrations, de sacrifices pour le péché, de sacrifices de culpabilité, d'holocaustes, de sacrifices de paix,</b> de vœux de <b>charité, de dîmes, d'offrandes de premier-né</b>, de <b>titres d'animaux, ou de l'offrande pascale,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

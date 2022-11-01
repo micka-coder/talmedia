@@ -120,4 +120,4 @@
 <b>et ils exaltaient</b> Ils exaltaient et assistaient.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

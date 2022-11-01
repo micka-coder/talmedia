@@ -45,4 +45,4 @@ La Gemara relate : <b>Rabbi Meir ridiculisait les transgresseurs</b> en disant q
 Le Sage <b>Peleimu avait l'habitude de dire chaque jour : Une flèche dans l'œil de Satan,</b> en se moquant des tentations du mauvais penchant. <b>Un jour, c'était la veille de Yom Kippour,</b> et Satan lui <b>apparut sous la forme d'un indigent</b> qui <b>se présenta et l'appela</b> <b>à la porte,</b> demandant l'aumône. Peleimu <b>lui apporta du pain.</b> Satan <b>lui dit : Un jour comme aujourd'hui, tout le monde est à l'intérieur</b> pour manger, <b>et</b> dois-je <b>me tenir <b>dehors</b> et manger ? Peleimu <b>le fit entrer et lui donna du pain. Il lui dit : Un jour comme aujourd'hui, tout le monde</b> est assis <b>à la table, et</b> est-ce que <b>je</b> m'assiérai <b>par moi-même ? On l'amena et on le fit asseoir à la table. Il était assis</b> et s'était <b>couvert de furoncles et de pus, et il faisait des choses répugnantes</b> à table. Peleimu <b>dit au</b> pauper :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

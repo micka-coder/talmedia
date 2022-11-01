@@ -42,4 +42,4 @@ La Gemara commente : <b>Et</b> si le houblon du dépositaire était plus proche 
 La Guemara demande : <b>En fin de compte, quelle perte y a-t-il ? Mais le dépositaire ne fait-il pas un <b>profit</b> dans ce cas ? Que le dépositaire donne au propriétaire une bière égale à la valeur du houblon qu'il a prélevé sur le dépôt et personne ne perd. <b>Rav Sama, fils de Rava, a dit :</b> La Guemara fait référence à un cas <b>où la bière</b> fermente et <b>devient du vinaigre.</b> Il est donc impossible de prélever la valeur du houblon sur la bière. <b>Rav Ashi a dit :</b> Il fait référence à un cas où le houblon a été mélangé <b>avec des épines</b> et n'a pas amélioré la bière.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

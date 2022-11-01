@@ -27,4 +27,4 @@ La Guemara conteste cette interprétation : <b>Devons-nous dire</b> que Rav <b>a
 La Guemara rejette cette suggestion : Non, <b>il s'agit</b> d'un différend entre <b><i>tanna'im</i>, comme il est enseigné</b> dans une <i>baraita</i> : si des vêtements sont tombés dans l'eau le Chabbat ou une Fête, <b>on peut les étaler au soleil mais pas en face des masses. Rabbi Eliezer et Rabbi Shimon interdisent</b> de le faire. Rav Ḥanan bar Ami accepte l'avis du premier <i>tanna</i> de la <i>baraita</i>, qui rejette le principe du Rav'. Selon l'avis de cette <i>tanna</i>, on peut prétendre que les Beit Hillel ont également rejeté le principe de Rav', et qu'ils ont permis de déplacer l'échelle en privé mais pas en public. Rav, quant à lui, suit l'avis de Rabbi Eliezer et Rabbi Shimon dans l'interprétation de l'avis de Beit Hillel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

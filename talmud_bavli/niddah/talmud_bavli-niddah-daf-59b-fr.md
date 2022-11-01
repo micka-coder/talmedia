@@ -66,4 +66,4 @@ Si <b>elles se sont assises sur un banc en pierre ou sur le banc [<i>ha'itzteva<
 <strong>GEMARA :</strong> <b>Rav dit :</b> La décision de la mishna est énoncée <b>en ce qui concerne une femme gentille</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

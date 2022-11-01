@@ -27,4 +27,4 @@ La Guemara répond que le verre ne peut généralement pas être purifié dans u
 La Guemara demande plus loin : <b>Mais si</b> c'est <b>ainsi,</b> et que les récipients en verre sont assimilés aux récipients en terre cuite,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

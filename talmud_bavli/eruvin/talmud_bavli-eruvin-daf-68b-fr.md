@@ -54,4 +54,4 @@ La Guemara répond : La mishna <b>est incomplète.</b> Il lui manque un élémen
 La Guemara procède à l'analyse de cette <i>baraita</i>. <b>Le Maître a dit</b> précédemment : <b>Sortez</b> ces ustensiles <b>que vous souhaitez sortir, et faites entrer</b> ces ustensiles <b>que vous souhaitez faire entrer, avant que cette personne détestable</b> <b>sorte</b> ses ustensiles <b>et vous interdise</b> d'utiliser la ruelle. La Guemara pose une question : <b>Est-ce à dire que,</b> selon Rabbi Meir, <b>s'ils sortaient</b> leurs ustensiles <b>et qu'ensuite</b> le Gentil ou le Sadducéen <b>sortait ses</b> ustensiles le Chabbat, <b>il ne rend pas</b> le portage <b>interdit</b> pour eux ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

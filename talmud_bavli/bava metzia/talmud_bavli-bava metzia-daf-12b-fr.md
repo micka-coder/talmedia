@@ -69,7 +69,7 @@ La Gemara demande : <b>Mais</b> en ce qui concerne <b>ce que nous avons appris</
 <b>Rav Asi a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Les Sages ont institué une ordonnance <b>rendant</b> un fils de métayer, <b>qui n'a pas</b> le droit d'<b>acquérir</b> des biens, <b>comme celui qui</b> a le droit d'<b>acquérir</b> des biens ; c'est-à-dire qu'ils lui ont accordé un droit spécial d'acquérir les glanes. <b>Quelle est la raison</b> de cette ordonnance ? Cet arrangement est <b>satisfaisant pour les pauvres eux-mêmes, de sorte que lorsqu'ils seront embauchés</b> à des conditions similaires <b>eux-mêmes, leurs fils</b> pourront <b>glaner</b> les tiges <b>après eux.</b>
 
@@ -140,4 +140,4 @@ La Gemara demande : <b>Mais</b> en ce qui concerne <b>ce que nous avons appris</
 <b>Rav Asi a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

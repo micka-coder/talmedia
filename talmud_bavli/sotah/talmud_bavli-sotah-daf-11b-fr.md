@@ -72,4 +72,4 @@ La Gemara discute de la famille de Caleb : Dans les Chroniques, il est dit : <b>
 La Gemara demande : <b>Mais</b> c'est <b>encore difficile</b>. Hezron ne pourrait pas être son père, car Caleb <b>était</b> le <b>fils de Kenaz, comme il est écrit : "Et Othniel, fils de Kenaz, <b>frère cadet de Caleb</b>, le prit"</b> (Juges 1:13). Cela signifierait que Caleb était également un fils de Kenaz. <b>Rava dit :</b> Caleb <b>était le beau-fils de Kenaz,</b> car lui et Othniel partageaient une mère mais avaient des pères différents.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

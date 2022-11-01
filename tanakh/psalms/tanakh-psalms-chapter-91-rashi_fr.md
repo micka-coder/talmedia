@@ -42,4 +42,4 @@
 <b>De peur que... ne trébuche</b> Heb.  תגף£, de peur qu'il [ton pied] ne trébuche, et ainsi toutes les expressions de  נְגִפָה", acupir, azoper, frapper, frapper contre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -30,4 +30,4 @@ De toute évidence, la plaque frontale <b>ne porte que le péché d'impureté</b
 La Gemara cite une preuve supplémentaire. <b>Venez</b> et <b>écoutez</b> ce qui a été dit au prophète Aggée : Â "Ainsi a dit le Seigneur des Armées : Interroge maintenant les prêtres au sujet de la Torah, en disant : <b>Si quelqu'un porte de la chair sanctifiée dans le coin de son vêtement, et qu'avec son vêtement il touche du pain, ou du ragoût, ou du vin, ou de l'huile, ou n'importe quel aliment, sera-t-il sacré ? Les prêtres répondirent et dirent : Non"</b> (Aggée 2:11""12). Cette question est posée à propos de la chair d'un animal rampant et pour savoir si les substances qui entrent en contact avec elle deviennent impures ou non.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

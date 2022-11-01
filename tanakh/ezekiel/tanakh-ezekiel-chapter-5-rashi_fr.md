@@ -57,4 +57,4 @@
 <b>Votre bâton de pain</b> Support de pain.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais est-il typique pour</b> un âne de manger du <b>pain
 La Guemara remet en question cette explication : Si le <i>baraita</i> parle d'un <b>animal non domestiqué,</b> alors il est <b>typique pour lui</b> de manger de la <b>viande.</b> La Gemara clarifie : Le <i>baraita</i> fait référence à la <b>viande rôtie,</b> et il n'est pas typique pour un animal non domestiqué de manger de la viande rôtie. <b>Ou, si vous le souhaitez, dites</b> plutôt que la <i>halakha</i> du <i>baraita</i> n'est pas énoncée à propos d'un prédateur non domestiqué, mais <b>à propos d'un cerf,</b> qui ne mange pas ordinairement de la viande et du pain. <b>Ou, si vous voulez, dites</b> que <b>en fait</b> il est question d'un <b>animal domestiqué,</b> mais il est question d'un cas où l'animal a mangé <b>à table,</b> et ce n'est pas un comportement typique pour un animal.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

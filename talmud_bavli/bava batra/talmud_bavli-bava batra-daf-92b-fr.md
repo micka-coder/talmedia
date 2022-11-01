@@ -33,4 +33,4 @@ La Gemara s'interroge sur ce point : <b>Si</b> il est vraiment vrai que le maria
 La Guemara explique la preuve à partir du <i>baraita</i> : Dans <b>la première clause</b> du <i>baraita</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

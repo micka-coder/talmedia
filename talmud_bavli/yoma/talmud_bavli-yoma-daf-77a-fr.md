@@ -42,4 +42,4 @@ L'ange tutélaire des Perses <b>dit : Ecris pour moi que les Juifs</b> doivent p
 § La Guemara continue à clarifier une autre des afflictions de Yom Kippour : <b>D'où tirons-nous</b> la <i>halakha</i> que s'abstenir de <b>relations conjugales est appelé affliction ? Comme il est écrit,</b> Laban dit à Jacob : <b>"Si tu affliges mes filles, et si tu prends</b> d'autres <b>femmes</b> à côté de mes filles" (Genèse 31:50).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

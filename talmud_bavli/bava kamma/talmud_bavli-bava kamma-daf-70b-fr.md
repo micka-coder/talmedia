@@ -54,4 +54,4 @@ La Gemara répond : Il est possible que la <i>baraita</i> soit également confor
 <b>Au contraire,</b> il faut dire que <b>même si elle</b> intente <b>une action en justice</b> contre <b>lui réclamant</b> le paiement de l'animal qui a été convenu comme rémunération <b>nous ne lui disons pas : Va et paie-la,</b> néanmoins, <b>puisque si</b> il le <b>donne</b> à elle, il est</b> considéré comme <b>un paiement</b> à une prostituée, il ne peut être utilisé comme offrande. <b>Ici aussi,</b> dans le cas de l'acquisition de l'animal en cueillant une figue, <b>même si en ce qui concerne le paiement, si</b> l'acheteur introduisait devant nous <b>une action en justice</b> contre le voleur, <b>cherchant</b> à le contraindre à livrer l'animal, <b>nous ne lui dirions pas : Va payer,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

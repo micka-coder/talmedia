@@ -15,4 +15,4 @@ La Guemara demande : En ce qui concerne le vin dans le panier de la mèche lui-m
 La Gemara relate : <b>Il y eut un certain incident à Neharde'a</b> dans lequel un Juif et un Gentil ont foulé</b> des raisins et produit <b>un certain vin</b> ensemble, <b>et Shmuel a retardé</b> la décision sur la question pendant <b>trois Fêtes,</b> car les Sages se réunissaient pendant les Fêtes et présentaient à Shmuel l'opportunité de clarifier la question avec eux. La Guemara demande : <b>Quelle est la raison</b> pour laquelle Shmuel a retardé sa décision ? <b>Si nous disons</b> que Shmuel a retardé sa décision sur la question <b>parce qu'il pensait</b> en lui-même :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

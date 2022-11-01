@@ -54,4 +54,4 @@ La Gemara relate : <b>Rav Yosef était assis derrière Rabbi Abba</b> dans la sa
 La Guemara explique : Quant à la déclaration selon laquelle <b>la <i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Yehoshua ben Korḥa,</b> cela fait référence à <b>ce que nous avons dit</b> à propos de la collecte d'un prêt par accord oral auprès des Gentils pendant les jours précédant leurs fêtes. Quant à l'affirmation selon laquelle la <i>halakha</i> est <b>conforme</b> à l'opinion de <b>Rabbi Yehuda,</b> c'est <b>comme cela est enseigné</b> dans une mishna (<i>Bava Kamma</i> 100b) : Dans le cas de <b>celui qui donne de la laine à un teinturier pour qu'il la teigne</b> <b>rouge pour lui et</b> à la place <b>il l'a teinte en noir,</b> ou celui qui donne de la laine à un teinturier pour qu'il la teigne <b>noire et</b> à la place <b>il l'a teinte en rouge,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

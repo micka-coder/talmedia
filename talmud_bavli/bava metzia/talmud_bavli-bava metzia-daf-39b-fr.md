@@ -30,4 +30,4 @@ Mar bar Isak <b>lui a dit : Est-ce la <i>halakha</i> ? </b> N'y a-t-il pas un pr
 <b>Enfin, des témoins sont venus</b> et ont attesté <b>que</b> la personne de Bei Ḥozai <b>était son frère.</b> A ce moment-là, le frère <b>dit à</b> Mari bar Isak : <b>Divisez</b> et donnez <b>moi</b> la moitié <b>des vergers et des jardins que vous avez plantés</b> depuis la mort de notre père <b>aussi. </b> Rav Ḥisda <b>dit à</b> Mari bar Isak : <b>Il t'a bien parlé, comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 143b) : Si quelqu'un est mort et <b>a laissé des fils majeurs et mineurs, et que les fils majeurs</b> ont <b>amélioré le bien, ils ont amélioré</b> le bien, et le bénéfice va <b>au milieu,</b> c'est-à-dire qu'il est divisé entre les fils majeurs et les fils mineurs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

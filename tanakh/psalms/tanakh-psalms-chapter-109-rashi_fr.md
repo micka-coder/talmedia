@@ -82,4 +82,4 @@ Et "chercher" (וְדָרְשוּ) signifie auprès des autres, car il est voyel
 <b>et s'enveloppent...</b> comme un manteau</b> qui enlace et enveloppe tout le corps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

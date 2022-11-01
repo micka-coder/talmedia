@@ -36,4 +36,4 @@ Rav Sheshet a répondu : <b>Disons que Shmuel a dit</b> qu'il peut rétracter so
 <b>La sœur de Rav Dimi bar Yosef possédait une parcelle de</b> terre dans <b>un verger. Chaque fois qu'elle était malade</b> et pensait qu'elle allait mourir, <b>elle transférait</b> la propriété du verger <b>au</b> Rav Dimi,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

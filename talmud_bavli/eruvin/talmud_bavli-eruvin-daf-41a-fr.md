@@ -36,4 +36,4 @@ La Gemara demande : <b>Et</b> est-il exact que <b>dans la génération de Rabban
 La Guemara commente : <b>Aussi, il est raisonnable</b> d'expliquer que cette règle ne s'applique pas à la veille de Chabbat,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

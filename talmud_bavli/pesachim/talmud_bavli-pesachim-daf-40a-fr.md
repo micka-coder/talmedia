@@ -57,4 +57,4 @@ La Guemara rejette cette affirmation : <b>Et d'où</b> savons-nous que cette con
 La Gemara relate à propos de <b>Mar, fils de Ravina,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

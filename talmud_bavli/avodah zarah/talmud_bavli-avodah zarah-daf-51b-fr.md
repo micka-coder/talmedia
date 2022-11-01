@@ -72,4 +72,4 @@ On <b>pourrait</b> avoir pensé que les vases sont interdits même si les Gentil
 <b>Le maître a dit</b> ci-dessus : <b>Le verset parle des récipients qui étaient utilisés</b> par les Gentils <b>pour le culte des idoles.</b> La Gemara demande : <b>N'est-il pas</b> écrit <b>"Tu détruiras tous <b>les lieux"</b> (Deutéronome 12:2), indiquant que le verset ne fait pas référence aux récipients ? La Guemara répond : <b>Si</b> la <i>halakha</i> énoncée dans ce verset <b>n'est pas</b> applicable pour la <b>matière des lieux</b> qui étaient adorés, elle doit s'appliquer à une autre matière. Le verset ne peut pas s'appliquer aux lieux eux-mêmes, <b>puisqu'ils ne sont pas rendus interdits, puisqu'il est écrit :</b> "Vous détruirez...<b>leurs dieux, sur les</b> hautes <b>montagnes"</b> (Deutéronome 12:2), ce qui indique qu'on n'est <b>pas tenu</b> de détruire <b>les montagnes</b> qui sont elles-mêmes <b>leurs dieux. </b> Quelque chose qui est attaché au sol n'est pas rendu interdit, et donc même si les adorateurs d'idoles adoraient la montagne elle-même, il n'est pas nécessaire de la détruire.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

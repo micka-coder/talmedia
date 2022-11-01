@@ -66,4 +66,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles il est
 <b>Au contraire,</b> il s'agit d'un cas <b>où il dit : je ne boirai de</b> toute <b>eau qui vient de l'Euphrate</b>. Il lui est interdit de boire de l'eau tout court, <b>comme le Rav Yehuda dit</b> que <b>Rav dit : Tous les fleuves sont en dessous,</b> c'est-à-dire qu'ils reçoivent leurs eaux <b>de, trois fleuves :</b> Le Pishon, le Gihon, et le Tigre (voir Genèse 2:11-14). <b>Et</b> ces <b>trois fleuves sont en dessous</b> et reçoivent leurs eaux <b>de l'Euphrate</b>. La Guemara demande : <b>Mais il y a</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

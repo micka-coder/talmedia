@@ -63,4 +63,4 @@ La Guemara discute d'un autre avis cité dans le premier <i>baraita</i>. <b>Ḥa
 La Guemara discute un autre avis cité dans la première <i>baraita</i>. <b>Peleimu dit :</b> C'est <b>équivalent</b> au temps <b>que</b> une femme <b>peut</b> avoir besoin de <b>tendre la main dans un panier</b> pour <b>prendre une miche</b> de pain. <b>Rav Ashi demande :</b> Est-ce que cela parle d'une occasion <b>où</b> le pain <b>adhère</b> au panier, <b>ou</b> est-ce que cela parle d'un cas <b>où</b> il <b>n'adhère pas ? </b> S'agit-il d'un cas <b>où</b> le panier est <b>neuf,</b> par lequel les pointes des pousses formant le panier pourraient retenir le pain, <b>ou</b> s'agit-il d'un cas <b>où</b> le panier est <b>ancien</b> et lisse, permettant un retrait facile ? Est-ce que cela parle d'un cas <b>où</b> le pain est <b>chaud</b> et donc plus mou et peut adhérer au panier, <b>ou</b> est-ce que cela parle d'un cas <b>où</b> le pain est <b>froid</b> et facile à enlever ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,7 +30,7 @@ Rava conclut : <b>Disons</b> que <b>Rabbi Yoḥanan a énoncé</b> sa décision 
 La Gemara répond : <b>Selon</b> l'avis <b>de ben Nannas, tout le monde s'accorde</b> à dire que s'il a écrit dans un contrat : je te dois cent dinars, il n'est pas obligé de payer.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara rejette cette idée : <b>Non,</b> la mishna se réfère à un cas <b>de documents de stipulation</b> qui enregistrent les montants que les parents acceptent de fournir à leur fils ou à leur fille, <b>et</b> ceci est <b>conforme</b> à l'opinion de <b>Rav Giddel.</b>
 
@@ -62,4 +62,4 @@ Rava conclut : <b>Disons</b> que <b>Rabbi Yoḥanan a énoncé</b> sa décision 
 La Gemara répond : <b>Selon</b> l'avis <b>de ben Nannas, tout le monde s'accorde</b> à dire que s'il a écrit dans un contrat : je te dois cent dinars, il n'est pas obligé de payer.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

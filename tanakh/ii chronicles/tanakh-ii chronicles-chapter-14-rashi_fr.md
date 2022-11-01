@@ -27,4 +27,4 @@
 <b>Ne laisse pas l'homme régner contre Toi</b> Ne laisse pas nos ennemis - l'homme - avoir la force humaine pour régner (עִמְּךָ) avec Toi, c'est-à-dire contre Toi, pour être victorieux, afin qu'ils ne disent pas : " Nous avons vaincu leur Dieu. " Une autre explication du rabbin : Que le faible (אֱנוֹשׁ) ne soit pas retenu (יַעְצר), car nous sommes faibles, privés de force, nous retenant (עוֹצְרֵי יָד) de les vaincre. Et un exemple est (Deut. 11:17) : "et Il retiendra (וְעָצַר) le ciel" ; (Gen. 20:18) : "Car l'Éternel avait retenu (וְעָצר עָצַר)," et comme (Jud. 13:16) : "Si tu me prends en (תַּעְצְרֵנִי)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

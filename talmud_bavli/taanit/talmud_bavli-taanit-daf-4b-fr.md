@@ -54,4 +54,4 @@ La Guemara demande : <b>Et nous</b> en Diaspora <b>qui avons deux</b> jours de F
 <b>Shmuel dit à</b> ceux qui lui ont rapporté l'explication du Rav : <b>Allez et dites à Abba,</b> en désignant Rav par son nom, l'objection suivante : <b>Après avoir rendu</b> le premier jour du Huitième Jour de l'Assemblée <b>sanctifié, allez-vous le souiller</b> en le traitant comme s'il n'était pas un jour de Fête ? <b>Au contraire, Shmuel a dit</b> (10a) : <b>On commence</b> à mentionner la pluie <b>dans les prières additionnelles et</b> on la mentionne également <b>dans la prière de l'après-midi</b> du huitième jour, premier jour du Huitième Jour d'Assemblée, <b>et</b> on <b>cesse</b> temporairement cette pratique <b>lors de la prière de l'après-midi</b> du huitième jour, en continuant jusqu'aux <b>prières du soir et du matin</b> du neuvième jour, <i>Simḥat Torah</i>. <b>Et</b> enfin, on <b>encore</b> reprend la mention de la pluie <b>dans les prières supplémentaires</b> du neuvième jour, <i>Simḥat Torah</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

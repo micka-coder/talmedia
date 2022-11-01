@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais</b> dans le cas de <b>le <i>tanna</b> de notre</b> m
 § En ce qui concerne <b>la</b> question <b>elle-même</b> soulevée dans la discussion précédente, la Gemara développe. <b>Rav Ketina dit : Le tribunal s'occupe</b> des demandes monétaires de <b>même moins que la valeur d'une <i>peruta</i>. Rava soulève une objection</b> à partir d'une <i>baraita</i>. Il est écrit : <b>"Et il restituera ce qu'il a fait de mal dans la matière sacrée"</b> (Lévitique 5:16).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

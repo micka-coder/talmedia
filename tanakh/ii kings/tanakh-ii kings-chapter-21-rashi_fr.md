@@ -30,7 +30,7 @@
 <b>Comme on essuie un plat.</b> Comme on essuie un plat.<sup>3</sup><i class="footnote">De même qu'on essuie un plat et qu'on le retourne pour qu'il ne se salisse plus et qu'on ne puisse plus en manger, de même Jérusalem sera nettoyé de ses habitants et ensuite il sera détruit de telle sorte qu'il ne sera plus habitable.-Radak</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -62,4 +62,4 @@
 <b>Comme on essuie un plat.</b> Comme on essuie un plat.<sup>3</sup><i class="footnote">De même qu'on essuie un plat et qu'on le retourne pour qu'il ne se salisse plus et qu'on ne puisse plus en manger, de même Jérusalem sera nettoyé de ses habitants et ensuite il sera détruit de telle sorte qu'il ne sera plus habitable.-Radak</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara cherche à clarifier : Selon cette explication, <b>A propos de quel</b
 La Guemara demande : Selon cette explication, <b>en ce qui concerne quel</b> point <b>ils sont en désaccord ? Ils sont en désaccord par rapport à la</b> possibilité que <b>la viande se réchauffe</b> et se gâte avant d'être rôtie. <b>Rabbi Yishmael soutient que nous sommes concernés par la possibilité que la viande devienne chaude</b> et se gâte. Comme l'offrande quotidienne est abattue plus tôt le jour du Chabbat, l'agneau pascal est également abattu plus tôt. Puisqu'il est interdit de rôtir la viande jusqu'à la fin du Chabbat, on craint que la viande ne se gâte avec le temps. <b>Et Rabbi Akiva soutient : On ne s'inquiète pas de la possibilité que la viande se réchauffe</b> et se gâte. Par conséquent, il est possible d'abattre l'agneau pascal plus tôt, même lorsque la veille de Pessah a lieu le Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

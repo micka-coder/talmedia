@@ -21,4 +21,4 @@ La Gemara demande : <b>Quelle est</b> la différence <b>entre</b> la réfutation
 La Guemara propose une autre réfutation de l'opinion de Rav Sheshet : <b>Venez</b> et <b>entendez</b> une preuve tirée d'une mishna (<i>Nidda</i> 43b-44a) : <b>Un enfant d'un jour hérite</b> de biens <b>et lègue</b> des biens. On peut en déduire que si l'enfant a <b>un jour, oui,</b> il hérite de biens ; mais <b>un fœtus</b> ne le fait <b>pas.</b> La Gemara répond : <b>Le Rav Sheshet ne dit-il pas</b> que la mishna enseigne une <i>halakha</i> différente ? La mishna enseigne qu'un enfant d'un jour <b>hérite des biens de sa mère</b> dès sa naissance, de sorte qu'il peut <b>le léguer</b>, s'il meurt ensuite, <b>à</b> ses héritiers qui ne sont pas les héritiers de la mère, par ex, ses <b>frères paternels.</b> Cette <i>halakha</i> <b>spécifique</b> s'applique à partir du moment où il a <b>un jour, mais un fœtus</b> dont la mère est morte <b>n'hérite pas</b> d'elle. <b>Quelle est la raison</b> de cette situation ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara demande : <b>Mais</b> si l'on a apporté l'offrande de repas du côté
 La Guemara cite une autre objection à la déclaration de Rav selon laquelle un rite de l'offrande de repas est jugé indispensable s'il est répété dans les versets. <b>Rav Huna s'oppose à cela : Mais</b> qu'en est-il du placement du <b>sel</b> sur la poignée de l'offrande de repas avant qu'elle ne soit brûlée, <b>qui</b> n'est <b>pas répété</b> dans <b>le verset, et</b> pourtant il est toujours <b>indispensable dans son</b> sacrifice ? <b>Comme il est enseigné</b> dans un <i>baraita</i> : Le verset indique : <b>"C'est une alliance éternelle de sel"</b> (Nombres 18:19), ce qui enseigne <b>qu'il y aura</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara répond : La <i>baraita</i> fait référence à un cas <b>où</b> la p
 La Gemara soulève une objection à la déclaration de Rabba bar Natan à partir de la dernière clause de la mishna également : <b>Nous avons appris</b> dans la mishna que si <b>un</b> des bœufs belligérants <b>était inoffensif et</b> l'autre <b>un</b> était <b>prévenu,</b> et <b>la partie lésée</b> <b>dit : </b> Le bœuf <b>prévenu</b> a <b>blessé le grand et</b> le bœuf <b>innocent</b> a blessé <b>le petit, et le responsable du dommage dit : Non ; plutôt,</b> le bœuf <b>innocent</b> a blessé <b>le grand et</b> le bœuf <b>prévenu</b> a blessé <b>le petit,</b> dans ce cas, <b>la charge de la preuve repose sur le demandeur.</b> Cela indique que <b>s'il n'apporte pas la preuve</b> de sa demande, <b>il prend</b> l'indemnisation <b>selon ce que dit le responsable du dommage. Pourquoi</b> reçoit-il une indemnité ? Le cas <b>est</b> parallèle à celui du <b>blé et de l'orge.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

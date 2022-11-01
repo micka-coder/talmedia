@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais le <i>tanna</i> a pris</b> le sens <b>opposé</b>, <
 A propos des versets de Daniel, la Guemara demande : <b>Que</b> voulait dire l'ange lorsqu'il a dit à Daniel : <b>"Et je suis venu à cause de tes paroles"</b> (Daniel 10:12) ? D'après cette phrase, il semble que l'ange n'ait pu venir que grâce à Daniel. La Guemara répond : <b>C'est ainsi qu'il est écrit : " Et soixante-dix hommes parmi les Anciens de la maison d'Israël se tenaient devant eux, et Jaazania, fils de Shaphan, se tenait au milieu d'eux, chacun ayant son encensoir à la main, et une épaisse nuée d'encens montait"</b> (Ezéchiel 8:11). Ezéchiel a vu les anciens de la maison d'Israël adorer des dieux étrangers. <b>Et la forme d'une main fut avancée, et je fus pris par une mèche de ma tête ; un esprit m'éleva entre la terre et le ciel, et me conduisit dans les visions de Dieu à Jérusalem, à l'entrée de la porte du parvis intérieur qui fait face au nord, où</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

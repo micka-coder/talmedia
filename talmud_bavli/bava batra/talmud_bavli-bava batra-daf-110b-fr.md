@@ -36,4 +36,4 @@ La Gemara répond : <b>Oui, il en est bien ainsi</b> que l'analogie verbale n'es
 § La mishna enseigne : <b>Et un homme</b> à l'égard de <b>sa mère</b> hérite de ses proches mais ne lui lègue pas. La Guemara demande : <b>D'où proviennent ces questions</b> ? La Gemara répond : <b>Comme l'ont enseigné les Sages :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

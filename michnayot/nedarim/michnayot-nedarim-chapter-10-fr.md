@@ -23,5 +23,5 @@ Si un homme dit à sa femme : "Tous les voeux que tu peux faire à partir de mai
 ### michna 8
 L'annulation des vœux est la journée entière. Il peut en résulter une rigueur ou une indulgence. Comment cela se passe-t-il ? Si elle a fait un vœu la veille du sabbat, il peut annuler la veille du sabbat et le jour du sabbat jusqu'à la tombée de la nuit. Si elle a fait un vœu juste avant la tombée de la nuit, il ne peut l'annuler que jusqu'à la tombée de la nuit, car si la nuit tombe et qu'il ne l'a pas annulé, il ne peut plus l'annuler.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

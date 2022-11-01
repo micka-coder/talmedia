@@ -15,4 +15,4 @@ Le Rav Naḥman a répondu : <b>Je</b> pourrais <b>vous dire</b> qu'en général
 <b>Rav Yosef a dit :</b> Ceci n'est <b>pas difficile,</b> car la question fait l'objet d'une dispute tannaïtique. <b>Cette</b> <i>baraita</i> qui dit que la femme peut tirer profit même de la dîme du pauvre reflète l'opinion de <b>Rabbi Eliezer,</b> alors que <b>cette</b> mishna, qui ne mentionne pas la dîme du pauvre, reflète l'opinion de <b>les rabbins, comme nous l'avons appris</b> dans une mishna (<i>Demai</i> 4:3) : <b>Rabbi Eliezer dit : Une personne n'a pas besoin</b> effectivement de mettre de côté, ni même de <b>désigner par son nom, la dîme du pauvre des produits dont la dîme est douteuse [<i>demai</i>],</b> c'est-à-dire des produits achetés à un <i>am ha'aretz</i>, celui qui n'est pas diligent dans la séparation des dîmes, car la dîme du pauvre n'a pas de caractère sacré, et un pauvre ne peut pas la réclamer de lui, puisqu'il ne peut pas offrir la preuve que ce produit a effectivement le statut de dîme du pauvre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

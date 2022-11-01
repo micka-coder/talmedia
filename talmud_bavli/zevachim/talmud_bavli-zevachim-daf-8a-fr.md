@@ -66,4 +66,4 @@ Si vous dites : <b>Que le Miséricordieux ne l'écrive pas</b> <b>en ce qui conc
 La Guemara demande : <b>Et nous avons trouvé</b> une source pour ces <i>halakhot</i> en ce qui concerne <b>une offrande pour le péché</b> apportée pour avoir mangé de la <b>graisse interdite, car il est écrit à son sujet :</b> "Et l'abattre <b>pour une offrande pour le péché"</b> (Lévitique 4:33), ce qui indique qu'il doit être abattu pour une offrande pour le péché. De même, les sources de cette <i>halakha</i> à propos des offrandes pour le péché d'un nazirite et d'un lépreux ont également été citées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

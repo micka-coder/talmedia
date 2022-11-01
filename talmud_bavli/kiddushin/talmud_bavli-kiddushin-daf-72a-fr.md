@@ -33,4 +33,4 @@ La première partie de ce verset disait : <b>"Et voici une seconde bête, sembla
 <b>Lorsque Rabbi</b> Yehuda HaNasi <b>était mourant, il a dit</b> prophétiquement : <b>Il y a</b> un lieu appelé <b>Homanya en Babylonie,</b> et <b>tous ses</b> habitants sont les fils <b>d'Ammon. Il y a</b> un lieu appelé <b>Masgariya en Babylonie,</b> et <b>tout son</b> peuple est <b><i>mamzerim</i>. Il existe</b> un lieu appelé <b>Bireka en Babylonie,</b> et <b>il y a là deux frères</b> <b>qui échangent des femmes entre eux,</b> et leurs enfants sont donc <i>mamzerim</i>. <b>Il y a</b> un endroit appelé <b>Bireta DeSatya en Babylonie. Aujourd'hui, ils se sont détournés de l'Omniprésent.</b> Qu'ont-ils fait ? <b>Un fossé contenant des poissons a débordé, et ils sont allés piéger</b> les poissons <b>pendant Chabbat. Rabbi Aḥai, fils de Rabbi Yoshiya, les a excommuniés, et ils</b> tous <b>sont devenus des apostats. Il y a</b> un endroit appelé <b>Akra DeAgma en Babylonie. Il y a</b> un homme nommé <b>Adda bar Ahava.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

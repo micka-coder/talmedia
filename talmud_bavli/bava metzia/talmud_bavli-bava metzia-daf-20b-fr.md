@@ -78,7 +78,7 @@ La Guemara répond en citant la déclaration de <b>Rav Safra,</b> qui <b>dit</b>
 <b>Venez</b> et <b>entendez</b> un autre défi d'un <i>baraita</i> : <b>Un <i>simpon</b> sur lequel des témoins</b> sont signés <b>est ratifié par</b> le biais de <b>ses signataires.</b> Le tribunal vérifie la validité des signatures des témoins et ratifie ainsi le document. Cela semble également inclure un <i>simpon</i> qui est en possession du créancier. La Gemara répond : <b>Disons</b> que le <i>baraita</i> dit : <b>Est ratifiée</b> en obtenant la confirmation <b>de ses signataires,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Nous sommes préoccupés par</b> la possibilité qu'il y ait <b>deux</b> villes nommées <b>Sheviri,</b> et que cet acte de divorce puisse appartenir à quelqu'un d'autre qui vit dans l'autre Sheviri, et donc qu'il ne doit pas être rendu. <b>Rav Ḥisda dit à Rabba : Sors</b> et <b>examine</b> cette <i>halakha</i>, <b>car le soir Rav Huna t'interrogera</b> à ce sujet. <b>Il est sorti, l'a examiné</b>, <b>et a découvert</b> une source pertinente, <b>comme nous l'avons appris</b> dans la mishna : En ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouvé <b>doit le rendre</b> à son propriétaire présumé. Puisque cet acte de divorce a été trouvé au tribunal, il appartient à cette catégorie et doit être restitué.
 
@@ -158,4 +158,4 @@ La Guemara répond en citant la déclaration de <b>Rav Safra,</b> qui <b>dit</b>
 <b>Venez</b> et <b>entendez</b> un autre défi d'un <i>baraita</i> : <b>Un <i>simpon</b> sur lequel des témoins</b> sont signés <b>est ratifié par</b> le biais de <b>ses signataires.</b> Le tribunal vérifie la validité des signatures des témoins et ratifie ainsi le document. Cela semble également inclure un <i>simpon</i> qui est en possession du créancier. La Gemara répond : <b>Disons</b> que le <i>baraita</i> dit : <b>Est ratifiée</b> en obtenant la confirmation <b>de ses signataires,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

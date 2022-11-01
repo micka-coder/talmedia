@@ -12,4 +12,4 @@
 <b>et dans les forêts il construisit des palais</b> - Heb. בִּירָנִית, expression d'un grand palais (בִּירָה).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une solution à ce dilemme
 <b>Venez</b> et <b>entendez</b> une autre résolution de ce que <b>Rabbi Yehoshua ben Levi a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

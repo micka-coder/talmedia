@@ -61,4 +61,4 @@
 <b>Faire le bien</b> pour construire Ton Temple en son sein aux jours de mon fils, Salomon.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

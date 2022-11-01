@@ -39,4 +39,4 @@ La Gemara explique l'objection : <b>Et</b> encore <b>ceci</b> est un exemple de 
 La Guemara répond : Cette décision selon laquelle l'aplanissement d'un tas de céréales par son propriétaire gentil ne l'exempte pas des obligations de <i>teruma</i> et de dîme ne s'applique que <b>par la loi rabbinique.</b> Par la loi de la Torah, l'aplanissement d'un tas de céréales par son propriétaire gentil l'exempte effectivement de l'obligation de séparer <i>teruma</i> et dîme. Les Sages ont promulgué <b>un décret en raison</b> des stratagèmes des <b>gens de moyens.</b> On craignait que des marchands complices ne transfèrent temporairement la propriété de leurs produits à des Gentils le temps que les tas soient aplanis, après quoi les Gentils les remettraient en leur possession, contournant ainsi l'obligation de séparer <i>teruma</i> et dîme.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

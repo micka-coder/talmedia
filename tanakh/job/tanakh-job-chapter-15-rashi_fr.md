@@ -117,4 +117,4 @@ Le mot מתחולל est une expression de deuil, mais je n'ai pas entendu cela.
 <b>Tromperie</b> Leur désir sera converti pour eux en tromperie.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

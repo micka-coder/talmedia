@@ -15,4 +15,4 @@ Abaye poursuit : <b>Et nous avons discuté</b> de cette question : <b>Pourquoi</
 Abaye conclut sa question : <b>Quelle est</b> la <b>raison</b> de Rabbi Yoḥanan pour laquelle on est fouetté pour avoir mangé ce mélange ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

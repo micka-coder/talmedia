@@ -48,4 +48,4 @@ Il est enseigné dans la mishna que <b>s'il reste</b> une portion <b>de la couro
 La Gemara raconte : <b>Un certain incident</b> s'est effectivement <b>produit dans</b> la ville de <b>Mata Meḥasya,</b> où le membre d'un homme a été coupé comme une gouttière. <b>Mar bar Rav Ashi a retaillé</b> la chair de tous les côtés jusqu'à ce qu'elle soit <b>comme une plume d'oie</b> et l'a ainsi <b>rendu apte</b> à entrer dans la congrégation. <b>Un certain incident s'est produit à Pumbedita,</b> où <b>le canal séminal</b> d'un certain homme <b>s'est bouché, et il a émis</b> du sperme <b>par le canal urinaire. Rav Beivai bar Abaye pensa le rendre apte,</b> car ses organes génitaux n'étaient ni écrasés ni sectionnés. <b>Rav Pappi a dit : Parce que tu viens</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

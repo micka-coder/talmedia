@@ -39,4 +39,4 @@ A propos des eaux de Tibériade, la mishna aborde les <i>halakhot</i> du bain et
 <strong>GEMARA:</strong> La <i>tanna</i> de la mishna <b>enseigne</b> le cas de l'<b>eau de caverne</b> qui est <b>similaire au</b> cas de l'<b>eau de Tibériade ; de même que l'eau de Tibériade est chaude, de même l'eau de caverne est chaude.</b> La Gemara déduit également de la formulation de la mishna : En ce qui concerne <b>celui qui se baigne, après coup, oui,</b> on peut se sécher ; cependant, <b>on ne peut pas</b> se baigner <b><i>ab initio</i>,</b> car si la mishna avait voulu permettre le bain <i>ab initio</i> elle aurait dit : On peut se baigner dans l'eau d'une grotte. Ceci prouve <b>par inférence</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

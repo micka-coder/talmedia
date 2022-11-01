@@ -26,5 +26,5 @@ Une boîte à tefillin composée de quatre récipients : si le premier compartim
 ### michna 9
 Un lit dont la moitié a été volée ou perdue, ou un lit que des frères ou des copropriétaires ont partagé entre eux, devient pur. S'il a été restitué, il est désormais susceptible d'être impur. Un lit peut contracter l'impureté et être rendu propre lorsque toutes ses parties sont liées ensemble, ce sont les paroles de Rabbi Eliezer. Mais les sages disent : il peut contracter l'impureté et être rendu pur en ses parties individuelles.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

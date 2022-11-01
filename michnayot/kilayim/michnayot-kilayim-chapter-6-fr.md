@@ -26,5 +26,5 @@ Les cannes qui dépassent des aris et que l'on est trop préoccupé par elles po
 ### michna 9
 Une fleur qui dépassait de l'aris, on considère que si un fil à plomb y était suspendu, directement en dessous, il est interdit [de semer]. De même, dans le cas [d'une fleur dépassant] d'une branche pendante [d'une seule vigne], celui qui a tendu un sarment d'arbre en arbre, il est interdit de semer en dessous. S'il a fait une extension [à la vigne] au moyen d'une corde ou d'un roseau, il est permis de semer sous l'extension. S'il a fait le prolongement de manière à ce que la nouvelle [pousse] se répande le long de celui-ci, il est interdit de semer.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

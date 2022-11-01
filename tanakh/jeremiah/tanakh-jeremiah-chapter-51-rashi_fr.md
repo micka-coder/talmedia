@@ -177,7 +177,7 @@
 <b>Pour beaucoup de futilité</b> Pour beaucoup de futilité qu'elle entraînera sur eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Leb-kamai</b> Casdim (Chaldéens) selon le cypher de 'At-bash' (א "תב "ש). <b>Le désir d'un destructeur</b> Le désir du roi de Perse et de Médie, qui est un destructeur. Heb. רוּחַ (talent en ancien français.).
 
@@ -356,4 +356,4 @@
 <b>Pour beaucoup de futilité</b> Pour beaucoup de futilité qu'elle entraînera sur eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

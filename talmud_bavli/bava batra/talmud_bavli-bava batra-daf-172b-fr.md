@@ -24,4 +24,4 @@ Rabba <b>a dit à</b> Abaye : <b>Nous ne sommes pas concernés par</b> la possib
 La Gemara demande : <b>Et</b> pourquoi <b>Abaye,</b> qui s'inquiète de cette possibilité, n'a pas vu une preuve contraire dans la mishna ? Il répondrait : <b>Nous ne sommes pas concernés</b> par la possibilité qu'un billet à ordre <b>chute d'une</b> personne particulière et soit trouvé par l'autre personne portant le même nom, ce qui est le cas dans la mishna, car cela est extrêmement improbable. <b>Nous sommes concernés par</b> la possibilité qu'un billet à ordre <b>chute</b> d'une personne du grand <b>public</b> et soit trouvé par une autre personne.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

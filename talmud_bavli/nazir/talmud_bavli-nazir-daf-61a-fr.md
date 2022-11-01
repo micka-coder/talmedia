@@ -12,4 +12,4 @@ La Gemara demande : <b>Quelle</b> est la <b>différence</b> qu'il se rase pour u
 <b>Qu'est-ce</b> alors que le <i>halakha</i> ? <b>Rava dit : Venez</b> et <b>entendre</b> une résolution d'un <i>baraita</i> (<i>Tosefta</i> 6:1) : <b>Et il se rase</b> avec <b>quatre</b> actes de <b>rasage.</b> Or, <b>s'il vous vient à l'esprit</b> que la raison est <b>pour enlever les poils d'impureté, même trois</b> rasages devraient <b>suffire pour lui,</b> deux pour sa lèpre, et le dernier pour sa naziréité de pureté. Puisque le troisième rasage est effectué uniquement pour enlever ses poils d'impureté afin qu'il puisse recommencer sa naziréité de pureté, pourquoi est-il inclus ? <b>Conclure de</b> la <i>baraita</i> que les quatre rasages sont <b>du à</b> la <b>mitzva</b> du rasage. La Guemara dit : <b>Conclure de</b> la <i>baraita</i> que c'est le cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

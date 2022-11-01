@@ -51,4 +51,4 @@ Rav Aḥai explique : <b>Comme</b> dans le cas de <b>planches verticales entoura
 La Gemara demande : <b>Au contraire, comment doit-on agir</b> afin de rendre une ruelle de ce type apte à être transportée à l'intérieur ? <b>Shmuel a dit au nom de Lévi :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

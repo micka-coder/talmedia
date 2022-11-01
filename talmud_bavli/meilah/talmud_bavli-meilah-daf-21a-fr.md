@@ -48,4 +48,4 @@ Si le propriétaire de la maison <b>donne</b> à l'agent <b>deux</b> <b>perutot<
 Si le propriétaire <b>donne</b> à l'agent un <b>dinar d'or consacré,</b> qui vaut vingt-cinq dinars d'argent, car quatre dinars d'argent constituent une <i>sela</i> ; <b>et dit à</b> l'agent : <b>Allez et apportez-moi une robe,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

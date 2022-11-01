@@ -48,4 +48,4 @@ Rav Yehuda <b>lui a dit : Là,</b> dans le cas du <i>teruma</i>, <b>le dommage n
 § A propos d'une pièce de monnaie qui a été invalidée, il <b>a été déclaré</b> qu'il y avait un différend concernant la question : Dans le cas de <b>quelqu'un qui prête</b> de l'argent à <b>un autre à la condition</b> qu'il rembourse le prêt en utilisant une sorte particulière de <b>monnaie, et que cette monnaie devient invalidée, Rav dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

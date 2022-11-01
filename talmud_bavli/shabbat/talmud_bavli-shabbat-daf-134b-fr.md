@@ -69,4 +69,4 @@ Une <i>baraïta</i> <b>a été enseignée</b> explicitement <b>conforme</b> à l
 Nous avons appris dans la mishna : S'il y a <b>incertitude</b> de circoncire ou non un bébé, <b>et</b> de même dans le cas d'un <b>bébé hermaphrodite</b>, on ne profane pas Chabbat pour effectuer la circoncision d'un <b>hermaphrodite,</b> même le huitième jour suivant la naissance. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Le verset dit : "Et le huitième jour, la chair de son prépuce sera circoncise" (Lévitique 12:3), et ils ont interprété le verset : <b>Son prépuce"</b> indique que seule la circoncision de <b>son</b> prépuce halakhiquement <b>certain prévaut sur le Shabbat,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

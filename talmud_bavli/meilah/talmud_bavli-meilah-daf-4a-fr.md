@@ -30,4 +30,4 @@ La Guemara rejette cette suggestion : <b>Non,</b> on ne peut pas citer une preuv
 La Guemara propose une autre raison pour rejeter cette suggestion : <b>Par contre,</b> le <i>baraita</i> fait <b>actuellement</b> référence à un cas <b>où</b> le sang a été <b>éclaboussé. Mais</b> néanmoins, cela ne soutient pas l'opinion du Rav Giddel, car <b>lorsque cette</b> <i>baraita</i> <b>est enseignée,</b> elle fait référence <b>à un holocauste.</b> Un holocauste est toujours sujet aux <i>halakhot</i> de mauvais usage, même après que son sang ait été aspergé, car il n'est jamais autorisé aux prêtres en consommation. La Guemara soulève une difficulté : <b>Si</b> la décision de la <i>baraïta</i> est énoncée <b>en ce qui concerne un holocauste,</b> alors il est <b>évident</b> qu'il est toujours soumis aux <i>halakhot</i> de mauvais usage, <b>car il appartient entièrement</b> <b>au Très-Haut,</b> c'est-à-dire que l'offrande entière est brûlée sur l'autel et qu'aucune partie n'est consommée par les propriétaires ou les prêtres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

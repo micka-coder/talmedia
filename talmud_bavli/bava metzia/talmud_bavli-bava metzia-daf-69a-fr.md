@@ -42,4 +42,4 @@ La Gemara relate : Il y avait <b>ces deux Samaritains qui s'engagèrent dans une
 <b>La</b> <b>année suivante</b> ces deux mêmes personnes ont <b>acheté du vin ensemble,</b> et <b>l'autre s'est levé</b> et a <b>divisé</b> le vin <b>à l'insu de l'autre.</b> Et de nouveau, <b>ils sont venus</b> pour le jugement <b>devant Rav Pappa.</b> Rav Pappa <b>a dit à</b> l'accusé : <b>Qui a partagé</b> le vin <b>pour toi ?</b> Tu n'as pas agi correctement puisque tu n'as pas obtenu l'autorisation de ton partenaire pour partager le vin. Le Samaritain <b>lui dit : Je vois que le Maître me poursuit</b> dans le but de me harceler, puisque l'année dernière, lorsque nous sommes venus avec ce qui semble être essentiellement le même cas, vous avez donné une décision différente en faveur de l'autre. <b>Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara demande : <b>Mais</b> qu'il <b>dérive</b> cette <i>halakha</i> du fa
 § La mishna enseigne que <b>le Grand Sanhédrin était</b> composé de soixante et onze juges, et que Rabbi Yehuda soutient qu'il n'était composé que de soixante-dix, car Moïse a rassemblé soixante-dix hommes parmi les Anciens du peuple juif, et selon Rabbi Yehuda, Moïse lui-même n'a pas été compté comme faisant partie du groupe. La Guemara demande : <b>Quel est le raisonnement des rabbins, qui disent</b> que lorsque <b>Moïse</b> a rassemblé soixante-dix hommes, il était <b>à la tête</b> de la cour et est donc compté parmi eux ? <b>Le verset dit :</b> "Et le Seigneur dit à Moïse : Rassemble-moi soixante-dix hommes parmi les anciens d'Israël, que tu connais comme étant les anciens du peuple et les officiers sur eux, et amène-les à la tente de la Rencontre <b>et ils se tiendront là</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

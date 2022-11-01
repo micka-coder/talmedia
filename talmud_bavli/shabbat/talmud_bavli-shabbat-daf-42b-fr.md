@@ -27,4 +27,4 @@
 Abaye <b>souleve</b> une autre <b>objection</b> à l'avis de Rabba' à partir de la dernière mishna de ce chapitre : <b>On peut placer un récipient sous la <b>lampe à huile</b> afin de <b>recevoir</b> les <b>étincelles</b> brûlantes d'huile qui s'égouttent de la mèche allumée, même si cela n'est pas courant. Rabba répond : <b>Les étincelles sont également communes</b> et donc, c'est un cas commun de conservation.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara rejette cet argument : Le <b>dommage</b> d'être exposé au regard des
 La Guemara remet en question cette distinction : <b>Venez</b> et <b>entendez</b> une preuve, <b>comme le dit Rav Naḥman</b> que <b>Shmuel dit :</b> Si le <b>toit d'un individu est adjacent à la cour d'un autre, il doit faire un parapet</b> autour du toit <b>de quatre coudées de hauteur</b> afin qu'il ne puisse pas voir dans la cour de son voisin. Cela indique que l'on appelle dommage le fait d'être exposé aux yeux d'autrui même dans une cour. La Guemara réfute cette preuve : La situation <b>y est différente, car le propriétaire de la cour peut dire au propriétaire du toit : Je</b> fais <b>l'usage</b> de <b>ma</b> cour <b>régulièrement</b>. <b>Vous,</b> en revanche, <b>ne faites pas</b> <b>l'usage</b> de <b>votre</b> toit <b>régulièrement</b>, mais seulement rarement. Par conséquent, <b>Je ne sais pas quand vous monterez</b> sur le toit,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

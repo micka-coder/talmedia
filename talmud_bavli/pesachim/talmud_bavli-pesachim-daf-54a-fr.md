@@ -51,4 +51,4 @@ La Gemara demande : <b>Et peut-être qu'il y avait deux</b> personnes nommées <
 <b>Les Sages ont enseigné : Dix phénomènes ont été créés la veille de Chabbat, au crépuscule, et ce sont :</b> le <b>puits de Miriam, et la manne, et</b> l'<b>arc-en-ciel, l'écriture, et l'instrument d'écriture, et les tablettes, la tombe de Moïse, et la grotte dans laquelle se tenaient Moïse et Elie, l'ouverture de la bouche de</b> l'<b>âne de Balaam, et l'ouverture de la bouche de la terre pour avaler les méchants</b> au temps de Koré. <b>Et certains disent</b> que <b>même le bâton d'Aaron</b> fut créé alors avec <b>ses amandes et ses fleurs. Certains disent</b> que <b>même les démons</b> ont été créés à cette époque. <b>Et certains disent</b> que <b>même</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

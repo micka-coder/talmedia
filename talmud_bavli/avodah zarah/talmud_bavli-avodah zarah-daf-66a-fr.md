@@ -36,4 +36,4 @@ En ce qui concerne le <b>vinaigre interdit</b> qui est tombé <b>dans</b> un ton
 La Guemara explique leurs opinions respectives : <b>Abaye dit</b> que <b>toute quantité</b> rend le mélange interdit,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

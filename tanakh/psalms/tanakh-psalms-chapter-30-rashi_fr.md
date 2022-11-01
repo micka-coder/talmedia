@@ -36,4 +36,4 @@
 <b>Et j'ai dit dans ma tranquillité</b> Haman a dit ceci . <b>Toi, Seigneur, je t'appellerais</b> Esther a dit cela etc. jusqu'à "sois mon aide". <b>Tu as transformé ma complainte en danse pour moi</b> Mardochée et tout Israël ont dit cela.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ Ils lui demandèrent : <b>Et</b> dans le cas d'un <b>poussin qui meurt</b> à l'
 § Après que Rabbi Yehoshua ait vaincu les sages d'Athènes lors d'un débat, <b>il les a amenés</b> sur son navire comme ils l'avaient convenu. Il a ensuite amené chacun d'eux dans une pièce différente. <b>Lorsque chacun vit les soixante matelas</b> dans sa chambre, <b>il se dit</b> : <b>Tous mes collègues vont venir ici,</b> et les a attendus sans chercher à sortir. Rabbi Yehoshua <b>dit au marin : Libère ton navire,</b> c'est-à-dire commence à naviguer. <b>Alors qu'ils venaient</b> à l'empereur à Rome, <b>il sortit</b> de la <b>saleté</b> qu'il avait prise <b>de la saleté de</b> Athènes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

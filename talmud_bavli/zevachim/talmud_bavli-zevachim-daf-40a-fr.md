@@ -45,4 +45,4 @@ La Guemara demande : <b>Et Rabbi Shimon, que fait-il de cette</b> phrase : <b>"D
 <b>Rav Pappa dit :</b> Cette référence au taureau de Yom Kippour dans le terme "avec le taureau", <b>n'est nécessaire que pour</b> appliquer au taureau de Yom Kippour trois <i>halakhot</i> qui découlent de ce qui est énoncé à propos du taureau pour un péché involontaire du prêtre oint : "Et le prêtre plongera son doigt [<i>et etzba'o</i>] dans le sang" (Lévitique 4, 6). Ces <i>halakhot</i> peuvent être résumées sous la forme abrégée : <b><i>Et</i>, sang, et avec immersion.</b> La Gemara développe : En ce qui concerne le mot <b><i>Et</i>, Rav Aḥa bar Ya'akov dit :</b> Ce mot <b>est nécessaire uniquement pour rendre convenable</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

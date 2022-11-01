@@ -60,4 +60,4 @@ On <b>pourrait</b> penser que dans le cas d'un œuf dans lequel s'est développ�
 <b>Si</b> ce <i>halakha</i> n'est dérivé que de l'expression <b>"sur la terre"</b>, on <b>pourrait</b> avoir pensé que le verset signifie que toute souris, qu'elle soit terrestre ou marine, <b>impureté</b> lorsqu'elle est <b>sur la terre,</b> mais que si <b>elle est descendue à la mer, elle n'impureté pas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

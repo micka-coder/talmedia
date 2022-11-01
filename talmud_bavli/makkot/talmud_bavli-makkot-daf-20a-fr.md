@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> est-ce que <b>Rabbi Yosei soutient</b> que le stat
 La Guemara demande : En ce qui concerne <b>ces quatre ou cinq calvities</b> créées sur un mort, pour lesquelles on est susceptible de recevoir des coups de fouet pour chacune des taches, <b>quelles sont les circonstances ? Si nous disons</b> qu'il a créé ces calvities <b>une après l'autre et avec cinq</b> <b>avertissements préalables distincts,</b> un précédant chaque action, il est <b>évident</b> qu'il est responsable de chaque calvitie ; dans ce cas, il est celui qui viole plusieurs fois le même interdit et est puni pour chaque violation pour laquelle il a été averti.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

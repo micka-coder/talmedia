@@ -51,4 +51,4 @@ La Gemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabbi Yehuda</b>
 <b>Et si l'on dit</b> que Rabbi Yehouda juge que <b>par la loi rabbinique</b> le statut de la <i>sukka</i> est comme celui d'une maison, mais que par la loi de la Torah, son opinion est conforme à celle de Rava', <b>On comprend que</b> en ce qui concerne la <b>jonction</b> des cours <b>et <i>mezuza</i>, il est</b> possible <b>de dire</b> que l'obligation est <b>par la loi rabbinique ; cependant,</b> en ce qui concerne les <b>tithes, est-il</b> possible <b>de dire</b> que selon Rabbi Yehuda l'obligation est <b>par la loi rabbinique ? </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

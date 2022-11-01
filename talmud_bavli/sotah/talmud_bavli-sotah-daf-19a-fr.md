@@ -15,4 +15,4 @@ Les opinions sont justifiées comme suit : <b>Le premier <i>tanna</i> tient</b> 
 <b>Et Rabbi Yehuda</b> soutient : Le mot <b>"ceci"</b> sert <b>à exclure deux</b> des cas, et la phrase <b>"la loi de</b> la jalousie" sert <b>à en inclure deux.</b> Le mot <b>"ceci"</b> sert <b>à exclure</b> les <b>deux</b> cas de <b>un mari et un amant</b> et <b>un mari et deux amants.</b> Dans aucun de ces cas, la femme ne boit et ne répète. L'expression <b>"la loi de</b> la jalousie" sert <b>à inclure deux</b> cas, c'est-à-dire <b>deux maris et un paramour,</b> et d'autant plus <b>deux maris et deux paramours.</b> Dans ces deux cas, la femme doit boire et répéter.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

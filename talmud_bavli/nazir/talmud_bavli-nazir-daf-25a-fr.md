@@ -21,4 +21,4 @@ Le <i>tanna</i> explique que ce verset vient <b>vous dire : De la manière dont 
 § Puisque la Guemara a cité la <i>baraita</i> ci-dessus, elle l'analyse en détail. La <i>baraita</i> <b>enseigne :</b> On <b>pourrait</b> avoir pensé qu'il faut <b>les faire monter au Temple et les priver d'eau et de nourriture pour qu'ils meurent. Le verset dit : "Et vous sacrifierez vos holocaustes."</b> La Gemara demande : <b>Pourquoi</b> penserait-on qu'il devrait agir de cette manière ? Après tout, <b>C'est</b> uniquement en ce qui concerne <b>la progéniture d'une offrande pour le péché que nous avons appris</b> qu'il faut la laisser <b>mourir,</b> mais pas les autres offrandes. Pourquoi, alors, est-il nécessaire de tirer d'un verset l'exclusion de la progéniture d'autres offrandes et la substitution d'autres offrandes ? La Gemara répond : <b>Si</b> ce n'était <b>pas</b> pour le <b>verset, je dirais</b> que <b>la progéniture d'un sacrifice pour le péché</b> peut être tuée <b>n'importe où,</b> c'est-à-dire qu'il n'est pas nécessaire de l'amener au Temple et de l'y laisser mourir,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara cite une version alternative de cette discussion. <b>Il y a</b> ceux <
 La Gemara rejette cette affirmation : <b>Non;</b> ce n'est pas une preuve, car <b>actuellement, je</b> pourrais <b>vous dire</b> que <b>celui qui</b> faisait <b>un travail</b> <b>sur cette vigne ne peut pas manger d'une autre vigne,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

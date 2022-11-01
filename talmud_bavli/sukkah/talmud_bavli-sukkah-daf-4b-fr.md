@@ -51,4 +51,4 @@ A titre d'aparté, la Guemara note : <b>Dans tout l'ordre de <i>Mo</i>'<i>ed</i>
 Et voici ce qu'ils ont enseigné : L'<b>Arche</b> de l'Alliance avait elle-même <b>neuf</b> coudées de hauteur, car il est dit explicitement dans la Torah qu'elle avait une coudée et demie de hauteur et la coudée utilisée pour mesurer les ustensiles du Temple était constituée de six coudées. <b>Et</b> la couverture de l'<b>Arche</b> avait une épaisseur d'un <b>main-brève</b>. <b>Il y a</b> une hauteur totale de <b>dix</b> coudées <b>ici. Et il est écrit : <b>Je vous rencontrerai là et je vous parlerai de dessus la couverture de l'Arche"</b> (Exode 25:22),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

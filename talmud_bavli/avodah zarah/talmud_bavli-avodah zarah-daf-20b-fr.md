@@ -57,4 +57,4 @@ La Guemara suggère une résolution : <b>Venez</b> et <b>entendez, comme il est 
 <strong>MISHNA:</strong> <b>On ne peut pas louer une maison à</b> un Gentil <b>en Eretz Yisraël, et il va sans dire</b> qu'on ne peut pas leur louer de <b>champs</b>, comme l'explique la Guemara. <b>Et en Syrie</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

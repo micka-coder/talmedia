@@ -24,4 +24,4 @@ La Gemara note : <b>Et</b> ceci n'est <b>pas conforme</b> à l'avis de <b>cette 
 <b>Beit Shammai leur a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

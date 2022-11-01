@@ -20,5 +20,5 @@ Dans le cas d'une trappe dans une maison avec un pot placé en dessous qui, s'il
 ### michna 7
 Dans le cas où la marmite était] placée sur le côté du seuil [de la maison] de telle sorte que si on la soulevait, elle toucherait le linteau sur un [espace d'un carré] de largeur de main : S'il y a une impureté au-dessous, à l'intérieur ou au-dessus [de la marmite], l'impureté se fend vers le haut et vers le bas. Dans le cas] où il se trouvait à un tefah [paume] du sol : S'il y a une impureté au-dessous ou dans la maison, ce qui est au-dessous et dans la maison devient impur. Si l'impureté est à l'intérieur ou au-dessus [du pot], tout devient impur. Dans le cas où le pot], s'il est levé, ne touche pas le linteau sur un [espace d'un carré] de largeur de main, ou est joint au linteau, s'il y a une impureté au-dessous de lui, rien n'est impur sauf ce qui est au-dessous [du pot].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

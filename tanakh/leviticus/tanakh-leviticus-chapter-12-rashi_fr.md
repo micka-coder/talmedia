@@ -28,5 +28,5 @@
 ### passuk 8
 <b>L'un en tant qu'holocauste et l'autre en tant que sacrifice pour le péché.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le verset l'a placé en premier uniquement pour [le but de] lire [le rouleau de la Torah], mais en ce qui concerne [l'ordre d'] offrir [les sacrifices], le sacrifice pour le péché précède l'holocauste ; c'est ce que nous avons appris dans [Masehet] Zevahim, au chapitre "Kol Hatodir". 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

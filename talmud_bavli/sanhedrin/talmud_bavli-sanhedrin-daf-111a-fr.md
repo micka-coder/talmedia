@@ -39,4 +39,4 @@ La Guemara relate que Rav <b>voyait que</b> Rav Kahana <b>s'était lavé</b> les
 <b>Lorsque le peuple juif a péché</b> dans le péché des espions et que Moïse a demandé à Dieu de lui pardonner, le Saint, Béni soit-Il, <b>a dit à</b> Moïse : <b>Ne M'as-tu pas dit</b> que l'attribut de <b>doux à la colère</b> est <b>pour les justes</b> seulement ? Ils ne sont pas dignes d'expiation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

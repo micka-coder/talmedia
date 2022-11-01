@@ -36,4 +36,4 @@ La Gemara répond : <b>Ce verset</b>, qui mentionne mille générations, est com
 Il arriva qu'il y avait <b>ces deux étudiants qui étaient assis devant Rava,</b> et <b>l'un d'eux lui dit : Il m'a été lu en rêve : "Combien abondante est Ta bonté, que Tu as mise en réserve pour ceux qui Te craignent"</b> (Psaumes 31, 20). <b>Et l'on dit à</b> Rava : <b>On me l'a lu dans mon rêve : "Ainsi se réjouiront tous ceux qui se réfugient en Toi ; ils pousseront à jamais des cris de joie,</b> et Tu les abriteras ; <b>Que ceux aussi qui aiment Ton nom exultent en Toi"</b> (Psaumes 5:12). Rava <b>leur a dit : Vous êtes tous deux des Sages complètement justes.</b> Un <b>Sage,</b> le second rêveur, sert Dieu <b>par amour, et</b> un <b>Sage,</b> le premier rêveur, sert Dieu <b>par crainte.</b> Le rêve de chaque Sage correspondait à sa manière de servir Dieu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

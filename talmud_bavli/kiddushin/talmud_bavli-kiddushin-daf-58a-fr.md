@@ -48,4 +48,4 @@ Ulla <b>lui dit : </b> Tu as mal compris le cas de la mishna, car <b>ici</b> le 
 A propos de cette question, <b>Rabbi Ḥiyya bar Avin a demandé à Rav Huna :</b> Le <b>bénéfice de la discrétion a-t-il une valeur monétaire</b>, <b>ou n'a-t-il pas une valeur monétaire</b> ? Rav Huna lui <b>répondit : Tu l'as appris</b> dans la mishna : En ce qui concerne <b>celui qui fiance</b> une femme <b>avec des <i>terumot</i>, ou avec des dîmes, ou avec des cadeaux,</b> ou <b>avec l'eau de purification, ou avec les cendres</b> de la génisse rouge, elle est fiancée, et</b> ceci est vrai <b>même si</b> l'homme qui la fiance est <b>israélien.</b> Ceci indique que le bénéfice de la discrétion a une valeur monétaire. Rabbi Ḥiyya bar Avin <b>lui dit : Mais ne l'avons-nous pas établi,</b> conformément à l'opinion de Ulla, comme se référant <b>à un Israélite qui est entré</b> en possession de <b>produits non récoltés</b> en tant qu'héritage <b>de la maison du père de sa mère,</b> qui était <b>un prêtre ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

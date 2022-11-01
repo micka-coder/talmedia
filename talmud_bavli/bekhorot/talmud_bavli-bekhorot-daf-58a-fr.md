@@ -60,4 +60,4 @@ C'est <b>comme nous l'avons appris</b> dans la mishna : Si <b>cinq</b> sont nés
 <b>Rava dit : Selon la déclaration de ben Azzai,</b> si <b>cinq</b> animaux <b>sont nés en Av et cinq</b> animaux sont nés <b>en Elul et cinq</b> animaux sont nés <b>en Tishrei,</b> le propriétaire les <b>rassemble</b> tous <b>dans un enclos pour la dîme,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

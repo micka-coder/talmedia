@@ -72,4 +72,4 @@ La mishna relate que l'homme l'a alors <b>attendue</b> jusqu'à ce que <b>elle s
 La Guemara répond : <b>Rava dit :</b> Ce n'est <b>pas difficile. Ici,</b> dans la mishna, où il est dit qu'on ne peut pas se blesser, il est précisé <b>en ce qui concerne</b> le fait d'infliger une <b>blessure physique réelle,</b> alors que <b>là,</b> dans la <i>baraïta</i>, où il est dit qu'il est permis de se blesser, il est précisé <b>en ce qui concerne</b> le fait de causer une <b>humiliation</b> à soi-même. La Guemara demande : <b>Mais</b> la décision de Rabbi Akiva dans <b>la mishna est</b> énoncée <b>en ce qui concerne</b> le fait de causer une <b>humiliation,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

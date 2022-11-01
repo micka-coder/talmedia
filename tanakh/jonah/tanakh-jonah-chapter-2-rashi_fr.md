@@ -35,7 +35,7 @@ Et j'ai dit... <b>La terre - ses barreaux sont fermés sur moi</b> Heb. בַּע
 <b>Pour le salut du Seigneur</b> - Vœux d'offrandes de paix et d'actions de grâces, je paierai, pour le salut du Seigneur. <b>Pour le salut</b> Héb. יְשׁוּעָתָה, comme לִישׁוּעָה, pour le salut. Cf. (Ps. 44, 27) " Lève-toi pour notre secours (עֶזְרָתָה) ", équivalent à לְעֶזְרָה.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Un énorme poisson</b> - C'était un mâle, et il se tenait là avec de la place, de sorte qu'il ne pensait pas à prier. Le Saint, béni soit-Il, fit un signe au poisson, et celui-ci le recracha dans la bouche d'une femelle, qui était pleine d'embryons, et il y avait foule, et il pria là, comme il est dit : (verset 2) "du ventre du poisson (הַדָּגָה)." [tiré de <i>Pirk&amp;d'Rabbi Eliezer</i> ch. 10, d'après <i>Yalkut Shimoni</i> ; <i>Midrash Yonah</i>, deuxième version, <i>Otzar Medrashim</i> p.219]. <b>[Et l'Eternel désigna</b> - Ces seize jours où Israël manquait de la manne, puisqu'il n'en avait pas mangé pendant quarante ans complets - Dieu prit cette manne et soutint le poisson pour que Jonas ne soit pas digéré dans ses intestins, et Jonas, lui aussi, mangea en son sein de cette manne. Par conséquent, il est dit וַיְמַן, les lettres מָן י "ו seize [jours de] manne. De même, וַיְמַן קיקָיוֹן, et Il désigna un kikayon, car il mangea quatre omers ; il est donc dit quatre fois וַיְמַן (4, 6 et suivants). Et en grec, la manne est appelée "kika". C'est pour cette raison qu'il est précisé : קִיק יָוָן ; c'est-à-dire la manne en grec. -[<i>Sod Mesharim</i>]
 
@@ -72,4 +72,4 @@ Et j'ai dit... <b>La terre - ses barreaux sont fermés sur moi</b> Heb. בַּע
 <b>Pour le salut du Seigneur</b> - Vœux d'offrandes de paix et d'actions de grâces, je paierai, pour le salut du Seigneur. <b>Pour le salut</b> Héb. יְשׁוּעָתָה, comme לִישׁוּעָה, pour le salut. Cf. (Ps. 44, 27) " Lève-toi pour notre secours (עֶזְרָתָה) ", équivalent à לְעֶזְרָה.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

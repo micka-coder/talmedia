@@ -57,4 +57,4 @@ La Guemara demande : <b>Et</b> comment <b>Rabbi Shimon</b> déduit-il cette <i>h
 La Guemara explique : <b>Non,</b> le verset est <b>nécessaire</b> pour enseigner que le bouc n'expie pas pour lui dans un cas <b>où il a pris conscience</b> de sa transgression <b>vers le coucher du soleil</b> avant le début de Yom Kippour et n'a pas pu apporter son offrande avant Yom Kippour. Dans un tel cas, il pourrait <b>entrer dans votre esprit de dire</b> que <b>jusqu'à ce qu'il apporte</b> son offrande glissante le jour après Yom Kippour,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

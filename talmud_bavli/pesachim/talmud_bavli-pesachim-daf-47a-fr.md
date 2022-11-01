@@ -24,4 +24,4 @@ La Gemara demande : <b>Et selon Rabban Shimon ben Gamliel, qui a dit au nom de R
 <b>Rav Ḥisda a envoyé</b> une question <b>à Rabba avec Rav Aḥa bar Rav Huna : Est-ce qu'on dit</b> le principe : <b>Depuis, etc. N'avons-nous pas appris</b> dans une mishna : <b>Il existe</b> un cas où l'on <b>plante un sillon et où l'on est responsable</b> de la violation de <b>huit interdits</b> par ce seul acte ? La mishna explique que cela s'applique à <b>celui qui laboure avec un bœuf et un âne,</b> violant ainsi l'interdiction : "Tu ne laboureras pas avec un bœuf et un âne ensemble" (Deutéronome 22:10), <b>et ils étaient consacrés,</b> dans ce cas, labourer avec eux constitue un abus de biens consacrés. Si son labour aide la croissance des <b>cultures vivrières dans une vigne,</b> il a transgressé une troisième interdiction.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

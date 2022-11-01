@@ -45,4 +45,4 @@ Le <i>baraita</i> explique : Puisque le verset a inversé les termes de la claus
 La Guemara demande : <b>Mais</b> est-ce que <b>Rabbi Yishmael soutient</b> que le fait de ne pas <b>évacuer</b> le sang d'une offrande pour le péché d'un oiseau disqualifie</b> l'offrande, comme l'a expliqué Rav Pappa ? <b>Mais l'école de Rabbi Yishmael a enseigné :</b> Le verset dit : "Il fera l'aspersion du sang du sacrifice pour le péché sur le côté de l'autel ; <b>et le reste du sang sera pressé</b> au pied de l'autel ; c'est un sacrifice pour le péché" (Lévitique 5:9). Cela signifie : <b>Et le reste sera essoré,</b> c'est-à-dire qu'il ne faut l'essorer que s'il reste du sang.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -69,4 +69,4 @@ La Guemara revient sur la question de l'immersion sans intention. <b>Quelles son
 La Guemara poursuit sa discussion sur la dispute entre Rabbi Natan et les rabbins. <b>Rava a dit :</b> Si l'on <b>abattait</b> une <b>génisse rouge et</b> dans la même action <b>abattait un autre animal</b> en même temps <b>qu'elle, tout le monde est d'accord</b> que la génisse rouge est <b>disqualifiée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

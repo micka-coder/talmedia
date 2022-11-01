@@ -24,4 +24,4 @@ Il a été enseigné dans la mishna <b>comment on suspendait et écorchait</b> l
 Il a également été déclaré dans la mishna : <b>Le premier groupe est sorti</b> de la cour du Temple avec leurs agneaux pascals. <b>Il a été enseigné</b> dans une <i>baraita</i> : <b>Chacun plaçait son agneau pascal dans sa peau et le jetait</b> sur son épaule <b>derrière lui</b> et le transportait chez lui de cette façon. <b>Rav Ilish a dit :</b> Ils le portaient chez eux à la manière des <b>marchands arabes [<i>tayya'ut</i>].</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

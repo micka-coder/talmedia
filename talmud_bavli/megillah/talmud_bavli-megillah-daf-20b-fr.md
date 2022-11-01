@@ -51,4 +51,4 @@ Corrélativement, toutes les mitzvot qui doivent être accomplies la nuit peuven
 <b>Et</b> en ce qui concerne <b>le fait de donner au <i>sota</i> à boire</b> des eaux amères, ceci <b>est dérivé</b> d'une analogie verbale entre une instance du mot <b>"Torah"</b> et une autre instance du mot <b>"Torah." Il est écrit ici</b> à propos d'un <i>sota</i> : <b>"Et le prêtre exécutera sur elle toute cette Torah"</b> (Nombres 5:30), <b>et il est écrit là</b> à propos du jugement : <b>Selon la Torah, qu'ils t'enseigneront, et selon le jugement,</b> qu'ils te diront" (Deutéronome 17:11).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

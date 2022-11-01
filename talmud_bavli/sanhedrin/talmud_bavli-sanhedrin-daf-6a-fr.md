@@ -30,4 +30,4 @@ La Guemara suggère : <b>Disons</b> qu'il y a <b>trois</b> avis de <b><i>tanna'i
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 1:2-8) : <b>De même que le jugement</b> est effectué <b>par trois</b> juges, <b>ainsi</b> aussi, la <b>médiation</b> est effectuée <b>par trois</b> juges.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

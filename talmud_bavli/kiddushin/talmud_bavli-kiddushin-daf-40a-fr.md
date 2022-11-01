@@ -63,4 +63,4 @@ La Gemara répond : Ce n'est <b>pas difficile,</b> car <b>cette</b> source, qui 
 <b>Les Sages ont enseigné : Toujours</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

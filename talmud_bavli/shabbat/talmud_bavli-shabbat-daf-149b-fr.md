@@ -45,4 +45,4 @@ La Gemara demande : <b>D'où peut-on <b>inférer</b> que ce</b> terme utilisé d
 Sur une note connexe, le verset dit : " Tu reprendras cette parabole contre le roi de Babylonie et tu diras : <b>Comment l'oppresseur a-t-il cessé. L'exacteur d'or a cessé"</b> (Isaïe 14:4). <b>Rav Yehuda a dit</b> que <b>Rav a dit :</b> Le sens de ce verset est que <b>cette nation qui a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

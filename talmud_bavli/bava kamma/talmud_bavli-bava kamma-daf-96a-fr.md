@@ -33,4 +33,4 @@ En revanche, si quelqu'un a volé à un autre des <b>billes de bois et les a fa�
 <b>Rav Pappa soulève un dilemme : quelle est</b> la <i>halakha</i> si <b>la <b>feuille jumelle</b> centrale s'est fendue,</b> c'est-à-dire que cela est considéré comme un changement par lequel un <i>lulav</i> volé serait acquis ? La Gemara cite une preuve : <b>Venez</b> et <b>entendez ce</b> que <b>Rabbi Matun dit</b> que <b>Rabbi Yehoshua ben Levi dit :</b> Si <b>la</b> <b>feuille jumelle centrale a été enlevée,</b> le <i>lulav</i> <b>est impropre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

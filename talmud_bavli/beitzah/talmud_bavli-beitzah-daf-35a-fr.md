@@ -39,4 +39,4 @@ En ce qui concerne la décision halakhique dans ce cas, <b>lorsque Ravin est ven
 La Guemara note que chacun de ces détails enseigne une nouvelle <i>halakha</i>. Comment cela ? <b>Shabbat</b> vient <b>exclure</b> l'avis de <b>Hillel, comme il est enseigné</b> dans une <i>baraita</i> : <b>Celui qui cueille des fruits d'un endroit à l'autre</b> afin de <b>les récolter</b>, <b>et le jour sanctifié sur eux,</b> c'est-à-dire Shabbat commencé, <b>Rabbi Yehuda dit : Hillel interdit</b> la nourriture du cueilleur <b>lui-même.</b> En d'autres termes, Hillel seul interdit de manger le fruit dans ce cas jusqu'à ce que sa dîme ait été séparée, car il estime que le début de Chabbat lui-même fait que le fruit est considéré comme achevé. Rabbi Yoḥanan enseigne que la <i>halakha</i> dans ce cas n'est pas conforme à l'opinion de Hillel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

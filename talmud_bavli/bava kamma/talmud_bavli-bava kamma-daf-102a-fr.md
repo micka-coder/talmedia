@@ -51,7 +51,7 @@ La Guemara demande : <b>Et</b> étant donné qu'il s'agit d'une dispute et par l
 § La Guemara note une autre dispute concernant celui qui s'écarte des termes d'un accord. <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> (<i>Bava Metzia</i> 4:20) : <b>Celui qui donne de l'argent à son agent</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le bois non spécifié existe pour le combustible,</b> c'est-à-dire le charbon de bois, donc son bénéfice suit sa consommation.
 
@@ -104,7 +104,7 @@ La Guemara demande : <b>Et</b> étant donné qu'il s'agit d'une dispute et par l
 § La Guemara note une autre dispute concernant celui qui s'écarte des termes d'un accord. <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> (<i>Bava Metzia</i> 4:20) : <b>Celui qui donne de l'argent à son agent</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le bois non spécifié existe pour le combustible,</b> c'est-à-dire le charbon de bois, donc son bénéfice suit sa consommation.
 
@@ -157,7 +157,7 @@ La Guemara demande : <b>Et</b> étant donné qu'il s'agit d'une dispute et par l
 § La Guemara note une autre dispute concernant celui qui s'écarte des termes d'un accord. <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> (<i>Bava Metzia</i> 4:20) : <b>Celui qui donne de l'argent à son agent</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Le bois non spécifié existe pour le combustible,</b> c'est-à-dire le charbon de bois, donc son bénéfice suit sa consommation.
 
@@ -210,4 +210,4 @@ La Guemara demande : <b>Et</b> étant donné qu'il s'agit d'une dispute et par l
 § La Guemara note une autre dispute concernant celui qui s'écarte des termes d'un accord. <b>Les Sages ont enseigné</b> dans la <i>Tosefta</i> (<i>Bava Metzia</i> 4:20) : <b>Celui qui donne de l'argent à son agent</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

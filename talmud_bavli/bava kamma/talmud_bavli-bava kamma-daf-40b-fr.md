@@ -75,4 +75,4 @@ La Gemara répond : <b>Non, c'est en ce qui concerne</b> l'animal mis à <b>mort
 <b>Abaye a dit : En fait,</b> il fait référence à un cas <b>où l'animal s'est <b>engagé dans la bestialité avec elle mais ne l'a pas tuée,</b> et il est encore notable que son propriétaire n'est pas tenu de payer une rançon, <b>comme</b> la femme <b>a été traduite en justice, et on l'a exécutée</b> pour sa transgression. <b>Ce que vous dites</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

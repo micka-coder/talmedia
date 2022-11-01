@@ -26,4 +26,4 @@
 <b>portails éternels</b> Portails dont la sainteté est éternelle.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

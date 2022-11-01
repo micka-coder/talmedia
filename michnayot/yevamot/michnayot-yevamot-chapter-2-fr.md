@@ -29,5 +29,5 @@ Un homme qui apporte un acte de divorce d'un pays situé au-delà de la mer et q
 ### michna 10
 Un sage qui a déclaré une femme interdite à son mari en raison d'un vœu ne doit pas l'épouser lui-même. Cependant, si une femme a fait une déclaration de refus ou a accompli la halitzah en sa présence, il peut l'épouser, puisqu'il [fait partie d'un] tribunal. Si l'un d'entre eux avait des épouses qui sont décédées [par la suite], [les autres femmes] sont autorisées à les épouser. Si [les femmes] étaient mariées à d'autres et qu'elles ont divorcé ou sont devenues veuves, elles peuvent se marier avec elles. Elles sont autorisées à épouser leurs fils ou leurs frères.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

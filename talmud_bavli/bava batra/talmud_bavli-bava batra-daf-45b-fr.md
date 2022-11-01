@@ -27,4 +27,4 @@ Abaye lui a demandé : <b>Mais tu es</b> celui <b>qui a dit :</b> Dans le cas de
 Rava poursuit avec une analyse de cette <i>baraita</i> : <b>Quelles sont les circonstances</b> du cas discuté dans cette <i>baraita</i> ? <b>Si</b> c'est un cas <b>où il y a des témoins</b> qui ont vu le transfert de l'objet, <b>voyons ce que les témoins disent</b> à propos de la redevance, car ils ont vraisemblablement entendu les détails de l'arrangement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

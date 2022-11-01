@@ -18,4 +18,4 @@ Jusqu'à présent, il a été admis que Rabbi Yosseï interdit clairement la pro
 La Gemara demande : <b>Si oui, quel</b> besoin y avait-il pour la mishna <b>de dire</b> quoi que ce soit ? S'ils ont fait une stipulation explicite à cet effet, alors le prêtre a certainement le pouvoir de remplir leur condition. La Gemara répond : Le mishna nous <b>enseigne néanmoins</b> que la loi est conforme à l'opinion de <b>Rav Ḥisda, comme l'a dit Rav Ḥisda : Les nids d'oiseaux deviennent désignés</b> comme holocaustes ou offrandes pour le péché <b>uniquement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

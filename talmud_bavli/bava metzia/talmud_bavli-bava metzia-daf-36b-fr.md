@@ -39,4 +39,4 @@ La Gemara demande : <b>Si oui, dites la première clause</b> de la mishna : Si l
 § La mishna enseigne que <b>Rabbi Yosei a dit : Comment l'autre</b> partie <b>fait-elle des affaires avec</b> et profite-t-elle de la <b>vache d'un autre ? Rav Yehuda dit</b> que <b>Shmuel dit : </b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Yosei. Rav Shmuel bar Yehuda a dit à Rav Yehuda : Tu nous as dit au nom de Shmuel</b> que <b>Rabbi Yosei était en désaccord</b> avec la première <i>tanna</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

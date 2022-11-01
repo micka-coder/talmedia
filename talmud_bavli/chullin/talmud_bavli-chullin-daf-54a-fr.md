@@ -48,4 +48,4 @@ guemara La mishna commence : Et ceux-ci sont cachers, alors que la mishna préc�
 La Guemara explique : <b>Par rapport à quel</b> cas <b>ils sont en désaccord ?</b> Ils sont en désaccord <b>par rapport</b> à la déclaration <b>de Rav Mattana, car Rav Mattana dit : Cette tête du fémur qui était</b> complètement <b>disloquée</b> rend l'animal <b>un <i>tereifa</i>.</b> Selon <b>Rabbi Yoḥanan,</b> qui <b>dit</b> que la phrase : <b>Ce sont des <i>tereifot</i>,</b> est signifiée <b>spécifiquement,</b> le <i>tanna</i> <b>enseignant</b> la liste des <b><i>tereifot</i> et enseignant</b> par la suite : <b>C'est le principe,</b> pour ajouter des cas qui n'étaient pas énoncés explicitement ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

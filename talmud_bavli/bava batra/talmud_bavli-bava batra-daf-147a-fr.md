@@ -48,4 +48,4 @@ La Guemara répond : Ceci n'est <b>pas difficile. Ceci,</b> le vent d'est, est <
 Il <b>est enseigné</b> dans une <i>baraita</i> : <b>Abba Shaul dit :</b> Si <b>la fête de <i>Shavuot</i></b> est <b>un jour clair</b>, c'est <b>un bon signe pour toute l'année. Rav Zevid dit :</b> En ce qui concerne <b>ce premier jour de Rosh HaShana, si</b> il fait <b>chaud, toute l'année</b> sera <b>chaud,</b> mais <b>si</b> il fait <b>froid, toute l'année</b> sera <b>froid.</b> La Gemara demande : <b>Quelle différence y a-t-il</b> si on le sait ou pas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

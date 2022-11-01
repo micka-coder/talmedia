@@ -57,4 +57,4 @@ La Guemara ajoute : <b>Et même Rav Mattana statue</b> que la progéniture est <
 <b>Rav Yosef a dit : Le Maître</b> qui est responsable de la diffusion <b>de</b> cette <b><i>halakha</i></b> que la progéniture d'un esclave et d'une femme juive n'est pas un <i>mamzer</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

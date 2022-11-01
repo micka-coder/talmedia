@@ -39,4 +39,4 @@ La Guemara demande : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <
 <b>Shammaï vint voir</b> Yonatan ben Uzziel <b>avec son bâton et son sac de voyage</b> pour protester contre le fait qu'il ait donné une partie des biens aux enfants de l'homme contre la volonté du défunt. Yonatan ben Uzziel <b>s'adressa à lui : Shammai, si tu peux reprendre</b> les biens <b>que j'ai vendus</b> aux acheteurs <b>et</b> les biens <b>que j'ai consacrés</b> au trésor du Temple, <b>tu peux reprendre ce que j'ai rendu</b> aux enfants de l'homme également ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

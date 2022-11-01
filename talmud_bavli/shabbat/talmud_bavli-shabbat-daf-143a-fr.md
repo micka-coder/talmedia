@@ -42,4 +42,4 @@ La Guemara relate que <b>Shmuel</b> les <b>transportait avec le pain.</b> Les le
 <b>Rav Sheshet se débarrassait</b> des noyaux <b>avec sa langue. Rav Pappa les éliminait derrière le lit</b> sur lequel il s'asseyait en mangeant car il ne voulait pas les déplacer d'une autre manière. <b>On dit de Rabbi Zekharya ben Avkolas qu'il tournait son visage</b> vers l'<b>arrière du lit et les jetait.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

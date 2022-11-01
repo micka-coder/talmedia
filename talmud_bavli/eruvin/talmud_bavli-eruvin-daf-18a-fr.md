@@ -84,4 +84,4 @@ La Guemara répond : Ceci doit être interprété homilétiquement, <b>conformé
 <b>Alternativement,</b> le verset : <b>Et le Seigneur Dieu construisit,</b> peut être compris comme une description de la forme de base d'Eve, comme <b>Rav Ḥisda l'a dit, et certains disent que c'est enseigné dans une <i>baraita</i>:</b> Ce verset <b>enseigne que le Saint, Béni soit-Il, a construit Eve comme la structure</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

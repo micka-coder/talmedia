@@ -45,4 +45,4 @@ La Gemara répond : <b>Venez</b> et <b>entendez</b> une résolution de ce dilemm
 <b>Et Rabbi Elazar</b> a en outre <b>dit : Tous</b> les dignitaires n'adoreront pas Dieu à l'ère messianique <b>en se levant, et tous</b> ne le feront pas <b>en s'inclinant.</b> Au contraire, les <b>rois</b> serviront Dieu <b>en se levant, et les ministres en s'inclinant.</b> La Guemara développe : <b>Les rois en se levant, comme il est écrit : "Ainsi parle le Seigneur, le Rédempteur d'Israël, son Saint,</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

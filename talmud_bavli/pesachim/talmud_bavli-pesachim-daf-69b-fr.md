@@ -45,4 +45,4 @@ En ce qui concerne l'offrande supplémentaire elle-même, le <b>sacrifice de pai
 <b>Rav Ashi a dit : Apprenez de ceci</b> que <b>le sacrifice de paix de la fête du quatorze</b> de Nisan, qui vient avec l'agneau pascal et qui fait l'objet de notre mishna, par opposition au sacrifice de paix de la fête qui est apporté le premier jour de Pessah et qui est appelé le sacrifice de paix de la fête du quinze,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

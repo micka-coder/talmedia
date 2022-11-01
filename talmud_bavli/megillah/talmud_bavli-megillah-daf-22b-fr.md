@@ -57,4 +57,4 @@ La Gemara demande : Est-ce que c'est <b>ce qui a causé</b> Levi à devenir boit
 Au sujet de l'inclinaison, <b>Rav Ḥiyya bar Avin a dit : J'ai vu Abaye</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

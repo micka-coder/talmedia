@@ -12,4 +12,4 @@ La Gemara demande : <b>Et résolvons</b> ce dilemme <b>pour eux à partir de ce 
 La Gemara rejette cette affirmation : <b>Si</b> la preuve est <b>de là, j'aurais dit : Cela s'applique</b> uniquement à un type de <b>portage qui n'invalide pas l'expiation,</b> car même si les membres ne sont pas portés jusqu'à l'autel, l'expiation est néanmoins réalisée par l'aspersion du sang. Le rite est valide même si les membres de l'offrande quotidienne ne sont pas du tout brûlés. <b>Cependant, en ce qui concerne</b> le type de <b>portage qui invalide l'expiation,</b> par exemple, le portage du sang jusqu'à l'autel, <b>non,</b> peut-être faut-il le faire spécifiquement avec la main droite. Rav Sheshet nous <b>enseigne donc</b> à partir de la mishna que bien que le port de la cuillère soit nécessaire à la mitzva, le rite est néanmoins valide si elle est portée dans la main gauche.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

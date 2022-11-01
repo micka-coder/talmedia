@@ -60,4 +60,4 @@ Le verset indique : <b>"Comme Josué était près de Jéricho, il leva les yeux 
 La Gemara répond : <b>C'est différent ici, car</b> l'étranger <b>a dit à</b> Josué : <b>"Je suis le capitaine de l'armée du Seigneur, je suis venu maintenant."</b> Le Gemara demande : <b>Mais peut-être</b> qu'il était en fait un démon et <b>qu'il mentait ?</b> La Gemara répond : Il <b>est appris</b> comme une tradition <b>que</b> les démons <b>ne prononcent pas le nom du Ciel en vain,</b> et puisque ce personnage a mentionné le nom du Ciel, il devait dire la vérité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

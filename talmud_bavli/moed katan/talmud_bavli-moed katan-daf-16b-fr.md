@@ -87,4 +87,4 @@ L'expression : <b>"Contre huit cents personnes, qu'il tua en une seule fois"</b>
 La Guemara revient sur les <i>halakhot</i> d'ostracisme et mentionne que <b>Rabbi Tanḥum, fils de Rabbi Ḥiyya, du village d'Akko, a dit</b> que <b>Rabbi Ya'akov bar Aḥa a dit</b> que <b>Rabbi Simlaï a dit, et</b> certains <b>disent</b> que cette tradition a été transmise de la manière suivante : <b>Rabbi Tanḥum a dit</b> que <b>Rav Huna a dit, et</b> d'autres <b>disent</b> que <b>Rav Huna lui-même</b> a fait cette déclaration sans la chaîne de transmission :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

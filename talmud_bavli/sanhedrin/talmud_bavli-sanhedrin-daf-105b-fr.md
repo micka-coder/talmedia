@@ -60,4 +60,4 @@ Il cherchait à dire que <b>ils n'auraient pas de rois de taille,</b> et il a di
 <b>Rabbi Shmuel bar Naḥmani dit</b> que <b>Rabbi Yonatan dit : Quel</b> est le sens de ce <b>qui est écrit : "Fidèles sont les blessures d'un ami ; mais les baisers d'un ennemi sont importuns"</b> (Proverbes 27.6) ? <b>Mieux vaut la malédiction qu'Ahijah le Shilonite a jetée sur le peuple juif que la bénédiction que Balaam le méchant lui a donnée. Ahijah le Shilonite a maudit Israël avec un roseau, comme il est dit : "Car le Seigneur frappera Israël comme on secoue un roseau dans l'eau"</b> (I Rois 14:15). Il y a un aspect de bénédiction dans cette malédiction, car il disait qu'ils seront <b>comme un roseau</b> qui <b>se tient dans un endroit</b> près de <b>l'eau,</b> car l'eau le soutient, <b>et sa tige</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

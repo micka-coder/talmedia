@@ -66,4 +66,4 @@ La Gemara fait remarquer : <b>Venez</b> et <b>voyez quelle est la différence</b
 §La mishna enseigne : <b>Et la peau de la tête</b> d'un jeune veau a le même statut halakhique que la chair en ce qui concerne l'impureté. La Gemara demande : <b>Et</b> pendant <b>quelle durée un veau</b> est considéré comme <b>jeune ? Ulla répond :</b> Il est considéré comme jeune dès <b>sa</b> première <b>année d'âge. Rabbi Yoḥanan dit :</b> Pendant <b>aussi longtemps que</b> le veau est <b>suceur. Un dilemme a été soulevé devant</b> les Sages : A propos de <b>quel</b> cas <b>parle Ulla ?</b> Se réfère-t-il à un veau qui est dans <b>sa</b> première <b>année d'âge et qui est</b> encore <b>suceur,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

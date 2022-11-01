@@ -15,4 +15,4 @@ Nous avons appris dans la mishna que <b>Rabbi Yehuda permet</b> de circoncire un
 <b>Et d'où tirons-nous</b> <b>qu'il n'est pas valorisé ? Comme il a été enseigné</b> dans le <i>Sifra</i>, le midrash halakhique sur le Lévitique, à propos du verset : "Alors ton évaluation sera pour <b>le mâle</b> de l'âge de vingt ans jusqu'à l'âge de soixante ans, ton évaluation sera de cinquante shekels d'argent, après le shekel du Sanctuaire" (Lévitique 27:3). Les Sages en ont déduit : " Le mâle " signifie le mâle défini <b>mais pas un <i>tumtum</i> ou un hermaphrodite.</b> J'ai <b>pourrais</b> penser que ceux-ci <b>ne seront pas</b> évalués selon <b>l'évaluation d'un homme, mais seront</b> évalués selon <b>l'évaluation d'une femme.</b> Par conséquent, <b>le verset dit : <b>L'homme,</b> et dans le verset suivant : <b>Et si c'est une femme,</b> alors ton évaluation sera de trente shekels" (Lévitique 27:4), indiquant : Seulement <b>un mâle défini</b> ou <b>une femelle définie, mais pas un <i>tumtum</i> ou un hermaphrodite,</b> qui sont catégorisés comme ni mâle ni femelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -142,4 +142,4 @@
 <b>De peur que l'on ne dise de moi.</b> De peur que l'on ne dise à mon sujet.</sup>18</sup><i class="footnote"><span><b>לי</b></span> n'est pas traduit par "à moi", mais par "à mon sujet". </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

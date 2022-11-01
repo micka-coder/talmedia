@@ -66,4 +66,4 @@
 <b>Parce qu'ils manqueront</b> Leur inquiétude et leur désarroi seront dus au fait qu'ils manqueront de pain et d'eau pendant les jours du siège, et ils craindront que l'approvisionnement ne soit entièrement épuisé.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

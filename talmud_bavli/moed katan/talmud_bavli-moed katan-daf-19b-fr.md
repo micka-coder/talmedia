@@ -39,4 +39,4 @@ La Gemara demande : <b>Et là,</b> en ce qui concerne un nazirite, <b>d'où déd
 Rava <b>lui dit :</b> La Fête <b>ne compte pas</b> dans les trente jours. Abaye <b>a soulevé une objection à</b> l'opinion de Rava à partir de la <i>baraïta</i> suivante : Si <b>quelqu'un enterre son parent décédé</b> <b>deux jours avant une Fête, il doit compter cinq jours</b> de deuil <b>après la Fête, et</b> pendant cette période <b>son travail est effectué</b> pour lui <b>par d'autres. Et ses serviteurs et servantes font</b> ce travail <b>en privé à l'intérieur de sa maison, et le public n'a pas besoin de s'occuper de lui</b> en venant le consoler,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

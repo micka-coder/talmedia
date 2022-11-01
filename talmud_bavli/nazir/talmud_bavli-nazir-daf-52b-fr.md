@@ -33,4 +33,4 @@ La Gemara rejette cette preuve : On ne peut établir une <i>halakha</i> généra
 <b>Rava a dit : Venez</b> et <b>entendez</b> une résolution de la mishna, qui enseigne : <b>La colonne vertébrale et le crâne. Et s'il entre dans ton esprit</b> que <b>un quart-</b><i>kav</i> <b>des os qui proviennent d'une colonne vertébrale et d'un crâne est</b> plus <b>stringent</b> que les autres membres et imprime une impureté rituelle, <b>laissons</b> le <i>tanna</i> <b>enseigner</b> cette <i>halakha</i> d'une manière qui présente une plus grande nouveauté, en déclarant : <b>Pour un quart-</b> <i>kav</i> <b>des os qui proviennent de la colonne vertébrale</b> et du crâne.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

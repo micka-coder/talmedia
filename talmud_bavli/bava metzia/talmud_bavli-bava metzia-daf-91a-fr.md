@@ -39,4 +39,4 @@ Peut-on <b>ne pas</b> déduire d'ici <b>par inférence qu'en ce qui concerne les
 <b>Rav Yehuda dit :</b> Si l'on désire accoupler un animal d'une <b>espèce avec</b> un animal <b>de sa</b> propre <b>espèce,</b> il est <b>permis d'insérer</b> l'organe mâle dans la femelle <b>comme un pinceau dans un tube, et il n'y a même pas</b> un souci <b>du à la licence</b> et aux pensées immorales ici. <b>Quelle est la raison</b> de cette décision indulgente ? C'est parce qu'il est <b>occupé par son travail,</b> et donc son esprit ne va pas entretenir des pensées pécheresses. <b>Rav Aḥadvoi bar Ami soulève une objection</b> contre cela :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

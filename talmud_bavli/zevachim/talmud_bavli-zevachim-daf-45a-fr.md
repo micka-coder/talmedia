@@ -51,4 +51,4 @@ La Guemara répond que Rabbi Yosei <b>soutient</b> que <b>lorsque</b> la <i>hala
 La Guemara continue d'analyser l'opinion de Rabbi Yosei. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne le <b>sang devenu impur et</b> un prêtre l'a <b>éclaboussé</b> sur l'autel, s'il l'a fait <b>sans le vouloir,</b> l'offrande est <b>acceptée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

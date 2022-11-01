@@ -72,4 +72,4 @@ La Gemara répond : <b>Voici</b> ce que dit la mishna <b>:</b> Les plaideurs peu
 La Guemara relate l'histoire d'un collecteur d'impôts : <b>Le père de Rabbi Zeira a collecté</b> des impôts pendant <b>treize ans. Lorsque le chef</b> collecteur d'impôts de la région du <b>Fleuve</b> <b>venait en ville,</b> le père de Rabbi Zeira préparait les habitants à l'avance. <b>Quand il verrait les rabbins, il leur dirait</b> comme un indice : <b>"Venez, mon peuple, entrez dans vos chambres,</b> et fermez vos portes derrière vous ; cachez-vous un petit moment jusqu'à ce que l'indignation soit passée" (Isaïe 26:20). Il disait cela pour que le chef des collecteurs d'impôts ne voit pas les rabbins, et qu'il soit possible de baisser les impôts de la ville. <b>Quand il verrait</b> les <b>habitants ordinaires de la ville, il leur dirait</b> : Prenez garde, car <b>le chef</b> collecteur d'impôts de la région du <b>Fleuve</b> <b>arrive dans la ville, et va maintenant égorger le père,</b> c'est-à-dire prendre l'argent de chacun, <b>avant le fils, et le fils avant le père.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

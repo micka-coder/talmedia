@@ -75,4 +75,4 @@ Cependant, si <b>l'herbe a poussé</b> de son propre chef <b>dans</b> la synagog
 <strong>GEMARA:</strong> <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : En ce qui concerne les <b>synagogues</b> : On ne doit pas agir à l'intérieur avec frivolité.</b> Par conséquent, <b>on ne doit pas y manger ; on ne doit pas non plus y boire ;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

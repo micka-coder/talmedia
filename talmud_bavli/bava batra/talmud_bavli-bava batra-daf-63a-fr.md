@@ -21,4 +21,4 @@ La Guemara conteste la <i>halakha</i> enseignée dans la <i>baraita</i> : <b>Pou
 <b>Reish Lakish a dit : C'est-à-dire</b> qu'en ce qui concerne celui <b>qui vend une maison à un autre et lui dit :</b> Je te vends cette maison <b>à condition que l'étage supérieur [<i>deyota</i>] soit à moi, l'étage supérieur est à lui.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

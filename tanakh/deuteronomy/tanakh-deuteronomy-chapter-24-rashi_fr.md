@@ -83,5 +83,5 @@
 ### passuk 21
 <b>Vous ne pouvez pas récolter de vignes pygmées.</b> Si vous découvrez des vignes pygmées, vous ne pouvez pas les prendre. Que sont les vignes pygmées ? Tout ce qui n'a pas l'épaule et les gouttelettes. Si elle a l'un ou l'autre, alors elle appartient au propriétaire. J'ai vu dans le Talmud de Jérusalem, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 'Qu'est-ce que l'épaule ? des grappes les unes sur les autres. Les gouttelettes ? Celles qui pendent de la tige principale.' 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

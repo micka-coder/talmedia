@@ -51,4 +51,4 @@ La Gemara réfute cette suggestion : <b>Ceci</b> n'est <b>pas difficile,</b> car
 <b>La <i>baraita</i> fait plutôt référence à <b>une <i>sota</i></b> qui a eu des relations <b>avec le fornicateur,</b> se rendant ainsi définitivement interdite à son mari, puisqu'elle était alors une femme mariée. Pourtant, cela aussi laisse perplexe : <b>Est-ce une interdiction légère ? C'est une interdiction sévère, car il s'agit</b> de l'interdiction proscrivant <b>une femme mariée,</b> l'une des plus graves de toutes les interdictions.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara relate un autre fait étayant l'affirmation selon laquelle les justes
 <b>Les Sages ont enseigné :</b> Le <b>enchanter</b> mentionné dans le verset (Deutéronome 18:10) <b>est</b> celui qui se fie à des signes superstitieux, par exemple, <b>celui qui dit :</b> Si son <b>pain est tombé de sa bouche,</b> c'est un mauvais signe pour lui ; ou : Si sa <b>bâton est tombé de sa main,</b> c'est un mauvais signe ; ou : Si son <b>fils l'appelle par derrière,</b> c'est un signe qu'il doit revenir de son voyage ; ou : Si <b>un corbeau l'appelle,</b> ou si <b>un cerf le bloque sur le chemin,</b> ou si <b>un serpent est à sa droite, ou</b> si <b>un renard est à sa gauche,</b> tout cela est mauvais signe. Un enchanteur est celui qui se fie à ces mauvais signes et qui, par conséquent, change sa ligne de conduite.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara demande : <b>Si tel est le cas,</b> même dans le cas d'une <b>masse d
 § <b>Les Sages ont enseigné :</b> Si un individu <b>est tombé dans la fosse aux lions, on ne peut témoigner à son sujet</b> qu'il est mort, car les lions pourraient ne pas l'avoir tué. S'il est tombé <b>dans une fosse remplie de serpents et de scorpions, on peut témoigner</b> de sa mort, puisqu'il est certain qu'ils l'ont tué. <b>Rabbi Yehuda ben Beteira dit : Même</b> s'il est tombé <b>dans une fosse remplie de serpents et de scorpions, on ne peut pas témoigner à son sujet</b> qu'il est mort, car <b>on est inquiet</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

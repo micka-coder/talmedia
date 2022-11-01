@@ -51,7 +51,7 @@ La Guemara revient à la question qui nous occupe : <b>Et en ce qui concerne ce 
 <b>Rav Ḥagga s'oppose à cet</b> avis entier concernant l'arrangement fait pour un débiteur : <b>Laissez</b> le créancier <b>dire au</b> débiteur : <b>Vos</b> besoins <b>ne sont pas jetés sur moi.</b> En d'autres termes, pourquoi devrais-je, moi qui t'ai prêté de l'argent, faire des allocations pour ta subsistance ? <b>Abaye lui répondit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara répond : <b>Non, l'agent</b> du <b>tribunal</b> est considéré <b>comme</b> le <b>créancier,</b> qui doit attendre à l'extérieur que le débiteur remette sa garantie.
 
@@ -104,4 +104,4 @@ La Guemara revient à la question qui nous occupe : <b>Et en ce qui concerne ce 
 <b>Rav Ḥagga s'oppose à cet</b> avis entier concernant l'arrangement fait pour un débiteur : <b>Laissez</b> le créancier <b>dire au</b> débiteur : <b>Vos</b> besoins <b>ne sont pas jetés sur moi.</b> En d'autres termes, pourquoi devrais-je, moi qui t'ai prêté de l'argent, faire des allocations pour ta subsistance ? <b>Abaye lui répondit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

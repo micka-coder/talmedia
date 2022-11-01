@@ -78,4 +78,4 @@ Rabba résout le dilemme de Rami bar Ḥama à partir de cette dernière preuve 
 De cette manière, Rabba a tenté de prouver que l'ordre correct de l'offrande de <i>omer</i> suivie des deux pains est nécessaire pour permettre l'utilisation du nouveau grain dans les offrandes de repas. La Guemara rejette cette preuve : <b>Vous tenez</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

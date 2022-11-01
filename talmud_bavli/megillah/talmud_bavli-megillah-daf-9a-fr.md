@@ -48,4 +48,4 @@ Ils ont également modifié le verset : "Parce que dans leur colère ils ont tu�
 Au lieu de : "Et la résidence des enfants d'Israël, qui ont résidé en Égypte, fut de quatre cent trente ans" (Exode 12:40), ce qui, lu littéralement, est imprécis, car ils ne sont pas restés en Égypte aussi longtemps, on écrit : <b>Et la résidence des enfants d'Israël, qui résidèrent en Égypte et dans d'autres pays, fut de quatre cents ans.</b> Au lieu de : <b>Et il envoya les jeunes des enfants d'Israël, qui apportaient les holocaustes</b> (Exode 24, 5), ce qui évoque la question de savoir pourquoi des jeunes hommes étaient envoyés pour accomplir ce service, ils ont écrit : <b>Et il envoya les élus [<i>za'atutei</i>] des enfants d'Israël.</b> Le même terme est à nouveau substitué quelques versets plus loin, rendant le verset : <b>Et sur les nobles des enfants d'Israël, il n'a pas posé sa main</b> (Exode 24:11), par : <b>Et sur les élus des enfants d'Israël, il n'a pas posé sa main.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

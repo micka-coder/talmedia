@@ -54,4 +54,4 @@ La Gemara conteste : <b>Si c'est le cas,</b> et que les Sages ont fait un tel d�
 La Gemara demande : <b>Et nous, </b> les Sages, <b>décrétons</b> à l'égard de son frère <b>sourd-muet</b> <b>en raison</b> d'une confusion entre lui et son frère halakhiquement <b>compétent</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

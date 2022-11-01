@@ -51,4 +51,4 @@ En résumé de cette <i>halakha</i>, la Gemara indique que <b>Rava a autorisé</
 La Gemara commente : <b>Et Rav Huna</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>, car Rav Huna a dit :</b> En ce qui concerne <b>celui qui n'a pas préparé un <i>eirouv tavshilin</i></b> la veille d'une Fête, les autres <b>peuvent cuire un pain</b> pour lui, et cuisiner une marmite</b> de nourriture <b>pour lui,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

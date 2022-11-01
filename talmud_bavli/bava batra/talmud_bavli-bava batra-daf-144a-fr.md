@@ -27,4 +27,4 @@ La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : si <b>son père a 
 <b>Mar Zutra dit : Ces trois questions ont été instituées par les Sages comme une <i>halakha</i> sans aucune explication</b> de leur processus, c'est-à-dire qu'ils ont institué ces textes en dépit du fait que le mécanisme par lequel ils fonctionnent n'est pas clair : <b>L'une</b> est <b>cette</b> <i>halakha</i> en ce qui concerne l'acquisition par le fils de la maison désignée pour ses noces. <b>Un autre</b> est celui <b>que Rav Yehuda dit</b> que <b>Shmuel dit : Celui qui rédige</b> un acte concédant <b>tous</b> ses biens à sa femme ne la rend qu'intendante</b> de ses biens, c'est-à-dire qu'il n'a l'intention que de la mettre en charge des biens et qu'elle ne les acquiert pas. <b>Un autre</b> est celui <b>que le Rav dit :</b> A l'égard de celui qui dit à un autre : <b>Je</b> ai <b>cent dinars en ta possession ; donne-les à untel,</b> si cela s'est produit <b>en présence</b> des <b>trois</b> parties, cette troisième personne <b>l'acquiert</b>, sans besoin de témoins ou d'un acte formel d'acquisition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

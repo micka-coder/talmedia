@@ -69,4 +69,4 @@ Si un prêtre <b>enlève la poignée</b> de farine, <b>et qu'une pierre, un grai
 La Guemara répond : <b>Il était nécessaire</b> pour la mishna d'enseigner cette <i>halakha</i> de cette manière <b>conformément</b> à l'avis de <b>Rabbi Shimon. Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit : De droit, l'offrande de repas d'un pécheur doit nécessiter de l'huile et de l'encens</b> comme les autres offrandes de repas, <b>afin que</b> le <b>pénitent n'en tire pas profit. Et pour quelle</b> raison ne nécessite-t-elle pas <b>l'huile et l'encens</b> ? Pour <b>que son offrande ne soit pas de qualité supérieure. Et</b> de même, <b>par droit</b> l'<b>offrande de péché de</b> <b>graisse interdite,</b> c'est-à-dire l'offrande apportée par celui qui a mangé à son insu la graisse interdite d'un animal domestiqué, <b>doit exiger des libations</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

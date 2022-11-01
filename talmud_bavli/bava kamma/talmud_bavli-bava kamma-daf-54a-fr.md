@@ -42,4 +42,4 @@ La Gemara répond : C'est pourquoi <b>le verset dit : "Un bœuf", mais pas une p
 <b>Rabbi Yoḥanan dit :</b> Il faut plutôt l'interpréter comme suit : <b>Un bœuf qui est</b> altéré en étant <b>sourd,</b> ou <b>un bœuf qui est un imbécile,</b> ou <b>un bœuf qui est</b> très <b>jeune.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

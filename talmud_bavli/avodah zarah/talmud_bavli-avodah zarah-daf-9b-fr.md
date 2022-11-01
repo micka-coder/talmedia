@@ -15,4 +15,4 @@
 § La Gemara raconte : Il y avait <b>un certain</b> billet à ordre <b>dans lequel était écrit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

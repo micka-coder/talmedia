@@ -18,4 +18,4 @@ Le cas a été porté devant <b>Rava,</b> qui <b>a dit : Sa femme lui est permis
 La Gemara commente : Il <b>est évident</b> que c'est le cas. Que vient donc nous apprendre Rava ? La Guemara répond : La décision de Rava est nécessaire, <b>de peur que l'on dise</b> que l'homme a effectivement <b>commis une transgression</b> avec la femme de l'autre homme, <b>et</b> la raison pour laquelle <b>il a dit au</b> mari qu'il ne devait pas manger et lui a sauvé la vie est <b>parce qu'il est préférable pour lui que le mari ne meure pas.</b> Ceci afin <b>que sa femme soit pour lui</b> comme il est dit dans le verset : <b>"Les eaux volées sont douces, et le pain mangé en secret est agréable"</b> (Proverbes 9:17). C'est-à-dire qu'une personne tire un plus grand plaisir du fruit défendu. Rava nous <b>enseigne donc</b> que cela n'est pas un souci. L'hypothèse est plutôt qu'il n'a pas encore réellement péché et qu'il a donc agi de manière appropriée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

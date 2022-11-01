@@ -39,4 +39,4 @@ Dans le même ordre d'idées, <b>Rava a dit : La neige est aussi bénéfique pou
 <b>Et</b> sur le même sujet, <b>Rava dit : La neige</b> apporte des bienfaits <b>aux montagnes ; une forte pluie</b> procure des bienfaits <b>aux arbres ; une pluie légère</b> apporte des bienfaits <b>aux fruits;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

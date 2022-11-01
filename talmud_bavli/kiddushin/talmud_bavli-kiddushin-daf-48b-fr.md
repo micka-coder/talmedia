@@ -39,4 +39,4 @@ La Guemara soulève une difficulté : <b>Si oui,</b> si le cas implique un agent
 <b>Abaye a dit :</b> En ce qui concerne <b>Rabbi Shimon, et Rabban Shimon ben Gamliel, et Rabbi Elazar, ils soutiennent tous</b> que lorsqu'on donne des instructions à un agent de cette manière <b>il ne fait que <b>indiquer</b> sa position <b>à celui-ci,</b> par opposition à exprimer une insistance sur certains détails. Si le mandataire apporte des modifications insignifiantes aux instructions, le mandat est tout de même rempli. <b>Rabbi Shimon</b> soutient cela, comme on le voit dans <b>cette</b> mishna <b>que nous</b> venons de <b>dire. Rabban Shimon ben Gamliel</b> soutient ceci, <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 160a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

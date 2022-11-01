@@ -45,4 +45,4 @@ C'est la <i>halakha</i> seulement si les deux couples qu'elle a apportés étaie
 La mishna poursuit : Si, en plus d'oublier l'espèce d'oiseau qu'elle a spécifié d'apporter pour son vœu, la femme s'est également <b>engagée</b> à sacrifier les oiseaux de <b>son vœu</b> avec l'holocauste de la paire obligatoire, mais que le prêtre a sacrifié par erreur deux oiseaux au-dessus de la ligne rouge et deux en dessous,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

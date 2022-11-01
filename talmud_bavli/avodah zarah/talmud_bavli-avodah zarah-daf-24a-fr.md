@@ -60,4 +60,4 @@ Rabbi Eliezer poursuit : <b>Et quel est le verset</b> duquel il est tiré qu'ils
 La Guemara soulève une autre objection : <b>Venez</b> et <b>entendez</b> une preuve à partir du verset : <b>"Et Yitro, beau-père de Moïse, prit un holocauste et des offrandes pour Dieu"</b> (Exode 18:12). Yitro n'était pas un Juif, et pourtant il a apporté des offrandes pour Dieu. La Guemara répond : L'incident avec <b>Yitro était également antérieur au don de la Torah.</b> La Gemara observe : D'accord, <b>cela fonctionne bien selon celui qui dit</b> que l'incident avec <b>Yitro était antérieur au don de la Torah. Mais selon celui qui dit</b> que...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

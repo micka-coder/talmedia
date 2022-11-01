@@ -20,5 +20,5 @@ Si l'on se cogne les chevilles [l'une contre l'autre, en marchant] ou que l'on s
 ### michna 7
 Les personnes suivantes sont aptes dans le cas des êtres humains, mais inaptes dans le cas des animaux : Un père avec son fils, un terefah, un enfant né par césarienne. Celui avec lequel un péché a été commis ou qui a tué une personne ; Un prêtre qui contracte un mariage illégal est inapte [à la prêtrise] jusqu'à ce qu'il jure de ne pas tirer de bénéfice de la femme. Celui qui se rend impur par le contact avec les morts est inapte, jusqu'à ce qu'il s'engage à ne plus se rendre impur par les morts.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

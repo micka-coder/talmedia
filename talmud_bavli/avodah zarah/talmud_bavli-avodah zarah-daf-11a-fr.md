@@ -42,4 +42,4 @@ La Gemara demande : <b>Et</b> est-ce que <b>d'autres objets ne sont pas</b> dét
 La Gemara demande : <b>Et</b> n'ont-ils <b>pas</b> détaché les sabots des animaux <b>kasher</b> du roi, qui ne sont pas utilisés par le roi pour monter à cheval ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Si <b>détacher</b> les sabots d'un animal devait <b>entraîner</b> qu'il devienne <b>un animal avec une blessure qui le fera mourir dans les douze mois [<i>tereifa</i>], </b> il est <b>interdit</b> de le faire. <b>Et lorsque</b> le faire n'impliquerait pas</b> de la rendre <b>une <i>térifa</i>, </b> c'est <b>permis. Et quelle est</b> une manière d' <b>enlever</b> les sabots <b>qui n'implique pas</b> de rendre l'animal <b>un <i>tereifa</i> ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

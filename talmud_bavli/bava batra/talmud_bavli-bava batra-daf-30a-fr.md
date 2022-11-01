@@ -18,4 +18,4 @@ Il y avait <b>une certaine</b> personne <b>qui disait à une autre : Que veux-tu
 Il y avait <b>une certaine</b> personne <b>qui disait à une autre : Que veux-tu de cette terre</b> de la mienne ? Le possesseur lui <b>dit : Je l'ai acheté à untel, qui m'a dit qu'il l'avait acheté à toi.</b> Le demandeur <b>lui a dit : Ne concédez vous pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

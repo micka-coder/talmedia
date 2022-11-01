@@ -48,4 +48,4 @@ A propos de cette question, <b>Rabbi Elazar a demandé à Rabbi Yoḥanan : Lors
 <b>Lorsque</b> Reish Lakish <b>se présenta devant Rabbi Yoḥanan</b> et lui rapporta l'échange, Rabbi Yoḥanan <b>lui dit : Quelle est la raison</b> pour laquelle <b>tu n'as pas cité ce</b> verset <b>à lui : "Je suis un mur et mes seins sont comme des tours"</b> (Cantique des Cantiques 8:10), qui peut être expliqué comme suit : <b>"Je suis un mur" ; ceci</b> fait référence à <b>la Torah. "Et mes seins sont comme des tours";</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

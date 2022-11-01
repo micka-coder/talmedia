@@ -128,5 +128,5 @@
 <b>Et des épines.</b> Les linguistes interprètent cela comme <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> désignant une barrière d'épines, qui vous enfermera, vous verrouillant et vous confinant sans sortie ni entrée. 
 <b>Et ils te persécuteront.</b> Comme le rend le Targum [Onkelos] . 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

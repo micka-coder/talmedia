@@ -39,4 +39,4 @@ La Gemara répond : <b>Il est</b> néanmoins <b>nécessaire</b> de mentionner s�
 <b>Et</b> bien que <b>cette dernière,</b> c'est-à-dire la femme qui observe un jour pour un jour, <b>ne puisse pas s'immerger le</b> même <b>jour</b> où elle a eu l'émission, <b>comme il est écrit : "Tous les jours de son émission seront pour elle comme le lit de ses menstruations"</b> (Lévitique 15:26), ce qui enseigne qu'elle reste tout le jour de son émission dans son état impur et qu'elle doit attendre que le jour soit terminé pour pouvoir s'immerger, néanmoins, on aurait pu dire que <b>au moins pendant la nuit</b> qui suit le jour de son émission <b>elle devrait</b> pouvoir <b>effectuer une observation partielle,</b> c'est-à-dire, elle devrait vérifier qu'une partie de la nuit s'est écoulée sans saignement, <b>et</b> ensuite <b>s'immerger</b> la nuit, sans attendre le matin. Par conséquent, la mishna <b>nous apprend</b> que <b>puisqu'elle est tenue de compter</b> un jour de pureté après son jour d'impureté,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

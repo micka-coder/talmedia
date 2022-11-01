@@ -87,4 +87,4 @@ De plus, les deux sont consacrés dans un <b>vase de service,</b> contrairement 
 La Gemara riposte : <b>Au contraire,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

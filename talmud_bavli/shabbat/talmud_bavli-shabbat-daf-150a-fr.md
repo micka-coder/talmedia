@@ -39,4 +39,4 @@ La Guemara aborde le fondement de la <i>halakha</i> mentionnée ci-dessus : <b>E
 <b>Rav Yehuda dit</b> que <b>Shmuel a dit :</b> En ce qui concerne les <b>calculs de : Qu'est-ce que c'est pour toi, [<i>mallakh</i>],</b> des calculs qui ne sont en rien pertinents pour celui qui les fait, <b>et de : Quelle</b> importance <b>a-t-elle [<i>ma bekhakh</i>],</b> calculs qui n'ont aucune signification pratique, il est <b>permis de les faire le Chabbat.</b> Ceci <b>a également été enseigné</b> dans la <i>Tosefta</i> : <b>Les calculs</b> en ce qui concerne les affaires <b>qui sont passées</b> ou <b>qui seront dans le futur ne peuvent être calculés</b> le Chabbat. Cependant, en ce qui concerne les calculs de : <b>Qu'est-ce que c'est pour toi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

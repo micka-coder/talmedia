@@ -51,4 +51,4 @@ La Gemara demande : <b>Pour quelle</b> raison <b>le Monde-à-Venir a-t-il été 
 La Guemara relate : <b>Agra, le beau-père de Rabbi Abba, avait</b> de nombreuses <b>lettres étrangères</b> <b>dans son rouleau. Il se présenta devant Rabbi Abba</b> pour clarifier la <i>halakha</i>. Rabbi Abba <b>lui dit : Nous avons dit</b> qu'on ne peut corriger le parchemin <b>que dans</b> un cas où les lettres sont <b>manquantes.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

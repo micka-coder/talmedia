@@ -202,5 +202,5 @@
 ### passuk 46
 <b>Et les enseignements,</b> l'un sous forme écrite et l'autre sous forme orale. [Ceci] nous [dit] que les deux ont été donnés à Moshé au Sinaï. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

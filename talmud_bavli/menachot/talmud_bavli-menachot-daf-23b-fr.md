@@ -69,4 +69,4 @@ La Gemara répond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire à un cas 
 § La Guemara relate : <b>Lorsque Rav Kahana est monté</b> de Babylone en Eretz Yisrael, <b>il a trouvé les fils de Rabbi Ḥiyya, qui étaient assis et disaient</b> ce qui suit : Dans le cas de <b>un dixième</b> d'un épha d'une offrande de repas <b>que l'on divise</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

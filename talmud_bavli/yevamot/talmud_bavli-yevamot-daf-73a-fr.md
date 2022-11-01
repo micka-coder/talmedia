@@ -27,4 +27,4 @@ La Gemara répond : <b>Il a omis</b> ce qui suit, <b>comme il l'enseigne</b> dan
 <b>Et pourtant</b> la seconde dîme et les premiers fruits diffèrent de la <i>teruma</i> en ce que <b>il est interdit de brûler</b> la première et de bénéficier de la combustion, même lorsque le produit est <b>en</b> état d'impureté <b>rituelle</b> et donc impropre à la consommation, par exemple, on ne peut pas brûler de l'huile impure pour s'éclairer ;
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

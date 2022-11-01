@@ -18,4 +18,4 @@ La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna que le po
 <b>Et quelle est la raison pour laquelle Reish Lakish n'a pas énoncé</b> son explication <b>conforme</b> à l'avis de <b>Rav Natan bar Oshaya,</b> dont l'explication est le sens plus direct de la phrase : Ce qui ne semble pas faire partie de la toison ? <b>Rabbi Ile'a dit : Reish Lakish soutient</b> que les Sages n'ont pas jugé interdites les mèches de laine qui ne sont pas comprimées avec le reste de la toison, <b>parce qu'il est impossible pour</b> qu'il y ait une <b>toile sans poils pendants.</b> Si l'explication de Rav Natan bar Oshaya était acceptée, il ne serait jamais permis d'utiliser une telle toison d'un animal mort premier-né. Par conséquent, le Reish Lakish explique l'énoncé de la mishna d'une manière plus indulgente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais selon</b> l'avis de <b>Rav Sheshet, la mishna est di
 La Guemara <b>souleve une objection</b> à l'opinion de Rabbi Ḥiyya à partir d'une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -78,7 +78,7 @@ La Gemara répond : Ceci n'est <b>pas difficile. Cette</b> démonstration d'affe
 La Guemara répond : <b>Rabbi</b> Yehuda HaNasi <b>était à Beit She'arim, mais lorsqu'il est tombé malade, ils l'ont transféré à Tzippori,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>et reconvoquer les</b> sessions d'étude à la <b>yeshiva après trente jours</b> de deuil. <b>Mon fils Shimon est un Sage. Mon fils Gamliel devrait être le <b>Nasi</i>. Ḥanina bar Ḥama s'assiéra à la tête</b> de la yeshiva.
 
@@ -158,4 +158,4 @@ La Gemara répond : Ceci n'est <b>pas difficile. Cette</b> démonstration d'affe
 La Guemara répond : <b>Rabbi</b> Yehuda HaNasi <b>était à Beit She'arim, mais quand il est tombé malade, ils l'ont transféré à Tzippori,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

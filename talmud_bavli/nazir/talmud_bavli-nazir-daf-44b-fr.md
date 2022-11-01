@@ -21,4 +21,4 @@ Rabbi Akiva lui <b>dit : La purification de ce</b> nazirite impur <b>dépend de 
 Abaye ajoute : En entendant cela, <b>J'ai dit</b> à ces Sages : <b>Si c'est ainsi, en ce qui concerne un nazirite impur aussi, comme il est écrit : Et il les apportera,</b> en référence au verset "Et le huitième jour, il apportera deux tourterelles ou deux jeunes pigeons <b>au prêtre, à l'entrée de la Tente de la Rencontre"</b> (Nombres 6:10), cela s'explique de la même manière : <b>Quand</b> vient-il <b>dans la cour pour sacrifier ses offrandes ? <b>Quand il s'est immergé</b> <b>et a accompli</b> l'obligation d'attendre le <b>coucher du soleil.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

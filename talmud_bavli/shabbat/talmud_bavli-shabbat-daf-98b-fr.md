@@ -33,4 +33,4 @@ Il est également écrit : <b>"Et tu feras des rideaux en poil de chèvre pour u
 <b>Les Sages ont enseigné</b> en ce qui concerne la construction du Tabernacle : Les fonds des <b>poutres étaient rainurés et les douilles étaient creuses,</b> et les rainures étaient insérées dans les douilles pour soutenir les poutres.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

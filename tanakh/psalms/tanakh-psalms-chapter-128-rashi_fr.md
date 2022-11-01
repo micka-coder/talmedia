@@ -21,4 +21,4 @@
 <b>Les enfants [nés] de vos enfants</b> Ils hériteront de la succession, et aucune femme ne sera soumise au lévir [dans un mariage lévirien]. Alors, il y aura la paix dans le monde.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

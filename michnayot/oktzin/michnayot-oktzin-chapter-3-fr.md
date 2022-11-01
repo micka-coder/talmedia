@@ -35,5 +35,5 @@ Quand les rayons de miel deviennent-ils susceptibles d'être impurs du fait qu'i
 ### michna 12
 Rabbi Yehoshua ben Levi a dit : Dans le monde à venir, le Saint, Béni soit-Il, fera hériter chaque personne juste de trois cent dix mondes, car il est écrit : "Afin que je fasse hériter de yesh (valeur numérique) ceux qui m'aiment, et que je remplisse leurs trésors" (Proverbes 8:21). Rabbi Shimon ben Halafta a dit : le Saint, Béni soit-Il, n'a trouvé aucun récipient qui puisse contenir une bénédiction pour Israël, sauf celui de la paix, comme il est écrit : "Le Seigneur donnera la force à son peuple, le Seigneur bénira son peuple par la paix" (Psaumes 29:11).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

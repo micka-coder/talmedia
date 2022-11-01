@@ -24,4 +24,4 @@ La Guemara propose une nouvelle explication de la <i>baraita</i> : <b>Plutôt,</
 La Gemara clarifie ce point en notant : <b>Et</b> c'est le cas <b>spécifiquement</b> dans le cas <b>d'une maison ou d'un champ. Mais</b> dans le cas de <b>une vache ou un manteau,</b> il n'est pas biaisé dans son témoignage, et peut témoigner en faveur de l'acheteur. La Gemara explique : <b>Il n'est pas nécessaire</b> de dire qu'il s'agit de la <i>halakha</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

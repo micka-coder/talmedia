@@ -51,4 +51,4 @@ On <b>pourrait</b> avoir pensé qu'il ne faut <b>pas apporter</b> un animal non 
 Par conséquent, <b>le verset indique</b> à nouveau : "Du <b>bétail"</b> (Lévitique 1:3), <b>et:</b> "Du <b>bloc"</b> (Lévitique 1:10), pour réitérer que Dieu dit : <b>Je vous ai dit</b> d'apporter des offrandes provenant du <b>bétail et</b> du <b>bloc, mais pas d'un animal non domestiqué. A quoi cela est-il comparable ? A un étudiant dont le maître lui a dit : Apporte-moi seulement du blé, et</b> l'élève lui <b>apportait du blé et de l'orge. Ce n'est pas comme</b> si l'élève <b>ajoute à la déclaration de</b> l'enseignant ; <b>c'est plutôt comme</b> si <b>il désobéit à sa déclaration,</b> puisque son enseignant lui a ordonné de n'apporter que du blé. Par conséquent, celui qui sacrifie un animal non domestiqué ne se contente pas d'ajouter à une mitsva de la Torah, mais enfreint également un interdit,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

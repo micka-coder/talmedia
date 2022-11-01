@@ -27,4 +27,4 @@ La Gemara répond : <b>S'il l'a dit</b> <b>avec cette formulation, il associe</b
 Pour résoudre cette question, <b>Rava dit : Venez</b> et <b>entendez</b> une preuve tirée de la mishna : S'il a dit que la nourriture sera considérée comme une offrande devenue <b><i>notar</i> ou <i>piggul</i>,</b> c'est-à-dire une offrande qui a été sacrifiée avec l'intention de la consommer après le moment prévu, elle est interdite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

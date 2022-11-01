@@ -60,4 +60,4 @@ La Gemara demande : <b>Et pourquoi ont-ils jugé</b> bon d'instituer que l'on <b
 <b>Et une fois Jérusalem reconstruite,</b> le Messie, rejeton de la maison de <b>David, viendra, comme il est dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

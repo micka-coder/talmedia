@@ -75,4 +75,4 @@ La Gemara repond : <b>De quoi s'agit-il ici ?</b> D'un cas ou il a rassemble les
 <b>Certains disent</b> que la discussion fut la suivante :
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

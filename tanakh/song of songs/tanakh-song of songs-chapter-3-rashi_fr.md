@@ -53,4 +53,4 @@
 <b>Et le jour où son cœur s'est réjoui.</b> C'est le huitième jour de l'installation,</sup>18</sup><i class="footnote">Voir Vayikra 9:1. </i> sur laquelle le Tabernacle a été consacré dans le désert. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

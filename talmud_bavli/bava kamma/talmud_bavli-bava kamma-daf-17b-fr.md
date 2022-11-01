@@ -66,4 +66,4 @@ La Guemara s'interroge sur la formulation de la <i>baraita</i> : Est-ce qu'il <b
 La Guemara rejette le parallèle entre le litige et le dilemme : <b>Non,</b> le litige dans la <i>baraita</i> peut être expliqué différemment.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

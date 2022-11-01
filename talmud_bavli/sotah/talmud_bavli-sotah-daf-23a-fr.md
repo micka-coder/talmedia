@@ -27,4 +27,4 @@ La Guemara demande : On doit <b>appliquer ici</b> le principe selon lequel, dans
 La Guemara poursuit : <b>Cela marche bien selon</b> l'opinion de <b>Rabbi Eliezer, qui tient</b> selon <b>ce raisonnement</b> et permet de brûler le reste d'une offrande comme bois de chauffage ; <b>Cependant,</b> selon <b>les rabbins, qui ne tiennent pas</b> selon <b>ce raisonnement, que peut-on dire ?</b> Comment le reste est-il brûlé sur l'autel ? La Guemara répond : <b>En ce qui concerne</b> le reste, <b>ils agissent conformément</b> à l'opinion de <b>Rabbi Elazar, fils de Rabbi Shimon, comme il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Elazar, fils de Rabbi Shimon, dit</b> à propos de l'offrande de repas d'un pécheur qui est un prêtre : <b>La poignée est</b> retirée de l'offrande et <b>sacrifiée par elle-même, et le reste</b> n'est ni mangé ni brûlé sur l'autel ; au contraire, il <b>est dispersé sur le lieu des cendres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

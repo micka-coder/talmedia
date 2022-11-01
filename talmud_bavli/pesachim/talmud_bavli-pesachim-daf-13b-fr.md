@@ -48,4 +48,4 @@ La Guemara ajoute : <b>Même</b> si <b>on dit</b> que la réponse précédente e
 <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Abba Shaul dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara remet en question la formulation de la <i>baraïta</i> : si la <i>bar
 <b>Rabbi Yirmeya lui dit : Il est enseigné</b> dans une <i>baraita</i> : Le <b>coin,</b> la <b>rampe,</b> la <b>base, et</b> la <b>forme carrée sont</b> tous <b>indispensables pour</b> la validité d'un <b>grand</b> <b>autel public, mais ils ne sont pas indispensables pour</b> la validité d'un <b>petit</b> <b>autel privé.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

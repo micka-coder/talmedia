@@ -33,4 +33,4 @@ Après avoir discuté du statut de Jérusalem, la Gemara aborde la question des 
 <b>Abaye a dit :</b> Avant que le remplaçant ne commence à servir à Yom Kippour avec les quatre vêtements de lin, il est initié et promu à la Grande Prêtrise en <b>donnant</b> les <b>huit</b> vêtements du Grand Prêtre <b>et en retournant</b> l'un des membres sur l'autel <b>avec une fourche,</b> accélérant ainsi la combustion de l'offrande quotidienne du matin. En accomplissant une partie du service tout en portant les vêtements du grand prêtre, il est initié comme grand prêtre en exercice. <b>Et</b> ceci est <b>conforme</b> à l'avis <b>du Rav Huna, comme l'a dit le Rav Huna : Un non-prêtre qui retourne</b> une partie de l'offrande sur l'autel <b>avec une fourchette est susceptible</b> de recevoir la peine de <b>mort</b> car il s'est livré à un service du Temple réservé aux prêtres. <b>Et Rav Pappa dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara répond : <b>Venez</b> et <b>entendez</b> une résolution à partir de
 Un autre <b>dilemme a été soulevé devant</b> les Sages : Dans le cas de <b>celui qui a transgressé</b> cet interdit <b>et a cuit</b> un jour de Fête pour Chabbat sans avoir placé un <i>eirouv</i> pour la jonction des aliments cuits la veille de la Fête, <b>qu'elle est la <i>halakha</i> ? Est-il permis de prendre part à son pain et à sa cuisine ? La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution à cette question à partir de la <i>baraita</i> suivante : En ce qui concerne <b>celui qui n'a pas préparé</b> un <i>eirouv</i> pour <b>la réunion des aliments cuits, que</b> doit-il <b>faire</b> pour qu'il ait de la nourriture à manger le Chabbat ? <b>Il doit transférer sa farine à d'autres personnes, et celles-ci pourront</b> alors <b>cuire et cuisiner pour lui.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

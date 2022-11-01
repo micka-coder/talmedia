@@ -69,4 +69,4 @@ La Guemara répond : Rabbi Eliezer soutient qu'un homme sur le point de mourir n
 La Guemara soulève une question pratique : <b>Quelles sont les circonstances d'un eunuque de cause naturelle ? Rav Yitzḥak bar Yosef dit que Rabbi Yoḥanan a dit : Toute personne</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

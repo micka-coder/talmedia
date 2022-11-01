@@ -61,4 +61,4 @@
 <b>À cause de cela, il s'arme de son filet</b> Il existe de nombreuses formes interrogatives qui sont affirmatives, par exemple (<a class="refLink" href="/I_Samuel.2.27" data-ref="I Samuel 2:27">I Sam. 2:27</a>) " Ai-je paru ? " concernant Eli, et (<a class="refLink" href="/II_Samuel.15.27" data-ref="II Samuel 15:27">II Sam. 15:27</a>) " Tu vois ? " Ici aussi : Apparaît-il à Tes yeux qu'à cause de cela il prospère chaque fois, en ce qu'il s'arme de son filet sur tout le monde et pour chasser le gibier ? <b>s'arme</b> Comme dans (<a class="refLink" href="/Genèse.14.14" data-ref="Genèse 14:14">Gen. 14:14</a>). "Et il arma (וַיָּרֶק) ses hommes entraînés" et (<a class="refLink"" data-ref="Psaumes.35.3">Ps. 35:3</a>) : "Arme-toi (הָרֵק) d'une lance". Il s'arme de son filet. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

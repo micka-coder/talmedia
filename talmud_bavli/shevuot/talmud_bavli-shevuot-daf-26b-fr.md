@@ -60,4 +60,4 @@ La Gemara demande : <b>Cela marche bien selon celui qui dit</b> que deux versets
 La Gemara répond : Les deux contextes ici sont les éléments <b>non sacrés</b>, c'est-à-dire les serments, <b>et les éléments consacrés</b>, les dons au Tabernacle et le <i>teruma</i>, <b>et on ne dérive pas</b> <i>halakhot</i> concernant les éléments <b>non sacrés</b> <b>de <i>halakhot</i> concernant les éléments <b>consacrés</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

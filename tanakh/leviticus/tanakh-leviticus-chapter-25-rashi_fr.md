@@ -215,5 +215,5 @@
 <b>Parce que, les Bnei Israël sont Mes serviteurs -</b> Mon décret a la priorité. 
 <b>Je suis Hachem, votre Dieu.</b> Celui qui les asservit en bas, c'est comme s'il les asservissait en haut. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

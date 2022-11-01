@@ -63,4 +63,4 @@ La Guemara discute de cette <i>baraita</i>. <b>Le maître dit:</b> Le verset dit
 Le <i>baraita</i> enseigne en ce qui concerne l'offrande pour le péché d'un roi : Le verset stipule : "Le sacrificateur prendra du sang de l'offrande pour le péché avec son doigt et le placera sur les coins de l'autel des holocaustes, et il en versera le sang restant <b>à la base de l'autel des holocaustes"</b> (Lévitique 4:25).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

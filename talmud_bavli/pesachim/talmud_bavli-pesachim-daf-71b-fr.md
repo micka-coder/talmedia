@@ -42,4 +42,4 @@ Si <b>il l'a abattu et qu'il s'est avéré qu'il avait un défaut,</b> l'offrand
 Si <b>il l'a abattu et</b> par la suite <b>on a appris que les propriétaires s'en étaient retirés</b> et s'étaient inscrits pour un autre agneau pascal, auquel cas celui-ci a été abattu inutilement, puisque personne n'était inscrit pour lui, <b>ou</b> on a appris que <b>ils étaient morts ou devenus rituellement impurs,</b> dans tous ces cas <b>il est exempté</b> d'apporter un sacrifice pour le péché, <b>car il a abattu avec permission. </b> Au moment de l'abattage, il ne savait pas et n'avait aucune raison de soupçonner que l'offrande serait disqualifiée.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

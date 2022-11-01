@@ -178,5 +178,5 @@
 ### passuk 57
 <b>Tous les [pays] du pays sont venus en Egypte.</b> A Yoseif d'acheter. Car si on l'explique dans l'ordre où c'est écrit, il aurait fallu dire : pour acheter <i>de</i> Yoseif. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

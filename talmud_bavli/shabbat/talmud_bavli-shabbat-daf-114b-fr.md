@@ -24,4 +24,4 @@ En ce qui concerne la taille des légumes à Yom Kippour, la Guemara cite ce que
 <b>Il a été enseigné</b> dans une <i>baraita</i> <b>conformément</b> à l'avis de <b>Rabbi Yoḥanan :</b> Si <b>Yom Kippour survient le jour du Shabbat,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

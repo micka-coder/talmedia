@@ -57,4 +57,4 @@ La <i>baraita</i> continue : <b>Lors de Pourim</b> on lit la portion de <b>"Et A
 <b>Rav Huna a dit :</b> >.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

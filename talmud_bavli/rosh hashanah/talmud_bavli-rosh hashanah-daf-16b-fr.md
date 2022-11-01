@@ -45,4 +45,4 @@ La Guemara cite deux autres déclarations au nom de Rabbi Yitzḥak, relatives a
 <b>Il est enseigné</b> dans un <i>baraita</i> : <b>Beit Shammai disent : Il y aura trois groupes</b> de personnes <b>lors du</b> grand <b>Jour du Jugement</b> à la fin des temps : <b>Un groupe de gens entièrement justes</b>, <b>un groupe de gens entièrement méchants</b>, <b>et un groupe de gens moyens</b>. Les personnes entièrement <b>justes</b> <b>seront immédiatement écrites et scellées pour la vie éternelle. Les personnes entièrement méchantes</b> <b>seront immédiatement inscrites et scellées pour la Géhenne, comme il est dit : "Et plusieurs de ceux qui dorment dans la poussière de la terre se réveilleront, les uns pour la vie éternelle, les autres pour la honte et le mépris éternel"</b> (Daniel 12:2). <b>Les gens qui dorment</b> <b>descendront à la Géhenne</b> pour être purifiés et obtenir l'expiation de leurs péchés,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

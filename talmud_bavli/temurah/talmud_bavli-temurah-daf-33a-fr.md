@@ -60,4 +60,4 @@ La Guemara demande : <b>Mais</b> si tel est le cas, <b>disons</b> que la <i>bara
 § La Guemara aborde plus avant le différend entre Rabbi Yoḥanan et Reish Lakish. <b>Rabbi Yirmeya dit à Rabbi Zeira : Selon Reish Lakish, qui dit</b> que <b>selon les rabbins,</b> les animaux <b>consacrés pour l'autel n'étaient pas inclus</b> dans la <i>halakha</i> de <b>surveillance et d'évaluation, et il est enseigné</b> en ce qui concerne les animaux <b>consacrés pour l'autel</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

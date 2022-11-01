@@ -57,4 +57,4 @@ La Gemara rejette cette suggestion : Cette possibilité ne doit <b>pas entrer da
 La Gemara suggère : <b>Et peut-être</b> les animaux que <b>les hommes</b> au service <b>d'Achab ont abattus, Achab et ses hommes ont mangé,</b> et les animaux que <b>les hommes</b> au service <b>de Josaphat ont abattus, Josaphat et ses hommes ont mangé.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

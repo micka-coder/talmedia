@@ -68,7 +68,7 @@
 <b>En son temps, je le hâterai</b> S'ils en sont dignes, je le hâterai ; s'ils n'en sont pas dignes, ce sera en son temps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -138,4 +138,4 @@
 <b>En son temps, je le hâterai</b> S'ils en sont dignes, je le hâterai ; s'ils n'en sont pas dignes, ce sera en son temps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara répond : C'est <b>un simple moyen mnémotechnique</b> pour s'assurer 
 La Guemara demande : <b>D'où proviennent ces questions</b> ? La Gemara répond : Elles sont dérivées d'un verset, <b>car les Sages ont enseigné</b> que lorsque le verset dit : <b>"Néanmoins, ceux-ci vous ne mangerez pas, de ceux qui ruminent, ou de ceux qui ont les sabots fendus"</b> (Lévitique 11:4), ce verset indique que <b>vous avez</b> un animal <b>qui ruminent et qui a les sabots fendus, mais</b> néanmoins <b>vous ne pouvez pas le manger. Et lequel est-ce ? </b> C'est <b>un animal casher</b> <b>qui est né d'un animal non casher</b>. <b>Ou</b> peut-être exclut-il <b>seulement un animal non casher</b> qui ne rumine pas ou n'a pas les sabots fendus <b>qui est né d'un animal casher</b>, <b>et</b> si c'est le cas <b>quelle est l'explication du verset <b>"de ceux qui ruminent, ou de ceux qui fendent le sabot"?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,7 +45,7 @@ La Gemara répond : <b>Les cas sont-ils comparables ? Ceci,</b> deux <i>log</i>,
 <b>Abaye a dit : Si tu dis</b> que <b>Il n'y a pas de montant fixe</b> <b>pour les libations, alors il n'y a pas de montant fixe</b> <b>pour les libations,</b> et il n'y a pas lieu de poursuivre la discussion. <b>Si vous dites</b> qu' <b>il y a une quantité fixe</b> <b>pour les libations,</b> alors le <i>halakha</b> de <b>jusqu'à dix</b> <i>log</i> de vin est <b>évident pour moi. </b> Un <i>log</i>, deux <i>log</i> ou cinq <i>log</i> ne peuvent être apportés, car ces quantités ne sont pas offertes comme des libations standard, mais trois, quatre ou six <i>log</i> sont apportés, car leur quantité est équivalente à celles des libations standard. Entre six et dix <i>log</i> peuvent également être apportées, puisque ces quantités peuvent être composées d'une combinaison des différentes libations de vin. En ce qui concerne le <b>seulement</b> <i>log</i>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Rabbi Beivai conclut : <b>Et cet homme,</b> c'est-à-dire moi, <b>s'appuie sur un boulanger.</b> Par conséquent, mon esprit n'est pas suffisamment fixé pour répondre correctement à la question.
 
@@ -92,7 +92,7 @@ La Gemara répond : <b>Les cas sont-ils comparables ? Ceci,</b> deux <i>log</i>,
 <b>Abaye a dit : Si tu dis</b> que <b>Il n'y a pas de montant fixe</b> <b>pour les libations, alors il n'y a pas de montant fixe</b> <b>pour les libations,</b> et il n'y a pas lieu de poursuivre la discussion. <b>Si vous dites</b> qu' <b>il y a une quantité fixe</b> <b>pour les libations,</b> alors le <i>halakha</b> de <b>jusqu'à dix</b> <i>log</i> de vin est <b>évident pour moi. </b> Un <i>log</i>, deux <i>log</i> ou cinq <i>log</i> ne peuvent être apportés, car ces quantités ne sont pas offertes comme des libations standard, mais trois, quatre ou six <i>log</i> sont apportés, car leur quantité est équivalente à celles des libations standard. Entre six et dix <i>log</i> peuvent également être apportées, puisque ces quantités peuvent être composées d'une combinaison des différentes libations de vin. En ce qui concerne le <b>seulement</b> <i>log</i>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Rabbi Beivai conclut : <b>Et cet homme,</b> c'est-à-dire moi, <b>s'appuie sur un boulanger.</b> Par conséquent, mon esprit n'est pas suffisamment fixé pour répondre correctement à la question.
 
@@ -139,4 +139,4 @@ La Guemara répond : <b>Les cas sont-ils comparables ? Ceci,</b> deux <i>log</i>
 <b>Abaye a dit : Si tu dis</b> que <b>Il n'y a pas de montant fixe</b> <b>pour les libations, alors il n'y a pas de montant fixe</b> <b>pour les libations,</b> et il n'y a pas lieu de poursuivre la discussion. <b>Si vous dites</b> qu' <b>il y a une quantité fixe</b> <b>pour les libations,</b> alors le <i>halakha</b> de <b>jusqu'à dix</b> <i>log</i> de vin est <b>évident pour moi. </b> Un <i>log</i>, deux <i>log</i> ou cinq <i>log</i> ne peuvent être apportés, car ces quantités ne sont pas offertes comme des libations standard, mais trois, quatre ou six <i>log</i> sont apportés, car leur quantité est équivalente à celles des libations standard. Entre six et dix <i>log</i> peuvent également être apportées, puisque ces quantités peuvent être composées d'une combinaison des différentes libations de vin. En ce qui concerne le <b>seulement</b> <i>log</i>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

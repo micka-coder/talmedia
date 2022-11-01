@@ -26,5 +26,5 @@ Samson a poursuivi [le désir de] ses yeux ; c'est pourquoi les Philistins lui o
 ### michna 9
 Il en va de même pour le bien. Miriam a attendu MoÃ¯se une heure, comme il est dit : "Et sa soeur se tenait à distance"(Exode 2:4), aussi Israël a-t-il été retardé pour elle de sept jours dans le désert, comme il est dit : "Et le peuple ne partit pas avant que Miriam ne soit ramenée"(Nombres 12:15). Joseph a eu le mérite d'enterrer son père et aucun de ses frères n'était plus grand que lui, comme il est dit : "Et Joseph monta pour enterrer son père, et là, chars et cavaliers montèrent avec lui" (Exode 50:7,9). Qui avons-nous de plus grand que Joseph puisque c'est Moïse qui s'est occupé [de son enterrement] ? Moïse a eu le mérite d'enterrer les ossements de Joseph et il n'y avait personne en Israël qui soit plus grand que lui, comme il est dit : "Et Moïse prit avec lui les ossements de Joseph" (Exode 13:19).   Qui a-t-il de plus grand que Moïse, puisque nul autre que l'Omniprésent ne s'est occupé [de son enterrement], comme il est dit : "Et Il l'enterra dans la vallée" (Deutéronome 34:6) ? Ce n'est pas seulement à propos de Moïse qu'ils ont dit cela, mais à propos de tous les justes, comme il est dit : "Et ta justice te précédera, la présence de Dieu te rassemblera [dans la mort]" (Isaïe 58:8).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

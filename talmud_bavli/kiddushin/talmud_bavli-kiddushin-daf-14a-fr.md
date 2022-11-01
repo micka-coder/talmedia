@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais ce</b> terme <b>"chaussure", vient-il</b> d'enseigne
 <b>Le verset énonce "chaussure,"</b> et énonce à nouveau dans le verset suivant <b>"chaussure,"</b> ce qui <b>inclut</b> toute autre chaussure. <b>Si c'est le cas, quel</b> est le sens lorsque <b>le verset énonce "sa chaussure,"</b> qui se réfère apparemment à la chaussure de cet homme en particulier ? Cela enseigne que ce doit être <b>sa chaussure qui lui convient, excluant</b> une chaussure si <b>grande qu'il ne peut pas marcher dedans,</b> et <b>excluant</b> une chaussure si <b>petite qu'elle ne couvre pas la majeure partie de son pied,</b> et <b>excluant</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

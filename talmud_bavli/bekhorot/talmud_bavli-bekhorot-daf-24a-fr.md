@@ -57,4 +57,4 @@ La Guemara explique : Il <b>était nécessaire pour</b> Rabba bar Ḥana d'ensei
 <b>Et c'est</b> le sens de <b>cette</b> que Rabba bar Ḥana a dit que <b>Rabbi Yoḥanan a dit : Un dilemme a été soulevé</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara explique : <b>Quel est</b> <b>cet incident qui s'est produit,</b> imp
 <strong>MISHNA :</strong> <b>Beit Shammai disent :</b> Une femme qui témoigne que son mari est mort <b>peut se marier, et prendre</b> l'argent garanti dans <b>son contrat de mariage. Beit Hillel disent : Elle peut se marier, mais elle ne peut pas prendre son contrat de mariage,</b> car des témoins qualifiés sont nécessaires pour les questions monétaires. <b>Beit Shammai leur dit :</b> Si <b>vous avez permis</b> une <b>femme</b> potentiellement <b>interdite pour lui, ce qui est</b> une interdiction relativement <b>stricte</b>, sur la seule base de son propre témoignage, <b>n'allons-nous pas permettre une affaire monétaire,</b> qui est plus <b>lénifiante,</b> car l'argent peut être rendu et ce péché n'entraîne pas une punition aussi sévère ? <b>Beit Hillel leur a répondu :</b> Ceci n'est pas une preuve, car <b>on trouve</b> .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

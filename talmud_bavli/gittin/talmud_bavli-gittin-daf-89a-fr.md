@@ -60,4 +60,4 @@ La Guemara relate plusieurs incidents : <b>Une rumeur circulait selon laquelle u
 <b>Une rumeur circulait selon laquelle une certaine</b> femme <b>était fiancée</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -36,7 +36,7 @@ Comme preuve de cette distinction, la Gemara donne un exemple : C'est <b>comme c
 <b>Et Abaye dit :</b> Considérons le cas de <b>Reuven, qui a vendu un champ à Shimon sans</b> une <b>garantie de propriété, et des contestataires sont apparus</b> pour contester la propriété antérieure de Reuven sur le champ. <b>Tant que</b> Shimon <b>n'a pas</b> encore <b>pris</b> la <b>possession</b> effective du terrain,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara répond : <b>Il s'agit</b> en fait d'<b>un</b> élément, <b>puisque</b> les deux éléments ont la même <b>une raison ; parce que Rabbi Elazar dit que</b> le <b>dispute</b> dans la mishna est <b>dans</b> un cas <b>où</b> la <b>partie responsable ne reconnaît pas</b> sa dette, <b>il explique</b> l'opinion de Rabbi Meir <b>de cette manière,</b> c'est-à-dire, qu'un billet à ordre qui ne comporte pas de garantie de propriété ne peut être utilisé pour recouvrer la dette, même sur des biens invendus.
 
@@ -74,4 +74,4 @@ Comme preuve de cette distinction, la Gemara donne un exemple : C'est <b>comme c
 <b>Et Abaye dit :</b> Considérons le cas de <b>Reuven, qui a vendu un champ à Shimon sans</b> une <b>garantie de propriété, et des contestataires sont apparus</b> pour contester la propriété antérieure de Reuven sur le champ. <b>Aussi longtemps que</b> Shimon <b>n'a pas</b> encore <b>pris</b> la <b>possession</b> effective du terrain,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

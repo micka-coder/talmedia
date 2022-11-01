@@ -57,4 +57,4 @@ Le <i>baraita</i> poursuit : <b>Et même s'ils ont dit qu'on ne peut pas élever
 La Guemara clarifie la dernière ligne de la <i>baraita</i> : La <i>baraita</i> a besoin d'énoncer cette décision <b>car</b> il pourrait <b>entrer dans votre esprit de dire que si la Fête du pèlerinage est passée et que trente jours ne se sont pas encore écoulés depuis</b> le moment <b>où il a acheté</b> l'animal <b>jusqu'à maintenant,</b> il peut garder l'animal jusqu'à ce que trente jours se soient écoulés. Pour contrer cela, la <i>baraita</i> enseigne que <b>on ne dit pas : Il est permis de le garder pendant</b> un total de <b>trente jours. Plutôt, une fois que la fête du pèlerinage est passée, il ne doit pas le garder</b> plus longtemps.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

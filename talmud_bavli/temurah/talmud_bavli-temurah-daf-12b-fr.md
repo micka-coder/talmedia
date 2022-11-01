@@ -39,4 +39,4 @@ La Guemara objecte : Mais on pourrait tout aussi bien dire le contraire. <b>Qu'a
 La Guemara demande : <b>Et</b> selon <b>les rabbins,</b> qui ne sont pas d'accord avec Rabbi Eliezer, <b>jusqu'à quelle distance</b> s'étend une <i>travail haperas</i> ? <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Reish Lakish a dit</b> que <b>Rabbi Shimon bar Abba a dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

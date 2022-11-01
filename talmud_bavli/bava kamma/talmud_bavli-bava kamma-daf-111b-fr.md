@@ -30,7 +30,7 @@ La Guemara analyse la <i>baraita</i> de Rabbi Oshaya. <b>Le Maître a dit</b> da
 La Guemara continue : <b>Le Maître a dit</b> dans le <i>baraita</i> que si l'objet <b>volé existe encore,</b> les héritiers <b>sont obligés de payer. Disons que</b> cette <i>baraita</i> <b>est une réfutation concluante</b> de l'opinion <b>de Rami bar Ḥama,</b> puisque selon sa compréhension, les héritiers devraient être exemptés du paiement car l'objet volé est considéré comme ayant changé de propriétaire lorsqu'ils en ont hérité. La Gemara répond : <b>Rami bar Ḥama</b> aurait pu <b>vous dire</b> que <b>lorsque cette</b> <i>baraita</i> <b>est enseignée,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> Dans le cas de <b>quelqu'un qui vole</b> un autre de la nourriture <b>et la donne</b> à <b>ses enfants, ou</b> qui <b>laisse</b> un objet volé <b>à ces derniers</b> puis meurt, les enfants <b>sont dispensés de payer</b> la victime du vol après la mort de leur père. Mais <b>si</b> l'objet volé <b>était quelque chose qui sert</b> de <b>garantie</b> légale d'un prêt, les héritiers <b>sont obligés de payer.</b>
 
@@ -62,4 +62,4 @@ La Guemara analyse la <i>baraita</i> de Rabbi Oshaya. <b>Le Maître a dit</b> da
 La Guemara continue : <b>Le Maître a dit</b> dans le <i>baraita</i> que si l'objet <b>volé existe encore,</b> les héritiers <b>sont obligés de payer. Disons que</b> cette <i>baraita</i> <b>est une réfutation concluante</b> de l'opinion <b>de Rami bar Ḥama,</b> puisque selon sa compréhension, les héritiers devraient être exemptés du paiement car l'objet volé est considéré comme ayant changé de propriétaire lorsqu'ils en ont hérité. La Gemara répond : <b>Rami bar Ḥama</b> aurait pu <b>vous dire</b> que <b>lorsque cette</b> <i>baraita</i> <b>est enseignée,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

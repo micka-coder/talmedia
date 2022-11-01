@@ -54,4 +54,4 @@ La mishna enseigne : <b>Rabbi Dosa dit</b> que la formule est : Qui fait la dist
 <b>Rabbi Zeira a dit :</b> A la fin d'une <b>fête qui a lieu au milieu de la semaine, on récite : Qui distingue entre le sacré et le profane, et entre la lumière et les ténèbres, et entre Israël et les nations, et entre le septième jour et les six jours de travail,</b> même si ce n'est pas Chabbat. <b>Quelle est la raison</b> de cette pratique ? <b>Il énumère la série de distinctions</b> que les Sages ont instituées et non pas spécifiquement la distinction propre à ce jour particulier.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

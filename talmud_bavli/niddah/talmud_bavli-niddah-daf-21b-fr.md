@@ -75,4 +75,4 @@ Le <i>baraita</i> poursuit : <b>Et les rabbins disent :</b> S'il y a du sang dan
 <b>Abaye dit</b> que cette suggestion doit être rejetée : <b>Dans</b> le cas d'un tube, tout le monde s'accorde à dire que</b> la femme <b>est pure,</b> comme dérivé du terme "dans sa chair".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

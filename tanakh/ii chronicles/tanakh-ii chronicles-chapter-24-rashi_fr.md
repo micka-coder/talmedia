@@ -77,4 +77,4 @@
 <b>La Moabite</b> Quelle différence cela fait-il de savoir qui ils étaient et de qui ils descendaient ? Cependant, [l'Écriture veut dire que] ces ingrats qui n'ont pas montré leur gratitude pour la faveur d'Abraham notre père envers Lot leur père, qui ont combattu avec les rois lorsqu'ils ont appris que Lot avait été capturé, et ils ont engagé Balaam pour maudire ses fils ; [ils ont été choisis] pour punir Joas, qui [de même] n'a pas montré de gratitude envers Jehoiada et a tué son fils Zacharie. Il est expliqué de cette manière dans la <i>Mechilta</i> (Exod. 17:8).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

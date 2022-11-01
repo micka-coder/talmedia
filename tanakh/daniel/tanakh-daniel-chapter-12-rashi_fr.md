@@ -46,4 +46,4 @@
 <b>À la fin des jours</b> Heb. לְקֵץ הַיָמִין, comme בְּאַחֲרִית הַיָמִים. Nous ne pouvons pas interpréter הַיָמִין comme une expression de la main droite, car il est mentionné dans la Grande Masorah parmi les six mots qui sont inhabituels parce qu'ils ont un "nun" final à la fin du mot, qui sert à la place d'un "mem", et il n'y en a pas de semblables, par exemple (Job 31:10) : "et que d'autres (אֲחֵרִין) s'agenouillent sur elle ;" (ibid. 24:22) : "et il n'est pas sûr de la vie (בַּחַיִין)". (Ezek. 4:9) : "prends-toi du blé (חִטִין)" ; (ibid. 26 : 18) : "Maintenant les îles (הָאִיִן) trembleront ;" (Prov. 31:3) : "jusqu'aux plaisirs des rois ;" (ici) : "jusqu'à la fin des jours (הַיָמִין)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

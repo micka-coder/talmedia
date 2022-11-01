@@ -48,4 +48,4 @@ En revanche, <b>lorsqu'une femme vient au monde, rien,</b> c'est-à-dire aucune 
 Les étudiants ont continué à demander à Rabbi Dostai : <b>Pour quelle</b> raison <b>la voix d'une femme est-elle agréable, mais celle d'un homme ne l'est pas ?</b> Il répondit : <b>Cet</b> homme est semblable à <b>l'endroit d'où il a été créé,</b> la terre, qui n'émet pas de son quand on la frappe, <b>et cette</b> femme est semblable à <b>l'endroit d'où elle a été créée,</b> un os, qui émet un son quand on le frappe. La preuve que la voix de la femme est agréable est <b>qu'il est dit</b> dans le Cantique des Cantiques que l'homme dit à sa bien-aimée : <b>"Car ta voix est douce, et ton visage est beau"</b> (Cantique des Cantiques 2:14).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

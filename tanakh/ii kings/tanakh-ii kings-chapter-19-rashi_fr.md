@@ -115,7 +115,7 @@
 <b>Ils ne craignent pas Hachem.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Israël. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Hachem n'était pas une crainte complète, (comme la coutume des [Bnei] Israël) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Israël exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner le culte de Dieu avec le culte des idoles comme ils l'avaient pratiqué en Shomron.-Radak</i>-qui étaient idolâtres.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -232,4 +232,4 @@
 <b>Ils ne craignent pas Hachem.</b> Une crainte totale comme c'est la coutume chez les [Bnei] Israël. Et bien qu'ils se soient convertis par peur des lions, [néanmoins,] leur crainte d'Hachem n'était pas une crainte complète, (comme la coutume des [Bnei] Israël) comme il est ensuite précisé, qu'ils ne se sont pas engagés dans l'[étude] de la Torah et [dans l'accomplissement] des commandements que Dieu a commandés aux Bnei Yaakov, et qu'ils ne pratiquent pas selon leurs statuts et selon leur loi, ce qu'ils sont obligés de pratiquer une fois qu'ils se sont convertis, mais comme le prêtre qui était du peuple de Shomron, les a instruits. <sup>37</sup><i class="footnote">Alternativement, le verset fait référence aux Bnei Israël exilés qui "jusqu'à ce jour" ne se sont pas repentis des pratiques idolâtres, mais continuent à combiner le culte de Dieu avec le culte des idoles comme ils l'avaient pratiqué en Shomron.-Radak</i>-qui étaient idolâtres.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ On ne doit pas acheter de laine, de lait ou de chevreaux aux bergers, ni de frui
 ### michna 10
 Les lambeaux de laine que le blanchisseur retire lui appartiennent, mais ceux que le lainier retire appartiennent au maître de maison. Si le blanchisseur a retiré trois fils, ils lui appartiennent, mais s'il y en a plus, ils appartiennent au maître de maison. S'il y avait des fils noirs parmi les blancs, il peut les prendre tous et ils sont à lui. Si le tailleur a laissé un fil suffisant pour coudre ou un morceau d'étoffe de trois brins de doigt sur trois brins de doigt, ils appartiennent au maître de maison. Ce qu'un charpentier enlève avec un rabot lui appartient ; mais ce qu'il enlève avec une hachette appartient au maître de maison. Et s'il travaillait dans le domaine du maître de maison, même la sciure de bois appartient au maître de maison.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

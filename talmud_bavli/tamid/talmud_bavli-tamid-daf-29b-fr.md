@@ -30,4 +30,4 @@ La Guemara explique que Rav Aḥa bar Ya'akov pourrait <b>vous dire :</b> Il est
 La Guemara demande : <b>Mais existe-t-il un figuier</b> <b>qui ne porte pas de fruits ?</b> La Gemara répond : <b>Oui,</b> il existe des figuiers qui ne portent pas de fruits, et ceci est <b>conforme</b> à une déclaration <b>de Raḥava</b> concernant une méthode de culture des figuiers, <b>comme Raḥava l'a dit :</b> Les cultivateurs <b>amènent</b> des jeunes plants de <b>figues blanches,</b> qui sont une variété inférieure,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

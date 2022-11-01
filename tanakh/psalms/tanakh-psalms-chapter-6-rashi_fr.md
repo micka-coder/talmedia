@@ -34,4 +34,4 @@
 <b>Dans un instant</b> Dans un court instant.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

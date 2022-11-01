@@ -48,4 +48,4 @@ Les vêtements tachés de sang qui proviennent <b>d'entre les gentils</b> sont c
 <b>Abaye a dit :</b> Selon Rabbi Meir, la raison pour laquelle les Sages n'ont pas révoqué cette amende est <b>dans l'ordre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

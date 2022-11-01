@@ -87,4 +87,4 @@ La Gemara demande : <b>Si oui,</b> que cette redondance est la source de l'exten
 Après avoir discuté de certaines différences entre les deux versions des Dix Commandements, la Gemara aborde maintenant une question connexe : <b>Rabbi Ḥanina ben Agil a demandé à Rabbi Ḥiyya bar Abba : Pour quelle raison le mot <b>Bien n'est-il</b> pas énoncé dans la première</b> version des Dix <b>Commandemens,</b> alors que <b>dans la dernière</b> version des Dix <b>Commandemens,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

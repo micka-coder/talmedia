@@ -63,4 +63,4 @@ La mishna explique : <b>Pour un</b> résident <b>peut donner</b> et recevoir des
 La Gemara répond : <b>Il en avait besoin</b> en raison de la décision de <b>la dernière clause,</b> qui comprend l'enseignement inédit selon lequel <b>deux</b> résidents <b>peuvent céder des droits</b> dans un domaine. La Gemara s'interroge à nouveau : Mais <b>cette</b> <i>halakha</i> <b>aussi,</b> que même plusieurs résidents peuvent céder leurs droits dans un domaine, est <b>évidente.</b> La Gemara répond : Ceci a été énoncé <b>de peur que vous ne disiez:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

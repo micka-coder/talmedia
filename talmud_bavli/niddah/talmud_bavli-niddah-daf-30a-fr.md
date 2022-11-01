@@ -63,4 +63,4 @@ La Guemara s'interroge en outre : <b>Laissons</b> la femme <b>s'immerger</b> le 
 <b>Si</b> ces rigueurs sont mentionnées en raison <b>des jours d'impureté</b> que doit observer une femme qui a donné naissance à un mâle, <b>la mishna n'enseigne-t-elle pas</b> en tout cas que la femme observe les rigueurs d'une femme qui a donné naissance à <b>une femelle ?</b> Les sept jours d'impureté qui sont observés par une femme qui a donné naissance à un mâle sont inclus dans les quatorze jours d'impureté qu'elle observe pour une femelle. <b>Et si</b> ces rigueurs sont mentionnées en raison <b>des jours de pureté</b> qui sont observés par une femme qui a donné naissance à un mâle, qui sont moins nombreux que les jours de pureté qui sont observés pour la naissance d'une femelle,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

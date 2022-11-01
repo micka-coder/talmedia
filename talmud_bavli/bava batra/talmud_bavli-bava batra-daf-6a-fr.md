@@ -42,4 +42,4 @@ A propos d'une question similaire, <b>Rav Naḥman dit :</b> Si quelqu'un a <b>a
 <b>Rav Naḥman dit</b> que <b>Rabba bar Avuh dit :</b> Si <b>une personne loue une chambre à une autre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ Le tampon d'un porteur est susceptible d'être souillé par les midras. Un filtr
 ### michna 10
 Un filet de pêche que l'on a commencé à fabriquer à partir de l'ourlet supérieur reste pur jusqu'à ce que la partie inférieure soit terminée. Si on a commencé par la partie inférieure, il reste pur jusqu'à ce que l'ourlet soit terminé. Sa bande de tête est susceptible d'être impure en elle-même. Ses cordes sont susceptibles d'être impures parce qu'elles sont reliées. Un filet à cheveux qui est déchiré devient pur s'il ne peut contenir la plus grande partie des cheveux.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

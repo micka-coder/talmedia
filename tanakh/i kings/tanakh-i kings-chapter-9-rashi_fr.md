@@ -76,4 +76,4 @@
 <b>Un bateau.</b> Un bateau.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara commente : <b>Il est enseigné</b> dans un <i>baraita</i> <b>conform�
 § La mishna enseigne : <b>Jusqu'à quand</b> est-il <b>permis</b> à l'acheteur de <b>renvoyer</b> la marchandise ? Il ne peut le retourner que jusqu'à ce que s'écoule une période de temps qui lui permettrait de montrer la marchandise à un commerçant ou à son parent. <b>Rav Naḥman dit :</b> Les Sages <b>ont enseigné</b> cette <i>halakha</i> <b>uniquement</b> en ce qui concerne <b>un acheteur, mais un vendeur peut toujours renier</b> la transaction. La Gemara suggère : <b>Disons</b> que la mishna <b>soutient son</b> avis, car les marchands de Lod <b>sont revenus à</b> suivre <b>la déclaration des rabbins. Accordé, si vous dites</b> que <b>un vendeur peut toujours renier</b> une transaction,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

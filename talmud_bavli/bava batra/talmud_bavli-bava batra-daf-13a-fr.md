@@ -21,4 +21,4 @@ La Gemara répond : <b>C'est différent ici, car</b> l'esclave peut dire : <b>Je
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve à partir de ce qui est enseigné dans une mishna (172a) : Dans le cas où il y a <b>deux frères, l'un pauvre et l'autre riche, et que leur père leur a laissé en héritage un établissement de bains ou un pressoir à olives</b>, si le père avait <b>construit</b> ces installations <b>à but lucratif,</b> c'est-à-dire pour en faire payer l'usage à autrui, <b>le bénéfice</b> qui en découle après la mort du père est <b>partagé équitablement</b> entre les deux frères. Si le père les avait <b>construits pour lui-même</b> et pour que les membres de son foyer puissent les utiliser, le frère pauvre, qui n'a que peu d'utilité pour ces commodités, ne peut pas forcer le frère riche à convertir les installations à un usage commercial ; au contraire, <b>le frère riche</b> peut <b>dire au frère pauvre</b> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

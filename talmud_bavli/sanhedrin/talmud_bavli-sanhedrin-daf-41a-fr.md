@@ -84,4 +84,4 @@ La Gemara suggère : <b>Au contraire,</b> on peut dire qu'il s'agissait <b>seule
 La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> explicitement : <b>Un incident</b> s'est produit, <b>et Rabban Yoḥanan ben Zakkai a examiné</b> les témoins <b>au sujet des tiges de figues ?</b> Cela prouve que le Sage en question est Rabban Yoḥanan ben Zakkai. <b>Au contraire,</b> on peut dire qu'à cette époque, lorsque cet incident s'est produit, Rabban Yoḥanan ben Zakkai <b>était un étudiant assis devant son professeur,</b> et dans ces années-là, le Sanhédrin était à sa place et jugeait les cas de loi capitale. <b>Et il dit une affaire</b> au cours de l'examen des témoins, <b>et son raisonnement leur parut logique,</b> et les juges lui posèrent la question,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

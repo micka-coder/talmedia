@@ -42,4 +42,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez</b> la preuve <b>comme cela a �
 <b>Rabbi Yonatan ben Elazar leur a dit : Il</b> s'impose de <b>raisonner</b> que <b>nous avons appris</b> la <i>halakha</i> dans la mishna en ce qui concerne <b>les peaux d'un</b> <b>propriétaire ordinaire ; cependant,</b> les peaux <b>d'un artisan</b> ne peuvent être déplacées, car <b>il est particulier à leur sujet. Rabbi Ḥanina bar Ḥama leur dit</b> que <b>Rabbi Yishmael, fils de Rabbi Yosei, a dit ce qui suit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

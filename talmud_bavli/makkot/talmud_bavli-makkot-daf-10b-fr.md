@@ -60,4 +60,4 @@ La <i>baraita</i> continue : <b>Rabbi</b> Yehuda HaNasi <b>dit : </b> La Torah n
 § <b>Rabbi Ḥama bar Ḥanina dit : Pour quelle</b> raison <b>la partie</b> discutant des <b>meurtriers a été énoncée</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

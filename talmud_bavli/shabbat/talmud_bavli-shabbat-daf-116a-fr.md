@@ -33,4 +33,4 @@ A propos des rouleaux des hérétiques, la Guemara analyse <b>la question elle-m
 La Gemara relate : <b>Imma Shalom,</b> la <b>femme</b> de <b>Rabbi Eliezer, était la sœur de Rabban Gamliel'. Il y avait</b> un <b>philosophe chrétien [<i>pilosofa</i>] dans leur quartier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

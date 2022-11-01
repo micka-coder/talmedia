@@ -24,4 +24,4 @@ La Guemara demande : <b>Et</b> selon <b>Rabbi Meir,</b> bien que l'acte de divor
 Rav Sheshet poursuit : <b>Et peut-on désacraliser les pièces d'argent</b> <b>avec des pièces de cuivre</b> ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Ma'aser Sheni</i> 2:6) : Dans le cas d'une <b><i>sela</i> d'argent de seconde dîme et</b> d'une <i>sela</i> <b>de biens non sacrés</b> <b>qui ont été entremêlés, on apporte</b> des <b><i>ma'a</i></b> de cuivre d'une valeur égale à <b>une <i>sela</i> et on dit : Partout où il y a une <i>sela</i> de seconde dîme</b> parmi ces deux pièces, elle est <b>rémunérée sur ces</b> <b><i>ma'a</i> de cuivre,</b> qui assument la sainteté de la seconde dîme. <b>Et il choisit la <i>sela</b> de meilleure qualité <b>parmi</b> les deux <b>et rachète</b> les pièces de cuivre <b>sur</b> cette <i>sela</i>. Il en résulte que la <i>sela</i> de meilleure qualité est la seconde dîme, tandis que l'autre <i>sela</i> et les pièces de cuivre sont non sacrées.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

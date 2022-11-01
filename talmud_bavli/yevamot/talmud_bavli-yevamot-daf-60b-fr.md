@@ -60,4 +60,4 @@ La Guemara relate un autre incident lié à cette <i>halakha</i> : <b>Un certain
 § <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Et de même, Rabbi Shimon ben Yoḥai dira :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

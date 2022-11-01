@@ -9,4 +9,4 @@ La mishna explique qu'il doit procéder comme suit . Si, par exemple, il y a cen
 <b>Rabbi Yehuda, Rabbi Yosei et Rabbi Shimon interdisent</b> de le faire. Ces trois Sages rejettent le principe de la désignation rétroactive, sur lequel repose cette méthode, car au moment de la déclaration, l'identité des portions particulières de vin qui seront <i>teruma</i> et dîmes est inconnue. Même selon Rabbi Meir, on ne peut s'appuyer sur la désignation rétroactive que dans un cas où l'on dit : Que je séparerai dans le futur. Dans le cas de la mishna ici, chaque <i>peruta</i> pourrait être celle qui est consacrée, et on ne peut pas se fier à la dernière. Le rabbin Yoḥanan <b>lui dit : La dernière clause de la mishna</b> fait référence à une situation <b>où l'on dit : Cette bourse ne sera pas exempte de consécration,</b> auquel cas il est compris comme faisant référence à la dernière <i>peruta</i> restante dans la bourse.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara réfute cette preuve : <b>Non, en fait</b> elle fait référence à un
 La Guemara commente : <b>Mais</b> il est possible de <b>souligner une contradiction</b> entre cette déclaration <b>de Rabbi Yoḥanan et</b> une autre déclaration <b>de Rabbi Yoḥanan ; et</b> il est possible de <b>souligner une contradiction</b> entre cette déclaration <b>de Reish Lakish et</b> une autre déclaration <b>de Reish Lakish. Comme l'a dit Reish Lakish au nom de Rabbi Yehuda, fils de Rabbi Ḥanina:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

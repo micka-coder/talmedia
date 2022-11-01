@@ -39,4 +39,4 @@ La Gemara répond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire à un cas 
 <b>Venez</b> et <b>entendez</b> une preuve différente d'un <i>baraita</i> : En ce qui concerne <b>deux</b> personnes <b>qui tiraient un chameau ou conduisaient un âne</b> ensemble, <b>ou une qui le tirait</b> <b>et une</b> qui le <b>conduisait</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

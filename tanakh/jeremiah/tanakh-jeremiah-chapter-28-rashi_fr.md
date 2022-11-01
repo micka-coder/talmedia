@@ -43,7 +43,7 @@
 <b>Cette année-là, au septième mois</b> N'est-ce pas que le septième mois n'est pas de l'année ? Il est plutôt mort le jour précédant Roch Hachana et a ordonné à ses enfants de le presser après Roch Hachana, mais pas avant, et ils doivent dissimuler sa mort ce jour-là afin de faire apparaître la prophétie de Jérémie comme fausse.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Et il arriva en cette année</b> Quand arriva le temps où Nabuchodonosor donna à Sédécias la domination sur les cinq rois auxquels Jérémie avait énoncé son message et envoya les lanières et les barres aux rois par la main de leurs ambassadeurs.
 <b>Au début du règne de Sédécias</b> Au début de sa domination sur les cinq rois. Mais il est impossible de dire que cela signifie au début de son règne, puisqu'il est dit : " la quatrième année. " Cette année-là, il descendit saluer Nabuchodonosor à Babylone, et Seraïa le réceptionniste était avec lui, comme il est dit à la fin du Livre (51, 59), et il lui donna la domination sur les rois.
@@ -88,4 +88,4 @@
 <b>Cette année-là, au septième mois</b> N'est-ce pas que le septième mois n'est pas de l'année ? Il est plutôt mort le jour précédant Roch Hachana et a ordonné à ses enfants de le presser après Roch Hachana, mais pas avant, et ils doivent dissimuler sa mort ce jour-là afin de faire apparaître la prophétie de Jérémie comme fausse.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

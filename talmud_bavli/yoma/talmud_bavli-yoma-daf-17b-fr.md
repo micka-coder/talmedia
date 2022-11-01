@@ -18,4 +18,4 @@ La Guemara remet en question l'affirmation selon laquelle une <i>tanna</i> envis
 <b>Abaye a dit : La première clause et la clause du milieu</b> de la <i>baraita</i> sont conformes à l'avis des <b>Rabbins,</b> et dans le cas des deux pains, <b>les Rabbins concèdent à propos d'un morceau</b> de pain <b>qu'il est inapproprié de le donner au Grand Prêtre. </Selon les sages, le Grand Prêtre devrait en fait recevoir moins d'un pain, car selon eux, il a droit à moins de la moitié ; cependant, comme il est inapproprié de lui donner un morceau du pain, il prend un pain entier comme portion.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

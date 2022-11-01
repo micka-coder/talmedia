@@ -51,4 +51,4 @@ Rabbi Akiva <b>leur dit :</b> C'est <b>pour cette</b> raison que <b>je ris. Du m
 <b>Rabbi Akiva répondit et dit : Les afflictions sont chéries.</b> Lorsque Rabbi Eliezer entendit cela <b>il dit à</b> ses assistants : <b>Soutiens-moi</b> afin que je puisse m'asseoir <b>et entendre la déclaration d'Akiva mon élève, qui a dit : Les afflictions sont chéries.</b> Rabbi Eliezer <b>lui dit : Akiva, d'où tirez-vous</b> cela ? </b> Rabbi Akiva <b>a répondu : J'interprète un verset</b> afin de le dériver. Il est écrit : <b>"Manassé avait douze ans quand il commença à régner et il régna cinquante-cinq ans à Jérusalem...Et il fit ce qui était mauvais aux yeux du Seigneur"</b> (II Rois 21, 1-2). <b>Et il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

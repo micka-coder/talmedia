@@ -42,4 +42,4 @@ La Guemara demande : Pourquoi la <i>baraita</i> indique-t-elle <b>103</b> ans ? 
 De même, <b>bar Kappara a enseigné : Une personne en colère</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

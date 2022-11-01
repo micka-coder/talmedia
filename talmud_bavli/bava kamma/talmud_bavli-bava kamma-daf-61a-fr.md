@@ -48,4 +48,4 @@ La Gemara demande : <b>Qu'est-ce que</b> <b>une <i>shelulit</i> ? Rav Yehuda dit
 La Guemara fait remarquer que selon le <b>qui dit</b> qu'il signifie <b>un endroit où l'eau de pluie s'accumule,</b> Shmuel, puisque l'eau de pluie accumulée divise un champ, <b>à plus forte raison</b> un canal d'eau,</b> qui est à la fois plus grand et permanent, divise-t-il un champ. <b>Mais</b> selon celui qui dit</b> que seul <b>un canal d'eau</b> divise un champ, Rabbi Yoḥanan, il soutient que seul cela divise un champ, <b>mais un endroit où l'eau de pluie s'amasse ne divise pas</b> le champ, <b>puisque ceux-ci</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

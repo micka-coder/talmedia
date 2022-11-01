@@ -30,4 +30,4 @@ En ce qui concerne l'immersion, <b>si le grand prêtre était âgé</b> et avait
 La Gemara demande : <b>Grâce,</b> selon l'approche de <b>Rabbi Meir, c'est ainsi que vous trouvez</b> cette possibilité de...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

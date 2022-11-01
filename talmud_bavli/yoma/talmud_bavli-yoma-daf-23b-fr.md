@@ -45,4 +45,4 @@ La Guemara demande : <b>Et</b> en ce qui concerne <b>Reish Lakish,</b> qui souti
 <b>Rabbi</b> Yehuda HaNasi <b>dit : Il y a deux réfutations</b> contre l'interprétation de Rabbi Dosa : <b>L'une</b> est que <b>la ceinture du</b> <b>Haut Prêtre</b> qu'il porte à Yom Kippour est faite uniquement de lin et <b>n'est pas</b> identique à <b>la ceinture du</b> <b>prêtre ordinaire,</b> qui, selon Rabbi Yehuda HaNasi', est faite de laine et de lin. Par conséquent, il est impossible que les vêtements de Yom Kippour du Grand Prêtre soient utilisés par un prêtre ordinaire. <b>Et en outre,</b> en ce qui concerne les <b>vêtements que vous avez utilisés</b> pour accomplir les services de <b>sainteté la plus sévère,</b> c'est-à-dire les services accomplis par le Grand Prêtre à Yom Kippour, peut-il se faire que <b>vous</b> les <b>utiliserez ensuite</b> pour accomplir des <b>services de moindre sainteté</b> par un prêtre commun ? <b>A la place</b> de cela, il faut dire une autre interprétation. <b>Quel est donc le sens lorsque <b>le verset énonce</b> les mots superflus <b>"qu'il revêtira"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

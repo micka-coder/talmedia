@@ -42,4 +42,4 @@ La Guemara clarifie davantage : <b>Quel</b> est le sens de la déclaration de Sh
 Après avoir expliqué cette mishna du tractate <i>Shevuot</i>, la Gemara analyse son lien avec la déclaration de Rav Huna : <b>Mais si</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

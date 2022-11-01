@@ -79,4 +79,4 @@
 <b>Et que la langue de son peuple soit celle parlée.</b> Il peut obliger sa femme à apprendre sa langue si sa langue maternelle est différente.<sup>33</sup><i class="footnote">Ibid. 4:12. Le but de cette loi était d'obliger les femmes à faire preuve de respect et de soumission envers leurs maris. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

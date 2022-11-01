@@ -15,4 +15,4 @@
 En ce qui concerne la <i>halakha</i> concernant le différend dans la mishna, il est relaté que <b>quand ils se sont présentés devant Rabbi Ami</b> avec une question relative à un acte de divorce nu qui nécessitait plus de témoins, <b>il a dit à</b> la personne qui supervisait : <b>Allez-y et complétez-le</b> même avec <b>un esclave du</b> général <b>public,</b> conformément à l'opinion de ben Nannas.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

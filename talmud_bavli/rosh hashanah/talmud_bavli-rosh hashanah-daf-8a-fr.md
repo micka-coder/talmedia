@@ -51,4 +51,4 @@ La Guemara répond : <b>Non, Rav Ḥisda est venu nous enseigner</b> le sens de 
 La Guemara soulève une question : <b>D'où vient</b> que l'on sait <b>que</b> le jour du jugement est en <b>Tishrei ? Comme il est écrit : "Soufflez un <i>shofar</i> à la Nouvelle Lune, au temps couvert pour notre jour de fête"</b> (Psaumes 81:4). <b>Quel est le jour de la Fête</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

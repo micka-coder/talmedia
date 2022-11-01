@@ -51,7 +51,7 @@ La Gemara demande : <b>Et</b> même <b>lorsqu'il y a un bien garanti,</b> c'est-
 Les Sages <b>disent</b> en réponse :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Celui qui a une dette <b>ne peut pas envoyer de l'argent</b> avec un autre au créancier <b>sur la base d'un chiffre [<i>deyokani</i>]</b> ou d'un signe utilisé à la place d'une signature qui est associée au créancier. La possession de ce signe de la part de l'autre n'est pas une preuve suffisante qu'il a été désigné comme mandataire. <b>Et</b> c'est la <i>halakha</i> <b>même si des témoins</b> vérifiant que c'est le signe du créancier <b>sont signés dessus. Et Rabbi Yoḥanan dit : Si</b> il y a des <b>témoins signés dessus, on peut envoyer</b> l'argent avec l'autre.
 
@@ -104,7 +104,7 @@ La Gemara demande : <b>Et</b> même <b>lorsqu'il y a un bien garanti,</b> c'est-
 Les Sages <b>disent</b> en réponse :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Celui qui a une dette <b>ne peut pas envoyer de l'argent</b> avec un autre au créancier <b>sur la base d'un chiffre [<i>deyokani</i>]</b> ou d'un signe utilisé à la place d'une signature qui est associée au créancier. La possession de ce signe de la part de l'autre n'est pas une preuve suffisante qu'il a été désigné comme mandataire. <b>Et</b> c'est la <i>halakha</i> <b>même si des témoins</b> vérifiant que c'est le signe du créancier <b>sont signés dessus. Et Rabbi Yoḥanan dit : Si</b> il y a des <b>témoins signés dessus, on peut envoyer</b> l'argent avec l'autre.
 
@@ -157,7 +157,7 @@ La Gemara demande : <b>Et</b> même <b>lorsqu'il y a un bien garanti,</b> c'est-
 Les Sages <b>disent</b> en réponse :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Celui qui a une dette <b>ne peut pas envoyer de l'argent</b> avec un autre au créancier <b>sur la base d'un chiffre [<i>deyokani</i>]</b> ou d'un signe utilisé à la place d'une signature qui est associée au créancier. La possession de ce signe de la part de l'autre n'est pas une preuve suffisante qu'il a été désigné comme mandataire. <b>Et</b> c'est la <i>halakha</i> <b>même si des témoins</b> vérifiant que c'est le signe du créancier <b>sont signés dessus. Et Rabbi Yoḥanan dit : Si</b> il y a des <b>témoins signés dessus, on peut envoyer</b> l'argent avec l'autre.
 
@@ -210,4 +210,4 @@ La Gemara demande : <b>Et</b> même <b>lorsqu'il y a un bien garanti,</b> c'est-
 Les Sages <b>disent</b> en réponse :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

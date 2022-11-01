@@ -54,4 +54,4 @@ En ce qui concerne <b>Rabbi Neḥemya, quel est</b> le jugement dans lequel il a
 Rabbi Yoḥanan analyse la déclaration de Rabbi Neḥemya : <b>Maintenant, le deuil aigu est similaire à</b> un cas de disqualification <b>après aspersion</b> du sang, car le deuil aigu disqualifie simplement les propriétaires de manger l'offrande. Il ne disqualifie pas l'exécution effective du service sacrificiel par un Grand Prêtre, tel qu'Aaron. Par conséquent, il est comme les autres disqualifications qui prennent effet après l'aspersion, qui interdisent simplement la consommation de la viande. <b>Et quand on la brûlait, on la brûlait immédiatement,</b> sans attendre le lendemain. Cela montre que Rabbi Neḥemya est d'accord pour dire qu'une offrande qui devient disqualifiée après que son sang ait été aspergé doit être brûlée immédiatement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

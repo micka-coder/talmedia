@@ -105,7 +105,7 @@
 <b>Allait venir à Yerosholoyim.</b> A commencé à penser à venir à Yerusholoyim.<sup>16</sup><i class="footnote"><span>יָבוֹא</span> dénote qu'il viendra dans le futur.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et [un entourage de] cinquante hommes etc.</b> Tous avaient les cuisses enlevées et les talons des pieds coupés.</sup>1</sup><i class="footnote">Sanhedrin 21a. Rachi y explique que le fait de ne pas avoir de cuisses leur permettait de courir plus vite et que le fait de ne pas avoir de talons leur permettait de marcher sur des objets pointus sans aucune sensation de douleur.</i>
 
@@ -212,4 +212,4 @@
 <b>Allait venir à Yerosholoyim.</b> A commencé à penser à venir à Yerusholoyim.<sup>16</sup><i class="footnote"><span>יָבוֹא</span> dénote qu'il viendra dans le futur.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

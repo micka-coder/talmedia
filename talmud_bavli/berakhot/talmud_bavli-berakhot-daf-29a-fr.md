@@ -81,4 +81,4 @@ La Guemara souleve une difficulte : Lorsqu'il prie <b>en tant que</b> partie d'u
 Au contraire, tant <b>cette</b> declaration de Rabbi Tanhum <b>que cette</b> declaration dans la <i>Tosefta</i> se referent a une personne qui prie <b>en tant qu'individu, et c'est,</b> neanmoins, <b>non difficile. Ce</b> cas, ou nous n'exigeons pas qu'il revienne au debut de la priere et la repete, se refere a un cas ou <b>il se rappelle</b> son erreur <b>avant</b> d'arriver a la benediction : <b>Qui ecoute la priere,</b> auquel cas il peut demander la pluie dans cette benediction.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

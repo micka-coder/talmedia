@@ -36,4 +36,4 @@ La Gemara explique : C'est <b>comme il est enseigné dans <i>Megillat Ta'anit</i
 La Guemara demande : <b>Quelles sont les circonstances</b> de <b>sommeil ? Rav Ashi répond :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

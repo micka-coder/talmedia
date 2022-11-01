@@ -66,4 +66,4 @@ Un différend parallèle <b>a été énoncé :</b> Si l'on <b>abatte</b> une off
 <b>Rabbi Yehoshua lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

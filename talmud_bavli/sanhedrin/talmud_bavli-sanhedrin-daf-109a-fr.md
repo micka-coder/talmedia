@@ -51,4 +51,4 @@ La Guemara cite des versets qui font allusion aux pratiques des habitants de Sod
 Les gens de Sodome <b>disaient :</b> Toute personne <b>qui a un bœuf gardera</b> les bœufs de la ville <b>pendant un jour.</b> Toute personne <b>qui n'a</b> aucun bœuf <b>gardera</b> les bœufs de la ville <b>pendant deux jours.</b> La Gemara relate : <b>On donna des bœufs à un certain orphelin, fils d'une veuve, pour qu'il les garde. Il y alla</b> et <b>les prit et les tua.</b> L'orphelin <b>dit</b> aux gens de Sodome :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

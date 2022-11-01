@@ -49,4 +49,4 @@
 <b>car dans un instant Sa colère s'enflammera</b> Car dans un court instant Sa colère s'enflammera soudainement contre eux, et à ce moment-là, on discernera, les louanges de tous ceux qui se réfugient en Lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

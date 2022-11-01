@@ -41,4 +41,4 @@
 <b>Et Toi, Seigneur, Tu as la bonté</b> Et quelle est cette bonté ? Que Tu rendes à l'homme selon son acte ; pas vraiment son acte mais une partie de celui-ci, comme la chose qui est énoncée (Esdras 9:13) : " Car Toi, notre Dieu, Tu nous as punis moins que nos iniquités ne le méritaient ". C'est ainsi qu'il est interprété dans Aggadath Tehillim (Mid. Ps. 62:4). On peut aussi l'interpréter comme suit Et Toi, Seigneur, Tu as de la bonté car Tu as le pouvoir de rendre à l'homme selon son acte.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

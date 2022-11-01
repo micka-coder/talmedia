@@ -66,4 +66,4 @@ La Gemara répond : <b>Et selon votre raisonnement, dites la dernière clause</b
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve à l'appui de l'opinion de Rava à partir d'une <i>baraita</i> : <b>Si le père et la mère du</b> défunt <b>jetaient des vêtements sur</b> le cercueil de leur défunt fils afin qu'ils soient enterrés avec lui, c'est <b>une mitzva pour les autres</b> présents <b>de sauver</b> ces vêtements de la perte. Ceci indique que la simple désignation est insignifiante, car si elle était significative, il serait interdit de tirer profit des vêtements dès que les parents les jettent sur le cercueil.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

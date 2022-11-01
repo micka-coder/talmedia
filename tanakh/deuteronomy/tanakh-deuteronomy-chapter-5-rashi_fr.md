@@ -59,5 +59,5 @@
 ### passuk 24
 <b>Et tu nous diras.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tu as diminué ma force comme celle d'une femme, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>car j'ai été affligé à ton sujet et tu as affaibli mes mains, parce que j'ai vu que tu n'étais pas désireux de t'approcher de Lui par amour. N'aurait-il pas mieux valu que tu apprennes [directement] du Puissant, et que tu n'apprennes pas de moi. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

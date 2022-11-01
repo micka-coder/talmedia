@@ -24,4 +24,4 @@ La Gemara soulève une difficulté : <b>Si,</b> dans cette dernière clause, le 
 § La mishna indique que <b>Rabbi Yehuda a dit</b> que les Sages ont <b>dit devant Rabban Gamliel :</b> Puisqu'il a acquis la femme elle-même par fiançailles, ne va-t-il pas acquérir la propriété dès le moment de leurs fiançailles ? <b>Un dilemme a été soulevé devant</b> les Sages : Lorsque <b>Rabbi Yehuda</b> a cité cette question des Sages, faisait-il référence <b>à</b> sa vente de la propriété <b><i>ab initio</i>,</b> ce qui est permis uniquement selon Beit Shammai, <b>ou</b> faisait-il référence <b>à</b> la vente <b>après coup,</b> ce qui est valable même selon Beit Hillel ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

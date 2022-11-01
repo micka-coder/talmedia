@@ -54,4 +54,4 @@ Pour clarifier la question, la Gemara demande : <b>Quel est son dilemme ?</b> Un
 <b>Rabbi Ḥiyya, fils de Rav Huna, a dit :</b> Il s'agit d'un <b>cas où il a recueilli</b> l'eau de pluie <b>du haut</b> et du côté du <b>mur,</b> donc il l'a soulevée d'un endroit significatif. Par conséquent, cela est considéré comme un acte de soulèvement, et il est responsable. La Gemara s'interroge : <b>Au-dessus d'un mur aussi,</b> la pluie <b>n'est pas</b> venue se <b>reposer.</b> Au contraire, elle a coulé immédiatement et continuellement. Si tel est le cas, le soulèvement ne provenait pas du tout du mur. La Guemara répond : <b>Comme Rava a dit</b> dans un autre contexte que le cas implique <b>un mur incliné, ici aussi</b> le cas implique <b>un mur incliné.</b> La Gemara demande : <b>Et où a été</b> énoncée cette déclaration de <b>Rava ?</b> Elle a été énoncée <b>en ce qui concerne ce que nous avons appris dans une mishna :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

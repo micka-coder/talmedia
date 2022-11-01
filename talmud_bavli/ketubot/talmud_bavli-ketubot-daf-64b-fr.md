@@ -54,4 +54,4 @@ La Guemara ajoute : <b>Maintenant que vous êtes arrivé à cette</b> réponse, 
 § La mishna enseigne en outre : <b>Et il</b> doit lui <b>donner la moitié d'un <i>kav</i></b> de <b>légumineuses</b> ainsi que de l'huile et des fruits. La Guemara commente : <b>Et pourtant le vin n'est pas enseigné</b> dans la mishna. <b>Cela conforte</b> l'opinion <b>de Rabbi Elazar, car Rabbi Elazar a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

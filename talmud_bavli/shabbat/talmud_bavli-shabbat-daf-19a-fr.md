@@ -39,4 +39,4 @@ Nous avons appris dans la mishna que <b>ceux-là,</b> Beit Shammai, <b>et ceux-l
 La Gemara demande : <b>Qui est le <i>tanna</i></b> qui soutient que <b>Toute chose qui vient d'elle-même,</b> et non comme le résultat d'une action, elle peut <b>bien</b> être faite le Chabbat ? <b>Rabbi Yosei bar Ḥanina a dit : C'est</b> l'avis de <b>Rabbi Yishmael, comme nous l'avons appris</b> dans une mishna : En ce qui concerne <b>l'ail et les raisins non mûrs</b>, <b>et les tiges</b> de blé <b>qu'il a écrasés alors qu'il faisait encore jour, Rabbi Yishmael dit : Il peut</b> continuer à les soigner et <b>finir après la tombée de la nuit,</b> car après l'achèvement de l'écrasement, ces objets sont placés sous un poids, de sorte que les liquides continueront à s'écouler. <b>Et Rabbi Akiva dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

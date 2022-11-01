@@ -27,4 +27,4 @@ La Gemara rejette cette preuve : <b>Non, en fait,</b> peut-être que le <i>barai
 <b>Rava dit</b> à Abaye : L'artisan <b>dit du bien</b> au propriétaire, et sa demande sera acceptée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

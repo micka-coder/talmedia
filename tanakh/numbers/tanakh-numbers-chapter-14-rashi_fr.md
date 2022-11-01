@@ -149,5 +149,5 @@
 <b>Et les écrasa.</b> Comme, "Je l'ai écrasé, le broyant [bien]." Coup après coup. 
 <b>Jusqu'à Chormah.</b> L'endroit a été nommé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour commémorer cet incident.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

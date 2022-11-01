@@ -23,5 +23,5 @@ Si une cruche avait un trou soit au niveau du col, du fond ou des côtés, et qu
 ### michna 8
 Une bulle sur une cruche qui a été percée de trous sur son côté intérieur et sur son côté extérieur, que ce soit au-dessus ou au-dessous : Si [les trous sont] opposés l'un à l'autre, elle devient impure [si elle est touchée] par un "père d'impureté" et elle devient impure si elle se trouve dans une tente dans laquelle se trouve un cadavre. Si le trou intérieur est en dessous et le trou extérieur au-dessus, il devient impur [s'il est touché] par un "père de l'impureté", et il devient impur dans une tente où il y a un cadavre. Si le trou intérieur est au-dessus et le trou extérieur en dessous, il reste pur s'il est touché par un "père de l'impureté", mais il devient impur dans une tente dans laquelle il y a un cadavre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

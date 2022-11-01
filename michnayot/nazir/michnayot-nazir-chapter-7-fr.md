@@ -11,5 +11,5 @@ Mais pour [l'impureté contractée par] des branches en surplomb, ou des pierres
 ### michna 4
 Rabbi Elazar a dit au nom de Rabbi Joshua : pour chaque impureté [véhiculée] par un cadavre pour lequel un naziréen doit se raser, les gens sont responsables de l'entrée dans le sanctuaire, et pour chaque impureté [véhiculée] par un cadavre pour lequel un naziréen ne se rase pas, les gens ne sont pas responsables de l'entrée dans le sanctuaire. Rabbi Meir a dit : une telle [impureté] ne doit pas être moins grave que [l'impureté par] une chose morte rampante. Rabbi Akiba a dit : J'ai argumenté en présence de Rabbi Eliezer :  Maintenant, si en raison de la masse osseuse d'un maïs d'orge qui ne souille pas un homme par son ombre, un nazirite se rase s'il le touche ou le porte, alors sûrement un quart de log de sang qui souille un homme par son ombre, devrait amener un nazirite à se raser s'il le touche ou le porte ? Il répondit : Qu'est-ce que c'est que ça Akiva ! Nous ne faisons pas ici un argument "all the more so" (un kal vehomer). Lorsque je suis ensuite allé raconter ces paroles à Rabbi Joshua, il m'a dit : " Tu as bien parlé, mais c'est ainsi qu'ils ont statué sur la halakha ".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

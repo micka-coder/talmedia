@@ -57,4 +57,4 @@ La Guemara remet en question le fondement même de cette discussion : <b>Rabbi Y
 <strong>MISHNA :</strong> <b>On peut compter ses invités</b> qui viennent à son repas <b>et ses hors-d'œuvre,</b> à condition de le faire <b>de mémoire ; mais</b> on ne peut <b>pas</b> les lire <b>à partir d'une liste écrite</b>, dont la raison sera expliquée dans la Guemara. <b>Une personne peut tirer au sort avec ses enfants et les membres de sa famille à table</b> le Chabbat, afin de déterminer qui recevra quelle portion, <b>à condition qu'elle n'ait pas l'intention d'opposer une grande portion à une petite portion</b> dans une telle loterie. Au contraire, les portions doivent être de taille égale. <b>Et l'on peut tirer au sort</b> entre les prêtres <b>pour les aliments sanctifiés lors d'une fête, mais pas pour les</b> <b>portions spécifiques.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

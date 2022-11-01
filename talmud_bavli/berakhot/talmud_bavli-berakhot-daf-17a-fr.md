@@ -51,4 +51,4 @@ La Gemara declare : <b>Grande est la promesse</b> pour l'avenir <b>faite par le 
 <b>Nos chefs sont charges. Rav et Shmuel, et certains disent Rabbi Yohanan et Rabbi Elazar,</b> se sont disputes sur la bonne comprehension de ce verset. <b>L'un d'eux a dit : Nos leaders en Torah sont charges de mitzvot. Et un autre a dit : Nos leaders en Torah et en mitzvot sont charges de souffrance.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

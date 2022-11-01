@@ -60,4 +60,4 @@ La Guemara explique : <b>Et</b> il <b>était nécessaire</b> que Rabbi Yoḥanan
 <b>Abaye dit à Rava : Est-ce que tu compares</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

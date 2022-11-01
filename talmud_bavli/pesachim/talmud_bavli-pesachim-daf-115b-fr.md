@@ -30,4 +30,4 @@ La Guemara demande : <b>Pourquoi doit-on enlever la table ? L'école de Rabbi Ya
 <b>Shmuel a dit</b> que la phrase : <b>Le pain de l'affliction [<i>leḥem oni</i>]</b> (Deutéronome 16:3) signifie <b>le pain sur lequel on répond [<i>onim</i>] aux questions,</b> c'est-à-dire qu'on récite la Haggadah sur <i>matza</i>. <b>Cela a également été enseigné</b> dans une <i>baraita</i> : <b><i>Leḥem oni</i></b> est <b>le pain sur lequel on répond à de nombreuses questions. Alternativement,</b> dans le verset, <b>"<i>leḥem oni</i>" est</b> en fait <b>écrit</b> sans vav, ce qui signifie une personne pauvre. <b>Comme</b> c'est <b>la manière d'une personne pauvre</b> <b>de</b> manger <b>un morceau</b> de pain, à défaut d'un pain entier,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

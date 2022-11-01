@@ -42,4 +42,4 @@ La Gemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Quelqu'un qui do
 La Guemara note : <b>Aussi, il est raisonnable</b> de comprendre la <i>baraïta</i> de cette manière <b>à partir</b> du fait <b>qu'elle est enseignée</b> dans <b>la dernière clause</b> de cette <i>baraïta</i> : <b>À quoi est-ce comparable ?</b> C'est comparable <b>à celui qui se tient nu dans</b> sa <b>maison, qu'il</b> ne peut <b>pas passer la tête par la fenêtre et réciter <i>Shema</i>.</b> C'est certainement inefficace. Le fait que la <i>baraita</i> assimile le lit avec filet à une maison indique qu'il s'agit d'un filet d'une hauteur d'au moins dix coudées. La Guemara conclut : En effet, <b>apprenez-en</b> que c'est la compréhension correcte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

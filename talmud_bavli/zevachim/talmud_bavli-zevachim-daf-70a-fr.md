@@ -66,4 +66,4 @@ Les <i>baraita</i> contestent : <b>Ou</b> peut-être <b>aller dans ce sens</b> e
 <b>Vous</b> pouvez <b>dire</b> en réponse :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

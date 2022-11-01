@@ -20,5 +20,5 @@ Si, pendant qu'il traînait [un mouton ou un bœuf], celui-ci est mort dans le d
 ### michna 7
 Il est interdit d'élever de petits animaux de troupeau en Terre d'Israël, mais il est permis de les élever en Syrie ou dans les régions sauvages de la Terre d'Israël. Il est interdit d'élever des volailles à Jérusalem à cause des "choses saintes", et les prêtres ne peuvent les élever [nulle part] en Terre d'Israël à cause [des lois concernant] les aliments purs. Il est interdit d'élever des porcs où que ce soit. Il est interdit d'élever un chien, sauf s'il est attaché avec une chaîne. Il est interdit d'installer des pièges pour les pigeons à moins de se trouver à trente ris d'un lieu habité.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

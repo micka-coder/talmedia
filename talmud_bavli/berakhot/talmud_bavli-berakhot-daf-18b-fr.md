@@ -51,4 +51,4 @@ Shmuel <b>dit a</b> son pere : <b>Ou est l'argent des orphelins ? Il lui dit : V
 Quoi qu'il en soit, en ce qui concerne le nœud du probleme, <b>Rabbi Yonatan a egalement reconsidere</b> son avis, <b>comme le dit Rabbi Shmuel bar Nahmani</b> que <b>Rabbi Yonatan a dit : D'ou</b> est-il derive <b>que les morts conversent entre eux ? Comme il est dit : "Et l'Eternel lui dit : voici le pays que j'ai jure a Abraham, Isaac et Jacob, en disant : </b>Je le donnerai a ta descendance" (Deuteronome 34:4). <b>Quel est</b> le sens de <b>"dire" ? </b> Cela signifie que <b>Dieu a dit a Moise : Va et dis a Abraham, Isaac et Jacob,</b> que <b>le serment que je t'ai fait, je l'ai deja accompli pour tes descendants.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

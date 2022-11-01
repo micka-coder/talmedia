@@ -171,5 +171,5 @@
 <b>Et mourir.</b> Ainsi, vous apprenez que celui qui accomplit un service de <i>korbon</i> en manquant d'un des vêtements [est passible] de la peine de mort.
 <b>Un statut éternel pour lui.</b> Partout où l'on dit חֻקַּת עוֹלָם, c'est un décret pour le présent immédiat et pour les générations [futures] [et si l'on ignore ce statut], cela rendra [la <i>mitzvah</i>] invalide.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

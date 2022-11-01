@@ -112,7 +112,7 @@
 <b>À cause de la colère de l'épée oppressante</b> ivre de vin. C'est ce qu'a traduit Jonathan. Autre explication : C'est une expression d'oppression (אוֹנָאָה).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La quatrième année</b> L'année où leur décret a été scellé pour qu'ils soient exilés et qu'ils boivent la coupe de la colère, comme il le dit dans cette section (v. 15) : " Prenez la coupe, etc. ", et avant le décret, Il a ordonné au prophète de les réprimander, peut-être se repentiraient-ils, et leur décret ne serait pas scellé.
 
@@ -226,4 +226,4 @@
 <b>À cause de la colère de l'épée oppressante</b> ivre de vin. C'est ce qu'a traduit Jonathan. Autre explication : C'est une expression d'oppression (אוֹנָאָה).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

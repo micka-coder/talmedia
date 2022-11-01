@@ -51,4 +51,4 @@ La Gemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabbi Elazar, fi
 Dans le cas des <b>marques lépreuses sur les vêtements,</b> la dispute concernant une telle interdiction est <b>en ce qui concerne</b> la question qui fait l'objet de <b>la dispute</b> entre <b>Rabbi Yonatan ben Avtolemos et les rabbins, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yonatan ben Avtolemos dit : D'où</b> est-il dérivé
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

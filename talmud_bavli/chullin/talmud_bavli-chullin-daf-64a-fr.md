@@ -27,4 +27,4 @@ La Guemara analyse la <i>baraita</i> : <b>Le Maître a dit :</b> Si l'<b>albumen
 La Gemara demande : <b>Si oui, pourquoi mentionner spécifiquement</b> l'œuf <b>d'un animal rampant non cachère</b> ? Il en serait de même <b>même</b> pour celui qui mange l'embryon <b>d'un oiseau casher</b> <b>aussi.</b> Dans les deux cas, on est fouetté, <b>car il est enseigné</b> dans une <i>baraita</i> que le verset : <b>"Tout ce qui grouille sur la terre,"</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara explique : <b>Dit la dernière clause</b> de la mishna : <b>Mais en ce
 Ilfa <b>lui dit :</b> Conformément à <b>l'avis de qui</b> <b>c'est</b> <i>baraita</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

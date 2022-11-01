@@ -33,4 +33,4 @@ La Guemara répond : En ce qui concerne la première déclaration de Rabbi Elaza
 § La mishna a enseigné que l'on doit <b>examiner</b> le sol jusqu'à vingt coudées <b>de l'endroit</b> où l'on a trouvé un cadavre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

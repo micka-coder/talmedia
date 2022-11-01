@@ -63,4 +63,4 @@ La Gemara conteste : <b>Mais</b> on peut <b>dire</b> que <b>au contraire, de mê
 <b>Rabbi Yirmeya a dit à Rabbi Zeira:</b> Selon votre opinion, on interprète homilétiquement les spécifications supplémentaires dans le passage discutant de la purification d'un lépreux. Si c'est le cas, il y a un autre verset apparemment superflu : <b>"Sur le pouce de sa main droite, et sur le gros orteil de son pied droit"</b> (Lévitique 14:17), <b>qui est écrit à propos</b> du placement de l'<b>huile</b> sur le pouce et le gros orteil droits <b>d'un lépreux riche. Pourquoi ai-je</b> besoin du verset pour préciser que l'huile est placée sur le pouce et le gros orteil droits du lépreux ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

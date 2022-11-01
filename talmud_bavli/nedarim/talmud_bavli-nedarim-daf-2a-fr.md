@@ -12,4 +12,4 @@ En ce qui concerne <b>celui qui dit à un autre : Je suis avoué de toi,</b> ou 
 En revanche, s'il dit : <b>Je suis ostracisé de toi,</b> ce qui ne déclare clairement aucune matière interdite, <b>Rabbi Akiva était incertain</b> de cette <i>halakha</i> mais était enclin <b>à statuer rigoureusement à ce sujet</b> et à considérer qu'il s'agit d'un vœu interdisant à celui qui le prononce de tirer un bénéfice de son compagnon.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

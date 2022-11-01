@@ -57,4 +57,4 @@ La Gemara soulève une difficulté : <b>Mais</b> est-il vrai que <b>une personne
 <b>Les Sages ont enseigné</b> à propos du verset : <b>Un Dieu qui s'indigne chaque jour. Et combien</b> de temps dure <b>Son indignation</b> ? Elle dure <b>un instant. Et combien</b> de temps dure <b>un instant ? Une partie sur 53 848</b> parties <b>d'une heure,</b> une très petite quantité de temps, <b>c'est un instant.</b> La Guemara ajoute : <b>Et aucune entité ne peut</b> précisément <b>déterminer ce moment</b> où Dieu s'indigne, <b>excepté Balaam le méchant, qu'il est écrit à son sujet :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

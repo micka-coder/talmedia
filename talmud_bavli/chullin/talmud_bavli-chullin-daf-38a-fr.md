@@ -51,4 +51,4 @@ Ravina développe : <b>À quelle</b> affirmation des <i>tanna'im</i> dans la mis
 <b>Rava dit : La convulsion dont</b> les rabbins <b>ont dit</b> qu'elle est un indice de vie est une convulsion <b>à la conclusion</b> de l'acte d'<b>abattage. Rava a dit : D'où est-ce que je dis</b> que c'est le cas ? C'est <b>comme il est enseigné</b> dans une <i>baraita</i> à propos du verset : "Lorsqu'un taureau, un mouton ou une chèvre naîtra, il restera sept jours sous sa mère ; et à partir du huitième jour, il pourra être accepté en offrande à l'Eternel" (Lévitique 22:27). La phrase <b>"un taureau</b>".
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

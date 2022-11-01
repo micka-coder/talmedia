@@ -30,4 +30,4 @@ Les propriétaires terriens <b>n'ont cessé de harceler</b> Abaye pour qu'il éc
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Dans un cas où quelqu'un <b>se présente</b> au tribunal <b>et dit : Mon billet à ordre a été perdu, même si des témoins ont dit : Nous avons écrit et signé</b> un tel billet à ordre <b>et l'avons donné</b> à</b> cet homme, le tribunal ne peut <b>pas écrire</b> un nouveau <b>document pour lui.</b> La Gemara demande : <b>Dans quel</b> cas cette déclaration est-elle dite ? Dans</b> le cas de <b>documents</b> détaillant des <b>prêts. Mais</b> dans un cas d'<b>actes d'achat et de vente</b> de terrain, le tribunal peut <b>rédiger</b> un document de remplacement, <b>excluant la <b>garantie standard qui</b> était <b>dans</b> le premier document, qui stipule que si le champ est repris, le vendeur indemnisera l'acheteur pour sa perte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

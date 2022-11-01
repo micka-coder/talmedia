@@ -84,4 +84,4 @@ La Guemara relate un autre incident : <b>Un habitant de Naresh a volé un parche
 <strong>MISHNA : </strong>Dans une situation où <b>cette</b> individu <b>se présente avec son tonneau de vin, et cet</b> individu <b>se présente avec son pichet de miel,</b> si <b>le tonneau de miel se fissure et que ce</b> premier individu <b>verse</b> <b>son vin et récupère le <b>miel</b> de l'autre, qui vaut plus que le vin, en le recueillant <b>dans</b> son tonneau de vin,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

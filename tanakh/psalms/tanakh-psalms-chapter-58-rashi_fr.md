@@ -47,4 +47,4 @@
 <b>Il y a un Dieu</b> Un Juge, qui juge les méchants sur la terre.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

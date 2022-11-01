@@ -99,7 +99,7 @@
 <b>Il n'y a pas de paix</b> A l'opposé de ce qu'il a dit aux justes et aux repentants : "Paix, paix au loin, etc.", il revient et dit : "Il n'y a pas de paix pour les méchants."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>L'homme juste</b> tel que Josias.
 <b>mais personne ne prend à cœur</b> la raison de son départ.
@@ -200,4 +200,4 @@
 <b>Il n'y a pas de paix</b> A l'opposé de ce qu'il a dit aux justes et aux repentants : "Paix, paix au loin, etc.", il revient et dit : "Il n'y a pas de paix pour les méchants."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

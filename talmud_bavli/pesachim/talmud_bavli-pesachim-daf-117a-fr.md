@@ -72,4 +72,4 @@ Les Sages qui étaient experts dans les <b>versets</b> de la Bible <b>ajoutent a
 La Gemara suggère : <b>Disons</b> qu'il est <b>parallèle</b> à une dispute entre les <b><i>tanna'im</i>,</b> comme nous l'avons appris dans la mishna : <b>Jusqu'où récite-t-on</b> <i>le parallèle</i> ? <b>Beit Shammai dit : Jusqu'à ce que "Une mère joyeuse d'enfants,</b> <i>halleluya</i>" (Psaumes 113:9). <b>Et Beit Hillel disent : Jusqu'à ce que "Le silex en une fontaine d'eaux"</b> (Psaumes 114:8). <b>Et il a été enseigné</b> dans <b>une autre</b> source, une <i>baraita</i> : <b>Jusqu'où récite-t-on</b> <i>le parallèle</i> ? <b>Beit Shammai disent : Jusqu'à "Lorsqu'Israël est sorti d'Égypte"</b> (Psaumes 114, 1), le début du premier passage après "Une mère joyeuse d'enfants, <i>halleluya</i>.<b>Et Beit Hillel disent : Jusqu'à " Pas à nous, Dieu, pas à nous " (Psaumes 115, 1), qui suit " le silex dans une fontaine d'eau ".
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

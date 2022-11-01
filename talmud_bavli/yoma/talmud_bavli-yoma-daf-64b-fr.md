@@ -21,4 +21,4 @@ La Guemara commente : <b>Accordé, selon</b> l'avis <b>du Rav, Rabbi Yehouda et 
 <b>Nous avons appris</b> dans la mishna <b>qu'une offrande de péché communautaire n'est pas</b> laissée <b>à mourir. Ceci</b> indique que le sacrifice pour le péché <b>d'un individu</b> dans <b>un cas comme celui-ci</b> est laissé <b>à la mort. Accordé, selon</b> l'avis <b>de Rabbi Yoḥanan,</b> qui considère que le bouc restant de la première paire est laissé en pâture jusqu'à ce qu'il développe une tare, on peut expliquer que l'offrande de péché d'un individu dans un cas comparable est tuée, <b>conformément</b> à l'avis que <b>Rabbi Abba</b> a dit que <b>Rav a dit. Comme Rabbi Abba a dit que Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

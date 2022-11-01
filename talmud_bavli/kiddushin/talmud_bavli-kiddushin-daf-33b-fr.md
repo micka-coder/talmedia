@@ -51,4 +51,4 @@ Comme le dit Ḥizkiyya : <b>Rabbi Ḥanina, fils de Rabbi Abbahou, m'a dit</b> 
 § La mishna enseigne que les femmes sont exemptées de <b>toutes les mitzvot positives et limitées dans le temps. Les Sages ont enseigné : Qu'est-ce qu'une mitzva positive et limitée dans le temps ? </b> Par exemple, résider dans <b>une <i>sukka</i>, et</b> prendre le <b><i>lulav</i>,</b> et souffler dans le <b>shofar</b> à Rosh HaShana, qui ne peuvent tous être accomplis qu'à des moments précis de l'année. <b>Et</b> un autre exemple est le fait de revêtir des <b>franges rituelles,</b> car la mitsva ne s'applique que pendant la journée en raison du verset qui stipule : "Des franges, pour que tu les regardes" (Nombres 15:39), indiquant que les franges doivent être vues.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

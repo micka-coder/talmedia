@@ -42,4 +42,4 @@ Dieu ordonne à Aaron d'allumer le candélabre : <b>"En dehors du rideau du tém
 <b>On ne doit pas apporter</b> des libations <b>à partir</b> du vin qui repose à la <b>bouche du</b> tonneau <b>en raison</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara répond : <b>Inverse</b> les avis. <b>Rabbi Yoḥanan</b> est celui q
 <b>Au contraire,</b> on peut résoudre la contradiction d'une autre manière : <b>En fait, il ne faut pas inverser</b> les avis. <b>Et</b> la résolution de la contradiction est que, bien que Rabbi Yoḥanan considère que les dettes ne sont pas perçues sur les biens des orphelins mineurs, la <i>halakha</i> à l'égard de <b>celui qui cause un dommage</b> à un autre en ne sauvegardant pas son animal</b> est différente. Rabbi Yoḥanan dit</b> que l'indemnité est perçue <b>sur les biens de qualité supérieure</b> <b>des orphelins, car si l'on dit</b> qu'elle doit être perçue <b>sur les biens de qualité supérieure</b> <b>du régisseur,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

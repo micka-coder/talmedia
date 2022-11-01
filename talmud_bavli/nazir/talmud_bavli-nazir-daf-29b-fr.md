@@ -33,4 +33,4 @@ En ce qui concerne le différend relatif à la période de temps pour le vœu d'
 La Guemara explique sa suggestion : <b>Accordé, selon</b> l'avis de <b>Rabbi Yosei, fils de Rabbi Yehuda, qui a dit</b> qu'un père peut faire des vœux au nom de son fils seulement <b>jusqu'à ce qu'il atteigne l'âge des vœux, c'est</b> pourquoi l'enfant <b>a dit : Si je suis mineur, je serai</b> un nazirite <b>du fait</b> de mon <b>père,</b> comme il le signifie : Si je n'ai pas encore atteint l'âge des vœux. <b>Cependant, selon</b> l'opinion de <b>Rabbi</b> Yehuda HaNasi, <b>qui a dit</b> qu'un père peut faire vœu de naziréité pour son fils <b>jusqu'à ce qu'il développe deux</b> poils pubiens,</b> malgré le fait qu'il soit déjà mature en ce qui concerne les vœux, quel est le sens de : <b>Et si je suis adulte, je serai</b> un naziréen <b>en raison de mon propre vœu ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

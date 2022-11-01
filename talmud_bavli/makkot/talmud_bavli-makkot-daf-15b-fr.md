@@ -18,4 +18,4 @@ La Gemara s'interroge : <A propos de quelle question sont-ils en désaccord ? Il
 <b>Et ils suivent leurs</b> lignes standard de <b>raisonnement, comme il a été dit</b> que Rabbi Yoḥanan et Reish Lakish étaient en désaccord dans un cas où l'un disait : Sur mon <b>serment, je mangerai ce pain aujourd'hui, et le jour est passé et il ne l'a pas mangé. Rabbi Yoḥanan et Reish Lakish disent tous deux : Il n'est pas flagellé</b> pour avoir fait un faux serment. Ils ne sont pas d'accord en ce qui concerne la raison pour laquelle il n'est pas flagellé. <b>Rabbi Yoḥanan dit : Il n'est pas flagellé,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

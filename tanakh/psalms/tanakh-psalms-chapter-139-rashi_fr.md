@@ -81,4 +81,4 @@
 <b>S'il y a une voie vexatoire en moi</b> S'il y a une voie de vexation et de détérioration en moi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

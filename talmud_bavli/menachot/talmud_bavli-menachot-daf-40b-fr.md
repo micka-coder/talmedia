@@ -39,4 +39,4 @@ En ce qui concerne la question de l'apposition de franges rituelles sur un vête
 La Gemara demande : <b>Qu'est-ce que</b> signifie : <b>Un manteau</b> qui est <b>exempté</b> des franges rituelles ? <b>Si l'on dit</b> qu'il s'agit d'un manteau <b>qui n'est pas de la taille</b> nécessaire pour exiger l'apposition de franges rituelles, cela est difficile : <b>Mais n'est-ce pas enseigné</b> dans un <i>baraita</i> : En ce qui concerne <b>un manteau qui</b> est assez grand pour qu'un <b>mineur</b> puisse <b>couvrir sa tête et la majeure partie de son</b> corps <b>avec</b>,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

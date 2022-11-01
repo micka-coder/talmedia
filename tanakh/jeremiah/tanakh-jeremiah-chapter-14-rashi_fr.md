@@ -68,7 +68,7 @@
 <b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un 'heh' et la seconde de אִם, comme (Num. 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים) ?"(Ibid. 13:19) "C'est bon (הֲטוֹבָה) ou mauvais (אִם רָעָה) ?" (verset 19) "As-tu vraiment rejeté (הֲמָאֹס) Juda, ou ton âme a-t-elle méprisé (אִם...גָּעֲלָה) Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?"
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>concernant les sécheresses</b> qu'Il ferait venir la famine sur eux, et Menahem (Machbereth p. 47) l'a classé comme une expression de fortification (מִבְצָר) comme (Isaïe 25:12) "Et la forteresse de (וּמִבְצַר) la force de tes murs."
 
@@ -138,4 +138,4 @@
 <b>Le ciel donne-t-il des gouttes de pluie ?</b> par lui-même, sauf par Ton ordre ? Ceci est la forme interrogative. Dans toute double question, la première question est précédée d'un 'heh' et la seconde de אִם, comme (Num. 13:19) "Sont-ils dans des villes ouvertes (הַבְּמַחֲנִים) ou dans des forteresses (אִם בְּמִבְצָרִים) ?"(Ibid. 13:19) "C'est bon (הֲטוֹבָה) ou mauvais (אִם רָעָה) ?" (verset 19) "As-tu vraiment rejeté (הֲמָאֹס) Juda, ou ton âme a-t-elle méprisé (אִם...גָּעֲלָה) Sion ?" Ici aussi, "y a-t-il parmi les vanités des nations ceux qui donnent la pluie ? Est-ce que le ciel... ?"
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

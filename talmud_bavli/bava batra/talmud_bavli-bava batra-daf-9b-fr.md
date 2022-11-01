@@ -36,4 +36,4 @@ La Guemara commente : En ce qui concerne <b>ce à quoi nous sommes arrivés,</b>
 <b>Rabbi Yehoshua ben Levi dit : Quiconque a l'habitude d'accomplir</b> des actes de <b>charité mérite</b> la bénédiction ; <b>il aura des fils maîtres de sagesse, maîtres de richesse et maîtres de <i>aggada</i>.</b> La Gemara explique : <b>Maîtres de la sagesse, comme il est écrit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

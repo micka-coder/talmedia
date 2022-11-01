@@ -65,7 +65,7 @@
 <b>ils seront édifiés</b> expression de l'édification.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Tu as raison, Seigneur, quand je discute avec Toi</b> Quand je discute avec Toi, je sais que tu auras raison dans tes paroles, mais je désire discuter avec Toi pour que Tu me fasses connaître Ta voie.
 <b>Pourquoi la voie des méchants a-t-elle prospéré ?</b> Que Tu aies donné de la grandeur à Nabuchodonosor le méchant, et que Tu l'aies fait réussir à détruire Ta maison ? Une autre explication est qu'il pleurait et se plaignait des hommes d'Anathoth.
@@ -132,4 +132,4 @@
 <b>ils seront édifiés</b> expression de l'édification.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

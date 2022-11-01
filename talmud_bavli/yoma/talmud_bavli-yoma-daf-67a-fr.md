@@ -36,4 +36,4 @@ La Guemara demande : Si c'est le cas, <b>qu'il attache la bande entière</b> <b>
 La Guemara explique leur raisonnement : <b>Celui qui a dit qu'ils sont permis</b> pour le bénéfice.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

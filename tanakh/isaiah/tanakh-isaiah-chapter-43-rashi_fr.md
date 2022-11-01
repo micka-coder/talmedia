@@ -102,7 +102,7 @@
 <b>Et je profane les princes saints</b> à cause de tes iniquités.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Et maintenant</b> malgré tout cela, ainsi dit le Seigneur, "...ne crains pas.".
 
@@ -206,4 +206,4 @@
 <b>Et je profane les princes saints</b> à cause de tes iniquités.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

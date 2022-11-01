@@ -18,4 +18,4 @@ La Guemara demande : <b>Qu'y a-t-il de différent</b> à propos de <b>la viande 
 <b>Abaye a dit :</b> Cela fait référence à un cas <b>où ses yeux lui font mal, car les poissons sont nocifs pour les yeux.</b> Par conséquent, la viande d'oiseaux est permise, mais pas le poisson. La Guemara demande : <b>Si c'est le cas,</b> et qu'il souffre de douleurs aux yeux, il doit <b>manger du poisson, comme l'a dit Shmuel</b> un acronyme : <b><i>Nun</i>, <i>samekh</i>, <i>ayin</i>,</b> qui signifie : <b><i>Nuna samma la'einayim</i>,</b> ce qui signifie : Le poisson est un médicament pour les yeux. La Gemara répond : <b>Cette</b> affirmation de Shmuel fait référence aux <b>dernières</b> étapes <b>de l'infection</b> oculaire <b>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -38,5 +38,5 @@ Chaque fois qu'il y a kiddushin et qu'il n'y a pas de transgression, l'enfant su
 ### michna 13
 Rabbi Tarfon dit : les mamzerim peuvent être purifiés. Comment cela se passe-t-il ? Si un mamzerim épouse une femme esclave, son fils est un esclave ; s'il l'affranchit, on constate que le fils est un homme libre. Rabbi Eliezer dit : voici, il est un mamzer esclave.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

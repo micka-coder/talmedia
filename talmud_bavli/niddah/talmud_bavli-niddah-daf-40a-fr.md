@@ -57,4 +57,4 @@ La Gemara objecte : <b>Au contraire, il doit la dériver</b> <b>des naissances h
 <b>Rav Ḥiyya, fils de Rav Huna, a dit au nom de Rava :</b> Une <i>baraita</i> <b>est enseignée qui soutient</b> la déclaration <b>de Rabbi Yoḥanan : Rabbi Yehouda dit : "C'est la loi de l'holocauste ; c'est l'holocauste</b> qui monte sur le bûcher sur l'autel" (Lévitique 6:2). On déduit de ce verset que la <i>halakha</i> est que si une partie d'une offrande disqualifiée est montée sur l'autel, elle doit y être brûlée, plutôt que d'être descendue, malgré son statut d'inaptitude. <b>Il y a trois</b> expressions qui indiquent une <b>exclusion</b> dans ce verset : L'expression "ceci est", qui indique celui-ci et pas un autre ; l'expression "cela est", qui indique celui-là et pas un autre ; et l'expression "l'holocauste" au lieu de "un holocauste".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

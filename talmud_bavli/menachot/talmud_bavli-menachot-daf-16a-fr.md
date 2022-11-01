@@ -51,7 +51,7 @@ La Guemara explique la preuve : <b>En tout état de cause,</b> cette <i>baraïta
 <b>Rav Ashi s'oppose à cette</b> explication : <b>Est-ce que</b> le <i>baraita</i> <b>enseigne</b> que le Grand Prêtre était <b>silencieux ? Au contraire, Rav Ashi a dit : Nous avons ici affaire</b> à un cas <b>où il avait</b> explicitement <b>l'intention de <i>piggul</i> lors des première, deuxième et troisième</b> présentations, et s'est tu lors des présentations suivantes. Dans un tel cas, <b>on dit : Si</b> il <b>vous vient à l'esprit</b> de dire que <b>toute personne qui accomplit</b> un rite <b>l'accomplit</b> conformément à son intention initiale, pourquoi ai-je</b> besoin que le Grand Prêtre <b>répète</b> son intention de <b><i>piggul</i> pendant les deuxième et troisième</b> présentations ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> A propos de la combustion de la poignée d'une offrande de repas et de l'encens, qui rendent tous deux l'offrande de repas autorisée à la consommation : Si le prêtre avait une intention qui peut <b>rendre</b> l'offrande <b><i>piggul</i> pendant</b> la combustion de <b>la poignée mais pas pendant</b> la combustion de <b>l'encens,</b> ou <b>pendant</b> la combustion de <b>l'encens mais pas pendant</b> la combustion de <b>la poignée,</b> c'est-à-dire, il a brûlé l'une d'entre elles avec l'intention de manger le reste de l'offrande au-delà de son temps désigné, <b>Rabbi Meir dit :</b> L'offrande est <b><i>piggul</i> et celui</b> qui la mange est <b>lible</b> de recevoir <b><i>karet</i></b> pour sa consommation. <b>Et les rabbins disent : Il n'y a pas</b> d'obligation de recevoir <b><i>karet</i> dans ce</b> cas <b>à moins qu'il ne rende</b> l'offrande <b><i>piggul</i> pendant</b> le sacrifice de <b>l'ensemble du facteur de permission,</b> c'est-à-dire la combustion à la fois de la poignée et de l'encens.
 
@@ -104,4 +104,4 @@ La Guemara explique la preuve : <b>En tout état de cause,</b> cette <i>baraïta
 <b>Rav Ashi s'oppose à cette</b> explication : <b>Est-ce que</b> le <i>baraita</i> <b>enseigne</b> que le Grand Prêtre était <b>silencieux ? Au contraire, Rav Ashi a dit : Nous avons ici affaire</b> à un cas <b>où il avait</b> explicitement <b>l'intention de <i>piggul</i> lors des première, deuxième et troisième</b> présentations, et s'est tu lors des présentations suivantes. Dans un tel cas, <b>on dit : Si</b> il <b>vous vient à l'esprit</b> de dire que <b>toute personne qui accomplit</b> un rite <b>l'accomplit</b> conformément à son intention initiale, pourquoi ai-je</b> besoin que le Grand Prêtre <b>répète</b> son intention de <b><i>piggul</i> pendant les deuxième et troisième</b> présentations ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

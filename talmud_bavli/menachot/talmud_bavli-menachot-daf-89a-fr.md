@@ -60,4 +60,4 @@ La Guemara développe : Le <b>qui dit</b> qu'ils l'ont calculé</b> <b>en augmen
 <strong>MISHNA:</strong> De nombreuses offrandes d'animaux sont réunies avec une offrande de repas et une libation de vin. Ces ajouts sont collectivement désignés sous le nom de libations. <b>On peut mélanger ensemble les libations de taureaux avec les libations de béliers;</b> les offrandes de repas peuvent être mélangées car elles partagent toutes deux le même rapport entre la farine et l'huile, c'est-à-dire deux <i>log</i> d'huile pour chaque dixième d'épha de farine. De même, on peut mélanger <b>les libations d'agneaux avec les libations</b> d'autres <b>agneaux,</b> car les offrandes de repas partagent toutes deux le même rapport de trois <i>log</i> d'huile pour chaque dixième d'épha de farine. Et on peut mélanger les libations <b>de</b> l'offrande d'un <b>individu</b> avec celles <b>d'une offrande communale</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

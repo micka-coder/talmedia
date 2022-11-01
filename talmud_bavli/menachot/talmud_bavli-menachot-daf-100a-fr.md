@@ -57,7 +57,7 @@ Rabbi Zeira explique : <b>Et s'il vous vient à l'esprit</b> de dire que les <b>
 La Gemara demande : <b>Enfin,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>A l'intérieur. Et de peur que vous ne disiez : De même que l'ouverture</b> de la Géhenne <b>est étroite, de même</b> que <b>toute</b> la Géhenne <b>est étroite, le verset dit :</b> "Car la Géhenne a été disposée dès l'antiquité, elle a été préparée même pour le roi, <b>profonde et large,</b> son tas est du feu et beaucoup de bois, le souffle du Seigneur l'allume comme un torrent de soufre" (Isaïe 30:33).
 
@@ -116,7 +116,7 @@ Rabbi Zeira explique : <b>Et s'il vous vient à l'esprit</b> de dire que les <b>
 La Gemara demande : <b>Enfin,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>A l'intérieur. Et de peur que vous ne disiez : De même que l'ouverture</b> de la Géhenne <b>est étroite, de même</b> que <b>toute</b> la Géhenne <b>est étroite, le verset dit :</b> "Car la Géhenne a été disposée dès l'antiquité, elle a été préparée même pour le roi, <b>profonde et large,</b> son tas est du feu et beaucoup de bois, le souffle du Seigneur l'allume comme un torrent de soufre" (Isaïe 30:33).
 
@@ -175,4 +175,4 @@ Rabbi Zeira explique : <b>Et s'il vous vient à l'esprit</b> de dire que les <b>
 La Gemara demande : <b>Enfin,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

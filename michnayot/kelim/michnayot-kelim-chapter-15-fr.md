@@ -17,5 +17,5 @@ La pelle des marchands de grains est susceptible d'être impure, mais celle util
 ### michna 6
 Les harpes ordinaires sont susceptibles d'être impures, mais les harpes des Lévites sont pures. Tous les liquides sont susceptibles d'être impurs, mais les liquides de l'abattoir du Temple sont purs. Tous les parchemins transmettent l'impureté aux mains, sauf le parchemin de la cour du Temple. Un cheval jouet en bois est propre. Le luth ventral, l'instrument de musique en forme d'âne et l'éros sont susceptibles d'être impurs. Rabbi Judah dit : le erus est susceptible d'être impur en position assise puisque la femme qui se lamente s'y assoit. Un piège à belette est susceptible d'être impur, mais un piège à souris est propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara note que <b>cela est enseigné</b> dans une <i>baraita</i> <b>conform
 § <b>Les Sages ont enseigné</b> une <i>baraita</i> qui traite plus avant de ces questions. Celui qui a dit : <b>Cette <i>sela</i> est destinée à la charité,</b> est <b>permis de changer</b> son but et de la remplacer, tant qu'elle n'est <b>pas</b> encore <b>entrée en possession</b> des <b>collecteurs de charité.</b> Mais <b>une fois qu'elle est entrée en possession</b> des <b>collecteurs de charité</b> il est <b>interdit de changer</b> son but.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

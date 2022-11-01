@@ -39,4 +39,4 @@ La Gemara demande : <b>Cette ordonnance</b> est-elle <b>théorique ?</b> Les Bei
 La Guemara soulève une autre question : <b>Est-ce que ces</b> interdictions de labourer avant l'année sabbatique sont réellement des <b><i>halakhot</i></b> transmises à Moïse depuis le Sinaï ? <b>Ils sont</b> en fait des interdictions basées sur des <b>vers explicites. Comme nous l'avons appris</b> dans une <i>baraita</i> à propos du verset <b>'dans le labourage et la moisson vous vous reposerez"</b> (Exode 34:21) que <b>Rabbi Akiva dit : Il n'est pas nécessaire</b> que le verset <b>parle</b> du <b>battage et de la moisson pendant l'année sabbatique, car il a déjà été dit : </b> "Mais la septième année sera un sabbat de repos solennel pour la terre, un sabbat pour l'Eternel ; <b>Ton champ tu ne sèmeras pas, et ta vigne tu n'émonderas pas"</b> (Lévitique 25:4). Cela enseigne que durant la septième année, tout travail agricole est interdit. <b>Le verset vient plutôt interdire de <b>semer la veille de l'année sabbatique</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,7 +63,7 @@ Il est nécessaire <b>parce que si</b> le <i>tanna</i> <b>nous avait enseigné</
 <b>Et Abaye dit</b> un commentaire supplémentaire sur le cas précédent : Les Sages <b>ont enseigné</b> dans la mishna que dans le cas d'un changement de type d'offrande de repas, l'offrande de repas non valable...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 elle est traitée comme une offrande de culpabilité qui a été disqualifiée et elle <b>doit paître jusqu'à ce qu'elle devienne tachée, et</b> alors <b>elle est vendue, et son argent</b> qui est reçu de la vente est <b>attribué pour</b> des offrandes <b>de cadeaux</b> communales. <b>Rabbi Eliezer dit :</b> Il <b>doit être sacrifié</b> dans son état actuel, <b>car s'il ne vient pas</b> expier <b>ce péché, il viendra pour un autre péché,</b> car il a certainement commis un péché dont il n'a pas conscience.
 
@@ -128,7 +128,7 @@ Il est nécessaire <b>parce que si</b> le <i>tanna</i> <b>nous avait enseigné</
 <b>Et Abaye dit</b> un commentaire supplémentaire sur le cas précédent : Les Sages <b>ont enseigné</b> dans la mishna que dans le cas d'un changement de type d'offrande de repas, l'offrande de repas non valable...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 elle est traitée comme une offrande de culpabilité qui a été disqualifiée et elle <b>doit paître jusqu'à ce qu'elle devienne tachée, et</b> alors <b>elle est vendue, et son argent</b> qui est reçu de la vente est <b>attribué pour</b> des offrandes <b>de cadeaux</b> communales. <b>Rabbi Eliezer dit :</b> Il <b>doit être sacrifié</b> dans son état actuel, <b>car s'il ne vient pas</b> expier <b>ce péché, il viendra pour un autre péché,</b> car il a certainement commis un péché dont il n'a pas conscience.
 
@@ -193,4 +193,4 @@ Il est nécessaire <b>parce que si</b> le <i>tanna</i> <b>nous avait enseigné</
 <b>Et Abaye dit</b> un commentaire supplémentaire sur le cas précédent : Les Sages <b>ont enseigné</b> dans la mishna que dans le cas d'un changement de type d'offrande de repas, l'offrande de repas non valable...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

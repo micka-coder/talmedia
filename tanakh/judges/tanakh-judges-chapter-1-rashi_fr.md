@@ -78,4 +78,4 @@
 <b>Menashe n'a pas évincé.</b> L'Écriture les censure, car ils ont commencé à trahir le Saint, béni soit-Il, qui leur a ordonné : "Oust tous ceux qui habitent dans le pays, etc."<sup>37</sup><i class="footnote">Bemidbar, 33:52.</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

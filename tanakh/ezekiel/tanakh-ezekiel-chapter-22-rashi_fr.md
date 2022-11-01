@@ -87,4 +87,4 @@
 <b>Plâtré pour eux avec du daub</b> Ils sont comme ceux qui plâtrent un bâtiment avec du plâtre qui n'est pas complètement traité, qui n'a pas de paille ; il se dissout tout seul quand la pluie tombe dessus. L'expression תָּפֵל signifie tout ce qui manque de préparation.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

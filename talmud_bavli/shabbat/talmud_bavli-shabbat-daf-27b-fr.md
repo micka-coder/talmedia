@@ -27,4 +27,4 @@ La Guemara revient pour discuter de l'opinion de Rabbi Shimon ben Elazar, qui di
 <b>Et</b> nous avons également appris dans la mishna qu'en ce qui concerne <b>toute</b> substance <b>qui sort de l'arbre, la seule</b> substance <b>qui devient rituellement impure</b> avec l'impureté transmise par les <b>tentes</b> sur un cadavre <b>est le lin.</b> La Gemara demande : <b>D'où dérive-t-on</b> cela ? <b>Rabbi Elazar dit :</b> La <i>tanna</i> <b>a appris</b> une analogie verbale [<i>gezera shava</i>] entre le mot <b>tent,</b> écrit dans le contexte de l'impureté rituelle, et le mot <b>tent,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

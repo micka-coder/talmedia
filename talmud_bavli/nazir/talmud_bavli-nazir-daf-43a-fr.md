@@ -33,4 +33,4 @@ La Guemara demande : <b>Et selon celui qui dit</b> que la source du commencement
 La Gemara <b>souleve une objection</b> tirée d'une mishna (<i>Oholot</i> 1:6) : <b>Une personne ne rend</b> autrui <b>impur que lorsque son âme s'en va</b> de <b>lui, même si elle a de graves lacérations [<i>meguyyad</i>], et même si</b> elle <b>est mourante. Mais selon celui qui dit</b> que le commencement de l'impureté d'un cadavre provient <b>de "se profaner", </b> cette <i>baraita</i> est difficile, car elle <b>enseigne</b> qu'un mourant <b>ne transmet pas d'impureté.</b> La Gemara répond : <b>En ce qui concerne la transmission d'impureté,</b> il ne transmet pas d'impureté <b>jusqu'au départ de son âme, mais en ce qui concerne la profanation</b> de la sainteté du sacerdoce, un prêtre <b>est profané</b> par un mourant.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

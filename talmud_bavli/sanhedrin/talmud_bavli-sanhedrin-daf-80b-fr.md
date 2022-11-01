@@ -30,4 +30,4 @@ Rav Yehuda a répondu : <b>Voilà,</b> dans cette dernière clause, <b>ce sont l
 Lorsque ce récit fut entendu, <b>Shmuel dit à Rav Yehuda : Celui qui a les dents longues :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

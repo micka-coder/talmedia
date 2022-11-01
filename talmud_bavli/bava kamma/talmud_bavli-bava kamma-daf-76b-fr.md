@@ -30,4 +30,4 @@ Quel est le cas où la viande <b>est restée toute la nuit après</b> le sang <b
 <b>Et</b> Rabbi Shimon soutient que <b>tout</b> animal <b>qui est prêt à être racheté est considéré</b> comme s'il était déjà <b>recyclé, car il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

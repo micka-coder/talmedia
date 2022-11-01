@@ -33,4 +33,4 @@ La Gemara demande : <b>Qu'est-ce qu'il dit?</b> La Gemara explique : <b>Voici ce
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Il y eut un jour <b>un incident impliquant Rabbi Akiva, qui cueillit un <i>cèdre</i> le premier de Chevat et mit de côté deux dîmes.</b> Cela se produisit la deuxième ou la cinquième année du cycle sabbatique. La deuxième et la cinquième année, on met de côté la deuxième dîme, alors que la troisième et la sixième année, on met de côté la dîme du pauvre. Rabbi Akiva a mis de côté à la fois la seconde dîme et la dîme du pauvre car il avait un doute sur la <i>halakha</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

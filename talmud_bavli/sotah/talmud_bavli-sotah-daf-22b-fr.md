@@ -24,4 +24,4 @@ Le <i>baraita</i> inclut également dans la liste des pseudo-justiciables ceux q
 § Si <b>l'offrande de repas</b> de la <i>sota</i> <b>est rendue impure avant d'avoir été sanctifiée dans le <b>vase de service, son</b> statut <b>est comme</b> celui de <b>tous les</b> autres <b>offrandes de repas</b> qui sont rendues impures avant d'être sanctifiées dans un vase de service, <b>et elle est rachetée. Mais si</b> elle est rendue impure <b>après avoir été sanctifiée dans le <b>vase de service, son</b> statut <b>est comme</b> celui de <b>toutes</b> les autres <b>offrandes de repas</b> qui sont rendues impures après avoir été sanctifiées dans un vase de service, <b>et elle est brûlée. Et ce sont</b> les femmes <i>sota</i> <b>dont les offrandes de repas sont brûlées</b> si elles ont déjà été sanctifiées dans un récipient de service :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara répond : <b>Ce</b> Rabbi Yosei mentionné dans le <i>baraita</i> <b>
 <b>L'école de Rabbi Yishmael a enseigné : Celui qui voit</b> une émission de <b>semens à Yom Kippour doit s'inquiéter toute l'année</b> que peut-être on lui a donné un signe que lui et son jeûne ont été rejetés. <b>Mais s'il survit à l'année, il peut être assuré</b> que ses bonnes actions l'ont protégé et lui ont assuré <b>une part</b> dans <b>le Monde-à-Venir. Rav Naḥman bar Yitzḥak a dit : Sachez</b> qu'il en est ainsi, <b>comme le monde entier a faim</b> en raison de l'abstention de relations conjugales, <b>et il est rassasié</b> puisqu'il a émis du sperme et que sa convoitise a été soumise. Comme l'émission était involontaire et non intentionnelle, c'est un signe qu'il a mérité la compassion divine. <b>Lorsque Rav Dimi est venu d'Eretz Yisrael</b> à Babylone, il a dit : Voir du sperme à Yom Kippour est un signe que <b>quelqu'un vivra une longue vie, grandira et élèvera d'autres personnes.</b> Une allusion à cela est le verset : "Pour qu'il voie sa postérité et prolonge ses jours" (Isaïe 53:10).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ A propos de la mention de <i>shetita'a</i>, la Gemara relate que <b>Rav a dit : 
 La Guemara cite une opinion dissidente. <b>Et Rabbi Yoḥanan dit : Même lorsqu'on sait</b> que du vin ou du vinaigre a été ajouté aux légumes, il est <b>également permis</b> d'en tirer un bénéfice. La Gemara demande : <b>Et</b> en <b>quelle manière</b> ce cas est-il <b>différent du ragoût de poisson, selon</b> l'opinion de <b>Rabbi Meir, qui a interdit</b> de tirer un <b>bénéfice</b> du ragoût de poisson ? Pourquoi Rabbi Meir permet-il de tirer un bénéfice des légumes marinés dans le vin des gentils mais interdit de tirer un bénéfice du ragoût de poisson qui contient du vin ou du vinaigre ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

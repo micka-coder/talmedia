@@ -48,7 +48,7 @@ La mishna poursuit : Dans le cas d'un <b>mur ou d'un arbre qui est tombé dans l
 Dans le cas de <b>quelqu'un dont le mur était adjacent au jardin d'autrui, et</b> le mur <b>est tombé, et</b> le propriétaire du jardin <b>lui a dit : Dégage</b> tes <b>pierres, et</b> le propriétaire des pierres <b>lui a dit :</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <strong>GEMARA:</strong> <b>Rabbi Yoḥanan dit : En trois endroits, Rabbi Yéhouda nous a enseigné</b> le principe selon lequel il est <b>interdit à une personne de tirer profit de la propriété d'une autre</b> sans sa pleine conscience et son consentement, même si l'autre ne subit pas de perte. <b>Un</b> des endroits où l'on nous enseigne ce principe est <b>ce que nous apprenons</b> dans la mishna, à savoir que Rabbi Yehouda ne permet pas que l'on réside dans la propriété d'un autre sans lui payer de loyer.
 
@@ -98,4 +98,4 @@ La mishna poursuit : Dans le cas d'un <b>mur ou d'un arbre qui est tombé dans l
 Dans le cas de <b>quelqu'un dont le mur était adjacent au jardin d'autrui, et</b> le mur <b>est tombé, et</b> le propriétaire du jardin <b>lui a dit : Dégage</b> tes <b>pierres, et</b> le propriétaire des pierres <b>lui a dit :</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

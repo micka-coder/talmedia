@@ -27,4 +27,4 @@ La Guemara cite une <i>Tosefta</i> : <b>Dans quel cas</b> <b>ces questions, </b>
 <strong>MISHNA:</strong> <b>La personne qui emporte une corde</b> est responsable dans une mesure <b>équivalente</b> à celle qui est utilisée <b>pour former une anse en forme d'oreille pour un panier.</b> La mesure qui détermine la responsabilité pour l'emport de <b>l'herbe de roseau</b> est <b>équivalente</b> à celle qui est utilisée <b>pour faire une boucle pour suspendre un tamis ou une passoire. Rabbi Yehuda dit :</b> La mesure qui détermine la responsabilité est <b>équivalente</b> à celle qui est utilisée <b>pour prendre la mesure d'une chaussure pour un enfant,</b> car le roseau est utilisé pour mesurer la taille du pied. La mesure qui détermine la responsabilité de l'exécution du <b>papier</b> est <b>équivalente</b> à celle qui est utilisée <b>pour rédiger un reçu fiscal. Et celui qui effectue un reçu fiscal</b> lui-même le Chabbat <b>est responsable.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

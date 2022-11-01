@@ -36,4 +36,4 @@ La Gemara relate que <b>Rabbi Shimon ben Lakish a jugé</b> l'abattage <b>valide
 <b>Il a été dit</b> que <b>Rav Pappa a dit au nom de Rava :</b> Si <b>on a laissé</b> une partie <b>du cartilage aryténoïde,</b> c'est-à-dire s'il l'a coupé au milieu, l'abattage est <b>valide. Rav Ameimar bar Mar Yenuka a dit : Je me trouvais devant Rabbi Ḥiyya, fils de Rav Avya, et il me dit :</b> Si <b>on a laissé</b> une partie <b>du cartilage aryténoïde,</b> l'abattage est <b>valide. Ravina dit à Rav Ashi : Rav Shemen de Suvara m'a dit</b> que <b>Mar Zutra est arrivé</b> à venir <b>chez nous et a enseigné :</b> Si <b>on a laissé</b> une partie <b>du cartilage aryténoïde,</b> l'abattage est <b>valide. Mar bar Rav Ashi a dit :</b> Si <b>on a rencontré le cartilage aryténoïde,</b> l'abattage est <b>valide.</b> Si <b>on a laissé</b> une partie <b>du cartilage aryténoïde,</b> l'animal est <b>un <i>tereifa</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

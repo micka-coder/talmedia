@@ -57,4 +57,4 @@ La Guemara demande : <b>Mais</b> pourquoi ne pas <b>dire</b> que c'est <b>en eff
 La Gemara demande : <b>Lequel des</b> trois camps qui étaient présents dans le désert <b>n'était pas</b> présent à Silo ? <Rabba dit : Il va de soi que le camp lévite était</b> présent, mais que le camp israélite ne l'était pas. <b>Ainsi, s'il vous vient à l'esprit de dire</b> que <b>le camp lévite n'était pas</b> présent à Silo,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

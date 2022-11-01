@@ -26,5 +26,5 @@ S'il dit à sa femme : "Konam, je ne mangerai pas de ce que tu produiras avant P
 ### michna 9
 S'il dit : "konam", tout bénéfice que tu as de moi jusqu'à Pessah, si tu vas dans la maison de ton père jusqu'à la fête [de Souccot], si elle part avant Pessah, elle ne pourra pas bénéficier de lui jusqu'à Pessah ; si elle part après Pessah, elle est soumise à "il ne manquera pas à sa parole" (Nombres 30:3). S'il dit : "konam", tout bénéfice que tu auras de moi jusqu'à la fête [de Souccot] si tu vas chez ton père avant Pessah, si elle y va avant Pessah, elle ne pourra pas bénéficier de lui jusqu'à la fête [de Souccot], mais il lui sera permis d'y aller après Pessah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ A nouveau, la Guemara clarifie le dilemme : <b>Ici, étant donné</b> qu'il est 
 <b>Au contraire,</b> Rabbi Yoḥanan et Reish Lakish sont en désaccord concernant un cas <b>d'annulation d'une transaction,</b> c'est-à-dire lorsque la différence de valeur entre les deux animaux était supérieure à un sixième. Est-ce que <b>Rabbi Yoḥanan dirait</b> dans un tel cas qu'on est <b>obligé de procéder</b> à une évaluation pour déterminer la <b>valeur</b> relative des deux animaux</b> selon la loi rabbinique ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

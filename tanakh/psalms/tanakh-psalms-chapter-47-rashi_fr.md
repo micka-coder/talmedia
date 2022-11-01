@@ -27,4 +27,4 @@
 <b>Le peuple du Dieu d'Abraham</b> qui fut le premier volontaire, le premier des prosélytes [il fut le premier à se porter volontaire pour faire du prosélytisme]. Maintenant, on sait que <b>Dieu a les boucliers de la terre</b> et il a le pouvoir d'être un bouclier pour tous ceux qui se confient en lui.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

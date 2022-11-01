@@ -63,4 +63,4 @@ La Guemara note : <b>Et</b> cette déclaration de Rabbi Yishmael <b>est en désa
 <b>Ḥizkiyya a dit : Quel</b> est le sens de ce <b>qui est écrit :</b> "Il délivre les affligés en raison de Son affliction, et ouvre leur oreille par la tribulation ; <b>et aussi Il t'a attiré d'une ouverture étroite vers un lieu large sans confins au-dessous,</b> et ce qui est mis sur ta table est plein de graisse" (Job 36:15-16) ? <b>Venez voir que l'attribut de la chair et du sang est différent de l'attribut du Saint, Béni soit-Il. L'attribut de la chair et du sang</b> est qu'une <b>personne attire une autre personne des</b> <b>chemins de la vie vers</b> les <b>chemins de la mort, mais le Saint, Béni soit-Il, attire la personne des</b> <b>chemins de la mort vers</b> les <b>chemins de la vie, comme il est dit : "Et aussi Il t'a attiré hors d'une ouverture étroite"</b> c'est-à-dire, <b>de la Géhenne, dont l'ouverture est étroite</b> de sorte <b>que sa fumée est recueillie</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

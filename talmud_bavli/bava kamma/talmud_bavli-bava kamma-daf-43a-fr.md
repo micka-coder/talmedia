@@ -42,4 +42,4 @@ Abaye a contesté cette réponse : <b>Si</b> il est question de la <b>valeur</b>
 Rabba <b>a dit à</b> Abaye : <b>J'aurais pu te répondre</b> en disant que <b>la première clause,</b> qui parle d'un bœuf qui tue un homme libre, fait référence à la <b>valeur</b> de la victime, <b>et la dernière clause,</b> qui concerne un bœuf qui a encorné un esclave, fait référence au paiement de l'amende de trente <b>shekels. Mais je ne vous répondrai pas par une réponse forcée.</b> Au contraire, je répondrai comme suit : La clause <b>cette</b> et la clause <b>cette</b> font toutes deux référence à la <b>valeur</b> de la victime ;
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

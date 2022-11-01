@@ -72,4 +72,4 @@
 <b>Et tu me chercheras</b> Tu me chercheras et tu ne me trouveras pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

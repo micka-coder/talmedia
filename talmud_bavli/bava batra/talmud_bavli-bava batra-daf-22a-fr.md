@@ -42,4 +42,4 @@ Ce <b>jour-là, Rav Pappa et Rav Huna, fils de Rav Yehoshua, saisirent Rav Adda 
 <strong>GEMARA:</strong> La Gemara commente : Avant d'aborder la construction du second mur, on peut se demander : <b>Et</b> en ce qui concerne le <b>premier</b> homme, <b>comment a-t-il placé</b> son mur <b>proche</b> du mur du voisin en premier lieu ? <b>Rav Yehuda a dit</b> que <b>c'est ce que</b> le <i>tanna</i> <b>dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

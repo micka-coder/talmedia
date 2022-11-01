@@ -57,4 +57,4 @@ La mishna enseigne que <b>Beit Shammai</b> disent : Son immersion à la fin des 
 <b>Beit Shammai disent :</b> Puisqu'elle n'a pas observé ce jour pur correspondant, elle conserve le statut de <i>zava</i>. Par conséquent, tant elle, la <i>zava</i>, que son mari, qui a eu des rapports sexuels avec une <i>zava</i>, <b>transmettent l'impureté</b> aux objets désignés pour <b>se coucher ou s'asseoir,</b> dans la mesure où ceux-ci transmettent l'impureté aux aliments et aux boissons qui sont entrés en contact avec eux, et dans son cas, aux personnes également. <b>Et</b> chacun d'eux est <b>dispensable</b> d'apporter une offrande pour le péché pour avoir participé à des rapports sexuels impliquant un <i>zava</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

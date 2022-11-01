@@ -42,4 +42,4 @@ La Gemara rejette cet argument : <b>Ces cas sont-ils</b> <b>comparables ? Là, l
 En ce qui concerne la décision de Rav Ḥama selon laquelle il est permis au frère qui a reçu le jardin de construire un mur devant la salle, <b>ils lui ont dit,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

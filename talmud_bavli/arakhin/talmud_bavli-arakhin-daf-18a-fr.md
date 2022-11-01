@@ -54,4 +54,4 @@ La Gemara suggère : <b>Disons que la mishna n'est pas conforme</b> à l'opinion
 La Guemara fournit la source de l'opinion de Rabbi Yehuda HaNasi. <b>Comme il est enseigné</b> dans une <i>baraita</i> concernant la fête de Pessah : Le verset dit : "Car quiconque mange du pain levé <b>du premier jour jusqu'au septième jour"</b> (Exode 12:15). On <b>pourrait</b> penser que l'interdiction de manger du levain s'applique à partir du <b>premier</b> jour <b>mais</b> le <b>premier</b> jour <b>n'est pas inclus,</b> et de même que l'interdiction continue jusqu'au <b>septième</b> jour <b>mais</b> le <b>septième</b> jour <b>n'est pas inclus.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

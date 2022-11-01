@@ -54,4 +54,4 @@ La Gemara répond : <b>Lorsque</b> Rabbi Yirmeya <b>a fait sa déclaration,</b> 
 <b>Et Rabbi Yirmeya ben Elazar</b> a également <b>dit :</b> Lorsque <b>la Babylonie a été maudite, ses voisins ont été maudits</b> avec elle. Quand <b>la Samarie était maudite, ses voisins étaient bénis.</b> Il explique : Quand <b>Babylonia a été maudite, ses voisins ont été maudits, comme il est écrit : " J'en ferai aussi une possession pour les oiseaux sauvages, et des mares d'eau"</b> (Isaïe 14:23), et l'arrivée d'animaux prédateurs apporte aussi du tort aux voisins environnants. Lorsque la <b>Samarie était maudite, ses voisins étaient bénis, comme il est écrit : <b>C'est pourquoi je ferai de Samarie un tas de décombres dans les champs</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ Ceci est <b>comme il est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 8
 Le <i>baraita</i> continue : <b>Et</b> de même, s'il y avait <b>une personne sur son lit de mort qui disait : Donne deux cents dinars à untel, mon épouse, comme il convient pour elle, elle prend</b> les deux cents dinars <b>et prend</b> le paiement de <b>son contrat de mariage</b> également. <b>S'il a dit :</b> Donnez-lui deux cents dinars en paiement <b>de son contrat de mariage</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

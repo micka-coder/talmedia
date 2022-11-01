@@ -72,4 +72,4 @@ La Gemara demande : <b>Grâce, selon Rabbi Yoḥanan, c'est</b> pourquoi la <i>b
 Le <i>baraita</i> continue : S'il <b>a marché sur le premier</b> chemin <b>et est entré</b> dans le Temple, il est <b>exempté</b> d'apporter une offrande. Mais s'il a ensuite marché <b>sur le second</b> chemin <b>et</b> après être <b>entré</b> dans le Temple, il est <b>obligé</b> d'apporter une offrande pour le péché, car il était définitivement impur à l'une des occasions où il est entré dans le Temple. S'il <b>a emprunté le premier</b> chemin <b>et est entré</b> dans le Temple, <b>et</b> a ensuite suivi le processus de purification rituelle, c'est-à-dire, il a reçu la <b>sprinkling</b> des cendres de la génisse rouge le troisième jour <b>et à nouveau</b> le septième jour, <b>et s'est immergé, et</b> a ensuite <b>marché sur le second</b> chemin <b>et est entré</b> dans le Temple, il est <b>liable</b> d'apporter une offrande pour le péché, car il est définitivement entré dans le Temple alors qu'il était rituellement impur, soit à la première occasion, soit à la seconde.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

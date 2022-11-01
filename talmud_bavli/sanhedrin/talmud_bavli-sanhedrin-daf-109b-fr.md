@@ -48,4 +48,4 @@ La Guemara procède à l'interprétation des noms des cohortes de Koré : "Datha
 <b>Rav dit : On, fils de Peleth,</b> ne s'est pas repenti de lui-même ; au contraire, <b>sa femme l'a sauvé. Elle lui a dit : Quelle différence cela fait-il pour toi ? Si</b> ce <b>Maître,</b> Moïse, est <b>le grand</b>, <b>tu</b> es <b>l'élève. Et si</b> ce <b>Maître,</b> Koré, est <b>le grand</b>, <b>tu</b> es <b>l'élève.</b> Pourquoi t'impliques-tu dans cette affaire ? On <b>lui a dit : Que dois-je faire ? J'étais</b> l'un de ceux <b>qui ont pris conseil et j'ai fait le serment avec eux</b> que je serais avec eux. <b>Elle lui a dit : Je sais que toute l'assemblée est sainte, comme il est écrit : "Car toute l'assemblée est sainte"</b> (Nombres 16:3), et ils observent les restrictions de la pudeur. <b>Elle lui dit : Assieds-toi, car je vais te sauver. Elle lui donna à boire du vin, le fit s'enivrer et le coucha</b> sur un lit <b>à l'intérieur</b> de leur tente. <b>Elle s'assit à l'entrée</b> de la tente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

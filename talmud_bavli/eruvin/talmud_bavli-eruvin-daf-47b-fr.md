@@ -51,4 +51,4 @@ La Gemara relate que <b>certains béliers furent amenés</b> dans la ville de <b
 <b>Rabbi Ḥiyya a enseigné</b> une <i>baraita</i> : <b>Un fossé rempli d'eau [<i>ḥerem</i>] qui</b> se trouve <b>entre</b> deux <b>limites de Chabbat nécessite</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

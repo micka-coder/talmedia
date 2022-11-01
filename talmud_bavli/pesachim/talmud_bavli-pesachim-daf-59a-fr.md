@@ -57,4 +57,4 @@ La Guemara demande : <b>Mais n'y a-t-il pas</b> également <b>un holocauste</b> 
 <b>Rava dit :</b> La <i>halakha</i> de l'<b>holocauste d'un lépreux est différente</b> des autres offrandes pour le péché et des holocaustes, <b>comme le Miséricordieux le dit</b> à propos des <i>halakhot</i> d'un lépreux :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

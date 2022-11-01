@@ -23,5 +23,5 @@ Si des grappins d'Ashkelon ont été brisés mais que leurs crochets sont resté
 ### michna 8
 Un peigne de lin : si les dents manquaient mais qu'il en restait deux, il est encore susceptible d'impureté. S'il n'en reste qu'une, il est propre. En ce qui concerne toutes les dents, chacune d'entre elles est susceptible d'être impure. Le peigne à laine : s'il manque une dent sur deux, il est propre. S'il reste trois dents consécutives, il est susceptible d'être impur. Si la dent la plus extérieure était l'une d'entre elles, le peigne est propre. Si deux dents ont été retirées du peigne et transformées en pince à épiler, elles sont susceptibles d'être impures. Même si une seule dent a été retirée mais qu'elle a été adaptée pour être utilisée comme lampe ou comme épingle à étirer, elle est susceptible d'être impure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

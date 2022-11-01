@@ -45,4 +45,4 @@ La Guemara demande : <b>Si</b> il est <b>ainsi</b> que se couper les cheveux est
 La Guemara remet en question cette conclusion : <b>Mais n'est-il pas enseigné</b> dans la <i>baraita</i> susmentionnée que <b>Rabbi</b> Yehuda HaNasi <b>dit : je dis</b> qu'il est <b>interdit</b> à tous les <b>prêtres de boire du vin à tout moment. Cependant, que puis-je faire, puisque son malheur est son avantage ? Et Abaye dit : Conformément à l'avis de qui</b> les <b>prêtres boivent-ils du vin de nos jours ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

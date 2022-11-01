@@ -90,5 +90,5 @@
 ### passuk 26
 <b>En ce jour précis.</b> [Le jour] où Avraham eut quatre-vingt-dix-neuf ans et Yishmael treize ans, Avraham et son fils Yishmael furent circoncis. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

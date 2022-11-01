@@ -66,4 +66,4 @@ L'expression : "jusqu'à ce que <b>tu en aies assez"</b> indique que l'ouvrier p
 § <b>Rabbi Yannai dit :</b> Le propriétaire d'un <b>produit non récolté n'est pas obligé dans</b> la mitsva de <b>la dîme</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

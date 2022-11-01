@@ -48,4 +48,4 @@ La Guemara justifie l'interprétation de la mishna par Abaye : <b>Cette explicat
 La Guemara rejette cette analogie. <b>Disons que vous avez entendu Rabbi Yehuda</b> statuer qu'il est interdit pour tout le Chabbat <b>dans</b> un cas où il est <b>mis de côté pour cause de répugnance,</b> comme la vieille lampe. <b>Avez-vous entendu</b> que <b>il</b> a dit qu'il est interdit pour tout le Chabbat dans un cas où il est <b>mis de côté en raison d'une interdiction,</b> comme l'animal ? La Guemara répond : <b>Oui, car nous avons appris</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

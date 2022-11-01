@@ -21,4 +21,4 @@ Si un chevreuil est entré de lui-même dans une maison et que quelqu'un a ferm�
 Si une personne s'est assise à l'entrée d'une cour dans laquelle se trouve un cerf, mais n'a pas rempli toute la porte, et qu'une deuxième personne s'est assise et l'a remplie, la deuxième personne est responsable car elle a terminé le travail de piégeage. Cependant, si la première personne s'est assise dans l'entrée et l'a remplie, et qu'une deuxième personne est venue s'asseoir à côté d'elle, la première personne est responsable et la deuxième est exemptée, même si la première personne s'est levée et est partie, laissant la deuxième sécuriser le cerf. La mishna explique : A quoi ressemble l'action de cette seconde personne ? A celui qui ferme sa maison à clé pour la sécuriser, et il s'avère qu'un cerf qui a été piégé avant Chabbat est également sécurisé à l'intérieur. Dans ce cas, il est exempté même s'il renforce la sécurité sur le cerf, car il n'a pas piégé l'animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

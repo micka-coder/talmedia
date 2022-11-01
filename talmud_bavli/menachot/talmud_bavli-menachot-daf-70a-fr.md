@@ -51,4 +51,4 @@ Enseigne-t-il <b>que</b> la plantation dans un pot de fleurs non perforé <b>est
 <strong>GEMARA:</strong> La Gemara discute de l'identité des espèces mentionnées dans la mishna. Un Sage <b>enseigne</b> dans une <i>baraita</i> : <b>L'épeautre</b> est <b>un type de blé,</b> tandis que <b>l'avoine et le seigle</b> sont <b>un type d'orge.</b> La Gemara traduit les espèces moins connues en araméen vernaculaire : <b>L'épeautre</b> est appelé...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

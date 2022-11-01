@@ -97,7 +97,7 @@
 <b>Un homme qui ne prospérera pas dans ses jours</b> Inscrivez-le.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -196,4 +196,4 @@
 <b>Un homme qui ne prospérera pas dans ses jours</b> Inscrivez-le.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

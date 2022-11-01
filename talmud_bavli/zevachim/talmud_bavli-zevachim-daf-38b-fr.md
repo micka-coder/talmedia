@@ -45,4 +45,4 @@ La Guemara explique : Conformément à <b>l'avis de qui</b> <b>cette décision</
 La Guemara conteste la preuve même selon l'opinion de Rabbi Neḥemya : <b>Dis que tu as entendu</b> que <b>Rabbi Neḥemya</b> a statué de cette manière <b>en ce qui concerne l'offrande</b> du reste du sang en dehors du Temple, <b>comme</b> c'est le cas <b>en ce qui concerne les membres et les graisses.</b> Même si l'offrande des membres et des graisses n'est pas indispensable pour l'expiation, celui qui les offre en dehors du Temple est responsable. Mais <b>Avez-vous</b> également <b>entendu</b> dire ceci <b>en ce qui concerne le blanchissage,</b> que l'on doit blanchir un vêtement aspergé du reste du sang d'une offrande pour le péché ? La Gemara répond : <b>Oui,</b> nous avons également entendu Rabbi Neḥemya statuer de cette manière en ce qui concerne le blanchiment.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

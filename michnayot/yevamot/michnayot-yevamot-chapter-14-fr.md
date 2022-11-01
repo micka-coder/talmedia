@@ -26,5 +26,5 @@ Si deux frères doués de sens du son sont mariés à deux étrangères, dont l'
 ### michna 9
 Si deux frères, dont l'un est sourd et l'autre doué de sens, sont mariés à deux étrangères, dont l'une est sourde et l'autre douée de sens, et que le frère sourd, mari de la femme sourde, meurt, que doit faire le frère doué de sens, mari de la femme douée de sens ? Il doit l'épouser, mais s'il souhaite divorcer, il peut le faire. Si le frère doué de sens, mari de la femme douée de sens, meurt, que doit faire le frère sourd, mari de la femme sourde ? Il doit l'épouser et ne pourra jamais divorcer d'elle.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

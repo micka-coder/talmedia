@@ -136,7 +136,7 @@
 <b>Le jeune du troupeau</b> Perse, le plus jeune des fils de Japhet.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -274,4 +274,4 @@
 <b>Le jeune du troupeau</b> Perse, le plus jeune des fils de Japhet.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

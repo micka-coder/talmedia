@@ -63,4 +63,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> Rabbi Yoḥanan a-t-il statué q
 Cependant, même s'il tient conformément à l'opinion de Rabbi Yehuda HaNasi, la question se pose : <b>Maintenant, puisque</b> lorsque <b>une personne s'assied,</b> elle occupe un <b>cubit</b> d'espace, la circonférence requise par Rabbi Yoḥanan pour la <i>sukka</i> est de vingt-quatre coudées. Cependant, mathématiquement, pour <b>chaque circonférence de trois coudées</b> dans un cercle, <b>il y a un diamètre de</b> environ un <b>coudée. </b> Par conséquent, plutôt que d'exiger une <i>sukka</i> pouvant contenir vingt-quatre personnes, une <i>sukka</i> pouvant contenir seulement <b>douze personnes</b> devrait <b>suffire,</b> puisqu'une <i>sukka</i> avec une circonférence de douze coudées a un diamètre d'environ quatre. Dans ce cas, pourquoi Rabbi Yoḥanan exige-t-il que la <i>sukka</i> ait le double de la circonférence nécessaire ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

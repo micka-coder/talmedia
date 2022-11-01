@@ -63,4 +63,4 @@ A propos de la déclaration attribuée à Rabbi Yoḥanan au nom de Rabbi Elieze
 § La Guemara revient sur la question précédente : <b>Rav Taḥlifa, frère</b> de <b>Ravnai Ḥoza'a, a enseigné :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

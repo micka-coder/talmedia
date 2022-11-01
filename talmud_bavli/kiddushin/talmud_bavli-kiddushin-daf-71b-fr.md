@@ -48,4 +48,4 @@ La Guemara clarifie encore : <b>Jusqu'où s'étend la frontière</b> <b>vers le 
 La Gemara est perplexe face à cette déclaration : Pourquoi a-t-il <b>maudit celui</b> qui a statué selon l'opinion <b>du Rav,</b> mais il <b>n'a pas maudit celui</b> qui a statué selon l'opinion <b>de Shmuel ?</b> Mais le pont sur l'Euphrate est plus au nord que la forteresse de Tulbaknei. <b>Au contraire,</b> il <b>maudirait celui</b> qui a statué selon l'avis <b>du Rav, et à plus forte raison celui</b> qui a statué selon l'avis <b>de Shmuel. Et si tu veux, dis : En fait, il a maudit celui</b> qui a gouverné selon l'opinion <b>du Rav,</b> mais <b>il n'a pas maudit celui</b> qui a gouverné selon l'opinion <b>de Shmuel, et le pont sur l'Euphrate</b> se trouvait en fait <b>plus bas,</b> c'est-à-dire plus au sud. A leur époque, le pont se trouvait au sud de Tulbaknei, et Abaye s'accorde à dire qu'il se trouvait en Babylonie.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -23,5 +23,5 @@ Les vêtements deviennent impurs pendant deux semaines et par l'un des trois sig
 ### michna 8
 Les maisons deviennent impures pendant trois semaines et par l'un des trois signes suivants : par une couleur verdâtre ou par une couleur rougeâtre ou par un étalement. "Par une couleur verdâtre ou par une couleur rougeâtre," au début, à la fin de la première semaine, à la fin de la deuxième semaine, à la fin de la troisième semaine, ou après qu'elles ont été déclarées pures. "Ou par un étalement", à la fin de la première semaine, à la fin de la deuxième semaine, à la fin de la troisième semaine, ou après qu'ils aient été déclarés purs. Ils deviennent impurs pendant trois semaines, soit dix-neuf jours. Aucun des signes de la lèpre ne dure moins d'une semaine ou plus de trois semaines.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

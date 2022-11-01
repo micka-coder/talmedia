@@ -69,4 +69,4 @@ Le <i>baraita</i> demande : <b>Mais</b> en ce qui concerne l'<b>offrande de repa
 Le <i>baraita</i> demande : <b>Mais n'avez-vous pas</b> déjà <b>dérivé</b> du terme : "Et on l'approchera", que l'offrande de repas apportée par une <i>sota</i> est incluse dans l'obligation d'approcher ? Le <i>baraita</i> répond : Comme le verset aurait pu le dire : <b>Et sera approché,</b> et au lieu de cela, il indique : <b>"Et on l'approchera"</b>, cet ajout sert à exclure l'offrande de repas apportée avec des libations de l'obligation d'approcher. Le <i>baraita</i> demande : <b>Et qu'as-tu vu</b> qui t'a conduit <b>à inclure</b> les <b>autres offrandes de repas</b> dans l'exigence d'approcher <b>et à exclure l'offrande de repas</b> apportée avec des <b>libérations</b> de cette exigence ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

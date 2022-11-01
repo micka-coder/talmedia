@@ -51,4 +51,4 @@ Et la traverse doit être <b>suffisamment large pour contenir une petite brique<
 Si la traverse est <b>courbée,</b> de sorte qu'une petite brique ne peut pas reposer dessus, <b>on la considère comme si elle était droite;</b> si elle est <b>ronde, on la considère comme si elle était carrée.</b> Le principe suivant a été énoncé à propos d'une traverse ronde : <b>Toute</b> poutre <b>dont la circonférence est de trois coudées est un coudée en largeur,</b> c'est-à-dire en diamètre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

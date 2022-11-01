@@ -30,4 +30,4 @@ La Gemara explique : <b>Ce <i>tanna</b> qui a</b> enseigné et détaillé les <i
 <b>Et que</b> les autres <b>tanna</i></b> qui ont enseigné et détaillé les <i>halakhot</i> des cabines <b>de <i>reish</i>, <i>kuf</i>, <i>beit</i>, <i>shin</i> l'ont fait parce que l'aptitude des cabines de <b><i>reish</i>, <i>kuf</i>, <i>beit</i>, <i>shin</i></b> pour être utilisées dans l'accomplissement de la mitsva de <i>sukka</i> est <b>puissante</b> et plus évidente <b>pour lui</b> car ceux qui ont construit les cabines sont <b>obligés</b> dans la mitsva de <i>sukka</i>. <b>Et il enseigna :</b> Les cabines de <b>toute sorte, pour inclure</b> les cabines de <b><i>gimmel</i>, <i>nun</i>, <i>beit</i>, <i>kaf</i>, qui,</b> bien que ceux qui les ont construites ne soient <b>pas obligés</b> dans la mitsva, peuvent quand même être utilisées pour accomplir la mitsva de <i>sukka</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

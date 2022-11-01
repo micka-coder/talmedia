@@ -22,4 +22,4 @@
 <b>et toutes les extrémités de la terre le craindront</b> car on dira : "Voyez ce peuple qui craignait le Seigneur, comme il l'a béni et magnifié".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

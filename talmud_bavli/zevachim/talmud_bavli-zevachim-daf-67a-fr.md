@@ -39,4 +39,4 @@ La Gemara répond : <b>Non,</b> ce que Rabbi Bena'a veut dire, c'est que <b>c'es
 § La Gemara discute de <b>la</b> question <b>même,</b> que <b>Rav Adda bar Ahava dit</b> que <b>Rabbi Yehoshua dirait : </b> Dans le cas d'un <b>holocauste d'oiseau que l'on a sacrifié en dessous</b> de la ligne rouge <b>selon la procédure d'une offrande pour le péché</b> et <b>en vue d'une offrande pour le péché, une fois qu'il a pincé un <i>siman</i>,</b> l'offrande <b>est retirée</b> de son statut d'holocauste <b>et devient une offrande pour le péché d'oiseau. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@
 <b>Je mentionnerai Ton nom</b> Le psalmiste s'adresse au Saint, béni soit-Il.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

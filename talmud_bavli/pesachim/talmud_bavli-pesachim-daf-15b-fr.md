@@ -54,4 +54,4 @@ La Guemara soulève une difficulté : <b>Si oui,</b> que la preuve de Rabbi Meir
 <b>Et Rabbi Yosei</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>, puisqu'il dit : L'impureté rituelle des liquides</b> en ce qui concerne la <b>transmission de l'impureté à d'autres</b> objets est <b>par la loi de la Torah.</b> Par conséquent, la viande à laquelle Rabbi Ḥanina le Grand Prêtre adjoint a fait référence dans la mishna était impure par la loi de la Torah. Par conséquent, ce cas ne peut servir de précédent pour l'affirmation selon laquelle il est permis de brûler des <i>teruma</i> purs et impurs ensemble la veille de Pessah. <b>Comme il a été enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

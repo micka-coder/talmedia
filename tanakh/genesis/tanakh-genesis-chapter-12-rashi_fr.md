@@ -71,5 +71,5 @@
 <b>[Il] lui assigna.</b> [עָלָיו signifie ici] le concernant, [c'est-à-dire] l'escorter et le protéger. 
 <b>Qui le reconduisit.</b> Comme le traduit le Targum : "Ils l'escortèrent".
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

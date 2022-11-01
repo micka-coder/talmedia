@@ -36,4 +36,4 @@ Abaye explique : <b>Et ils sont en désaccord en ce qui concerne</b> la question
 <strong>MISHNA :</strong> Dans le cas où une femme <b>produit un acte de divorce et que celui-ci</b> n'était <b>pas accompagné d'un contrat de mariage,</b> et qu'elle exige que son mari paie son contrat de mariage,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

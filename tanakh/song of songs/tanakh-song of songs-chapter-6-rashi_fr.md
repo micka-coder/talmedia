@@ -57,4 +57,4 @@
 <b>Mon âme m'a établi.</b> C'est moi-même qui les ai établis sur moi, comme il est dit, "et tu les as habitués à être des officiers en charge sur toi."<sup>27</sup><i class="footnote">Yeirmiyahu 13:21. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

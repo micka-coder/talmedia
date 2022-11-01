@@ -24,4 +24,4 @@ La Guemara répond : Rabbi Yoḥanan <b>soutient</b> que dans <b>tous les cas co
 § Après avoir cité la déclaration de Rav, la Guemara discute de <b>la</b> question <b>même. Rav dit : Un document qui se présente</b> devant le tribunal et dans lequel <b>son</b> contenu <b>et</b> les signatures de <b>ses témoins sont</b> toutes deux écrites <b>sur une rature</b> est <b>valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

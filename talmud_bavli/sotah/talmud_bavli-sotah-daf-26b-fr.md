@@ -51,4 +51,4 @@ La Guemara répond : <b>En fait,</b> le verset sert <b>à</b> exclure un cas <b>
 § <b>Shmuel dit :</b> Il est préférable que <b>un homme se marie</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

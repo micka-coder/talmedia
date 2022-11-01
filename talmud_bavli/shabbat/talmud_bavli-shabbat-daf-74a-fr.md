@@ -21,4 +21,4 @@ La Gemara relate que <b>lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylon
 <b>A¸¤izkiya dit : Celui qui sélectionne des lupins dans leurs déchets</b> après les avoir fait bouillir <b>est responsable</b> d'avoir accompli le travail interdit de sélection. La Gemara demande : <b>Disons,</b> sur la base de cette déclaration, que <b>Ḥizkiya soutient</b> que même la sélection <b>des aliments dans les déchets est interdite.</b> La Gemara rejette cette preuve : <b>Les lupins sont différents,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

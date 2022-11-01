@@ -12,4 +12,4 @@ La Guemara répond : Les déclarations de Shmuel ne sont pas contradictoires, ca
 La Gemara relate : <b>Shmuel dit à Rav Ḥana de Bagdad : Amène-moi une assemblée de dix</b> hommes <b>et je te dirai en leur présence</b> cette <i>halakha</i> que je souhaite diffuser : En ce qui concerne les <b>libérations devenues rituellement impures, on leur prépare un arrangement</b> de bois <b>par soi-même et on les brûle</b> là.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

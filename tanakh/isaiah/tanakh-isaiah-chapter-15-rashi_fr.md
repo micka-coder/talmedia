@@ -43,7 +43,7 @@
 <b>C'est la terre</b> [c'est-à-dire] votre terre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La dure prophétie concernant Moab</b> Isaïe a prophétisé que Sennacherib viendrait sur Moab et les exilerait, comme il est dit (infra 16:14) : "En trois ans, comme les années d'un mercenaire, la gloire de Moab sera avilie".
 <b>car la nuit où Ar de Moab a été pillée, c'était comme s'ils dormaient en silence</b> Moab était silencieux comme s'ils dormaient en silence et étaient incapables de faire la guerre, et une autre nuit où Kir de Moab a été pillée, c'était comme s'ils dormaient en silence. Jonathan rend : Et ils dormaient. Ar et Kir étaient deux provinces de Moab.
@@ -88,4 +88,4 @@
 <b>C'est la terre</b> [c'est-à-dire] votre terre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara demande : C'est le cas si l'animal était dans sa deuxième année, ma
 <b>Les Sages ont enseigné</b> (<i>Tosefta</i>, <i>Ma'aser Sheni</i> 1:15) : <b>On ne peut pas acheter un animal avec l'argent du second tithe</b> en dehors de Jérusalem,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

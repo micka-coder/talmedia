@@ -17,4 +17,4 @@
 <b>Notre âme s'est échappée comme un oiseau</b> [Elle s'est échappée] d'eux comme un oiseau qui a échappé au piège du chasseur'.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

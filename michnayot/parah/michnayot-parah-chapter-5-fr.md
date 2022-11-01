@@ -26,5 +26,5 @@ S'il y avait deux auges dans une pierre et que le mélange était préparé [san
 ### michna 9
 Si l'on a placé deux pierres l'une près de l'autre et qu'on en a fait une auge, et de même dans le cas de deux pétrins,ou dans le cas d'une auge qui a été fendue, l'eau entre elles n'est pas coinsidérée sanctifiée. S'ils ont été joints avec de la chaux ou du gypse et qu'ils peuvent être déplacés ensemble, l'eau entre eux considérée sanctifiée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

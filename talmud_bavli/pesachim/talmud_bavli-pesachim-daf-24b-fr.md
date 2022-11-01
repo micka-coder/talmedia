@@ -36,4 +36,4 @@ La Gemara <b>souleve une objection. Isi ben Yehuda dit : D'où</b> provient-il <
 De la comparaison ci-dessus <b>J'ai déduit seulement</b> qu'il est interdit de le <b>manger</b>, comme il est interdit de manger une <i>tereifa</i> ; <b>d'où</b> déduis-je qu'il est interdit d'en tirer également un <b>bénéfice</b> ? <b>Vous</b> pouvez <b>énoncer une déduction <i>a fortiori</i></b> : <b>Si</b> à l'égard de <b><i>orla</i>, par lequel aucun péché n'a été commis,</b> comme il fait partie du processus de croissance ordinaire de l'arbre de produire des fruits pendant les trois premières années, il est pourtant <b>interdit</b> d'en tirer un <b>bénéfice</b> ; puis en ce qui concerne la <b>viande dans le lait, par laquelle un péché a été commis,</b> les deux ayant été cuits illicitement ensemble, <b>n'est-il pas juste qu'il soit interdit</b> d'en tirer <b>un bénéfice</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

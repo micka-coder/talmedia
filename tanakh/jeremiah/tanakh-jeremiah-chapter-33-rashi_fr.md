@@ -68,7 +68,7 @@
 <b>Si ce n'est pas Mon alliance, etc.</b> S'il est possible que l'alliance que J'ai formée avec le jour et la nuit pour être en leur temps soit abolie, et s'il est possible que les statuts du ciel et de la terre soient abolis comme si Je ne les avais pas placés, la postérité de Jacob aussi, etc. Nos Sages, cependant, l'ont expliqué à propos de l'alliance de la Torah et de la circoncision, pour en déduire que c'est grâce à elles que le ciel et la terre ont été créés. Mais ce Midrash ne correspond pas à la séquence des versets.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>confiné</b> dans la prison.
 
@@ -138,4 +138,4 @@
 <b>Si ce n'est pas Mon alliance, etc.</b> S'il est possible que l'alliance que J'ai formée avec le jour et la nuit pour être en leur temps soit abolie, et s'il est possible que les statuts du ciel et de la terre soient abolis comme si Je ne les avais pas placés, la postérité de Jacob aussi, etc. Nos Sages, cependant, l'ont expliqué à propos de l'alliance de la Torah et de la circoncision, pour en déduire que c'est grâce à elles que le ciel et la terre ont été créés. Mais ce Midrash ne correspond pas à la séquence des versets.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

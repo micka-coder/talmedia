@@ -48,4 +48,4 @@ La Guemara cite un autre verset apparemment superflu, décrivant le mont Hermon 
 § La mishna déclare : <b>Les signes de l'<b>oiseau casher</b> n'étaient pas</b> explicitement <b>énoncés</b> dans la Torah. La Guemara demande : <b>Et</b> est-il vrai qu'ils n'étaient <b>pas</b> énoncés dans la Torah ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : <b>"Le <i>nesher</i>"</b> (Lévitique 11:13) est un oiseau non casher.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

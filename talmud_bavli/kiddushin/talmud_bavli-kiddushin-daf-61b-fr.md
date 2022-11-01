@@ -45,4 +45,4 @@ La Gemara s'interroge à nouveau : <b>Accordé, selon</b> l'opinion de <b>Rabbi 
 En rapport avec le verset d'Isaïe, la Gemara demande : <b>Quel</b> est le sens de la phrase :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

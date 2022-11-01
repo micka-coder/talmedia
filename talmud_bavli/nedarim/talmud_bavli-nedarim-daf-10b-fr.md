@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelles sont les circonstances des substituts des termes 
 Si l'on dit que la nourriture sera considérée <b>comme l'agneau</b> de l'offrande quotidienne, <b>comme les</b> animaux désignés comme offrandes et gardés dans des <b>enclos spéciaux, comme le bois</b> de l'autel, <b>comme les feux</b> sur l'autel, <b>comme l'autel, comme le Sanctuaire, </b> ou <b>comme Jérusalem,</b> ou si <b>il a fait un vœu avec l'un des accessoires de l'autel, bien qu'il n'ait pas</b> explicitement <b>mentionné</b> que la nourriture devait être comme <b>une offrande, il est</b> considéré comme <b>un vœu</b> qui associe un élément différent à <b>une offrande. Rabbi Yehuda dit : Celui qui dit</b> qu'un élément sera considéré comme <b>Jérusalem,</b> au lieu de dire qu'il sera considéré comme Jérusalem, <b>n'a rien dit.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

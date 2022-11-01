@@ -51,4 +51,4 @@ Rabbi Yirmeya poursuit : <b>Et si l'on dit</b> que <b>puisque</b> le demi dixiè
 <b>Abaye lui dit : Et disons-nous</b> qu'un objet déjà <b>saturé d'impureté</b> ne peut être rendu impur une seconde fois ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Kelim</i> 27:9) : En ce qui concerne <b>une feuille</b> qui est impure en raison d'une <b>impureté rituelle</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

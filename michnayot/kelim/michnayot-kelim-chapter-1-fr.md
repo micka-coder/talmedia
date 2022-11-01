@@ -26,5 +26,5 @@ La zone à l'intérieur du mur [de Jérusalem] est plus sainte, car c'est là qu
 ### michna 9
 La zone située entre le porche (ulam) et l'autel est plus sainte, car les [prêtres] qui ont des taches ou des cheveux non soignés ne peuvent y entrer. Le Hekhal est plus saint, car personne dont les mains ou les pieds ne sont pas lavés ne peut y entrer. Le Saint des Saints est plus saint, car seul le grand prêtre, à Yom Kippour, au moment de l'office, peut y entrer. Rabbi Yose a dit : à cinq égards, la zone entre le porche et l'autel est égale au Hekhal, car ceux qui sont affligés de taches ou d'une pousse sauvage de cheveux, ou qui ont bu du vin ou dont les mains ou les pieds ne sont pas lavés ne peuvent pas y entrer, et les gens doivent s'éloigner de la zone entre le porche et l'autel lorsque l'encens est brûlé.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

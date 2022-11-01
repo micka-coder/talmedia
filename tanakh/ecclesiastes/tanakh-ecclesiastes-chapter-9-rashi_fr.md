@@ -91,4 +91,4 @@ Le Midrash Aggadah [explique comme suit] : <b>Une petite ville.</b> C'est le cor
 Une autre explication : <b>Mais un seul pécheur détruit une multitude de bien.</b> Si Israël était composé d'une moitié de justes et d'une moitié de méchants, et qu'une seule personne venait, péchait et faisait de [les méchants] la majorité, le résultat serait qu'il les pesait tous pour être coupable. <sup>43</sup><i class="footnote">Alternativement, lorsqu'un sage devient un pécheur, de nombreuses personnes abandonneront leur quête de sagesse en concluant que la sagesse de cette personne n'a servi à rien. (Metsudas David) </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

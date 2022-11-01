@@ -18,4 +18,4 @@ La Guemara répond : C'est <b>comme le dit Rav Mesharshiyya</b> à propos d'une 
 La Gemara demande : <b>Mais</b> même dans une année avec sept mois déficients <b>il y a toujours un jour</b> entre Roch HaShana et l'apparition de la nouvelle lune, et donc les gens tourneront le tribunal en dérision. La Guemara répond : Les gens vont <b>supposer</b> que la nouvelle lune <b>a été aperçue</b> par des témoins et rapportée au tribunal, et ils diront : La nouvelle lune était visible hier <b>mais nous n'avons pas fait attention</b> et ne l'avons pas remarquée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

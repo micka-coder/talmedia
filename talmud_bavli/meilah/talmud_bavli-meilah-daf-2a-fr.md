@@ -42,4 +42,4 @@ La Guemara explique : Tous ces cas <b>sont nécessaires. Si</b> la mishna n'avai
 La Guemara répond : <b>Puisque</b> l'aspersion de leur sang sur l'autel <b>les rend acceptés</b> en ce sens qu'ils reçoivent <b>leur</b> statut de soumis à <b><i>piggul</i>,</b> ils n'ont donc pas encore entièrement perdu leur statut de sanctification et sont sujets à un mauvais usage. En d'autres termes, une offrande à l'égard de laquelle il y avait une intention inappropriée est rendue <i>piggul</i> seulement si tous ses facteurs de permission, dont l'un est l'aspersion du sang, sont exécutés correctement (voir <i>Zevaḥim</i> 28b). Le fait que ses facteurs de permission soient importants pour la rendre sujette au <i>piggul</i> montre que l'offrande n'a pas perdu son statut consacré.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ A propos des justes, <b>Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan 
 <b>Reish Lakish a dit : Quel est</b> le sens de ce <b>qui est écrit : "S'il s'agit des méprisants, Il les méprise, mais aux humbles Il fait grâce"</b> (Proverbes 3:34) ? Si quelqu'un <b>vient pour s'impurifier, ils ouvrent</b> devant lui la possibilité d'exercer son libre arbitre et de faire ce qui lui plaît. Si quelqu'un <b>vient pour se purifier, ils l'assistent.</b> Dans <b>l'école de Rabbi Yishmael, il était enseigné</b> par rapport à ce verset : Ceci est <b>comparable</b> au cas d'un <b>homme qui vendait</b> à la fois du <b>naphte [<i>neft</i>] brut,</b> dont l'odeur est vile, et du <b>balsam,</b> dont le parfum est agréable.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

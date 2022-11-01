@@ -20,5 +20,5 @@ Si quelqu'un fait le vœu d'une longue naziréité, qu'il achève sa naziréité
 ### michna 7
 Celui qui a deux groupes de témoins qui témoignent à son sujet : l'un dit qu'il a fait deux vœux [de naziréat] et l'autre qu'il en a fait cinq : Beth Shammai dit : les témoignages sont contradictoires, et il n'y a pas de naziréat du tout. Mais Beth Hillel dit :  "cinq "inclut "deux", de sorte qu'il devient nazirite pour deux [naziriteships].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

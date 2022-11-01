@@ -60,4 +60,4 @@ La mishna enseigne : <b>Et celui qui jure avec un sorcier</b> fait partie des pe
 La mishna enseigne que <b>celui qui a des rapports sexuels avec une femme araméenne</b> fait partie des personnes susceptibles d'être tuées par des zélotes. <b>Rav Kahana a demandé au Rav :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

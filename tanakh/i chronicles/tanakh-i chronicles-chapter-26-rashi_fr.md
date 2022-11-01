@@ -80,4 +80,4 @@
 <b>à ses générations aux pères dans la quarantième année, etc.</b> Et aussi tous ces calculs étaient dans la quarantième année.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara corrobore sa conclusion. <b>Rav Mari a dit : Nous apprenons</b> dans l
 <strong>MISHNA :</strong> En ce qui concerne <b>les poils d'un animal premier-né taché</b> <b>qui se sont détachés</b> de l'animal, <b>et que l'on a placés dans un compartiment</b> pour les conserver, <b>et par la suite on a abattu</b> l'animal ; étant donné qu'après la mort de l'animal, il est permis de tirer profit des poils que l'animal avait sur son corps au moment de sa mort, quel est le statut halakhique des poils qui se sont détachés de l'animal de son vivant ? <b>Akavya ben Mahalalel juge</b> son utilisation <b>permise,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

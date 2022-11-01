@@ -54,4 +54,4 @@ De même, <b>Rav Naḥman a dit : Toute moquerie</b> et obscénité <b>est inter
 <b>Rav Huna bar Manoaḥ a dit au nom de Rav Aḥa, fils de Rav Ika : Il est permis à un juif de dire à un gentil : Prends ton idole et mets-la dans ton <i>shin tav</i>,</b> c'est-à-dire <i>shet</i>, les fesses. <b>Rav Ashi a dit : Celui dont la réputation est ternie,</b> c'est-à-dire qu'il est connu comme un coureur de jupons, <b>il est permis de l'humilier</b> en l'appelant <b><i>gimmel sin</i>,</b> acronyme de <i>girta sarya</i>, fils de prostituée putride. <b>Quelqu'un dont la réputation est louable, il est permis de</b> publiquement le <b>promouvoir, et celui qui le loue, les bénédictions reposeront sur sa tête.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

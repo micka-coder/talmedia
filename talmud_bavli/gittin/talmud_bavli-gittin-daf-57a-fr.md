@@ -69,4 +69,4 @@ C'est à propos de la guerre qui s'ensuivit que les Sages exposèrent le verset 
 <b>Il est</b> pareillement <b>enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer le Grand dit : Il y a deux rivières dans la vallée de Yadayim</b> dans cette région, <b>une qui coule dans un sens et l'autre dans l'autre. Et les Sages ont estimé</b> qu'au lendemain de cette guerre, ces rivières étaient remplies de <b>deux parts d'eau pour une part de sang.</b> De même, <b>il a été enseigné dans une <i>baraita</i> : Pendant sept ans, les Gentils ont récolté leurs vignes</b> qui avaient été trempées <b>avec le sang d'Israël sans</b> avoir besoin d'aucun <b>engrais supplémentaire.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

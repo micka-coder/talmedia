@@ -63,4 +63,4 @@ Si l'une des femmes est <b>allaitante</b> et l'autre <b>non allaitante, la femme
 Le <i>baraita</i> poursuit : <b>Si les deux</b> femmes <b>sont enceintes,</b> ou <b>les deux</b> femmes <b>sont allaitantes,</b> ou <b>les deux</b> femmes <b>sont âgées,</b> ou <b>les deux</b> femmes <b>sont vierges,</b> dans <b>cette</b> affaire la <i>halakha</i> est <b>comme nous l'avons appris</b> dans la mishna : Si les deux femmes <b>n'étaient pas aptes à voir</b> du sang menstruel, et que pourtant du sang est trouvé sous elles sur le lit, <b>on considère</b> elles...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

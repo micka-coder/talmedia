@@ -18,4 +18,4 @@ La Guemara pose une question : <b>Quel est</b> ce différend fondamental entre R
 <Rabbi Elazar dit : Aussi bien</b> dans le cas d'un vœu qui <b>exige</b> l'enquête d'une autorité halakhique <b>que dans celui qui ne l'exige pas</b>, <b>il ne peut pas se remarier</b> avec elle. <b>Rabbi Elazar dit</b> en explication de son point de vue : <b>Ils ont interdit</b> de remarier une femme qui était liée par un vœu qui <b>exige</b> l'enquête d'une autorité halakhique <b>seulement en raison</b> d'un vœu <b>qui n'exige pas</b> une telle enquête. La Guemara explique les opinions respectives : <b>Quelle est la raison de la déclaration de Rabbi Yehuda</b> ? <b>Comme il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

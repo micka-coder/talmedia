@@ -18,4 +18,4 @@ Il a été dit plus haut que Rav Huna et Rav Ḥisda sont en désaccord en ce qu
 En revanche, <b>selon</b> l'opinion de <b>Rabbi Akiva,</b> il s'agit de deux mitzvot distinctes : <b>Verser n'est pas inclus dans l'aspersion, et l'aspersion n'est pas incluse dans le versement.</b> Par conséquent, Rabbi Akiva soutient que chaque offrande nécessite sa propre bénédiction.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

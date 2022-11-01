@@ -21,4 +21,4 @@ En réponse à la contradiction, <b>Rava dit : Un diffamateur, avez-vous dit ? U
 <b>Rabbi Shimon dit : Si</b> leur péché <b>a été connu avant leur nomination,</b> même s'ils n'ont pas apporté leur offrande avant leur nomination, <b>ils sont tenus</b> d'apporter l'offrande d'un roturier. Cependant, si leur péché a été porté à leur connaissance <b>après leur nomination, ils sont</b> entièrement <b>exclus</b> d'apporter une offrande car leur changement de statut nécessite un changement correspondant de leur offrande, et donc leur première obligation est entièrement annulée. Cela montre que selon Rabbi Shimon, un changement de statut affecte rétroactivement la responsabilité d'une personne pour une transgression qu'elle a commise dans son statut précédent. Une <i>halakha</i> similaire devrait s'appliquer dans le cas d'une jeune femme fiancée qui a commis l'adultère et a atteint la majorité avant que son péché ne soit connu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

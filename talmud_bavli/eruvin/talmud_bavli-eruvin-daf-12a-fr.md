@@ -72,4 +72,4 @@ La Guemara répond : <b>Si vous le souhaitez, dites</b> que <b>ici,</b> la décl
 La Guemara demande : La <i>baraïta</i> indique que <b>on ne peut pas remplir</b> l'eau de l'entrée car cela impliquerait de transporter d'un <i>karmelit</i> dans un domaine privé, <b>mais</b> dans la cour elle-même <b>on peut</b> en effet <b>transporter. Mais la cour n'est-elle pas percée sur toute sa longueur,</b> c'est-à-dire sur plus de dix coudées, <b>dans un lieu qui lui est interdit ?</b> Puisqu'il est interdit de porter vers ou depuis l'entrée, il devrait également être interdit de porter dans la cour elle-même.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -48,4 +48,4 @@ Cette déclaration de Rabbi Yosei ne peut servir de source à l'opinion du Rav. 
 <b>La source de l'opinion de Rav' est plutôt la déclaration de <b>Rabbi Yosei concernant l'agneau pascal. Comme nous l'avons appris</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui a séparé</b> un animal comme <b>son agneau pascal et il s'est perdu, et il en a séparé un autre à sa place, et par la suite,</b> mais avant midi la veille de Pessah, <b>le premier</b> est retrouvé, et ils se tiennent tous deux</b> devant lui, le propriétaire peut <b>amener celui d'entre eux qu'il souhaite.</b> C'est la <b>déclaration des sages. Rabbi Yosei dit :</b> La <b>mitzva</b> doit être accomplie <b>avec le premier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

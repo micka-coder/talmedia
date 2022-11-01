@@ -30,4 +30,4 @@ La Guemara demande : <b>On comprend que le verset entier n'est pas établi comme
 Les Sages <b>disent</b> en réponse : <b>Dérives</b> cela d'une analogie verbale entre les termes <b>commandé</b> et <b>commandé. Il est énoncé ici,</b> à propos des jours de l'inauguration : <b>"Le Seigneur a commandé de faire"</b> et il est dit là,</b> à propos de la vache rousse : <b>C'est le statut de la Torah que le Seigneur a commandé, en disant"</b> (Nombres 19:2). <b>De même que</b> le terme commandé <b>là</b> fait référence <b>à la génisse, de même ici,</b> la phrase : " Le Seigneur a commandé de faire " écrite dans le contexte des jours de l'inauguration se réfère <b>à la vache rousse. Et de même qu'ici,</b> en ce qui concerne l'inauguration, il y a le principe de la <b>séquestration</b> avant d'accomplir le service, <b>de même là,</b> dans le contexte des <i>halakhot</i> de la génisse, la <b>séquestration</b> est requise avant l'accomplissement de la mitzva.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

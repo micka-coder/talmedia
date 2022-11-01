@@ -54,4 +54,4 @@ La Guemara répond : Ceci n'est <b>pas difficile,</b> car <b>ici</b> Rabbi Ami f
 § Revenant sur le sujet de la pluie, <b>Reish Lakish dit : Quel est</b> le sens de ce <b>qui est écrit : "Et Il fermera les cieux"</b> (Deutéronome 11:17) ? Ce verset enseigne que <b>lorsque les cieux sont fermés pour ne plus faire descendre la rosée et la pluie,</b> cela est <b>semblable à une femme qui a les douleurs de l'accouchement et</b> pourtant <b>n'accouche pas,</b> car les cieux eux-mêmes souffrent de leur incapacité à faire descendre la pluie et la rosée. <b>Et c'est ce qu'a dit le Reish Lakish au nom du bar Kappara : La fermeture est énoncée à l'égard des pluies, et la fermeture est</b> de même <b>énoncée à l'égard d'une femme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

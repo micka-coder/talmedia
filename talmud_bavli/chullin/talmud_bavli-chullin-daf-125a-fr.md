@@ -60,4 +60,4 @@ Selon Rabbi Yoḥanan, le fait de recouvrir est désigné par le terme toucher d
 La Gemara conteste : <b>Au contraire, quelle</b> est l'alternative ? <b>S'agit-il d'un seul concept</b> qui comprend à la fois le fait de toucher et de recouvrir ? <b>Dit la dernière clause</b> de la mishna du tractate <i>Oholot</i> : <b>Mais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

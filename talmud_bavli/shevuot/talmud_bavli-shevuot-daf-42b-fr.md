@@ -60,4 +60,4 @@ La mishna enseigne : <b>Et il n'y a pas de paiement du double</b> du principal, 
 § La mishna enseigne : <b>Un bailli impayé</b> qui a perdu l'un des objets exclus <b>ne prête pas serment.</b> La Gemara demande : <b>D'où proviennent ces éléments</b> ? La Gemara répond que c'est <b>comme les Sages l'ont enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Gemara commente : <b>Dans</b> un cas où le vin est pressé au moyen de la <b
 § La Gemara raconte : Il y avait <b>un certain tonneau</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ S'ils avaient une largeur d'un palier mais qu'il n'y avait pas un espace d'un pa
 ### michna 7
 S'ils n'avaient pas une largeur d'un palme, qu'il y ait un espace d'un palme entre eux ou non, s'il y a une impureté en dessous, entre eux ou au-dessus d'eux, l'impureté se fend en haut et en bas. Une règle similaire [s'applique] à deux rideaux, [dont le plus bas est] à une largeur de main du sol.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

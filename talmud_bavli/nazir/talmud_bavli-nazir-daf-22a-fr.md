@@ -18,4 +18,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution, <b>comme 
 Le <i>baraita</i> continue : <b>Rabbi Shimon dit</b> que <b>si</b> la seconde femme lui <b>dit,</b> après avoir entendu son vœu de naziréité : <b>Je suis par la présente comme toi,</b> dans ce cas <b>elles sont toutes deux permises.</b> Puisque la seconde femme a rendu sa naziréité entièrement dépendante de celle de la première, l'annulation du vœu de la première femme annule également la seconde naziréité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ De même, tous les aliments se rejoignent pour constituer la mesure requise <b>d
 <b>Rava dit</b> que <b>ceci</b> est ce que Rabbi Shimon <b>dit : Qu'est-ce qui a fait</b> que cet aliment est devenu impur au <b>second</b> degré d'impureté ? N'est-ce pas <b>pas</b> qu'il a été touché par un aliment avec une impureté de <b>premier</b> degré ? Puisqu'ils partagent une source commune, ils se rejoignent. <b>Rav Ashi</b> a pareillement <b>dit :</b> Les aliments impurs au <b>premier</b> degré d'impureté <b>et</b> les aliments impurs au <b>second</b> degré d'impureté, <b>en ce qui concerne</b> les aliments impurs au <b>troisième</b> degré d'impureté, <b>sont</b> considérés comme <b>membres d'une même maison,</b> c'est-à-dire, ils conduisent tous deux à l'impureté du troisième degré, soit directement, soit indirectement, et pour cette raison, ils se rejoignent.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

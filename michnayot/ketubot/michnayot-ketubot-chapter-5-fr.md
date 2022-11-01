@@ -26,5 +26,5 @@ Si un homme pourvoit aux besoins de sa femme par l'intermédiaire d'un agent, il
 ### michna 9
 Il doit également lui donner [chaque semaine] une ma'ah en argent pour ses [autres] besoins et elle doit manger avec lui chaque vendredi soir. S'il ne lui donne pas une ma'ah en argent pour ses autres besoins, son travail manuel lui appartient. Et quelle est [la quantité de travail qu'elle doit] faire pour lui ? Le poids de cinq sela" de chaîne en Judée, qui équivaut à dix sela en Galilée, ou le poids de dix sela de trame en Judée, qui équivaut à vingt sela en Galilée.   Si elle était allaitante, son travail manuel est réduit et son entretien est augmenté. Tout ceci s'applique à une personne pauvre en Israël, mais dans le cas d'un [mari] plus respectable, tout est fixé en fonction de sa dignité.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

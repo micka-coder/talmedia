@@ -24,4 +24,4 @@ Si un individu <b>faisait pression</b> sur un autre <b>pour qu'il épouse la fil
 De même, si l'un <b>exhortait un autre</b> à <b>manger avec lui,</b> et que ce dernier <b>répondait : Entrer dans ta maison</b> est <b><i>konam</i></b> pour <b>moi,</b> tout comme <b>goûter</b> même <b>une goutte de liquide froid de toi,</b> l'individu qui a fait le vœu est néanmoins <b>permis d'entrer chez lui et de boire une boisson froide</b> <b>de lui. </b> Ceci est <b>parce que cet</b> individu <b>avait l'intention</b> de faire ce vœu <b>uniquement dans le but de manger et de boire</b> un repas, mais pas pour s'interdire d'entrer entièrement dans la maison ou de boire en petite quantité (Commentaire sur <i>Nédarim</i>).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

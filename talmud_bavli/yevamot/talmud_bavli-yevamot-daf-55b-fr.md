@@ -51,4 +51,4 @@ La Guemara répond : <b>Non;</b> il est possible qu'il n'y ait pas de différend
 <b>Lorsque Rav Shmuel bar Yehuda est venu</b> d'Eretz Yisrael, il a rapporté que <b>Rabbi Yoḥanan a dit :</b> La définition de <b>l'étape initiale du rapport sexuel est l'insertion de la couronne,</b> alors que <b>un acte complet</b> de <b>rapport sexuel est littéralement un acte complet</b> de <b>rapport sexuel,</b> c'est-à-dire l'insertion de l'organe masculin au-delà de la couronne.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

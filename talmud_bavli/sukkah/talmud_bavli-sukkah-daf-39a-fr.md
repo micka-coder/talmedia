@@ -18,4 +18,4 @@ Toi, qui es aussi grand dans cette génération que <b>Moses, as-tu bien parlé 
 La Gemara répond : C'est nécessaire <b>parce qu'on ne peut transférer de l'argent</b> utilisé pour acheter des <b>produits de l'année sabbatique à un <i>am ha'aretz</i>,</b> de peur qu'il ne fasse un usage impropre de l'argent qui a la sainteté de l'année sabbatique. <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>On</b> ne peut <b>pas transférer à un <i>am ha'aretz</i> l'argent</b> utilisé pour acheter des <b>produits de l'année sabbatique</b> dont la valeur est <b>plus élevée que</b> la valeur de <b>la nourriture</b> suffisante pour <b>trois repas.</b> On peut utiliser l'argent qui a la sainteté de l'année sabbatique pour acheter de la nourriture pour son usage personnel. Si l'argent est suffisant pour trois repas, on peut supposer que le vendeur l'utilisera d'une manière permise. <b>Et si</b> l'acheteur <b>transfère</b> plus d'argent que cela, <b>il</b> doit <b>dire : Cet argent est déconsacré</b> par mon rachat en échange de <b>produits de l'année non sabbatique que j'ai dans ma maison.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

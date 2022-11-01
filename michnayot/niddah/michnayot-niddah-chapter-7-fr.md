@@ -14,5 +14,5 @@ Toutes les taches de sang, où qu'elles se trouvent, sont pures, sauf celles qui
 ### michna 5
 On les croit [les samaritains] quand ils disent : "on y a enterré les fausses couches" ou "on ne les a pas enterrées". On les croit quand ils disent à propos d'une bête qu'elle a donné naissance à un premier-né ou pas. On les croit quand ils donnent des renseignements sur le marquage des tombes. Mais on ne les croit pas en revanche en ce qui concerne les branches en surplomb, les pierres saillantes ou un bet haperass [champs qui pourrait contenir des ossements d'un cadavre humain]. Ceci est la règle générale : dans toute lois [de la Torah] où ils sont soupçonnés [de ne pas être en conformité avec cette dernière], ils ne sont pas crus.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

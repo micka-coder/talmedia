@@ -63,4 +63,4 @@ Nous avons appris dans la mishna : On peut déplacer la seconde dîme qui a ét�
 <b>Et</b> nous avons appris dans la mishna : On peut déplacer même le <b>lupin sec,</b> qui n'est pas propre à la consommation par une personne, car c'est un aliment pour chèvre. La Guemara commente : Ceci s'applique <b>seulement</b> lorsque le lupin est <b>sec. Par contre,</b> lorsqu'il est <b>humide, non</b> il est interdit de le déplacer. <b>Quelle est la raison</b> de cette interdiction ? <b>Puisque</b> le lupin <b>est</b> extrêmement <b>amère</b> lorsqu'il est humide, un animal <b>ne le mangera pas</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

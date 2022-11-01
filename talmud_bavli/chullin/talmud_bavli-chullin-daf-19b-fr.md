@@ -48,4 +48,4 @@ La Gemara demande : <b>D'où proviennent ces questions</b> ? Elles sont dérivé
 La Guemara note : <b>Et c'est raisonnable selon celui qui dit : On peut même déplacer</b> les <i>simanim</i> derrière la nuque. <b>D'où</b> tire-t-on cette conclusion ? C'est <b>à partir</b> du fait <b>que</b> la mishna <b>enseigne : Celui qui égorge à partir de la nuque</b> du cou, <b>son égorgement n'est pas valable. Celui qui pince à partir de la nuque</b> du cou, <b>son pincement est valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

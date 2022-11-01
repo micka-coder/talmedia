@@ -24,4 +24,4 @@ La Guemara commente : <b>Et ils ne sont pas en désaccord.</b> Plutôt <b>cette,
 De même, <b>Abaye a dit : Ces savants babyloniens de la Torah, selon l'avis de celui qui a dit : La prière du soir est volontaire, dès que l'un</b> d'entre eux <b>détache sa ceinture, on ne lui impose pas</b> d'arrêter son repas et de prier. Et la Guemara s'interroge : <b>Et selon l'avis de celui qui a dit que la prière du soir est obligatoire, on lui impose ? Tout le monde n'est-il pas d'accord pour dire que la prière de l'après-midi est obligatoire ? Et nous avons appris dans notre mishna que s'ils ont commencé à manger, ils ne doivent pas s'arrêter. Et</b> en ce qui concerne cette <i>halakha</i>, <b>Rabbi Ḥanina a dit :</b> Le début du repas est <b>à partir du moment où il détache sa ceinture.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

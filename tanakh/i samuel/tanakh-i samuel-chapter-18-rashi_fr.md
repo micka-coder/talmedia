@@ -76,4 +76,4 @@
 <b>Les officiers philistins s'aventureraient.</b> Venir en troupes pour piller [les Bnei] Israël.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

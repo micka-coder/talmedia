@@ -36,4 +36,4 @@ La Gemara demande : <b>Qu'est-ce qui</b> est ajouté par la clause introduite pa
 De même, si des témoins ont dit : <b>Nous témoignons à l'égard d'un homme</b> appelé <b>untel et untel qu'il est passible</b> de recevoir <b>quarante coups de fouet, et qu'ils ont été découverts</b> comme étant des témoins <b>conspirateurs</b>, <b>ils sont fouettés</b> de <b>quatre-vingts</b> coups de fouet ; une série de coups de fouet <b>en raison</b> de la violation de l'interdiction : <b>"Tu ne porteras pas de faux témoignage contre ton prochain"</b> (Exode 20:13), <b>et</b> une série de coups de fouet <b>en raison</b> du verset : <b>"Et tu lui feras comme il a conspiré"</b> (Deutéronome 19:19), qui est la punition pour les témoins conspirateurs ; c'est <b>la déclaration de Rabbi Meir. Et les rabbins disent : Ils sont fouettés</b> avec <b>seulement quarante</b> coups de fouet, en raison du verset "Et tu lui feras comme il a conspiré."
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

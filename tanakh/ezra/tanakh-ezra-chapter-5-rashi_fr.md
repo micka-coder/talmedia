@@ -94,4 +94,4 @@
 <b>À nous</b> Aram. עֲלֶינָא, lit. sur nous. En attendant voici le texte de la lettre que Tattenai et Shethar-bozenai ont envoyé .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

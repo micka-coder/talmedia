@@ -94,4 +94,4 @@
 <b>Et je vous exilerai au-delà de Damas</b> - C'est-à-dire que vous ne serez pas exilés chez vos voisins comme cela a été le cas jusqu'à présent, que vous avez été livrés entre les mains des rois d'Aram [En Nach Lublin-Edom, une erreur évidente] et qu'ils ne vous ont pas emmenés en captivité dans un lieu éloigné, mais à Damas. Désormais, je te livrerai entre les mains de Sennacherib, et il t'exilera au loin.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

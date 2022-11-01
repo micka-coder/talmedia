@@ -63,4 +63,4 @@ La Guemara cite une preuve contre l'affirmation de Rav Yehuda, en citant Shmuel.
 La Gemara répond que la référence est à un cas <b>où</b> les juges <b>ont dit : Lorsque l'inclinaison est interdite</b> c'est lorsqu'elle représente <b>la manière typique</b> d'adorer cette idole. <b>Mais</b> lorsque l'inclinaison n'est <b>pas sa manière typique</b> d'adorer, elle est <b>permise. Et si vous le souhaitez, dites</b> plutôt que la référence est à un cas <b>où</b> les juges ont <b>dit :</b> En ce qui concerne <b>l'inclinaison elle-même,</b> c'est lorsqu'elle est effectuée <b>de sa manière typique</b> qu'elle est <b>interdite.</b> Quelle est la manière typique de s'incliner ? C'est l'inclinaison <b>qui comporte dans son</b> exécution <b>l'extension des bras et des jambes,</b> telle qu'elle était pratiquée dans le Temple. <b>Mais l'inclinaison qui n'a pas dans son</b> exécution <b>l'extension des bras et des jambes</b> est <b>permise.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ Le <i>baraita</i> ajoute : <b>Et ceci,</b> la <i>halakha</i> dans un cas où l'o
 § La mishna enseigne : <b>Et si</b> un prêtre a vendu son animal à un israélite et <b>a dit</b> qu'il vend tout <b>sauf les cadeaux</b> avec, l'israélite est <b>exempté de</b> l'obligation de donner <b>les cadeaux,</b> car ils ne lui appartiennent pas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

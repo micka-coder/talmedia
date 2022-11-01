@@ -47,5 +47,5 @@
 ### passuk 20
 <b>Avec lui [littéralement "au-dessus de lui"].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme le traduit le Targum [Onkelos], "celui qui est près de lui". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

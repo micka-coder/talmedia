@@ -27,4 +27,4 @@ La Gemara fait remarquer : <b>Et nous avons dit</b> cette <i>halakha</i> <b>seul
 <b>Rabba dit à</b> Abaye : <b>Vous maintenez</b> que...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara suggère : <b>Disons</b> que la déclaration : <b>La majorité</b> de 
 <b>Dites la dernière clause</b> de la déclaration de Rabbi Yehuda HaNasi : <b>Et la déclaration de Rabbi Ḥanina, fils de Rabbi Yosei HaGelili,</b> semble correcte dans un cas <b>où il les a trouvés dans la maison. A quoi</b> fait référence le mot <b>maison</b> dans ce contexte ? <b>Si nous disons</b> que la référence est à <b>une maison réelle, n'avez-vous pas dit que tout le monde s'accorde à dire que c'est permis ? Au contraire,</b> il est <b>évident</b> qu'il l'a trouvé <b>sur un tas de ferraille qui</b> se trouve <b>dans la maison. </b> Si tel est le cas, c'est <b>difficile,</b> car il y a une contradiction entre une déclaration <b>de Rabbi</b> Yehuda HaNasi, où il statue conformément à l'avis de Rabbi Yehuda pour interdire la viande dans un cas où elle est trouvée dans un tas de ferraille dans la maison, <b>et</b> une autre déclaration <b>de Rabbi</b> Yehuda HaNasi, où il statue conformément à l'opinion de Rabbi Ḥanina, fils de Rabbi Yosei HaGelili, pour permettre la viande dans ce cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

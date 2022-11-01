@@ -51,4 +51,4 @@ La Guemara s'interroge sur ce point : <b>Et ce jour-là, est-il permis</b> de ch
 Il a été enseigné dans la mishna : <b>Et on ne peut pas couper une mèche en deux,</b> mais Rabbi Yehouda permet de la couper au moyen du feu. La Guemara demande : <b>Qu'y a-t-il de différent</b> dans le fait de couper une mèche au moyen du feu par rapport à un couteau, <b>qu'on ne peut pas</b> couper une mèche <b>avec un couteau ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

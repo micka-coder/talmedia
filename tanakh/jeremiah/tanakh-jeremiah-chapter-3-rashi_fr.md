@@ -95,7 +95,7 @@ Nous sommes venus אתנו.
 <b>On a pillé le labeur de nos pères</b> A cause de l'iniquité de son culte, notre labeur a été pillé.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Pour dire</b> Je dois dire que tu n'es plus digne de moi, car telle est la voie de celui qui renvoie sa femme et elle s'en va, etc.
 <b>Mais tu t'es prostitué [avec] de nombreux amants</b> Avec de nombreux amants. Néanmoins, reviens à moi.
@@ -192,4 +192,4 @@ Nous sommes venus אתנו.
 <b>On a pillé le labeur de nos pères</b> A cause de l'iniquité de son culte, notre labeur a été pillé.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

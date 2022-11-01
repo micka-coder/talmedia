@@ -57,7 +57,7 @@ Le Rav Huna développe : <b>Si vous le souhaitez, proposez un argument logique :
 Le Rav Naḥman poursuit : Conformément à <b>dont l'avis</b> est le <i>baraita</i> ? <b>Si nous disons</b> qu'elle est conforme à l'avis des <b>Rabbis</b> de la mishna, alors <b>même</b> si son intention était <b>en ce qui concerne</b> seulement <b>l'un d'entre eux,</b> les deux pains sont rendus <i>piggul</i>. <b>Au contraire,</b> il est <b>évident</b> que la <i>baraita</i> est conforme à l'opinion de <b>Rabbi Yosei. </b> Maintenant, <b>accordé, si vous dites</b> que selon Rabbi Yosei les cuisses gauche et droite d'une offrande sont considérées comme <b>un seul corps,</b> et par conséquent l'intention <i>piggul</i> concernant une cuisse rend l'autre cuisse <i>piggul</i> également, alors <b>pour cette raison</b> il est compréhensible que si l'intention <i>piggul</i> portait sur une quantité égale à un total d'olives des deux pains, alors l'intention à l'égard de chaque pain est <b>combinée</b> avec l'autre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Par conséquent, le <i>tanna</i> <b>nous enseigne que dans ce</b> cas, Rabbi Yosei <b>convient</b> que si l'on retire la poignée avec l'intention de ne brûler que la poignée le lendemain, l'offrande est rendue <i>piggul</i>. En conséquence, Rabbi Yosei considère que l'on rend une offrande <i>piggul</i> avec une intention qui ne concerne que la moitié de ses facteurs de permission, et que l'offrande n'est pas rendue <i>piggul</i> dans le cas de cette dernière clause pour une raison différente, comme la Guemara en parlera plus loin.
 
@@ -116,4 +116,4 @@ Le Rav Huna développe : <b>Si vous le souhaitez, proposez un argument logique :
 Le Rav Naḥman poursuit : Conformément à <b>dont l'avis</b> est le <i>baraita</i> ? <b>Si nous disons</b> qu'elle est conforme à l'avis des <b>Rabbis</b> de la mishna, alors <b>même</b> si son intention était <b>en ce qui concerne</b> seulement <b>l'un d'entre eux,</b> les deux pains sont rendus <i>piggul</i>. <b>Au contraire,</b> il est <b>évident</b> que la <i>baraita</i> est conforme à l'opinion de <b>Rabbi Yosei. </b> Maintenant, <b>accordé, si vous dites</b> que selon Rabbi Yosei les cuisses gauche et droite d'une offrande sont considérées comme <b>un seul corps,</b> et par conséquent l'intention <i>piggul</i> concernant une cuisse rend l'autre cuisse <i>piggul</i> également, alors <b>pour cette raison</b> il est compréhensible que si l'intention <i>piggul</i> portait sur un montant égal à une quantité totale d'olives des deux pains, alors l'intention concernant chaque pain est <b>combinée</b> avec l'autre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

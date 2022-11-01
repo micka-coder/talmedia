@@ -18,4 +18,4 @@ Les Rabbins <b>ont dit à</b> Rabbi Shimon : <b>Mais le produit de l'année sabb
 <b>Au contraire,</b> le dilemme peut être résolu <b>à partir de cette</b> source ; <b>comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

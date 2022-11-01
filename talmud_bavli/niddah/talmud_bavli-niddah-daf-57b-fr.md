@@ -69,4 +69,4 @@ La Guemara répond : <b>Si tu veux, dis</b> que le sang a été découvert <b>de
 La Guemara soulève une objection de la <i>baraita</i> à l'opinion de Shmuel : <b>En tout état de cause,</b> le <i>baraita</i> <b>enseigne</b> que si une tache est découverte <b>sur sa chair</b> et qu'il y a <b>incertitude quant à savoir si elle est impure ou pure,</b> elle est <b>impure, et</b> c'est la <i>halakha</i> <b>même si elle n'a pas senti,</b> ce qui contredit l'avis de Shmuel. <b>Et en outre, nous avons appris</b> dans la mishna qu'une femme <b>qui voit</b> une <b>tache de sang sur sa chair adjacente</b> à son <b>vagin devient rituellement impure, et</b> c'est apparemment la <i>halakha</i> <b>même si elle n'a pas senti. Rav Yirmeya de Difti dit :</b> La décision de Shmuel selon laquelle une femme doit sentir pour être rendue impure ne s'applique que par la loi de la Torah. Mais <b>Shmuel concède que</b> dans tous les cas cités ci-dessus, où il est indiqué qu'une femme est impure malgré le fait qu'elle n'a pas senti, <b>elle est impure</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

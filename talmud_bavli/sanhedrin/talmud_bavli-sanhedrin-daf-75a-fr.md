@@ -15,4 +15,4 @@ La Guemara commente : <b>Rabbi Ya'akov bar Idi et Rabbi Shmuel bar Naḥmani son
 La Gemara demande : <b>Mais</b> si la femme n'était pas mariée, <b>laissons</b> l'homme <b>l'épouser.</b> La Gemara répond : <b>Son esprit n'aurait pas été allégé</b> par le mariage, <b>conformément</b> à la déclaration <b>de Rabbi Yitzḥak. Comme le dit Rabbi Yitzḥak : Depuis le jour où le Temple a été détruit, le plaisir sexuel a été retiré</b> à ceux qui pratiquent des rapports autorisés <b>et donné aux transgresseurs, comme il est dit : "Les eaux volées sont douces, et le pain mangé en secret est agréable"</b> (Proverbes 9:17). Par conséquent, l'homme n'aurait pu être guéri qu'en s'engageant dans une interaction sexuelle illicite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

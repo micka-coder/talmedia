@@ -54,4 +54,4 @@ La Gemara rejette cette opinion : <b>Est-ce comparable ? Là,</b> dans le cas de
 La Guemara commente : On peut <b>apprendre de</b> l'énoncé <b>trois</b> <i>halakhot</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara ajoute : <b>Ceci est également enseigné</b> dans une <i>baraita</i>
 En ce qui concerne l'explication selon laquelle le différend porte sur une seule paire de témoins, <b>Rav a dit : Tous concèdent dans</b> un cas de <b>comptage</b> que les témoignages se contredisent. <b>Rav Ḥama dit à Rav Ḥisda : Qu'est-ce qu'il dit ;</b> qu'est-ce que Rav a voulu dire par là ? <b>Si nous disons que</b> il faisait référence à un cas où <b>un</b> témoin <b>dit :</b> Il a fait vœu de <b>cinq</b> termes <b>et non de deux</b> termes, <b>et un autre dit :</b> Il a fait vœu de <b>deux</b> termes <b>et non de cinq</b> termes, dans une telle situation <b>ils</b> se contredisent clairement,</b> et aucun des témoignages n'est fiable. <b>Le Rav parle plutôt de <b>un</b> témoin qui <b>dit</b> qu'il a entendu la personne en question ne compter que <b>un et deux</b> termes lorsqu'elle a fait vœu de naziréat, <b>et un autre dit</b> qu'il a entendu la personne en question ne compter que <b>trois, quatre,</b> et <b>cinq</b> termes lorsqu'elle a fait vœu de naziréat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

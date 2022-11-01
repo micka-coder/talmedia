@@ -58,4 +58,4 @@
 <b>Avec les vivants et avec les défunts.</b> Qu'il nourrisse et fasse vivre les vivants, et s'occupe des besoins des défunts.</sup>20</sup><i class="footnote">Les " besoins des défunts " font référence à la bonté dont a fait preuve Bo'az envers Elimelech et ses fils. (Ibn Ezra) Alternativement, les " besoins du décédent " font référence à la volonté de Bo'az de réaliser un mariage lévrier et de faire ainsi preuve de bonté envers la mémoire de son mari décédé. (Alshich) </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

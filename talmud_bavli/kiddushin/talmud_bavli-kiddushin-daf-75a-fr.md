@@ -63,4 +63,4 @@ Le <i>baraita</i> continue : <b>Et certains disent</b> que le descendant d'un co
 <b>Abaye dit à</b> Rav Yosef : <b>Est-ce comparable</b> au cas d'un converti ? <b>Là,</b> il est <b>un ancien converti,</b> c'est-à-dire que la conversion a eu lieu il y a longtemps, <b>et elle est une nouvelle <i>mamzeret</i>,</b> c'est-à-dire que son statut de <i>mamzeret</i> est connu. Par conséquent, les personnes qui le voient épouser une <i>mamzeret</i> vont <b>dire :</b> Un <b>Juif se marie avec une <i>mamzeret</i>. Ici, ceci et cela,</b> les deux Samaritains, <b>sont les mêmes l'un que l'autre.</b> Si les gens considèrent que l'homme samaritain est assimilé au sein du peuple juif, et que par conséquent il ne peut pas épouser une femme de lignée viciée, la femme samaritaine devrait de même être considérée comme une juive de lignée viciée. <b>Au contraire,</b> la Guemara rejette l'explication précédente en faveur de la suivante : <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael <b>il a dit : Rabbi Elazar tient selon</b> l'opinion de <b>Rabbi Yishmael,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

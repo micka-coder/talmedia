@@ -45,4 +45,4 @@ La Gemara répond : La contradiction apparente <b>entre</b> la première déclar
 La contradiction entre une déclaration <b>du Rav Naḥman et</b> l'autre déclaration <b>du Rav Naḥman</b> n'est <b>pas difficile non plus,</b> car là, <b>puisque</b> le vendeur lui <b>a dit :</b> Je te vends par la présente tous les biens que je possède <b>de la maison de bar Sisin, et</b> cette parcelle est <b>appelée : De la maison de bar Sisin,</b> il lui <b>appartient de révéler qu'elle</b> n'est <b>pas de la maison de bar Sisin. Mais ici,</b> dans le cas où le demandeur déclare s'être rendu dans un endroit éloigné, il ne faut pas <b>considérer</b> comme un cas <b>autre</b> que celui <b>où</b> le possesseur est <b>détenteur d'un document</b> comme preuve qu'il a acheté la maison. <b>Ne pourrions-nous pas</b> alors lui <b>dire : </b> D'abord <b>ratifier votre document, et</b> seulement ensuite être <b>établi</b> comme le propriétaire de la <b>propriété ?</b> Dans ce cas également, puisque sa propriété présumée est à la place d'un document, il doit clarifier la question par le biais de témoins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

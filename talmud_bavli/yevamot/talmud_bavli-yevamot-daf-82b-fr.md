@@ -36,4 +36,4 @@ La Guemara répond : Non, il <b>est évident tant pour ce Maître que pour ce Ma
 <b>Rav a dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

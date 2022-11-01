@@ -51,4 +51,4 @@ La Guemara commente : <b>Selon l'avis de qui</b> cela a été énoncé ? Il a é
 La Guemara rejette cet argument : <b>Même selon</b> l'avis de <b>Rabbi Shimon, puisque la plus grande partie</b> du <i>karpef</i> <b>est ensemencée, la partie mineure</b>...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara explique : <b>Comme le dit Rabba :</b> Si les fils ont <b>collecté u
 <b>Abaye dit à Rabba : Selon votre</b> avis, c'est <b>difficile,</b> et <b>selon</b> l'avis de <b>Rav Naḥman</b>, c'est <b>difficile</b> également. Selon votre</b> opinion, il <b>est difficile</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

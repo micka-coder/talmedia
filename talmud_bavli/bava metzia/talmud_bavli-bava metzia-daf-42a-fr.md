@@ -39,4 +39,4 @@ La Gemara raconte : Il y avait <b>un certain homme qui déposa de l'argent chez 
 <b>Disons au</b> bailli : <b>Allez payer.</b> Mais il peut <b>dire : </b> Il existe un principe :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -53,5 +53,5 @@ Rabbi Elazar ben Azariah a dit : Là où il n'y a pas de Torah, il n'y a pas de 
 ### michna 18
 Rabbi Eliezer Hisma a dit : les lois des offrandes d'oiseaux mélangés et la clé des calculs des jours de menstruation, ceux-ci sont le corps de la halakha. Le calcul des équinoxes et la guématrie sont les desserts de la sagesse.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -72,7 +72,7 @@ Abaye poursuit : <b>Et puisque cela</b> est la réalité, <b>le contraire est ra
 La Gemara demande : <b>Et pourquoi</b> ne précise-t-il pas le nombre de la Fête ? De même qu'il a spécifié les deux Fêtes précédentes, <b>laissons</b> lui <b>dire</b> que c'est la <b>troisième Fête de pèlerinage.</b> La Gemara répond : Il ne précise pas qu'il s'agit de la troisième Fête de pèlerinage, afin <b>que</b> celui qui l'entend ne vienne pas à la <b>confondre</b> avec la deuxième</b> Fête de pèlerinage. Si le trouveur proclamait que c'est la troisième Fête [<i>shelishi</i>], il est possible que le propriétaire entende par erreur le mot deuxième [<i>sheni</i>] et croie qu'il lui reste du temps pour récupérer son objet perdu. Puisque lors de la deuxième fête, il mentionne le nombre et que lors de la troisième fête, il ne mentionne pas de nombre, il n'y a aucun risque de confusion. La Guemara demande : Sur la base de ce raisonnement, lors de la <b>deuxième</b> Fête de pèlerinage <b>aussi,</b> le trouveur ne doit pas mentionner le numéro de la Fête,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara demande : <b>Mais</b> il y a <b>ce que nous avons appris</b> dans cette mishna (20a) : Si l'on <b>trouve un rouleau de documents ou une liasse de documents, il rendra</b> les documents à celui qui décrit le rouleau et la liasse, qui servent de signes distinctifs. Dira-t-on que <b>aussi,</b> si l'on restitue des objets perdus sur la base de marques distinctives en raison de l'accord tacite des propriétaires, il est <b>satisfaisant pour le débiteur de</b> voir les documents <b>remis au créancier ?</b>.
 
@@ -146,4 +146,4 @@ Abaye poursuit : <b>Et puisque cela</b> est la réalité, <b>le contraire est ra
 La Gemara demande : <b>Et pourquoi</b> ne précise-t-il pas le nombre de la Fête ? De même qu'il a spécifié les deux Fêtes précédentes, <b>laissons</b> lui <b>dire</b> que c'est la <b>troisième Fête de pèlerinage.</b> La Gemara répond : Il ne précise pas qu'il s'agit de la troisième Fête de pèlerinage, afin <b>que</b> celui qui l'entend ne vienne pas à la <b>confondre</b> avec la deuxième</b> Fête de pèlerinage. Si le trouveur proclamait que c'est la troisième Fête [<i>shelishi</i>], il est possible que le propriétaire entende par erreur le mot deuxième [<i>sheni</i>] et croie qu'il lui reste du temps pour récupérer son objet perdu. Puisque lors de la deuxième fête, il mentionne le nombre et que lors de la troisième fête, il ne mentionne pas de nombre, il n'y a aucun risque de confusion. La Guemara demande : Sur la base de ce raisonnement, lors de la <b>deuxième</b> Fête de pèlerinage <b>aussi,</b> le trouveur ne doit pas mentionner le numéro de la Fête,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

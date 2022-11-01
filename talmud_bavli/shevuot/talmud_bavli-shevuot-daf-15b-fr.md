@@ -51,4 +51,4 @@ La Gemara demande : <b>Et selon votre raisonnement, selon celui qui dit</b> que 
 <b>Au contraire, Rabbi Yoḥanan dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ En ce qui concerne la veracite des reves, <b>Rabbi Yohanan a dit : Celui qui s'e
 <b>Rabbi Shmuel bar Nahmani a dit</b> que <b>Rabbi Yonatan a dit : On montre a une personne</b> dans son reve <b>seulement les pensees de son cœur</b> lorsqu'elle etait eveillee, comme en temoigne ce que Daniel a dit a Nabuchodonosor, <b>comme il est dit : <b>Comme pour toi, o roi, tes pensees sont venues sur ton lit,</b> ce qui devait arriver par la suite (Daniel 2:29). <b>Et si vous voulez, dites</b> plutot qu'il est derive <b>de ce qui suit,</b> un verset connexe : <b>Et pour connaitre les pensees de ton</b> cœur" (Daniel 2:30). Comment connaitras-tu les pensees de ton cœur ? En te les revelant dans un reve. <b>Rava a dit : Sachez</b> qu'il en est ainsi, <b>car on ne montre pas en reve un palmier dore ni un elephant</b> passant par <b>le chas d'une aiguille</b>. En d'autres termes, les reves ne contiennent que des images qui entrent dans l'esprit d'une personne.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

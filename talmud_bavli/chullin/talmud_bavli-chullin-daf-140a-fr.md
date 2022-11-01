@@ -51,4 +51,4 @@ La Gemara demande : <b>Et où a été</b> énoncée cette déclaration <b>du Rav
 La Guemara objecte : <b>Mais</b> pourquoi ne pas <b>comparer un oiseau <i>tereifa</i> mère</b> <b>à</b> <i>tereifa</i> <b>des oisillons</b> et dire : <b>De même que</b> à l'égard des <b><i>tereifa</i> oisillons</b> on est <b>exempté de renvoyer</b> la mère, <b>de même,</b> à l'égard de <b>une <i>tereifa</i> mère</b> on devrait <b>aussi</b> être <b>exempté de la renvoyer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

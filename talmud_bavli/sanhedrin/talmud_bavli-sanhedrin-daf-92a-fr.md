@@ -72,4 +72,4 @@ La Gemara demande : <b>Mais Rabbi Elazar ne dit-il pas :</b> A l'égard de <b>to
 <b>L'école d'Eliyahou a enseigné : Les justes que le Saint, Béni soit-Il, est destiné à ressusciter ne retournent pas à leur poussière, comme il est dit : "Et il arrivera que celui qui demeure en Sion et celui qui demeure à Jérusalem seront appelés saints, quiconque est inscrit à la vie à Jérusalem"</b> (Isaïe 4:3). <b>De même que</b> le <b>Saint existe pour toujours, de même ils existeront pour toujours.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ Rav Sheshet poursuit : <b>Et si</b> l'affirmation de Rabbi Yehoshua est <b>confo
 <b>Et cette offrande de culpabilité</b> de statut incertain <b>exige</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

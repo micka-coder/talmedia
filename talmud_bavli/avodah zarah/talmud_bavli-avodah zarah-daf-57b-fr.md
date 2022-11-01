@@ -24,4 +24,4 @@ Cette <i>halakha</i> est <b>à l'exclusion de ce que dit Rav</b>, <b>comme dit R
 Cet incident a soulevé un dilemme concernant le statut du vin dans le tonneau. <b>Rava autorisa</b> le propriétaire <b>à vendre</b> le vin <b>aux gentils,</b> car il considérait qu'il est permis de tirer un bénéfice du vin. <b>Rav Huna bar Ḥinnana et Rav Huna, fils de Rav Naḥman, ne furent pas d'accord avec lui.</b> Des souffles de <b>shofarot</i> sortirent</b> du tribunal <b>de Rava</b> promulguant sa décision, <b>et ils autorisèrent</b> la vente. <b>Et</b> des détonations de <b><i>shofarot</i> sont sorties</b> du tribunal <b>du Rav Huna bar Ḥinnana et du Rav Huna, fils du Rav Naḥman,</b> promulguant leur décision, <b>et ils ont interdit</b> la vente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

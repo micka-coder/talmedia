@@ -45,4 +45,4 @@ Abaye <b>leur a dit : Toute renonciation aux domaines</b> de nombreuses personne
 <b>Rav Huna, fils de Rav Yehoshua, alla</b> et <b>rapporter cette <i>halakha</i> devant Rava,</b> qui lui <b>dit : </b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

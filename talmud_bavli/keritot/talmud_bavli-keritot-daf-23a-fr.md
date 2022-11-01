@@ -54,4 +54,4 @@ Rav Naḥman <b>a dit à</b> Rava : <b>Cette</b> mishna fait référence <b>à</
 <b>Au contraire,</b> on doit dire que spécifiquement <b>en ce qui concerne la nourriture sacrificielle</b> <b>le Miséricordieux a révélé qu'une interdiction prend effet là où</b> une autre <b>interdiction</b> existe déjà.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

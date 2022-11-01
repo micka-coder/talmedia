@@ -156,4 +156,4 @@
 <b>Elle est rentrée dans son fourreau</b> C'est-à-dire que le temps viendra où l'épée rentrera dans son fourreau, et où l'épée recevra sa propre rétribution, de la main des rois de Médie, et alors Je soufflerai sur toi avec le feu de Ma colère, et tu seras livré aux mains de forgerons fous, qui sont des artisans de la destruction, qui viendront l'aiguiser et la fignoler comme autrefois, et ils te détruiront.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

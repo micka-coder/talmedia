@@ -48,4 +48,4 @@ La Guemara présente la troisième interprétation homilétique : <b>Rabbi Pine�
 § La mishna enseigne que <b>ceci est le principe:</b> Concernant <b>toute personne qui précède</b> une autre <b>en matière d'héritage, ses descendants précèdent</b> également l'autre, <b>et un père précède tous ses descendants. Rami bar Ḥama soulève un dilemme : </b> En ce qui concerne la revendication d'un <b>père du</b> <b>père du défunt et</b> la revendication du <b>frère du <b>père du défunt, comme</b> les revendications d'<b>Abraham et d'Ismaël sur les biens d'Esaü,</b> qui était le petit-fils d'Abraham et le neveu d'Ismaël, <b>lequel d'entre eux précède</b> l'autre et hérite des biens ? <b>Rava dit : Venez</b> et <b>entendez</b> une preuve tirée de la mishna : <b>Un père précède tous ses descendants,</b> donc, Abraham hériterait, car Ismaël était son descendant. La Gemara demande : <b>Et</b> pourquoi <b>Rami bar Ḥama</b> a-t-il eu un dilemme ; n'était-il pas au courant de la déclaration de la mishna ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

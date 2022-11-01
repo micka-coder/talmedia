@@ -42,4 +42,4 @@ La Gemara note : <b>Et</b> la déclaration de Rav Pappi selon laquelle tous les 
 La Guemara commente : La preuve en est <b>que Rabbi Asi dit</b> que <b>Rabbi Yoḥanan dit :</b> Dans le cas d'un <b>billet à ordre avec lequel on a emprunté</b> de l'argent <b>et</b> l'emprunteur a ensuite <b>remboursé</b> la dette, <b>il ne peut pas emprunter à nouveau de l'argent avec ce billet. </b> La raison en est <b>que son privilège a déjà été effacé.</b> Une fois la dette remboursée, le privilège résultant du prêt n'est plus en vigueur. Les témoins n'ont pas signé à nouveau le document au moment du second prêt, donc le privilège ne sera pas en vigueur, et le prêt aura le statut d'un par accord oral. La Guemara en déduit : <b>La raison</b> qu'il ne peut pas réutiliser le document est <b>que son privilège a été annulé,</b> de sorte que le document n'est plus exact. <b>Mais quant</b> au fait qu'il présente l'<b>apparence du faux,</b> puisqu'il a été rédigé avant le second prêt, <b>nous ne sommes pas concernés.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

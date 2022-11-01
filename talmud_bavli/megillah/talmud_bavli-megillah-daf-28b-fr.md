@@ -54,4 +54,4 @@ L'homme <b>dit à</b> Reish Lakish : <b>Il m'est agréable de servir le Maître<
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

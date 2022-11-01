@@ -36,4 +36,4 @@ La Guemara poursuit cette ligne d'enquête : <b>Et</b> selon <b>ce <i>tanna</i>,
 La Gemara demande : <b>Et celui qui déduit</b> de <b>"sa tête" que</b> la mitsva de se raser l'emporte à la fois sur <b>la mitsva positive et l'interdiction</b> d'un nazirite, <b>qu'il dérive</b> ce principe <b>de "sa barbe"</b> La Gemara réfute cette suggestion : <b>Et selon votre raisonnement,</b> que l'expression "sa barbe" enseigne qu'une mitzva positive l'emporte sur l'interdiction et la mitzva positive d'un nazirite, ce <b>que nous soutenons généralement,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

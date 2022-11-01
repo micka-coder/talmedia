@@ -48,7 +48,7 @@ C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 38a) :
 La Gemara a demandé : <b>Et</b> si c'est uniquement en raison des circonstances exigeantes que la protestation est inefficace, <b>qu'est-ce qui est différent</b> de la <b>Judea et</b> de la <b>Galilée que</b> le <i>tanna</i> <b>cite</b> spécifiquement ces deux terres ? Ostensiblement, même à l'intérieur de l'une de ces trois terres, si les voyages et les communications sont restreints, la même <i>halakha</i> s'appliquerait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Cependant, pour celui qui a enseigné</b> les autres, il n'y a <b>aucune mesure pour</b> le nombre de personnes qui assistent aux funérailles.
 
@@ -98,4 +98,4 @@ C'est <b>comme nous l'avons appris</b> dans une mishna (<i>Bava Batra</i> 38a) :
 La Gemara a demandé : <b>Et</b> si c'est uniquement en raison des circonstances exigeantes que la protestation est inefficace, <b>qu'est-ce qui est différent</b> de la <b>Judea et</b> de la <b>Galilée que</b> le <i>tanna</i> <b>cite</b> spécifiquement ces deux terres ? Ostensiblement, même à l'intérieur de l'une de ces trois terres, si les voyages et les communications sont restreints, la même <i>halakha</i> s'appliquerait.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

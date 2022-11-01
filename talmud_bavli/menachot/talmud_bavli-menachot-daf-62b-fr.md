@@ -30,4 +30,4 @@ La Guemara répond : <b>Le Miséricordieux a exclu</b> l'offrande de culpabilit�
 § <b>Les Sages ont enseigné :</b> En ce qui concerne <b>cinq</b> personnes <b>qui ont apporté une offrande</b> ensemble, <b>une</b> d'entre elles <b>agite</b> l'offrande <b>au nom de toutes. Et</b> dans le cas de <b>une femme</b> qui apporte une offrande, le <b>prêtre agite</b> l'offrande <b>en son nom. Et de même,</b> en ce qui concerne <b>celui qui envoie ses offrandes d'outre-mer,</b> le <b>prêtre les agite</b> <b>en son nom.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

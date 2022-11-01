@@ -49,4 +49,4 @@ Autre explication : <b>Mieux vaut ce que les yeux voient réellement que l'imagi
 <b>Car qui peut dire à un homme.</b> Comment les richesses qu'il a amassées sous l'oppression resteront-elles pour ses enfants après lui, sous le soleil. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

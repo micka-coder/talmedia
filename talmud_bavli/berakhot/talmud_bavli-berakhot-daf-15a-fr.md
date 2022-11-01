@@ -78,4 +78,4 @@ La Guemara clarifie : <b>Qui est le <i>tanna</i></b> qui soutient que meme <b>ap
 La Gemara demande : <b>D'ou</b> concluez-vous que la mishna citee du traité <i>Megilla</i> est conforme a l'opinion de <b>Rabbi Yosei, et</b> que <b>apres coup</b> sa lecture n'est <b>pas non plus</b> valide ?
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

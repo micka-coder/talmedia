@@ -21,7 +21,7 @@ La Gemara soulève une difficulté : <b>Dit la dernière clause :</b> Si elle a 
 § En ce qui concerne une jeune fille qui commençait tout juste à avoir ses règles, la Gemara déclare : Si elle trouve une <b>tache de sang entre</b> la <b>première</b> et la <b>seconde</b> fois qu'elle voit du sang menstruel, elle est <b>pure. </b> Si c'est <b>entre</b> la <b>seconde et</b> la <b>troisième</b> fois, <b>Ḥizkiyya dit :</b> Elle est <b>impure ; Rabbi Yoḥanan dit :</b> Elle est <b>pure.</b> La Guemara explique le raisonnement qui sous-tend leurs avis respectifs. <b>Ḥizkiyya dit :</b> Elle est <b>impure, car si elle avait vu</b> du sang menstruel, cela la <b>rendrait impure.</b> Par conséquent, sa <b>tache de sang est également impure. Et Rabbi Yoḥanan dit :</b> Elle est <b>pure, puisqu'elle n'a pas</b> encore atteint le statut de <b>présomption de</b> celui qui voit du <b>sang menstruel.</b> Par conséquent, <b>nous ne la rendons pas non plus impure</b> à cause de <b>sa <b>tache de sang.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara demande : <b>Qu'en est-il</b> de la <i>halakha</i> si elle <b>voit ensuite</b> du sang menstruel <b>à</b> intervalles réguliers de <b>cycles de trente jours ?</b> Son temps est-il suffisant, ou transmet-elle l'impureté rétroactivement ? <b>Rav Giddel dit</b> que <b>Rav dit :</b> En ce qui concerne la <b>première fois et</b> la <b>seconde</b> fois qu'elle voit du sang menstruel, <b>son temps est suffisant.</b> Après la <b>troisième</b> fois, <b>elle transmet l'impureté</b> rétroactivement <b>pendant</b> une <b>période de vingt-quatre heures ou d'examen en examen.</b>
 
@@ -44,4 +44,4 @@ La Gemara soulève une difficulté : <b>Dit la dernière clause :</b> Si elle a 
 § En ce qui concerne une jeune fille qui commençait tout juste à avoir ses règles, la Gemara déclare : Si elle trouve une <b>tache de sang entre</b> la <b>première</b> et la <b>seconde</b> fois qu'elle voit du sang menstruel, elle est <b>pure. </b> Si c'est <b>entre</b> la <b>seconde et</b> la <b>troisième</b> fois, <b>Ḥizkiyya dit :</b> Elle est <b>impure ; Rabbi Yoḥanan dit :</b> Elle est <b>pure.</b> La Guemara explique le raisonnement qui sous-tend leurs avis respectifs. <b>Ḥizkiyya dit :</b> Elle est <b>impure, car si elle avait vu</b> du sang menstruel, cela la <b>rendrait impure.</b> Par conséquent, sa <b>tache de sang est également impure. Et Rabbi Yoḥanan dit :</b> Elle est <b>pure, puisqu'elle n'a pas</b> encore atteint le statut de <b>présomption de</b> celui qui voit du <b>sang menstruel.</b> Par conséquent, <b>nous ne la rendons pas non plus impure</b> à cause de <b>sa <b>tache de sang.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

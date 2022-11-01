@@ -36,4 +36,4 @@ La Gemara répond : <b>Et Rami bar Ḥama</b> peut dire : <b>Je ne soulève pas 
 La Gemara suggère : <b>Solvez ce</b> dilemme <b>en</b> invoquant une déclaration <b>de Rabbi Abbahou, comme Rabbi Abbahou a dit</b> que <b>Rabbi Yoḥanan dit : </b> Si <b>quelqu'un consacre</b> un animal comme offrande à apporter par un autre, et que l'animal développe une tare le disqualifiant pour le sacrifice, si celui qui l'a consacré désire le racheter, il <b>ajoute un cinquième</b> à sa valeur, tout comme il le ferait s'il s'agissait de sa propre offrande. En revanche, si celui qui réalise l'expiation avec l'offrande désire la racheter, il n'a pas besoin d'ajouter un cinquième. <b>Mais celui qui accomplit l'expiation</b> avec l'offrande <b>peut rendre</b> un autre animal <b>remplaçant</b> comme s'il l'avait consacré. <b>Et</b> si <b>on sépare le <i>teruma</i>,</b> la portion de produit désignée pour un prêtre, <b>de son propre</b> produit.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

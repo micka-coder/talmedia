@@ -42,4 +42,4 @@ La Guemara demande : <b>Si</b> alors, on pourrait dire : <b>De même que</b> le 
 La Gemara demande : <b>Comment agissent-ils</b> un jour de jeûne ? <b>Abaye dit : Du matin jusqu'au milieu de la journée, ils examinent les affaires de la ville</b> en vérifiant s'il y a des déficiences ou des corruptions dans la ville, morales ou autres, et tentent d'y remédier, car ces problèmes peuvent avoir été la cause de la punition divine. <b>À partir de ce</b> point, </b> pendant <b>un quart de la journée, on lit</b> une portion <b>de la Torah et</b> une portion des <b>Prophètes</b> [<i>haftara</i>]. <b>À partir de ce</b> point, ils prient</b> et demandent <b>la miséricorde, comme il est dit : "Et ils se levèrent à leur place et ils lurent dans le livre de la Torah du Seigneur leur Dieu un quart du jour ; et un autre quart, ils se confessèrent et se prosternèrent devant le Seigneur leur Dieu"</b> (Néhémie 9:3).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

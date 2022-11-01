@@ -72,4 +72,4 @@ La Guemara explique que c'est <b>comme il est enseigné</b> dans une <i>baraïta
 Et <b>si vous voulez, dites</b> plutôt que <b>cette</b> mishna <b>et cette</b> <i>baraita</i> sont toutes deux conformes à l'opinion des <b>rabbins, et que</b> veut dire la <i>baraita</i> quand elle dit : <b>Avec lui ?</b> Cela signifie que la zone d'abattage reste <b>avec l'animal,</b> c'est-à-dire qu'elle reste avec le propriétaire et n'est pas donnée au prêtre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

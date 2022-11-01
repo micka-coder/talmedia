@@ -66,4 +66,4 @@ La Gemara objecte : Vous pouvez <b>dire que vous avez entendu Rabbi Eliezer</b> 
 La Guemara explique : <b>Et selon Rav Sheila,</b> concernant ce <b>qui est enseigné</b> dans la deuxième <i>baraita</i>, à savoir que la plaque frontale effectue l'acceptation du sang <b>qui a été rendu impur</b> indépendamment du fait que cela soit arrivé <b>intentionnellement ou non, voici</b> ce qu'il dit : </b> Si le sang <b>a été rendu impur involontairement et qu'on a aspergé</b> son sang, <b>que ce soit</b> aspergé <b>involontairement ou intentionnellement,</b> il est accepté.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

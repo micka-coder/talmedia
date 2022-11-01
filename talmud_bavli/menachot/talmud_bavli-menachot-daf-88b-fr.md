@@ -60,4 +60,4 @@ La Guemara reprend sa citation de la <i>baraita</i> : <b>Rabbi Yehoshua ben Kor�
 La Guemara s'interroge sur la nécessité de la dérivation de la <i>baraita</i> : Mais l'exigence que les récipients soient faits d'<b>or est explicitement écrite dans</b> le verset : <b>"Et tu façonneras ses lampes au nombre de sept, et on allumera ses lampes, et il s'éclairera vers sa face. Et ses pinces et ses poêles seront d'or pur"</b> (Exode 25:37-38) ; pourquoi alors est-il nécessaire pour la <i>baraita</i> de déduire cela de la phrase "avec tous ces récipients" ? La Guemara explique : Cette dérivation du <i>baraita</i> <b>est nécessaire uniquement pour</b> enseigner qu'il en va de même <b>pour</b> la <b>bouche des</b> <b>lampes,</b> où reposent les mèches. Sinon, il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque</b> la <b>bouche des</b> <b>lampes noircit</b> et est endommagée par la mèche qui brûle, donc le principe selon lequel <b>la Torah a épargné l'argent du peuple juif</b> devrait être appliqué,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

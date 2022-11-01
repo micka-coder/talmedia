@@ -18,4 +18,4 @@ La Guemara répond : <b>Il était nécessaire que</b> la mishna mentionne ceci <
 La Gemara répond : Non, <b>si</b> on dit qu'il est écrit <b>en raison</b> d'un besoin d'enseigner la <i>halakha</i> d'une <b>femme mariée,</b> ce n'est pas possible, car <b>un verset différent est écrit</b> dans ce but : <b>"Et si</b> une femme <b>vouée dans la maison de son mari"</b> (Nombres 30:11). Les versets précédents font donc référence à une jeune femme fiancée, qui n'est pas encore dans la maison de son mari. La Gemara suggère : <b>Dis</b> que <b>les deux</b> ensembles de versets sont écrits <b>en ce qui concerne une femme mariée. Et si vous dites : Pourquoi ai-je</b> besoin de <b>deux versets</b> écrits <b>en ce qui concerne une femme mariée ?</b> C'est <b>pour dire que le mari ne peut pas annuler les vœux antérieurs</b> faits avant son mariage mais seulement ceux faits "dans la maison de son mari."
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@
 <b>ce que tu as juré</b> - lors de la ligature d'Isaac, (<a class="refLink" href="/Genèse.22.16" data-ref="Genèse 22:16">Gen 22:16</a>). "J'ai juré par moi-même, dit le Seigneur, que parce que tu as fait cette chose, etc.". 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

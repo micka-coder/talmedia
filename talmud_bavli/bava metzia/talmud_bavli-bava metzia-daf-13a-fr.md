@@ -51,7 +51,7 @@ La Gemara demande : <b>Mais puisque</b> le créancier <b>ne peut pas recouvrer</
 La Gemara demande : Si le document n'a que la valeur du papier, <b>Laissons</b> le trouveur le <b>rendre au débiteur, pour couvrir l'ouverture</b> de la fiole du <b>débiteur.</b> La Gemara répond : <b>Le débiteur est</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Cette mishna ne fait pas référence à celui qui trouve un billet à ordre ordinaire mais <b>à</b> celui qui trouve des <b>actes de transfert.</b> Il s'agit d'un billet à ordre qui établit un privilège sur la propriété du débiteur à partir de la date où le billet est écrit, indépendamment du moment où il emprunte l'argent. <b>Parce que</b> le débiteur s'est <b>obligé</b> à partir de cette date, le créancier a le droit légal de reprendre possession de son terrain auprès de tout acheteur ultérieur.
 
@@ -104,4 +104,4 @@ La Gemara demande : <b>Mais puisque</b> le créancier <b>ne peut pas recouvrer</
 La Gemara demande : Si le document n'a que la valeur du papier, <b>laissons</b> le trouveur le <b>rendre au débiteur, pour couvrir l'ouverture</b> de la fiole du <b>débiteur.</b> La Gemara répond : <b>Le débiteur est</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

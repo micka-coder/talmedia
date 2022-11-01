@@ -72,4 +72,4 @@ La Gemara demande : <b>Si oui, ici aussi,</b> en ce qui concerne l'abattage, la 
 La Gemara conteste : Mais <b>si oui, également en ce qui concerne l'offrande, n'est-il pas écrit : "Cet</b> homme sera retranché de son peuple" (Lévitique 17.9) ? Pourquoi ce terme n'est-il pas également développé pour enseigner que seul celui qui agit seul est responsable ? La Gemara explique : <b>Ce terme</b> <b>est nécessaire</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

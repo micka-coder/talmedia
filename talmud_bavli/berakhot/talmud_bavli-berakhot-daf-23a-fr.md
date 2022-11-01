@@ -63,4 +63,4 @@ De meme, <b>Rabba bar bar Hana a dit</b> que <b>Rabbi Yohanan a dit : Pendant la
 <b>Rabba bar bar Hana a dit : Lorsque nous marchions apres Rabbi Yohanan,</b> nous voyions <b>que lorsqu'il cherchait a entrer dans la salle de bain en tenant un livre de <i>aggada</i>, il le donnait</b> a nous. Lorsqu'il tenait des phylacteres, il ne les donnait pas</b> <b>a nous,</b> comme <b>il le disait : Puisque les Sages ont permis</b> de les tenir <b>dans ses mains,</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

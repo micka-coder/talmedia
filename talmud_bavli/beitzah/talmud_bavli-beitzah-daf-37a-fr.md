@@ -63,4 +63,4 @@ La Guemara réfute d'abord cette explication : <b>Peut-être que ce n'est pas le
 <strong>GEMARA:</strong> La Gemara affirme : <b>La mishna</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

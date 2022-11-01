@@ -63,4 +63,4 @@ La Guemara soulève une autre difficulté : <b>Rav Sheizvi n'a-t-il pas dit</b> 
 <b>Au contraire,</b> la Guemara résout les deux difficultés ensemble :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara répond : <b>Qu'est</b> <b>sa tête</b> qui n'est pas le lieu du pinc
 <b>Rav Aḥa, fils de Rava, dit à Rav Ashi :</b> En ce qui concerne <b>ce que Rami bar Yeḥezkel enseigne :</b> Il n'y a <b>pas</b> de disqualification pour <b>abattre des <i>simanim</i> dans un oiseau, nous disons</b> cela <b>seulement selon celui qui dit : Il n'y a pas</b> de source pour l'<b>abattage d'un oiseau dans la Torah.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

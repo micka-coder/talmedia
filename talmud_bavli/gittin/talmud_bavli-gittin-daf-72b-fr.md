@@ -60,4 +60,4 @@ La Gemara conteste : <b>Nous avons appris</b> dans la mishna : Si un homme dit :
 La Gemara conteste : <b>Mais n'est-il pas enseigné</b> dans la mishna : <b>Il s'est levé</b> de sa maladie, ce qui indique qu'il était complètement guéri ? La Guemara répond : Non, cela signifie qu'il <b>s'est levé de cette maladie mais est tombé dans une autre maladie.</b> La Gemara conteste : <b>Mais n'est-il pas</b> également <b>enseigné</b> dans la mishna : <b>Il a marché dans le marché ?</b> La Gemara répond : Cela signifie que <b>il marchait avec son bâton</b> pour se soutenir, c'est-à-dire qu'il n'était pas complètement remis de sa maladie mais qu'il ne pouvait marcher qu'avec de l'aide.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

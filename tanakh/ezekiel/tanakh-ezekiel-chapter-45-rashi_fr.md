@@ -101,4 +101,4 @@
 <b>Et pour chaque épha un hin d'huile</b> Je ne sais pas pourquoi. On peut dire que cela ne signifie pas qu'il doit sacrifier le "hin" entier, mais qu'il y avait des encoches dans le "hin" et qu'il sacrifierait de l'huile selon la farine fine, selon les lois sacrificielles pour un taureau selon son exigence et pour un bélier selon son exigence, selon les encoches du "hin".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

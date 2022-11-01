@@ -39,4 +39,4 @@ La Guemara répond : Ce n'est <b>pas difficile,</b> car <b>cette affaire</b>, o�
 Ceci <b>est comme ce que Rava a dit :</b> En ce qui concerne <b>celui qui engage des ouvriers pour labourer, et la pluie est tombée et a rempli</b> son terrain d'<b>eau,</b> empêchant les ouvriers d'effectuer le travail, <b>s'il a arpenté son terrain la nuit précédente</b> et a fait tout ce qu'il pouvait,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

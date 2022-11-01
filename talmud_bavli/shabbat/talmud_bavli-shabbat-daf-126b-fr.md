@@ -27,4 +27,4 @@ La Guemara répond : <b>Rabbi Yoḥanan tient conformément</b> à l'opinion de 
 <b>Une autre version</b> de cette déclaration : <b>Lorsqu'ils sont en désaccord</b> dans la mishna, c'est à propos de <b>la couverture d'un four ; ce Sage l'assimile à une couverture pour le sol, et ce Sage l'assimile à une couverture d'un récipient.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

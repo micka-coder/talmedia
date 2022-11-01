@@ -57,4 +57,4 @@ La Gemara demande : <b>Quelle est</b> la différence <b>entre</b> les explicatio
 La Gemara développe : <b>Tout le monde</b> est d'accord pour dire que <b>lorsque</b> il arrive <b>que</b> la femme <b>est sortie pour</b> saluer <b>le mari et lui a donné l'objet</b> que le mari a demandé, <b>et qu'ensuite</b> elle <b>a pris l'acte de divorce de sa part,</b> dans ce cas <b>tout le monde est d'accord pour dire que l'acte de divorce est un acte de divorce régulier. Quand ils ne sont pas d'accord</b> c'est dans un cas <b>quand</b> le mari <b>dit à</b> l'agent :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

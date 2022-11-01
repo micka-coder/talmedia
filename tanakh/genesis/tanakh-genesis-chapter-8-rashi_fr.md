@@ -83,5 +83,5 @@
 <b>jour et nuit, ne seront interrompus.</b> On peut en déduire qu'ils ont cessé pendant tous les jours du Déluge. Car les constellations ne fonctionnaient pas et la nuit et le jour étaient indiscernables.
 <b>ne seront interrompus.</b> [Signifiant :] aucune d'entre elles ne cessera de suivre son cours naturel. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

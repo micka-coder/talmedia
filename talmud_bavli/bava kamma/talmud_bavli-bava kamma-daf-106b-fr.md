@@ -63,7 +63,7 @@ Rabbi Abba bar Memel remet en question cette réponse : <b>Mais</b> si le bailli
 § La Guemara cite une décision connexe : <b>Et Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : </b> En ce qui concerne <b>celui qui</b> déclare faussement <b>l'affirmation, à propos d'un dépôt,</b> qu'un <b>voleur</b> l'a volé, <b>il n'est pas obligé</b> de prêter serment, ni de payer doublement, <b>jusqu'à ce qu'il nie une partie</b> de l'affirmation <b>et admette une partie</b> de l'affirmation. <b>Quelle est la raison</b> de cette disposition ? <b>Comme le dit le verset :</b> "A propos duquel on dira : <b>C'est cela"</b> (Exode 22:8), indiquant une admission de cette partie seulement, mais pas plus. La Gemara note : <b>Et</b> ceci <b>est en désaccord</b> avec la décision <b>de Rabbi Ḥiyya bar Yosef, car Rabbi Ḥiyya bar Yosef dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Grâce à vous, si vous dites</b> que lorsque <b>quelqu'un prête</b> un faux <b>serment</b> et <b>alors que des témoins viennent, il est tenu</b> de payer, <b>c'est pourquoi nous le tenons responsable</b> d'une offrande de culpabilité pour le dernier serment, puisqu'il peut</b> encore <b>se rétracter et admettre</b> sa responsabilité et encourir une obligation de payer. Par conséquent, le fait qu'il ait prêté un autre faux serment constitue une fausse dénégation supplémentaire de sa responsabilité monétaire.
 
@@ -128,7 +128,7 @@ Rabbi Abba bar Memel remet en question cette réponse : <b>Mais</b> si le bailli
 § La Guemara cite une décision connexe : <b>Et Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : </b> En ce qui concerne <b>celui qui</b> déclare faussement <b>l'affirmation, à propos d'un dépôt,</b> qu'un <b>voleur</b> l'a volé, <b>il n'est pas obligé</b> de prêter serment, ni de payer doublement, <b>jusqu'à ce qu'il nie une partie</b> de l'affirmation <b>et admette une partie</b> de l'affirmation. <b>Quelle est la raison</b> de cette disposition ? <b>Comme le dit le verset :</b> "A propos duquel on dira : <b>C'est cela"</b> (Exode 22:8), indiquant une admission de cette partie seulement, mais pas plus. La Gemara note : <b>Et</b> ceci <b>est en désaccord</b> avec la décision <b>de Rabbi Ḥiyya bar Yosef, car Rabbi Ḥiyya bar Yosef dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Grâce à vous, si vous dites</b> que lorsque <b>quelqu'un prête</b> un faux <b>serment</b> et <b>alors que des témoins viennent, il est tenu</b> de payer, <b>c'est pourquoi nous le tenons responsable</b> d'une offrande de culpabilité pour le dernier serment, puisqu'il peut</b> encore <b>se rétracter et admettre</b> sa responsabilité et encourir une obligation de payer. Par conséquent, le fait qu'il ait prêté un autre faux serment constitue une fausse dénégation supplémentaire de sa responsabilité monétaire.
 
@@ -193,4 +193,4 @@ Rabbi Abba bar Memel remet en question cette réponse : <b>Mais</b> si le bailli
 § La Guemara cite une décision connexe : <b>Et Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : </b> A l'égard de <b>quelqu'un qui</b> déclare faussement <b>l'affirmation, à propos d'un dépôt,</b> qu'un <b>voleur</b> l'a volé, <b>il n'est pas obligé</b> de prêter serment, ni de payer doublement, <b>jusqu'à ce qu'il nie une partie</b> de l'affirmation <b>et admette une partie</b> de l'affirmation. <b>Quelle est la raison</b> de cette disposition ? <b>Comme le dit le verset :</b> "A propos duquel on dira : <b>C'est cela"</b> (Exode 22:8), indiquant une admission de cette partie seulement, mais pas plus. La Gemara note : <b>Et</b> ceci <b>est en désaccord</b> avec la décision <b>de Rabbi Ḥiyya bar Yosef, car Rabbi Ḥiyya bar Yosef dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

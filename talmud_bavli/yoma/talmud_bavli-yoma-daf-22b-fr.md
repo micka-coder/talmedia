@@ -63,4 +63,4 @@ La Guemara poursuit : <b>Et même</b> selon <b>Rav, qui a dit que David a accept
 <b>Et Rabbi Yoḥanan a dit au nom de Rabbi Shimon ben Yehotzadak : Tout érudit de la Torah</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

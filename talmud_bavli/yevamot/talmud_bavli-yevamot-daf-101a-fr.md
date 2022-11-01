@@ -21,4 +21,4 @@ Il est dit dans la mishna : <b>Et si les deux</b> pères incertains <b>étaient 
 <b>Rav Pappa dit</b> que <b>c'est ce que</b> la mishna <b>dit : S'ils étaient tous deux dans une même veille sacerdotale et une même famille patrilinéaire, il reçoit une part,</b> car il ne peut être rejeté.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

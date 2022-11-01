@@ -42,4 +42,4 @@ La Gemara répond : <b>De quoi s'agit-il ici ?</b> Nous avons affaire à un cas 
 § La Guemara revient pour discuter de la déclaration de Shmuel concernant les partenaires : <b>Et ils deviennent des baillis payés</b> de leurs biens communs à l'égard de <b>l'un de l'autre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

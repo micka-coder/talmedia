@@ -39,4 +39,4 @@ La Gemara répond : <b>Dites</b> que Rav Ḥiyya bar Avin voulait dire : <b>Mêm
 <strong>MISHNA : </strong>Même après ses fiançailles, une fille <b>est toujours sous l'autorité de son père jusqu'à son entrée</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

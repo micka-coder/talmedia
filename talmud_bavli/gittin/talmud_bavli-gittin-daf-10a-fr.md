@@ -33,4 +33,4 @@ La Guemara développe : <b>De qui l'opinion</b> est exprimée dans la mishna ? <
 La Gemara répond : <b>En fait,</b> l'opinion exprimée dans la mishna est celle de <b>Rabbi Elazar,</b> et en règle générale, on ne peut pas se fier au témoignage d'un Samaritain sur un document. <b>Et</b> le mishna fait référence à un cas <b>où un juif a signé</b> le document <b>en dernier lieu,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

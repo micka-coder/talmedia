@@ -27,4 +27,4 @@ La Guemara répond : <b>Qu'est-ce que</b> le <b><i>erez</i></b> auquel la mishna
 Cette preuve est rejetée : <b>D'où</b> peut-on le prouver ? <b>Peut-être que c'est différent là ; puisqu'il a attaché</b> la ficelle à l'hysope, son statut juridique <b>est comme</b> celui de l'hysope <b>elle même.</b> Cependant, le statut juridique du tissu n'est pas comme celui du <i>lulav</i>, puisqu'il n'est pas attaché au <i>lulav</i>. <b>Au contraire,</b> le fait que la prise au moyen d'un autre objet est considérée comme une prise peut être appris <b>à partir de là :</b> Si les cendres de la vache rousse <b>sont tombées du tube</b> dans lequel elles étaient maintenues <b>dans l'abreuvoir</b> dans lequel se trouvait l'eau de source, l'eau est <b>infréquentable,</b> puisque prendre les cendres et les placer dans l'eau doit être effectué intentionnellement.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

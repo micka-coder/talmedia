@@ -81,7 +81,7 @@ La Guemara répond : La <i>baraita</i> fait référence <b>à un mineur, qui n'e
 <b>Un incident</b> s'est produit <b>à Tzippori impliquant une personne qui louait un bain à une autre</b> où ils ont déclaré que le loyer serait de : <b>Douze dinars or</b> <b>par an, un dinar or par mois,</b> puis l'année était intercalée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 pour insérer une <i>mezuza</i> <b>à l'intérieur</b> d'une <b>cordeuse</b> creuse, puis fixer l'ensemble au montant de la porte.
 
@@ -164,4 +164,4 @@ La Guemara répond : La <i>baraita</i> fait référence <b>à un mineur, qui n'e
 <b>Un incident</b> s'est produit <b>à Tzippori impliquant une personne qui louait un bain à une autre</b> où ils ont déclaré que le loyer serait de : <b>Douze dinars or</b> <b>par an, un dinar or par mois,</b> puis l'année était intercalée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

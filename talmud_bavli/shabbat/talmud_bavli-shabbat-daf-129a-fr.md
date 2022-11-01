@@ -72,4 +72,4 @@ La Gemara relate : <b>Shmuel avait l'habitude d'effectuer la pratique</b> de la 
 Ce sont <b>Rav et Shmuel qui ont tous deux dit : Celui qui effectue la pratique de la saignée doit goûter quelque chose puis sortir, car s'il ne goûte rien, s'il rencontre un cadavre, son visage deviendra vert. S'il rencontre quelqu'un qui a tué une personne, il mourra. S'il rencontre</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

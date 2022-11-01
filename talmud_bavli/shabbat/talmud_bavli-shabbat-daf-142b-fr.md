@@ -60,4 +60,4 @@ La Gemara demande : <b>La raison</b> pour laquelle il est permis de déplacer la
 <b>N'est-ce pas Rava qui dit à son préposé</b> lors d'une Fête : <b>Rôtissez un canard pour moi, et jetez ses intestins au chat.</b> Déplacer les intestins du canard était autorisé afin de nourrir le chat. De même, déplacer la colombe aurait dû être autorisé non pas parce qu'il s'agit d'une viande crue propre à être consommée par une personne, mais parce qu'elle est propre à être consommée par un chien.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

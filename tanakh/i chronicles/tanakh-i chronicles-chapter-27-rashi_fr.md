@@ -98,4 +98,4 @@
 <b>Et après Ahithophel</b> Après sa mort, David prit pour lui Jehoiada et Ebiathar à sa place.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

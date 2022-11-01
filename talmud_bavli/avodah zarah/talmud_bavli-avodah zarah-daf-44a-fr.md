@@ -57,4 +57,4 @@ De même, le verset indique : <b>"Or Adonias, fils de Haggith, s'est exalté, di
 Le verset poursuit : <b>"Et il se prépara des chars et des cavaliers et cinquante personnes pour courir devant lui"</b> (I Rois 1:5). La Gemara demande : <b>Quelle</b> est la <b>nouveauté de ces actions</b>, puisque d'autres personnes riches font de même, même si elles ne sont pas des fils de rois ayant des visées sur le trône ? Il est <b>enseigné</b> dans une <i>baraita</i> que ce qui était unique était que les coureurs <b>tous avaient</b> leurs <b>spleens enlevés et avaient la plante des pieds creusée,</b> c'est-à-dire que la chair de leurs pieds était enlevée, et que ces deux procédures augmentaient leur vitesse.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

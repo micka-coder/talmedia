@@ -30,4 +30,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces d
 Suite à la déclaration de Rav', la Guemara cite ce que <b>Rabbi Yonatan a dit : On ne doit jamais s'empêcher de</b> fréquenter <b>la salle d'étude ou de</b> s'engager dans des <b>affaires de Torah, même au moment de la mort, comme il est dit : Â "C'est la Torah : Une personne qui meurt dans une tente"</b> (Nombres 19:14). C'est une allusion au fait que <b>même au moment de la mort, on doit s'engager dans</b> l'étude de la <b>Torah. Reish Lakish a dit : Les questions de Torah ne perdurent que chez une personne qui se tue pour</b> la Torah, celle qui est prête à y consacrer tous ses efforts, <b>comme il est dit : " Voici la Torah : Une personne qui meurt dans une tente,</b> ce qui signifie que la Torah n'est atteinte que par celui qui se tue dans sa tente. <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

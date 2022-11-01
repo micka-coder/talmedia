@@ -84,4 +84,4 @@ Le <i>baraita</i> poursuit : <b>Tu dis</b> que c'est <b>en ce qui concerne une o
 La Gemara suggère : <b>Et que</b> le <i>tanna</i> <b>dérive à la fois</b> l'offrande pour le péché et l'offrande de culpabilité <b>du mot <b>"sacrifice"</b> seul, sans se rapporter au mot "ou".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara explique : <b>Quel</b> est le sens de <b><i>beyafa</i>?</b> Cela sign
 La Gemara <b>souleve une objection</b> tirée d'une mishna (<i>Ḥalla</i> 1:9) : En ce qui concerne les <b><i>teruma</i> et les prémices,</b> un non-prêtre <b>est susceptible</b> de recevoir la peine de <b>mort</b> de la main du Ciel <b>pour</b> en avoir pris part</b> intentionnellement, <b>et</b> la Torah impose le paiement d'une peine de <b>un cinquième</b> de la valeur du produit pour en avoir pris part involontairement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

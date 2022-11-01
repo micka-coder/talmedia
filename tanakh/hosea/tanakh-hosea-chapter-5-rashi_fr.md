@@ -61,4 +61,4 @@
 <b>Ils me chercheront</b> Héb. יִשַׁחֲרֻנְנִי.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

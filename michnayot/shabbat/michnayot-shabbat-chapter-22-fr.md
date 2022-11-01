@@ -18,4 +18,4 @@ Celui qui s'est baigné le Chabbat dans un bain rituel formé par l'eau d'une gr
 A propos des eaux de Tibériade, la mishna discute des halakhot du bain et des médicaments le Chabbat. Il est permis de s'enduire le corps d'huile et de se frotter doucement le corps avec la main ; cependant, il est interdit de se livrer à des massages vigoureux ou à des exercices physiques pour bénéficier des effets thérapeutiques de la transpiration, et il est interdit de racler l'huile avec un grattoir. De plus, il est interdit d'aller dans une rivière marécageuse [ kurdima ], le Chabbat. Il est interdit de fabriquer un médicament pour provoquer des vomissements, d'aligner les os d'un jeune enfant pour les redresser ou de réparer une fracture. Celui dont la main ou le pied a été disloqué ne peut pas les faire bouger vigoureusement dans de l'eau froide, ce qui est la méthode standard de traitement ; cependant, on peut laver le membre de la manière habituelle, et si on est guéri par ce lavage, on est guéri.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

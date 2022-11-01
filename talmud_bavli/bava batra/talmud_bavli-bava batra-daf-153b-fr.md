@@ -21,4 +21,4 @@
 § La mishna enseigne : <b>Et les rabbins disent : La charge de la preuve repose sur le demandeur,</b> et puisque le bien est en possession du donateur, les destinataires doivent apporter la preuve qu'ils ont le droit de le recevoir.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

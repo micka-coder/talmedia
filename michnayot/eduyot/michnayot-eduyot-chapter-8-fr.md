@@ -20,5 +20,5 @@ Rabbi Eliezer a dit :   J'ai entendu dire que lorsqu'ils ont construit le Temple
 ### michna 7
 Rabbi Joshua a dit : J'ai reçu une tradition de Rabban Yohanan ben Zakkai, qui l'a entendue de son maître, et son maître [l'a entendue] de son maître, comme une halakha [donnée] à Moïse depuis le Sinaï, qu'Elie ne viendra pas pour déclarer impur ou pour déclarer pur, pour éloigner ou pour rapprocher, mais pour éloigner ceux qui sont rapprochés par la force et pour rapprocher ceux qui sont éloignés par la force. La famille de Beth Tzripha était de l'autre côté du Jourdain, et Ben Sion l'a chassée par la force ; une autre famille encore était là, et Ben Sion l'a rapprochée par la force. Ce sont de telles familles qu'Elie viendra déclarer impures ou propres, éloigner ou rapprocher. Rabbi Judah dit : pour rapprocher, mais pas pour éloigner. Rabbi Shimon dit : pour concilier les disputes. Et les Sages disent : ni pour écarter ni pour rapprocher, mais pour faire la paix dans le monde, car il est dit : "Voici que je vous envoie Elie le prophète", etc., "et il tournera le cœur des pères vers les enfants et le cœur des enfants vers leurs pères" (Malachie 3:23-2).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

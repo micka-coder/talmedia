@@ -42,4 +42,4 @@ Nous avons appris dans la mishna que Rabbi Eliezer et les sages se disputent le 
 Nous avons appris dans la mishna que les sages disent : Dans ce cas comme dans ce cas, on peut obturer avec. La Guemara demande : <b>Quoi</b> est la signification de : <b>Tous</b> dans <b>cette</b> affaire <b>et</b> dans <b>cette</b> affaire, dans ce contexte ? <b>Rabbi Abba a dit</b> que <b>Rav Kahana a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -50,4 +50,4 @@ Une autre explication : <b>Parce qu'on ne sait jamais quelle [calamité] viendra
 <b>Et la jeunesse.</b> שַׁחֲרוּת fait référence à] la jeunesse, car [les cheveux sur] la tête d'une personne sont noirs שָׁחוֹר dans sa jeunesse. <sup>27</sup><i class="footnote">Alternativement, שחר [=l'aube] désigne la jeunesse qui est l'aube de la vie d'une personne. </i> 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

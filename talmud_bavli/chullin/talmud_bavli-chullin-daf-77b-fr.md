@@ -48,4 +48,4 @@ La raison en est <b>que je</b> peux <b>dire :</b> Peut-être que le placenta qui
 La Gemara conteste : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i> : S'il y a <b>un arbre qui perd ses fruits</b> prématurément, <b>on peut le peindre de peinture rouge et le charger de pierres,</b> même si c'est la pratique des Amorites ? La Guemara explique cette difficulté : <b>Accordé,</b> il est permis <b>de le charger de pierres,</b> car on le fait pour une raison logique, <b>dans l'ordre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

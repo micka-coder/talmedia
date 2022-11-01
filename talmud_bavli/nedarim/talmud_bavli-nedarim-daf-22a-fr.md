@@ -36,4 +36,4 @@ La Gemara relate : <b>Ulla, lors de son ascension vers Eretz Yisrael, se fit acc
 En ce qui concerne le récit lui-même, <b>Rabbi Yoḥanan s'est interrogé : Or, il est écrit</b> dans le passage des malédictions : <b>"Mais le Seigneur te donnera là-bas un cœur tremblant"</b> (Deutéronome 28:65) et cela <b>est écrit à propos de la Babylonie,</b> car en exil, un individu possède un cœur tremblant et colérique. Comment est-il possible qu'en Eretz Yisrael, une personne puisse se mettre en colère au point d'en assassiner une autre ? Ulla <b>lui a dit : A ce moment</b> où l'incident s'est produit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

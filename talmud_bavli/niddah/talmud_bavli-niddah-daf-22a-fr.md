@@ -42,4 +42,4 @@ Rabbi Elazar lui <b>dit : Tu as appris</b> la solution à ton dilemme dans une m
 Rabbi Elazar a répondu : <b>Vous avez appris</b> la solution à <b>cette</b> dilemme <b>aussi,</b> dans la mishna ici : Dans le cas d'une femme <b>qui rejette</b> un objet <b>similaire à un coquillage,</b> ou <b>similaire à un cheveu,</b> ou <b>similaire à de la terre,</b> ou <b>similaire à des moustiques,</b> si ceux-ci sont <b>rouges, elle doit les jeter</b> dans l'eau</b> pour s'assurer de leur nature.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

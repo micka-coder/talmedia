@@ -36,4 +36,4 @@ La Guemara soulève une autre difficulté : <b>Mais Ulla n'a-t-elle pas dit : <i
 § Il a été enseigné dans la mishna : Une fois que <b>les</b> périodes du <b>presse à vin et du pressoir à olives sont passées,</b> si <i>amei ha'aretz</i> <b>apporte</b> à un <i>ḥaver</i> prêtre un <b>baril de vin <i>teruma</i>, il ne peut l'accepter de leur part. Mais</b> le donateur <b>peut le laisser</b> dessus <b>pour la saison suivante du pressoir</b>, l'année suivante. <b>Ils ont soulevé un dilemme devant Rav Sheshet :</b> Si le prêtre <b>violait</b> la <i>halakha</i> <b>et acceptait effectivement</b> le vin d'un <i>am ha'aretz</i>, <b>qu'est-ce que</b> la <i>halakha</i> ? Est-il permis <b>qu'il le laisse</b> de côté pour lui-même <b>pour la saison suivante du pressoir</b> ? Puisqu'il est permis d'accepter le vin et l'huile d'un <i>am ha'aretz</i> laissés intentionnellement jusqu'à cette époque, peut-être est-il également permis si le prêtre lui-même les laisse intentionnellement jusqu'à cette époque. <b>Il lui dit : Tu l'as appris</b> dans une mishna (<i>Demai</i> 6:9) :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

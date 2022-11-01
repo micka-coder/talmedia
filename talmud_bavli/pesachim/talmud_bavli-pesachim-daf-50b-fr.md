@@ -36,4 +36,4 @@ Alors que la mishna discute de l'obligation d'observer les coutumes locales, la 
 La Guemara relate des coutumes supplémentaires : <b>Les habitants</b> de la ville de <b>Ḥozai avaient l'habitude de séparer <i>ḥalla</i> de la pâte de riz</b>. <b>Ils sont venus et ont parlé à Rav Yosef</b> de cette coutume. <b>Il leur répondit : Qu'un non-prêtre mange</b> cette pâte <b>en leur présence</b> pour leur montrer sans équivoque que cette coutume n'a aucun fondement légal. <b>Abaye lui souleva une objection :</b> En ce qui concerne les <b>matières</b> qui sont <b>permises, mais que d'autres avaient l'habitude</b> de traiter <b>elles</b> comme une <b>interdiction,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Il en est de même dans le cas où <b>le propriétaire a étendu sa main dans le
 <strong>GEMARA:</strong> Nous avons appris dans notre mishna : Les actes d'exécution le Chabbat sont deux qui en comprennent quatre. De même, <b>nous avons appris</b> dans la mishna <b>là,</b> dans le traité <i>Shevuot</i> : <b>Les serments</b> sur une déclaration, qui, lorsqu'ils sont violés, rendent redevable d'apporter une offrande de péché <b>sont deux qui en comprennent quatre.</b> Les deux premiers cas, qui sont mentionnés explicitement dans la Torah, sont : Celui qui a juré d'accomplir une action spécifique à l'avenir et celui qui a juré de s'abstenir d'accomplir ladite action. Sur la base d'une amplification du langage de la Torah, deux autres cas sont ajoutés : celui qui a juré d'accomplir une action spécifique dans le passé et celui qui a juré de ne pas accomplir cette action.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

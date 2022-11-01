@@ -48,4 +48,4 @@ La Guemara suggère : <b>Disons</b> que ce différend <b>est parallèle</b> à u
 La Gemara propose une autre suggestion : <b>Disons</b> que la dispute de Rav et Shmuel est <b>parallèle</b> à la dispute entre <b>ces <i>tanna'im</i>, telle qu'elle est enseignée</b> dans une <i>baraita</i> : <b>Un navire s'acquiert en tirant. Rabbi Natan dit : Un navire et des lettres,</b> c'est-à-dire le contenu d'un billet à ordre, <b>sont acquis en tirant</b> le document.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

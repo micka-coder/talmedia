@@ -97,5 +97,5 @@
 ### passuk 30
 <b>Moshé a dit devant Hachem.</b> C'est la même déclaration qui a été mentionnée plus haut : "Voici, les B'nei Yisrael ne m'ont pas écouté." L'Écriture la répète ici puisqu'elle a interrompu le récit. C'est la méthode [d'un narrateur], tout comme une personne qui dit : "Revenons au premier [sujet]." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

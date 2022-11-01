@@ -57,4 +57,4 @@ La Gemara demande : <b>Est-ce à dire que</b> l'offrande est <b>acquise par</b> 
 La Gemara demande : <b>Et l'offrande n'est</b> <b>pas acquise par eux ? Mais Rabbi Yoḥanan</b> lui-même ne <b>sort-il pas</b> que si un <b>laisse à ses deux fils une offrande d'animal</b> <b>et</b> qu'ensuite <b>ils meurent,</b> l'offrande doit être <b>sacrifiée, et ils ne peuvent pas effectuer la substitution</b> d'un autre animal <b>pour elle ?</b> Même s'ils déclarent un autre animal pour la remplacer, cet animal n'est pas consacré. <b>Accordé, si vous dites</b> que l'offrande est <b>acquise par eux, voici</b> la raison <b>pour laquelle ils ne peuvent pas effectuer la substitution</b> d'un autre animal <b>à sa place :</b> C'est <b>parce qu'ils sont comme des partenaires,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

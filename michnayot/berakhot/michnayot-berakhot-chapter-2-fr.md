@@ -24,4 +24,4 @@ Et lorsque l'esclave Tavi [de Rabban Gamliel] mourut, il reçut des paroles de r
 Si un marié veut réciter le _Shema_ la première nuit, il peut le faire. Rabban Shimon ben Gamliel dit : Tous ceux qui veulent prendre le nom [divin] ne peuvent pas le prendre.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

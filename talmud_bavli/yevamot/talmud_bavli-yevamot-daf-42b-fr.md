@@ -33,4 +33,4 @@ Lorsque Rabbi Zerika est allé poser la question, Rabbi Abbahou <b>lui a dit :</
 Rabbi Naḥum a demandé : Lorsqu'une décision est enregistrée dans <b>la Mishna comme non attribuée et</b> qu'elle fait l'objet d'une <b>contestation dans un <i>baraita</i>, quelle</b> est la <i>halakha</i> ? Rabbi Abbahou lui <b>dit :</b> La <b><i>halakha</i> est conforme</b> à l'avis <b>non attribué</b> dans la Mishna. Rabbi Naḥum a alors demandé : Lorsque <b>la Mishna</b> enregistre qu'une question est sujette à <b>un différend, et</b> qu'une seule partie est enregistrée comme <b>un avis non attribué dans un <i>baraita</i>, quelle</b> est la <i>halakha</i> ? Rabbi Abbahou <b>lui dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

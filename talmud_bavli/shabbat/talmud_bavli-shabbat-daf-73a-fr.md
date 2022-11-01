@@ -27,4 +27,4 @@ Les autres catégories primaires de travail interdit sont les suivantes : <b>Que
 <b>Celui qui écrit deux lettres et celui qui efface pour écrire deux lettres. Celui qui construit</b> une structure, <b>et celui qui la démonte</b>, <b>celui qui éteint</b> un feu, <b>et celui qui allume</b> un feu. <b>Celui qui frappe</b> un coup <b>avec un marteau</b> pour achever le processus de production d'un récipient (Rabbeinou Ḥananel), et <b>celui qui transporte</b> un objet <b>de domaine en domaine.</b> Toutes <b>ces catégories de travail sont primaires,</b> et elles sont au nombre de <b>quarante moins une.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

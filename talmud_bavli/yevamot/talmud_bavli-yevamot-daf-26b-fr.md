@@ -27,4 +27,4 @@ La Guemara demande : Comment cette déclaration peut-elle être citée au nom du
 <b>Et</b> en ce qui concerne le cas ci-dessus <b>Shmuel a dit</b> une décision halakhique différente : Il suffit que <b>un</b> frère <b>accomplisse la <i>ḥalitza</i> avec chacune</b> des sœurs. La Guemara soulève une difficulté : <b>Mais puisque nous avons entendu que Shmuel a dit : Nous exigeons une <i>ḥalitza</i> à part entière,</b> et la <i>ḥalitza</i> invalide n'entraîne pas une exemption complète, cette décision est difficile. On ne voit pas pourquoi la <i>ḥalitza</i> invalide dans ce cas serait suffisante, <b>comme l'a dit Shmuel:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

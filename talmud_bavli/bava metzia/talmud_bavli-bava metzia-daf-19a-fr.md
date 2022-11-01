@@ -57,7 +57,7 @@ La Gemara demande : <b>Apparemment, seulement s'il est écrit</b> dans l'acte : 
 <b>Rabbi Abba bar Memel a dit :</b> Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Perdu un acte de divorce,</b> qui lui avait été donné à remettre, <b>dans la salle d'étude.</b> Quand il l'a trouvé, <b>il a dit : Si</b> ils demandent <b>un signe distinctif, j'en ai</b> un <b>pour cela. Si</b> elle dépend d'une <b>reconnaissance visuelle, j'ai</b> des méthodes de reconnaissance <b>pour elle. Ils lui ont rendu</b> l'acte de divorce <b>à lui. Il a dit</b> après coup : <b>Je ne sais pas s'ils me l'ont rendu à cause de la marque distinctive</b> que j'ai fournie, <b>et ils tiennent</b> que les <b>marques distinctives</b> sont utilisées pour rendre les objets perdus <b>par la loi de la Torah,</b> ou <b>si ils me l'ont rendu à cause</b> de ma <b>reconnaissance visuelle, et</b> c'était <b>spécifiquement</b> parce que je suis <b>un érudit de la Torah,</b> car on se fie aux érudits de la Torah quand ils disent qu'ils reconnaissent un objet, <b>mais on ne se fierait pas à une personne ordinaire</b> pour reconnaître l'objet et se le faire rendre.
 
@@ -116,4 +116,4 @@ La Gemara demande : <b>Apparemment, seulement s'il est écrit</b> dans l'acte : 
 <b>Rabbi Abba bar Memel a dit :</b> Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

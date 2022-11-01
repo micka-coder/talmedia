@@ -20,5 +20,5 @@ Si un drap qui était susceptible d'être souillé par midras est transformé en
 ### michna 7
 Une natte dont les roseaux sont étendus dans le sens de la longueur est insensible à l'impureté ; Mais les Sages disent : seulement s'ils sont étendus en forme de [la lettre grecque] chi. S'ils sont disposés dans le sens de la largeur et qu'il y a une distance de moins de quatre palmes entre les deux roseaux, il est insusceptible d'impureté. S'il a été divisé dans le sens de la largeur, Rabbi Juda juge qu'il est pur. De même, si les nœuds d'extrémité sont défaits, il est pur. S'il a été divisé dans le sens de la longueur, mais que trois nœuds terminaux sont restés intacts sur une longueur de six tefahs, il est susceptible d'être impur. Quand une natte devient-elle susceptible d'être impure ? Lorsque ses extrémités rugueuses sont coupées, ce qui marque l'achèvement de sa fabrication.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

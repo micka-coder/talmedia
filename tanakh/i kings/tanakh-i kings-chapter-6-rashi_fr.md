@@ -156,4 +156,4 @@
 <b>Au mois de Bul.</b> C'est [le mois de] Mar Cheshvan;<sup>49</sup><i class="footnote">Le Déluge [מבול] à l'époque de Noach a commencé au mois de Marcheshvan. </i> [lorsque] l'herbe du champ se décompose et que l'on donne au bétail du fourrage provenant de ce qui est stocké, d'après l'expression "et il donna du fourrage [ויבל] aux ânes."<sup>50</sup><i class="footnote">Shoftim 19:21. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara rejette cette preuve : <b>Non,</b> peut-être que <b>la dernière cla
 <strong>MISHNA:</strong> <b>Celui qui blasphème,</b> c'est-à-dire celui qui maudit Dieu, <b>n'est pas responsable à moins qu'il ne prononce le nom</b> de Dieu et le maudisse. <b>Rabbi Yehoshua ben Korḥa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

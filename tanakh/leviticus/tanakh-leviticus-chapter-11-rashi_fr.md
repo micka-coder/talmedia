@@ -177,5 +177,5 @@
 <b>Entre l'impur et le pur.</b> A-t-on besoin de prononcer la différence entre <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>un âne et une vache - ne sont-ils pas déjà explicites ? Plutôt, [cela se réfère] à [la différence] entre ce qui est impur pour vous et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>ce qui est pur pour vous - entre [un animal] dont la trachée a été coupée à moitié <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>et quand la plus grande partie a été coupée. 
 <b>Et entre les êtres vivants qui peuvent être mangés.</b> Faut-il prononcer les différences entre un cerf et un âne sauvage ? Ne sont-elles pas explicites ? Il s'agit plutôt de [distinguer] entre [ceux] chez qui sont apparues des <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>caractéristiques [qui rendent l'animal] interdit (טְרֵפָה), [mais] il est cachère, et [ceux] dans lesquels sont apparues <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>des caractéristiques [qui rendent l'animal] interdit (טְרֵפָה), et il n'est [effectivement] pas cachère. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

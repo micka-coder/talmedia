@@ -66,4 +66,4 @@ De même, <b>il est dit : "Celui qui maudira son père ou sa mère sera mis à m
 <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit : Il est révélé et connu avant Celui qui a parlé et le monde est né qu'un fils honore sa mère plus que</b> il honore <b>son père, car</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

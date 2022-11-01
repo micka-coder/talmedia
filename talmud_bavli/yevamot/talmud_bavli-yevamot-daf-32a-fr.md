@@ -39,4 +39,4 @@ La <i>baraita</i> indique que Rabbi Yosei considère que si le frère a consomm�
 <b>Et il est enseigné</b> dans une <i>baraita</i> : <b>Dans quel cas Rabbi Yosei a-t-il dit qu'il est condamné selon la première relation qui s'appliquait à lui ? </b> Si cette femme était <b>sa belle-mère</b> qui était veuve ou divorcée, et donc interdite pour lui uniquement en raison de son statut de belle-mère, et que plus tard elle s'est mariée <b>et est devenue</b> interdite en tant que <b>femme mariée</b> et qu'il a eu des relations sexuelles avec elle, alors <b>il est condamné pour</b> avoir violé l'interdiction proscrivant <b>sa belle-mère,</b> puisque c'était la première interdiction à s'appliquer. Alternativement, si elle était <b>une femme mariée</b> et qu'il a ensuite épousé sa fille de sorte qu'elle est ensuite <b>devenue sa belle-mère,</b> et qu'il a ensuite eu des relations sexuelles avec elle, <b>il est condamné pour</b> avoir violé l'interdiction proscrivant <b>une femme mariée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

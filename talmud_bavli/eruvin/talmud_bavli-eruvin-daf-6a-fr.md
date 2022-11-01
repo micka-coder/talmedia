@@ -36,4 +36,4 @@ La Guemara répond : <b>Là, il y a des restes d'un mur</b> qui rendent difficil
 La Guemara soulève une question fondamentale : <b>Peut-on rendre un domaine public apte</b> à être porté <b>par</b> le biais d'un <b>eiruv</i> ? N'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>En outre, Rabbi Yehuda a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

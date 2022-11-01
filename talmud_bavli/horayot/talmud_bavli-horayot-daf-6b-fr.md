@@ -27,4 +27,4 @@ En ce qui concerne une offrande de péché <b>dont le péché des propriétaires
 La Guemara demande : <b>Et est-ce qu'on dérive</b> la <i>halakha</i> du <b>possible de</b> l'<b>impossible ?</b> Certains de ces cas ne sont pas, par leur nature même, pertinents pour les offrandes de péché communautaires. On ne peut pas dériver la <i>halakha</i> d'eux en ce qui concerne les cas qui pourraient être pertinents pour les offrandes de péché communes. La Gemara répond : <b>Rabbi Shimon apprend</b> toutes ces <i>halakhot</i> d'offrandes de péché qui sont laissées à mourir comme une tradition <b>en un seul endroit,</b> c'est-à-dire comme une seule <i>halakha</i>. Dans les cas où toutes les catégories d'offrandes de péchés laissées à mourir ne s'appliquent pas, aucune catégorie d'offrandes de péchés laissées à mourir ne s'applique.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

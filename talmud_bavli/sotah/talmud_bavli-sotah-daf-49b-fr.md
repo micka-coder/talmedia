@@ -57,4 +57,4 @@ La mishna a enseigné que <b>Depuis</b> le moment <b>où Rabban Yoḥanan</b> be
 La dernière ligne de la mishna indique que <b>à partir de</b> l'époque <b>où Rabbi</b> Yehuda HaNasi <b>est mort, l'humilité et la peur du péché ont cessé. Rav Yosef dit au <i>tanna</i></b> qui a révisé la mishna : <b>Ne pas enseigner</b> que l'<b>humilité</b> a cessé, <b>car il y a</b> encore quelqu'un qui est humble, à savoir <b>moi. Rav Naḥman</b> a pareillement <b>dit au <i>tanna</i></b> qui a révisé la mishna : <b>Ne pas enseigner</b> que la <b>crainte du péché</b> a cessé, <b>car il y a</b> toujours quelqu'un qui craint le péché, à savoir <b>moi.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

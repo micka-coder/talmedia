@@ -63,4 +63,4 @@ La Guemara répond : <b>A l'égard</b> d'un aliment <b>mis de côté</b>, Rav <b
 <b>Les Sages ont enseigné : On peut déplacer des os</b> le Chabbat, <b>parce que</b> ils sont <b>de la nourriture pour les chiens.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

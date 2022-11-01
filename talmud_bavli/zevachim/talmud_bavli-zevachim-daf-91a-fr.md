@@ -63,4 +63,4 @@ La Gemara rejette également cette preuve : <b>Il s'agit ici</b> d'un cas <b>où
 <b>Si tu as vu l'huile qui est placée sur les flammes</b> de l'autel à la manière d'une offrande, tu <b>n'as pas besoin de demander ce que c'est. Il s'agit plutôt,</b> d'un <b>reste</b> de l'huile <b>des galettes de l'offrande de repas des prêtres, ou</b> d'un reste d'huile de <b>l'offrande de repas du prêtre oint,</b> qui nécessite une grande quantité d'huile et qui est brûlée en totalité sur l'autel. La mishna ajoute : On ne peut pas dire que l'huile distribuée aux prêtres ou brûlée sur l'autel a été apportée comme offrande, <b>car on ne peut pas apporter de l'huile</b> comme offrande. <b>Rabbi Tarfon dit : On peut apporter de l'huile</b> comme offrande.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

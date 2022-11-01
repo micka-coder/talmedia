@@ -30,4 +30,4 @@ La Gemara demande : <b>Aussi</b> Rabbi Zeira a-t-il <b>accepté</b> cette répon
 Rabbi Zeira <b>a alors résolu</b> la question <b>pour lui-même. Il va de soi qu'ils l'ont entendu et ne l'ont pas accepté. Comme, s'il entre dans votre esprit</b> qu'ils ne l'ont pas entendu, mais</b> que <b>s'ils l'avaient entendu ils l'auraient accepté, comment l'affaire s'est-elle produite,</b> conduisant ces Sages <b>à manger des aliments interdits</b> ? <b>Maintenant</b> considérez : Si même <b>à travers les animaux des justes, le Saint, Béni soit-Il, ne génère pas de mésaventures,</b> alors n'est-il pas <b>à plus forte raison</b> vrai que <b>les justes eux-mêmes</b> ne connaîtraient pas de mésaventures ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

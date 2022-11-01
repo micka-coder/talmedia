@@ -15,4 +15,4 @@
 <b>Il s'en ira en pleurant, etc.</b> Ainsi Israël en exil sème la charité dans les larmes, et il la récoltera lorsque Tu lui verseras sa récompense dans l'avenir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

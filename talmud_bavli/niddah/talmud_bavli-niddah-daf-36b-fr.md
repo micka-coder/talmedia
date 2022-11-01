@@ -75,4 +75,4 @@ Rav Asi lui <b>dit,</b> reliant de manière fantaisiste son propre nom aux diff�
 La Guemara relate que <b>Rav Asi tomba malade</b> et contracta une maladie après l'autre, de sorte que lorsque <b>il entrait dans la chaleur</b> d'une fièvre, <b>il sortait</b> d'une maladie où il se sentait <b>froid,</b> et lorsque <b>il entrait dans</b> une maladie où il se sentait <b>froid, il sortait de la chaleur</b> d'une fièvre. Finalement, <b>Rav Asi est mort.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

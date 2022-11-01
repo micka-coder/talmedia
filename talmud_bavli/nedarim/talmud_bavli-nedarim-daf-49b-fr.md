@@ -39,4 +39,4 @@ La Gemara relate encore : <b>La femme de Rabbi Yehouda sortait</b> au marché, <
 A <b>une occasion, Rabban Shimon ben Gamliel,</b> le <i>Nasi</i>, <b>décréta un jeûne. Rabban Yehuda ne vint pas à la maison du jeûne,</b> où tout le monde se rassemblait. Le peuple <b>dit à</b> Rabban Shimon ben Gamliel : Rabbi Yehouda <b>n'a pas</b> un vêtement digne pour <b>se couvrir</b>, et c'est pourquoi il se tient à l'écart des événements publics. Rabban Shimon ben Gamliel <b>l'a envoyé un manteau</b> de son cru, <b>mais</b> Rabbi Yehuda <b>n'a pas accepté</b> ce cadeau.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

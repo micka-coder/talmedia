@@ -46,4 +46,4 @@
 <b>Mon visage et mon Dieu</b> Le Saint, la lumière de mon visage, mon Dieu... j'ai encore de l'espoir en Lui. Pourquoi donc remuer ?
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

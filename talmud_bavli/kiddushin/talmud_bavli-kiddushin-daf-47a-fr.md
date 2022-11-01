@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais plutôt,</b> en ce qui concerne <b>ce que Rabbi Ela
 La Gemara <b>souleve une objection</b> à la déclaration du Rav à partir d'une <i>baraita</i> : Dans le cas de <b>celui qui dit à une femme : Fiance-toi à moi avec le dépôt que j'ai en ta possession, et qu'elle est allée et a trouvé que</b> le dépôt a été <b>volé ou que</b> il a été <b>perdu, si</b> la <b>valeur d'une <i>peruta</i> de celui-ci reste</b> elle est <b>fiançée</b> avec ce montant. <b>Et sinon, elle n'est pas fiancée,</b> puisqu'il n'y a rien pour effectuer les fiançailles. <b>Mais</b> s'il lui a dit qu'il la fiance <b>avec un prêt</b> qu'il lui avait accordé, <b>elle est fiancée, même si</b> la <b>valeur d'une <i>peruta</i> de celle-ci ne subsiste pas. Rabbi Shimon ben Elazar dit au nom de Rabbi Meir : Un prêt</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

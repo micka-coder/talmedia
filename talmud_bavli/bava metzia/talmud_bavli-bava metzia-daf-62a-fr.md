@@ -45,4 +45,4 @@ La Gemara commente : <b>Aussi, il est raisonnable</b> d'expliquer la question de
 <b>Ravina a dit à Rav Ashi : Mais</b> il y a le cas de <b>une hypothèque sans déduction,</b> où le champ du débiteur est détenu par le créancier jusqu'au remboursement de la dette, et pendant qu'il détient le champ, le créancier est autorisé à consommer le produit du champ sans déduire de la dette la valeur du produit qu'il a consommé. La consommation du produit constitue un type d'intérêt, et dans ce cas, <b>par</b> les <b>lois</b> des gentils <b>on retire</b> l'intérêt <b>de la</b> possession de l'<b>emprunteur</b> pour le donner <b>au prêteur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

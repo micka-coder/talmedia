@@ -60,7 +60,7 @@ Le <i>baraita</i> poursuit : <b>Lorsqu'il est dit</b> dans le verset précédent
 Sur la base de cette <i>halakha</i>, <b>Rava soulève un dilemme :</b> Si l'objet volé n'a pas <b>la valeur d'une <i>peruta</i> <b>pour</b> chaque prêtre sur <b>la garde sacerdotale de Joiarib,</b> qui comptait de nombreux prêtres, <b>mais il a</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Le <i>baraita</i> continue : <b>Et s'il était vieux ou malade,</b> de sorte qu'il ne puisse pas accomplir le service du Temple ou manger de l'offrande, <b>il la donne à tout prêtre qu'il souhaite</b> pour la sacrifier, même à celui qui n'est pas de sa garde sacerdotale, <b>et l'exécution de son service et sa peau</b> sont données <b>aux membres de la garde sacerdotale.</b>
 
@@ -122,4 +122,4 @@ Le <i>baraita</i> poursuit : <b>Lorsqu'il est dit</b> dans le verset précédent
 Sur la base de cette <i>halakha</i>, <b>Rava soulève un dilemme :</b> Si l'objet volé n'a pas <b>la valeur d'une <i>peruta</i> <b>pour</b> chaque prêtre sur <b>la garde sacerdotale de Joiarib,</b> qui comptait de nombreux prêtres, <b>mais il a</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

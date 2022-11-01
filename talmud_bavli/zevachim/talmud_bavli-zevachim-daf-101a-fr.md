@@ -54,4 +54,4 @@ Aaron <b>lui dit : Peut-être as-tu entendu</b> le commandement de consommer l'o
 Moïse a <b>immédiatement</b> concédé à Aaron, comme le précise le verset : <b>"Et Moïse entendit,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

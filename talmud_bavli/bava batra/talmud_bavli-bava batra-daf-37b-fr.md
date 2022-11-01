@@ -21,4 +21,4 @@ La Guemara a indiqué précédemment que <b>selon</b> l'opinion des <b>Rabbins,<
 Les Sages <b>de Néharde'a disent : Celui-là qui vend un dattier à un autre,</b> l'acheteur <b>acquiert</b> le terrain <b>de sa base jusqu'aux profondeurs.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

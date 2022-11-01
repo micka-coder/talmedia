@@ -75,4 +75,4 @@ Rav Kahana <b>a dit</b> à lui-même : <b>Que ce soit</b> la volonté de Dieu qu
 Une fois ses yeux découverts, Rabbi Yoḥanan <b>a vu que</b> Rav Kahana avait les <b>lèvres fendues</b> et <b>pensait</b> que Rav Kahana <b>souriait à son égard.</b> En conséquence, Rabbi Yoḥanan <b>était offensé, et</b> Rav Kahana <b>mort</b> en punition du fait qu'il avait offensé Rabbi Yoḥanan. <b>Le lendemain, Rabbi Yoḥanan dit aux Rabbins,</b> ses élèves : <b>Voyez-vous comment ce Babylonien,</b> Rav Kahana, <b>se comportait</b> de manière aussi irrespectueuse ? <b>Ils lui ont répondu : Son</b> habituel <b>manière</b> d'apparaître <b>est telle,</b> et il ne se moquait pas de vous. Entendant cela, Rabbi Yoḥanan <b>s'est rendu jusqu'à</b> la <b>cave funéraire</b> de Rav Kahana et <b>a vu</b> que <b>c'était</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

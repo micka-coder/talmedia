@@ -23,5 +23,5 @@ S'il y avait un morceau de graisse interdite non consacrée et un morceau de gra
 ### michna 8
 S'il y avait un morceau de graisse interdite et un autre morceau de graisse interdite [qui était en même temps] notar, et qu'une personne a mangé l'un des deux et ne sait pas lequel, elle est redevable d'une hatat et d'un asham talui. Si elle a ensuite mangé le deuxième morceau, elle est passible de trois hatats. S'il a mangé un morceau et qu'un autre est venu et a mangé l'autre, chacun d'eux apporte une hatat et un asham talui. Rabbi Shimon dit : chacun d'eux apporte une hatat et ensemble ils apportent une autre hatat. Rabbi Yose dit : toute hatat qui est apportée pour l'expiation d'un péché ne peut être offerte par deux personnes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

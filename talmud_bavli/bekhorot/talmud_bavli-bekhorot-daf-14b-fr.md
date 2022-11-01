@@ -57,4 +57,4 @@ Ceci est <b>comme nous l'avons appris</b> dans une mishna (<i>Temura</i> 32a) : 
 La Gemara demande : <b>Mais</b> à la lumière de cette difficulté, selon <b>les rabbins qui ne sont pas d'accord avec Rabbi Shimon</b> dans la mishna de <i>Temura</i>, <b>Qu'est-ce</b> que la <i>halakha</i> ? <b>Est-ce en effet que si</b> les animaux dont la tare a précédé leur consécration <b>sont morts, ils peuvent être rachetés,</b> comme dérivé du mot "il" ? <b>Si c'est le cas,</b> alors pourquoi Rav a-t-il dit : C'est la déclaration de Rabbi Shimon ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara objecte : <b>Mais il y a</b> le cas des <b>dédicaces</b> de biens aux
 La Guemara explique qu'Abaye pouvait <b>s'adresser à vous : C'est différent là-bas, comme le dit le Miséricordieux : "Est très saint"</b> pour enseigner que <b>cela sera tel quel.</b> Une fois qu'il est consacré, son statut ne peut être changé par le biais d'une rédemption. Mais dans d'autres domaines, la transgression est effective.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

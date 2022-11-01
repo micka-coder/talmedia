@@ -30,4 +30,4 @@ La Guemara demande : <b>Mais n'avez-vous pas</b> déjà <b>déduit</b> de cette 
 § Il a été enseigné dans la mishna que même <b>un grand prêtre disqualifie parfois</b> sa grand-mère pour participer à la <i>teruma</i>. <b>Les Sages ont enseigné</b> qu'elle peut dire en signe de désapprobation : <b>Je fais ici l'expiation pour le fils de ma fille, la petite cruche [<i>kuza</i>],</b> c'est-à-dire le <i>mamzer</i>. Il m'est cher et je suis prêt à souffrir pour l'expier, <b>car il</b> est ma progéniture d'un prêtre et me <b>permet donc de participer au <i>teruma</i>. Cependant, je ne suis pas</b> disposé à être <b>réparation pour le fils de ma fille, la grande cruche [<i>kada</i>],</b> le grand prêtre, <b>car il</b> est ma progéniture d'un Israélite et donc <b>disqualifie de</b> participer à <b><i>teruma</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

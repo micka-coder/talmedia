@@ -21,4 +21,4 @@ La Gemara répond : En ce qui concerne la robe entière du Grand Prêtre, qui es
 § La Gemara pose une question fondamentale concernant la procédure de blanchiment d'un vêtement sur lequel le sang d'une offrande pour le péché a été pulvérisé : <b>Mais n'est-il pas</b> que le blanchiment <b>nécessite sept</b> substances abrasives ? Comme le Rav Naḥman dit</b> que <b>Rabba bar Avuh dit : Le sang d'une offrande pour le péché</b> qui a été pulvérisé sur un vêtement, <b>et les nuances de</b> <b>marques lépreuses</b> sur les vêtements, qui sont soumis au lavage (voir Lévitique 13:54), <b>nécessitent</b> les <b>sept</b> <b>substances abrasives</b> utilisées comme agents de lavage ; et ces substances incluent l'urine (<i>Nidda</i> 61b). <b>Et il est enseigné</b> dans une <i>baraita</i> : <b>Mais l'urine n'est pas introduite dans le Temple,</b> car elle est inappropriée pour le Temple, bien que l'urine soit théoriquement appropriée pour être utilisée dans la préparation des épices de l'encens. En conséquence, comment un vêtement est-il blanchi dans le Temple ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

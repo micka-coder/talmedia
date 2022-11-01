@@ -27,4 +27,4 @@ La Guemara ajoute : <b>Et il est enseigné</b> dans la <i>Tosefta</i> (<i>Oholot
 <b>Rav Sherevya soulève une objection</b> de la mishna : <b>Il commence à compter immédiatement, et il ne nie pas les jours antérieurs</b> dus <b>à ces derniers. A quel</b> cas la mishna fait-elle référence ? <b>Si nous disons</b> qu'il fait référence <b>à un naziréat de courte durée, il a besoin</b> d'une période de trente jours de <b>pousse des cheveux,</b> et comme il s'est rasé pour la purification de sa lèpre, il doit nier les jours antérieurs de manière pratique, pour permettre à ses cheveux de repousser.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

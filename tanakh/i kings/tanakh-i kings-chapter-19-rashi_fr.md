@@ -59,4 +59,4 @@
 <b>Et il en donna au peuple.</b> Il fit un festin d'une grande joie.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -33,4 +33,4 @@ La Gemara répond : Ce n'est <b>pas difficile. Ici</b> le <i>baraita</i> fait r�
 <b>Rava a dit :</b> Ce ne sont pas des paroles de prophétie, car <b>les deux</b> cas <b>ont été enseignés</b> dans la mishna suivante : <b>Les habitants d'une grande ville peuvent traverser toute une petite ville</b> qui est entièrement incluse dans sa limite de Chabbat ; la petite ville est considérée comme si elle avait quatre coudées, et le reste de la limite de Chabbat est mesuré depuis l'autre côté de la ville.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

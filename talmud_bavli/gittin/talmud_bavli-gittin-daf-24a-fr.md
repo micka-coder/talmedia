@@ -42,4 +42,4 @@ La Guemara répond : Selon cet avis, la mishna doit être expliquée comme discu
 <b>Et si vous voulez, dites</b> que <b>il lui a dit : Sois un agent de livraison jusqu'à ce que tu arrives là-bas, et quand tu arrives là-bas, dis devant le tribunal : Il a été écrit en ma présence et il a été signé en ma présence, et vous devriez</b> alors <b>désigner le tribunal comme agent, et ils vous remettront</b> l'acte de divorce <b>à vous.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

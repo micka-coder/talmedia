@@ -27,7 +27,7 @@ La Guemara explique pourquoi il ne peut s'agir de la déclaration de Rabbi Meir 
 <b>Par contre,</b> il doit se référer à <b>cette</b> déclaration de <b>Rabbi Meir, telle qu'elle est enseignée</b> dans la <i>Tosefta</i> (<i>Kilayim</i> 3:4) : S'il y avait <b>une cloison d'une vigne</b> qui est adjacente à un champ de blé, et que <b>cette</b> cloison <b>se brise,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Le noyau de leur existence,</b> c'est-à-dire l'étude de la Torah, qui est la source de la vie. <b>"Le chemin" ; ceci</b> fait référence aux <b>actes de bonté. "Ils doivent marcher" ; ceci</b> fait référence à la <b>visite des malades. "Où" ; ceci</b> fait référence à la <b>sépulture</b> des morts. <b>"L'œuvre" ; ceci</b> fait référence au fait de se conduire conformément à <b>la loi. "Qu'ils doivent faire" ; ceci</b> fait référence à la conduite de soi <b>au delà de la lettre de la loi.</b> Cela indique que la Torah impose aux gens de se conduire au delà de la lettre de la loi.
 
@@ -56,7 +56,7 @@ La Guemara explique pourquoi il ne peut s'agir de la déclaration de Rabbi Meir 
 <b>Par contre,</b> il doit se référer à <b>cette</b> déclaration de <b>Rabbi Meir, telle qu'elle est enseignée</b> dans la <i>Tosefta</i> (<i>Kilayim</i> 3:4) : S'il y avait <b>une cloison d'une vigne</b> qui est adjacente à un champ de blé, et que <b>cette</b> cloison <b>se brise,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Le noyau de leur existence,</b> c'est-à-dire l'étude de la Torah, qui est la source de la vie. <b>"Le chemin" ; ceci</b> fait référence aux <b>actes de bonté. "Ils doivent marcher" ; ceci</b> fait référence à la <b>visite des malades. "Où" ; ceci</b> fait référence à la <b>sépulture</b> des morts. <b>"L'œuvre" ; ceci</b> fait référence au fait de se conduire conformément à <b>la loi. "Qu'ils doivent faire" ; ceci</b> se réfère à la conduite de soi <b>au-delà de la lettre de la loi.</b> Cela indique que la Torah impose aux gens de se conduire au-delà de la lettre de la loi.
 
@@ -85,7 +85,7 @@ La Guemara explique pourquoi il ne peut s'agir de la déclaration de Rabbi Meir 
 <b>Par contre,</b> il doit se référer à <b>cette déclaration</b> de <b>Rabbi Meir, telle qu'elle est enseignée</b> dans la <i>Tosefta</i> (<i>Kilayim</i> 3:4) : S'il y avait <b>une cloison d'une vigne</b> qui est adjacente à un champ de blé, et que <b>cette</b> cloison <b>se brise,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Le noyau de leur existence,</b> c'est-à-dire l'étude de la Torah, qui est la source de la vie. <b>"Le chemin" ; ceci</b> fait référence aux <b>actes de bonté. "Ils doivent marcher" ; ceci</b> fait référence à la <b>visite des malades. "Où" ; ceci</b> fait référence à la <b>sépulture</b> des morts. <b>"L'œuvre" ; ceci</b> fait référence au fait de se conduire conformément à <b>la loi. "Qu'ils doivent faire" ; ceci</b> fait référence à la conduite de soi <b>au delà de la lettre de la loi.</b> Cela indique que la Torah impose aux gens de se conduire au delà de la lettre de la loi.
 
@@ -114,4 +114,4 @@ La Guemara explique pourquoi cela ne peut pas être la déclaration de Rabbi Mei
 <b>Par contre,</b> il doit se référer à <b>cette</b> déclaration de <b>Rabbi Meir, telle qu'elle est enseignée</b> dans la <i>Tosefta</i> (<i>Kilayim</i> 3:4) : S'il y avait <b>une cloison d'une vigne</b> qui est adjacente à un champ de blé, et que <b>cette</b> cloison <b>se brise,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

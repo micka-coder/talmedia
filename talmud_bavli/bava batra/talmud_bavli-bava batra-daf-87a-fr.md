@@ -30,4 +30,4 @@ La mishna enseigne une <i>halakha</i> supplémentaire en ce qui concerne les ven
 § La mishna enseigne que si <b>il a retourné</b> le tonneau sur le côté <b>et drainé</b> les dernières parcelles de liquide qu'il contenait, ce liquide <b>appartient au vendeur.</b> La Guemara relate : <b>Lorsque Rabbi Elazar monta</b> de Babylone en Eretz Yisrael, <b>il trouva Ze'eiri</b> et lui <b>dit : Qui ici</b> est <b>le <i>tanna</i> à qui Rav a enseigné</b> cette <i>halakha</i> concernant les <b>mesures ? </b> Ze'eiri <b>l'a montré Rav Yitzḥak bar Avdimi.</b> Rav Yitzḥak bar Avdimi <b>a dit à</b> Rabbi Elazar : <b>Qu'est-ce</b> qu'il y a dans cette <i>halakha</i> <b>qui</b> pose <b>une difficulté pour toi ?</b> Rabbi Elazar lui répondit que le problème est <b>ce que nous avons appris</b> dans la mishna : Si <b>il a retourné</b> le tonneau sur le côté <b>et drainé</b> les derniers morceaux de liquide qu'il contenait, ce liquide <b>appartient au vendeur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

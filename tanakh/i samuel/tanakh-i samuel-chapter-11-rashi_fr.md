@@ -36,4 +36,4 @@
 <b>Et Chmouel dit : "...et y renouveler le royaume."</b> Parce qu'au début, il y avait une opposition à ce sujet, mais maintenant ils sont unanimes.<sup>9</sup><i class="footnote"> Chmouel les a simplement invités à Gilgol ; ce n'était pas un commandement. Voir ci-dessus 9:9 pour une expression similaire <span>וְנֵלְכָה</span>. Cependant, maintenant que Shaoul a sauvé le peuple de Yoveish Gilad des Ammonites ; tout le peuple s'est rallié à lui et l'a accepté comme son roi.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

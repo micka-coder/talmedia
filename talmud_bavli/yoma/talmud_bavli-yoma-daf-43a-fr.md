@@ -42,4 +42,4 @@ La Guemara continue d'expliquer les versets : <b>"Et un homme pur prendra de l'h
 La Guemara <b>souleve une objection</b> d'une mishna dans le traité <i>Para</i> : <b>Tout le monde est qualifié pour asperger</b> les eaux de purification, sauf <b>une personne dont les organes sexuels sont dissimulés [<i>tumtum</i>], et un hermaphrodite [<i>androginus</i>], et une femme. Et</b> concernant <b>un mineur qui a</b> un niveau d'<b>intelligence de base, une femme</b> peut <b>l'assister et il asperge</b> les eaux de purification. La mishna disqualifie une femme pour l'aspersion mais qualifie un mineur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

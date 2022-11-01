@@ -36,7 +36,7 @@ La Gemara observe : <b>Pour Rav Aḥa, la première clause</b> de la mishna <b>e
 § La mishna poursuit : De même, <b>celui qui a</b> des <b>relations forcées avec sa sœur,</b> c'est-à-dire qu'il la viole, <b>ou avec la sœur de son père,</b> ou avec la sœur de sa mère, ou avec la sœur de sa femme, ou avec la femme de son frère, ou avec la femme du frère de son père après leur divorce, ou avec une femme en période de menstruation, on paie une amende. <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir de la mishna suivante (<i>Makkot</i> 13a) : <b>Et ces</b> personnes <b>sont fouettées : Celui qui a des relations avec sa sœur, ou avec la sœur de son père, ou avec la sœur de sa mère, ou avec la sœur de sa femme, ou avec la femme de son frère, ou avec la femme du frère de son père, ou avec une femme en période de menstruation.</b> Quiconque a intentionnellement des relations avec l'une de ces femmes est puni de coups de fouet.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il serait <b>exempté.</b> Si tel est le cas, <b>plutôt que d'enseigner :</b> Si <b>il traînait et sortait, traînait et sortait, il est exempté, que</b> le <i>tanna</i> <b>distingue et enseigne</b> la distinction <b>dans</b> le cas du portage du <b>self,</b> comme suit : <b>Dans quel</b> cas <b>sont énoncées ces questions ?</b> C'est <b>dans</b> un cas où <b>il s'est arrêté pour se reposer ; cependant,</b> si <b>il s'est arrêté pour</b> ajuster le fardeau sur son <b>épaule,</b> il est <b>exempté.</b>
 
@@ -74,4 +74,4 @@ La Gemara observe : <b>Pour Rav Aḥa, la première clause</b> de la mishna <b>e
 § La mishna poursuit : De même, <b>celui qui a</b> des <b>relations forcées avec sa sœur,</b> c'est-à-dire qu'il la viole, <b>ou avec la sœur de son père,</b> ou avec la sœur de sa mère, ou avec la sœur de sa femme, ou avec la femme de son frère, ou avec la femme du frère de son père après leur divorce, ou avec une femme en période de menstruation, on paie une amende. <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir de la mishna suivante (<i>Makkot</i> 13a) : <b>Et ces</b> personnes <b>sont fouettées : Celui qui a des relations avec sa sœur, ou avec la sœur de son père, ou avec la sœur de sa mère, ou avec la sœur de sa femme, ou avec la femme de son frère, ou avec la femme du frère de son père, ou avec une femme en période de menstruation.</b> Quiconque a intentionnellement des relations avec l'une de ces femmes est puni de coups de fouet.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Rav Yosef <b>a dit à</b> Abaye : <b>Même</b> lorsque <b>Rav Ḥisda a été in
 La Guemara relate que <b>Rav Ḥisda</b> a néanmoins <b>émis</b> des <b>décisions halakhiques dans</b> la ville de <b>Kafri pendant les années de la vie de Rav Huna's</b>, car il n'était pas réellement à la place de son maître'.
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

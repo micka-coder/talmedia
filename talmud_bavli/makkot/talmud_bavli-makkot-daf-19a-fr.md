@@ -30,4 +30,4 @@ La Gemara demande : <b>Et quelle</b> opinion <b>a-t-on</b> Rabbi Yishmael <b>sou
 La Gemara demande : <b>Et une matière dérivée par juxtaposition enseigne-t-elle alors</b> une autre matière <b>par juxtaposition ?</b> Le principe concernant les <i>halakhot</i> de matières consacrées est qu'une <i>halakha</i> dérivée via l'un des principes herméneutiques ne peut servir de base à la dérivation d'une autre <i>halakha</i> ; chaque <i>halakha</i> nécessite sa propre source. La Guemara répond : Le second <b>tithe de grain est un produit non sacré</b>, et les <i>halakhot</i> de matières non sacrées dérivées via des principes herméneutiques peuvent servir de base à la dérivation d'autres <i>halakhot</i> utilisant des principes herméneutiques.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

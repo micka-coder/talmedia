@@ -51,4 +51,4 @@ La Gemara répond : Ce n'est <b>pas difficile. Cette</b> déclaration d'Abaye fa
 <b>Rabbi Eliezer lui a dit : Mais n'est-il pas déjà dit : "C'est dans la facilité [<i>beshuva</i>] et le repos que vous serez sauvés"</b> (Isaïe 30:15), indiquant que la rédemption dépend du repentir [<i>teshuva</i>] ? <b>Rabbi Yehoshua dit à Rabbi Eliezer : Mais n'est-il pas déjà dit : "Ainsi parle le Seigneur, Rédempteur d'Israël, son Saint, à celui qui est méprisé des hommes, à celui qui est abhorré de la nation, à un serviteur des chefs :</b>".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

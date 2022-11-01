@@ -63,4 +63,4 @@ Ce <i>hallel</i> fait également allusion à <b>la remontée</b> de Hanania, Mis
 <b>Rabbi Shimon HaShiloni a enseigné : Lorsque le méchant</b> Nabuchodonosor <b>jeta Hanania, Mishaël et Azaria dans la fournaise ardente, Yurkamo, l'ange tutélaire de la grêle, se tint devant le Saint, Béni soit-Il,</b> et <b>dit devant Lui : Maître de l'Univers, je vais descendre et refroidir</b> la fournaise ardente, et je sauverai ces justes de la fournaise ardente. Gabriel lui dit : La force du Saint, Béni soit-Il, ne sera pas</b> évidente <b>de cette</b> manière, car <b>tu es le ministre de la grêle, et tout le monde sait que l'eau éteint le feu.</b> Ton action ne serait pas considérée comme un grand miracle. <b>Au contraire, moi, l'ange ministre du feu, je descendrai, et je refroidirai</b> la fournaise <b>de l'intérieur,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

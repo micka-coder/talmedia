@@ -66,4 +66,4 @@ La Gemara demande : En référence <b>à quel</b> cas <b>vous avez interprété<
 Puisque la mishna enseigne qu'il donne une <i>sela</i> et un cinquième en remboursement de ce qu'il a volé, <b>évidemment</b> le terme : <b>Son mauvais usage,</b> fait référence au <b>ram</b> qu'il apporte comme <b>offrande de culpabilité.</b> La Gemara s'interroge sur cette incohérence : <b>La première clause</b> utilise le terme : <b>Son mauvais usage, en référence</b> au remboursement de <b>ce qu'il a volé,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

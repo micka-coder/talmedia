@@ -27,4 +27,4 @@ La mishna cite une histoire connexe : <b>Un incident</b> s'est produit <b>en ce 
 <strong>GEMARA :</strong> <b>La première clause</b> de la mishna <b>enseigne</b> que <b>Beit Shammai dit :</b> Il doit être <b>un nazirite</b> pendant <b>trente jours, et Beit Hillel dit :</b> Il est <b>un nazirite dès le début.</b> La Gemara suggère une explication possible de leur différend : <b>Disons qu'ils sont en désaccord sur ce point,</b> que <b>Beit Shammai soutient</b> que lorsque les Sages ont déclaré que la <b>terre des nations</b> en dehors d'Eretz Yisrael est impure, <b>ils l'ont décrété</b> ainsi <b>en ce qui concerne sa terre.</b> En d'autres termes, ils ont décrété que seule la terre de la terre des nations est impure, mais que son espace aérien reste pur. Si tel est le cas, il ne s'agit pas d'un niveau sévère d'impureté rituelle, et celui qui a observé un vœu de naziréat en dehors d'Eretz Yisrael n'est pas considéré comme impur au point de devoir recommencer son naziréat une fois entré en Eretz Yisrael,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

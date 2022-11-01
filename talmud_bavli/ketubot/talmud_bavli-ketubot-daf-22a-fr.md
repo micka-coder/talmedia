@@ -33,7 +33,7 @@ La Gemara explique : Le verset <b>est nécessaire pour</b> dériver la <i>halakh
 <b>Shmuel a soulevé un dilemme devant Rav :</b> Si une femme <b>dit</b> à son mari : <b>Je suis rituellement impure</b> car j'ai mes règles, <b>et a ensuite dit : Je suis pure, quel est</b> le <i>halakha</i> ? Est-elle autorisée sur la base de sa dernière déclaration, ou s'est-elle rendue une entité d'interdiction avec sa première déclaration et reste donc interdite ? Rav <b>lui a dit : Même dans ce</b> cas, <b>si elle a fourni une</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 les témoins qui ont déclaré qu'il est inapte et les juges qui ont déclaré qu'il est apte <b>sont deux</b> témoins <b>et deux</b> témoins qui les contredisent, et dans ce cas, l'allégation de vol n'est pas complètement éliminée. <b>Si</b> il s'agissait d'une <b>contestation</b> fondée sur une allégation de <b>lignée défectueuse,</b> par exemple, il est un esclave cananéen et donc inapte à servir comme juge, cela <b>est une simple révélation d'une question</b> qui sera finalement révélée dans tous les cas et ne nécessite pas de témoignage réel. Par conséquent, il n'y a pas de conflit d'intérêt empêchant les juges d'affirmer son aptitude après leur signature. La Guemara conclut : <b>En fait, je vous dirai</b> qu'il s'agissait d'une <b>défiance</b> basée sur une allégation <b>de vol, et ces</b> juges <b>disent : Nous savons de lui qu'il s'est repenti</b> et qu'il est maintenant apte à exercer la fonction de juge. Dans ce cas, leur témoignage ne contredit pas le témoignage initial selon lequel il était coupable de vol.
 
@@ -68,4 +68,4 @@ La Gemara explique : Le verset <b>est nécessaire pour</b> dériver la <i>halakh
 <b>Shmuel a soulevé un dilemme devant Rav :</b> Si une femme <b>dit</b> à son mari : <b>Je suis rituellement impure</b> car j'ai mes règles, <b>et a ensuite dit : Je suis pure, quel est</b> le <i>halakha</i> ? Est-elle autorisée sur la base de sa dernière déclaration, ou s'est-elle rendue une entité d'interdiction avec sa première déclaration et reste donc interdite ? Rav <b>lui a dit : Même dans ce</b> cas, <b>si elle a fourni une</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

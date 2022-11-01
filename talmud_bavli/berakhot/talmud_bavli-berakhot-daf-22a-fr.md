@@ -75,4 +75,4 @@ La Guemara relate que <b>Rav Nahman a prepare une cruche</b> d'une capacite <b>d
 <b>Rav Yosef a dit :</b> Dans ce cas, <b>la cruche de Rav Nahman est cassee,</b> c'est-a-dire qu'elle n'est plus d'aucune utilite, car peu de personnes entrent dans la categorie des malades qui ont connu des emissions seminales. Neanmoins, <b>lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie <b>il a dit : A Usha, il y eut un incident</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

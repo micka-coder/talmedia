@@ -45,4 +45,4 @@ La Gemara demande : <b>Selon l'avis de qui</b> Rav Ashi dit cela ? Est-ce <b>con
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Lorsque le verset dit : <b>"Mais il reconnaîtra le premier-né, le fils du haï, en lui donnant une part double de tout ce qu'il possède"</b> (Deutéronome 21:17), cela signifie que le premier-né reçoit le <b>double</b> des biens reçus <b>par</b> tout autre <b>un</b> héritier. Le <i>baraita</i> analyse cette déclaration : <b>Dîtes-vous</b> que le premier-né reçoit le <b>double</b> des biens reçus <b>par</b> tout <b>un</b> héritier, <b>ou plutôt s'agit-il d'une double</b> portion <b>de tous les biens,</b> de sorte que le premier-né reçoit les deux tiers de toute la succession, soit le double de la portion laissée aux autres héritiers pour se partager entre eux ? Le <i>baraita</i> suggère : <b>Et cette</b> question peut être résolue par <b>inférence logique :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

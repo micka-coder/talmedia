@@ -27,7 +27,7 @@ Il s'agit là d'une <b>réfutation concluante</b> d'un élément <b>de</b> l'avi
 La Guemara demande : <b>Mais ne s'agit-il pas de deux</b> éléments de la déclaration de Rabbi Elazar qui sont réfutés par la <i>baraita</i> ? Pourquoi a-t-il été dit plus haut qu'un seul élément est réfuté ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 celui <b>qui dit</b> que ces <b>affaires,</b> le prêt, <b>n'ont jamais eu lieu</b> et que le billet à ordre est faux. Par conséquent, il n'a aucun droit sur le papier sur lequel le billet à ordre est écrit.
 
@@ -56,4 +56,4 @@ Il s'agit là d'une <b>réfutation concluante</b> d'un élément <b>de</b> l'avi
 La Guemara demande : <b>Mais ne s'agit-il pas de deux</b> éléments de la déclaration de Rabbi Elazar qui sont réfutés par la <i>baraita</i> ? Pourquoi a-t-il été dit plus haut qu'un seul élément est réfuté ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

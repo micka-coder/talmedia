@@ -6,4 +6,4 @@
 La Gemara demande : <b>Mais n'avons-nous pas appris</b> dans une mishna : En ce qui concerne les <b>produits sans graine, leurs pousses sont permises dans les articles dont les graines cessent ; cependant,</b> concernant les <b>articles dont les graines ne cessent pas, les pousses des pousses sont interdites.</b> La Gemara répond : <b>Il nous enseigne que</b> si <b>l'augmentation des croissances</b> des croissances <b>dépasse sa partie primaire,</b> originelle, cette partie originelle est <b>permise.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara répond : <b>Dans</b> un cas impliquant <b>deux récipients, il écou
 La Guemara pose une autre question : <b>Et selon</b> l'opinion de <b>Rav Natan, fils de Rabbi Oshaya, qui a dit</b> que <b>il n'a rien fait</b> en ce qui concerne la <b>préparation du produit restant</b> <b>mais il est</b> néanmoins <b><i>teruma</i>,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

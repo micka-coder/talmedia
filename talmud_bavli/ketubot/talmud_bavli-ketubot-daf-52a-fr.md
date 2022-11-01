@@ -48,4 +48,4 @@ La Gemara relate : <b>Levi a pensé agir conformément à cette <i>baraita</i>. 
 § <b>Les Sages ont enseigné :</b> Si elle a été <b>prise en captivité et qu'ils cherchaient</b> une rançon <b>de son mari de <b>jusqu'à dix fois sa valeur,</b> c'est-à-dire beaucoup plus que la rançon habituelle pour une captive de ce genre, à la <b>première occasion</b> où elle est prise en captivité, il doit <b>la racheter</b>. <b>À partir de ce</b> point, </b> c'est-à-dire si elle était faite captive une deuxième fois, s'il <b>veut</b> le faire, <b>il la rachète</b>, mais s'il ne <b>veut</b> pas la racheter, <b>il n'a pas</b> à la <b>rédemander</b>, car les Sages l'ont obligé à la racheter une seule fois. <b>Rabban Shimon ben Gamliel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

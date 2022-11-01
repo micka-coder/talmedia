@@ -27,4 +27,4 @@ La Gemara demande : <b>Est-ce à dire que</b> en ce qui concerne <b>un acheteur,
 La mishna poursuit : <b>Dans quel</b> cas <b>cette affirmation,</b> selon laquelle on établit la présomption de propriété après avoir profité du bien pendant une certaine durée, à l'exception des personnes susmentionnées, <b>est-elle dite ?</b> Elle est dite <b>dans</b> le cas de celui qui <b>a</b> la simple <b>possession</b> du bien, ce qui sert, dans certains cas, de preuve de propriété. <b>Mais dans</b> un cas où une autre personne <b>donne</b> un <b>don, ou</b> il y a des <b>frères qui ont divisé</b> leur héritage, <b>ou</b> il y a celui qui <b>prend possession</b> des <b>biens d'un converti</b> qui est mort sans héritiers et ses biens sont maintenant sans propriétaire, dès que l'on <b>bloque</b> la porte du bien, <b>ou le clôture</b> <b>ou brise</b> sa clôture même <b>un peu, cela est</b> considéré comme une <b>prise de possession</b> du bien, et cela réalise l'acquisition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

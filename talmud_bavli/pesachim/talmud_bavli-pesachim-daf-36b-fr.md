@@ -48,4 +48,4 @@ La Gemara demande : <b>D'où</b> peut-on <b>inférer</b> que <b><i>ashisha</i> e
 <b>Les Sages ont enseigné : On</b> peut <b>ne pas cuire de pain épais le jour de la Fête, à Pessah,</b> car il pourrait être levé avant qu'il n'ait eu la chance de cuire ; c'est <b>la déclaration du Beit Shammai.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

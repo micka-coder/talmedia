@@ -42,4 +42,4 @@ La Guemara dit : <b>Selon</b> l'avis de <b>Lévi,</b> c'est-à-dire que l'arôme
 La Guemara demande : <b>Qu'il enseigne également</b> que <b>les boucs</b> apportés en offrande pour le péché lors des <b>Fêtes</b> passent outre l'impureté rituelle. La Guemara répond : <b>Il a enseigné</b> cela, car les chèvres sont incluses dans la catégorie des <b>offrandes de paix communautaires.</b> La Gemara demande : <b>Si c'est le cas, il ne devrait pas non plus</b> être nécessaire d'<b>enseigner</b> séparément que <b>les chèvres</b> sacrifiées lors des <b>Nouvelles Lunes</b> sont apportées en état d'impureté rituelle, <b>puisqu'il</b> a déjà <b>enseigné</b> la <i>halakha</i> en ce qui concerne <b>les offrandes de paix communautaires. Dites</b> en réponse à cette question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

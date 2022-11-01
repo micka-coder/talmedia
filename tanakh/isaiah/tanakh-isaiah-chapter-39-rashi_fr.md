@@ -24,7 +24,7 @@
 <b>"La parole du Seigneur...est bonne"</b> puisqu'il y aura la paix de mon temps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>quand il apprit qu'il avait été malade et qu'il était guéri</b> Il avait l'habitude de manger après que les trois premières heures du jour se soient écoulées et il dormait jusqu'à la neuvième heure. Comme la sphère du soleil avait reculé à cause d'Ézéchias, il se réveilla de son sommeil après neuf heures et constata que c'était le matin. Il chercha à tuer tous ses serviteurs. Il dit : "Vous m'avez laissé dormir un jour et une nuit jusqu'au matin !". Ils lui dirent : "C'est la sphère du soleil qui a reculé." Il leur dit : "Qui l'a ramenée ?" Ils lui répondirent : "Le Dieu d'Ezéchias, etc." Comme il est dit dans Tanhuma (Ki Thissa 5) et dans Pesikta (d' Rav Kahana p. 14a).
 
@@ -50,4 +50,4 @@
 <b>"La parole du Seigneur...est bonne"</b> puisqu'il y aura la paix de mon temps.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -98,4 +98,4 @@
 <b>Avec un aiguillon.</b> Un éperon de selle, "aiguillon" en vieux français.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

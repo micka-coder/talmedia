@@ -48,4 +48,4 @@ Les Sages de la Guemara <b>disent : Comment</b> ces cas peuvent-ils <b>être com
 <b>Au contraire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

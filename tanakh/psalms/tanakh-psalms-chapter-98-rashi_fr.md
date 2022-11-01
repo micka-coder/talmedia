@@ -18,4 +18,4 @@
 <b>Les fleuves battront des mains</b> Les prophètes ont parlé dans un langage que l'oreille peut entendre ; non pas que les fleuves aient une main, mais c'est une expression de joie et d'allégresse.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

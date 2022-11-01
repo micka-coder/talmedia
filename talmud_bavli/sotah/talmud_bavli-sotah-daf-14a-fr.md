@@ -30,4 +30,4 @@ Rabbi Samlaï procède à l'interprétation du verset <b>"C'est pourquoi je lui 
 <b>"Il fut compté parmi les transgresseurs"</b>, ce qui signifie <b>qu'il a été compté parmi ceux qui sont morts dans le désert,</b> car, tout comme eux, il n'est pas entré en Eretz Yisraël. <b>"Pourtant, il a porté le péché de beaucoup", car il a expié l'incident du Veau d'or. "Et il a intercédé [<i>yafgia</i>] pour les transgresseurs", car il a demandé la miséricorde pour les pécheurs d'Israël</b> afin <b>qu'ils s'engagent dans la repentance. Et</b> le mot <b><i>pegia</i></b> ne signifie <b>rien d'autre</b> que la <b>prière, comme il est dit : "C'est pourquoi vous ne prierez pas pour ce peuple, vous n'élèverez ni cri ni prière pour lui, vous n'intercéderez pas [<i>tifga</i>] auprès de Moi;</b> car je ne vous exaucerai pas" (Jérémie 7:16).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

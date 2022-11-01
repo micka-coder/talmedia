@@ -78,4 +78,4 @@ La Guemara pose encore une autre question dans le même sens : <b>Accordé, selo
 La Gemara demande : En <b>conformité avec l'opinion de qui</b> est cette décision de Rabbi Yoḥanan ? <b>Si</b> elle est <b>conforme</b> à l'avis des <b>Rabbins,</b> le mari devrait être responsable <b>même s'il n'a pas eu de rapports</b> avec sa femme. <b>Si</b> c'est <b>conformément</b> à l'opinion de <b>Rabbi Eliezer ben Ya'akov,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

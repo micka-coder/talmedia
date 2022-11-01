@@ -11,5 +11,5 @@ Si l'on a fait deux poêles de trois pierres et que l'une des pierres extérieur
 ### michna 4
 Si l'on a fait de deux pierres un réchaud et qu'elles se soient souillées, et qu'on ait placé une pierre près du côté extérieur de l'une et une autre pierre près du côté extérieur de l'autre, [la moitié intérieure] de chacune [des pierres intérieures] reste impure tandis que la moitié [extérieure] de chacune [de ces pierres] est propre. Si l'on enlève les pierres pures, les autres retournent à leur impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

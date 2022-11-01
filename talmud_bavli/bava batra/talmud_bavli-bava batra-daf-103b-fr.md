@@ -18,4 +18,4 @@ Si l'acheteur a reçu trop de terres, de sorte qu'il doit maintenant indemniser 
 <strong>GEMARA : </strong>La mishna considère deux cas de vente d'un <i>kor</i> de terre : Premièrement, lorsque le vendeur a dit qu'il vend un <i>mais kor</i> mesuré précisément avec une corde, auquel cas un remboursement doit être effectué, quelle que soit la faiblesse de l'écart ; et deuxièmement, lorsque le vendeur a dit qu'il vend un <i>mais kor</i> en plus ou en moins, auquel cas la vente est valable tant que l'écart ne dépasse pas un quart-<i>kav</i> par <i>se'a</i>. A propos de ces cas, <b>un dilemme a été soulevé devant</b> les Sages : Si quelqu'un dit qu'il vend <b>un <i>beuf kor</i></b> de terre, et qu'il a dit cela <b>sans</b> autre <b>spécification, quelle</b> est la <i>halakha</i> ? La Gemara suggère : <b>Venez</b> et <b>entendez</b> une solution à partir de ce qui a été enseigné dans la mishna : Si quelqu'un dit à un autre : <b>Je te vends</b> une parcelle de <b>terre</b> de la taille d'un <b>kor</b>, mesurée</b> précisément <b>avec une corde,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -77,4 +77,4 @@
 <b>Repentir et amener les autres à se repentir</b> Heb. שּׁוּבוּ וְהָשִּׁיבוּ, vous vous repentez et vous amenez les autres à se repentir (tourner, retourner en français), tourner [les autres], revenir.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

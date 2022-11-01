@@ -42,4 +42,4 @@ La Guemara revient sur la mishna, qui stipulait qu'il est interdit de manger <b>
 La Guemara développe : Est-ce que <b>nous avons appris</b> dans la mishna qu'il est interdit de manger <b>adjacent à</b> l'heure de <b>la plus grande <i>minḥa</i>,</b> et ce, à cause de l'agneau pascal, de peur que l'on vienne à être attiré après</b> le repas et que l'on passe un long moment à manger, comme cela était typique des grands repas,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

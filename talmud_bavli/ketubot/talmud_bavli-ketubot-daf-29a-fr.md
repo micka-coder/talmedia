@@ -18,7 +18,7 @@ La mishna enseigne la <i>halakha</i> à l'égard d'une jeune femme, ce dont la G
 <b>Et les rabbins disent : En ce qui concerne une mineure depuis</b> l'âge de <b>trois ans et un jour jusqu'à ce qu'elle mûrisse</b> pour devenir une femme adulte, <b>il y a une amende pour elle.</b> La Guemara demande : Est-ce à dire qu'une <b>amende, oui,</b> il y en a une, mais une <b>vente, non,</b> il n'y en a pas ? Les rabbins soutiennent-ils que le père n'a pas le droit de vendre sa fille mineure ? La Gemara émet le texte : <b>Dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> <b>Voici</b> les cas des <b>jeunes femmes pour lesquelles il y a une amende</b> payée <b>à leurs</b> pères par celui qui les viole : <b>Celui qui a des rapports sexuels avec une <i>mamzeret</i>, ou avec une femme gibéonite [<i>netina</i>],</b> qui sont données [<i>netunim</i>] au service du peuple et de l'autel (voir Josué 9:27), <b>ou avec une femme samaritaine [<i>kutit</i>]. </b> En outre, il en est de même pour <b>celui qui a des rapports sexuels avec une femme convertie, ou avec une femme captive, ou avec une servante,</b> à condition <b>que</b> les captives <b>soient rançonnées, </b> ou <b>que</b> les converties <b>se soient converties, ou que</b> les servantes <b>soient libérées</b> lorsqu'elles avaient <b>moins de trois ans et un jour,</b> car seulement dans ce cas elles conservent le statut présumé de vierge.
 
@@ -38,4 +38,4 @@ La mishna enseigne la <i>halakha</i> à l'égard d'une jeune femme, ce dont la G
 <b>Et les rabbins disent : En ce qui concerne une mineure depuis</b> l'âge de <b>trois ans et un jour jusqu'à ce qu'elle mûrisse</b> pour devenir une femme adulte, <b>il y a une amende pour elle.</b> La Guemara demande : Est-ce à dire qu'une <b>amende, oui,</b> il y en a une, mais une <b>vente, non,</b> il n'y en a pas ? Les rabbins soutiennent-ils que le père n'a pas le droit de vendre sa fille mineure ? La Gemara émet le texte : <b>Dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

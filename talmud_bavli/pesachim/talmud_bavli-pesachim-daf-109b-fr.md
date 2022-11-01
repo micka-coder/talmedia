@@ -18,4 +18,4 @@ Nous avons appris dans la mishna que même à l'égard du plus pauvre des Juifs,
 <b>Rava a dit</b> une réponse différente : <b>La coupe de bénédiction</b> pour la Grâce après les repas la nuit de Pessah est utilisée dans l'accomplissement d'une mitzva supplémentaire et n'est pas simplement une expression de liberté. Par conséquent, <b>elle se combine</b> avec les autres coupes <b>pour le bien,</b> c'est-à-dire pour accomplir la mitsva de boire quatre coupes, <b>et elle ne se combine pas pour le mal.</b> En ce qui concerne le danger de boire des paires de coupes, c'est comme si on ne buvait que trois coupes. <b>Ravina a dit : Les Sages ont institué quatre</b> <b>tasses distinctes,</b> dont chacune est consommée <b>d'une manière</b> qui démontre la <b>liberté.</b> Par conséquent, <b>chacune d'entre elles</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

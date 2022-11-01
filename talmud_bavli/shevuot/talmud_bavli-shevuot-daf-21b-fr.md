@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais celui qui <b>spécifie</b> dans son serment qu'il lu
 La Gemara demande : <b>Mais n'y a-t-il pas</b> une question non résolue en ce qui concerne celui qui a fait le serment de ne pas manger et qui a ensuite mangé de la <b>saleté ?</b> Si, comme le prétendent les rabbins, on n'est pas responsable d'avoir mangé moins d'une mesure complète, on pourrait <b>plutôt</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

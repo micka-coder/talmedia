@@ -11,5 +11,5 @@ Il prit la clé et ouvrit la petite porte, puis il passa de la chambre du feu da
 ### michna 4
 Celui qui avait mérité de débarrasser les cendres, se préparait à débarrasser les cendres. Ils lui dirent : "Fais attention de ne toucher aucun vase avant d'avoir lavé tes mains et tes pieds dans la cuvette. Regarde, le foyer est dans le coin entre la montée et l'autel, à l'ouest de la montée." Personne n'est entré avec lui, et il ne portait pas de lampe. Il marchait plutôt à la lumière du feu de l'autel. Personne ne le vit ni n'entendit aucun son jusqu'au moment où l'on entendit le bruit de la roue en bois que Ben Katin fabriquait pour hisser la cuvette, et l'on dit alors : "Le moment est venu". Il se lava les mains et les pieds dans la cuvette, puis prit l'âtre en argent et monta au sommet de l'autel, enleva les cendres de chaque cèté et ramassa les cendres au centre. Il descendit ensuite et, lorsqu'il atteignit le sol, il tourna son visage vers le nord et longea le côté est de la montée sur environ dix coudées, puis il fit un tas de cendres sur le pavé à trois tefahs [paumes] de la montée, à l'endroit où l'on mettait la récolte des oiseaux, les cendres de l'autel intérieur et les cendres de la ménorah.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

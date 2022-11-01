@@ -48,4 +48,4 @@ De même, s'il a <b>ajouté des fenêtres</b> pour la ventilation, ce qui démon
 <strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est différent</b> dans <b>la première clause</b> de la mishna, qui stipule qu'on peut empêcher son voisin d'ouvrir un magasin dans la cour parce que le bruit l'empêche de dormir, <b>et qu'est-ce qui est différent</b> dans <b>la dernière clause,</b> qui stipule qu'on ne peut pas protester lorsque son voisin effectue un travail qui est bruyant ? <b>Abaye a dit :</b> Dans <b>la dernière clause, on arrive</b> au cas de celui qui opère dans <b>une autre cour,</b> c'est-à-dire qu'on ne peut pas empêcher l'activité dans une cour séparée qui est reliée à la ruelle dans laquelle il vit. <b>Rava lui a dit : Si c'est le cas, qu'il enseigne</b> que <b>dans une cour différente, c'est permis.</b> Pourquoi la mishna ne précise-t-elle pas qu'elle fait référence à une cour différente ? <b>Au contraire, Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

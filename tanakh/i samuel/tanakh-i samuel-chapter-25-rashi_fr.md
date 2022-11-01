@@ -122,4 +122,4 @@
 <b>Et a épargné Son serviteur du mal.</b> Que je ne l'ai pas tué.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

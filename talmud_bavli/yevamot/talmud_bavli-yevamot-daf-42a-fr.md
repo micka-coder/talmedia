@@ -81,4 +81,4 @@ La Guemara suggère une raison différente pour l'interdiction d'épouser une fe
 La Guemara suggère une raison différente : <b>La raison de l'interdiction est plutôt que <b>une femme enceinte typique est prête à allaiter</b> son enfant une fois qu'il sera né ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

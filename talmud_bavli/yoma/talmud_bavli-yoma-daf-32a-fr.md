@@ -30,4 +30,4 @@
 La Guemara explique la position de Rabbi Yehouda qui a été mentionnée précédemment. <b>Rabbi Yehuda a dit : D'où</b> proviennent les <b>cinq immersions et dix sanctifications</b> que le <b>Haut Prêtre immerge et sanctifie</b> ses mains et ses pieds, respectivement, <b>le jour</b> de Yom Kippour ? Ils sont dérivés du <b>verset</b> qui <b>déclare : <b>Aaron entrera dans la Tente de la Rencontre</b> et il enlèvera les vêtements de lin qu'il a mis en entrant dans le Sanctuaire et les laissera là. <b>Et il lavera sa chair dans l'eau dans un lieu sacré"</b> (Lévitique 16:23""24). De <b>ceci vous avez appris : Toute personne qui passe</b> d'un <b>service intérieur,</b> dans le Saint des Saints, <b>à</b> un <b>service extérieur,</b> et vice versa, <b>doit s'immerger.</b> La Gemara demande : <b>Nous avons trouvé</b> la preuve que le Grand Prêtre nécessite une immersion lorsqu'il passe <b>des vêtements blancs aux vêtements d'or;</b> cependant, <b>d'où vient</b> qu'il nécessite une immersion lorsqu'il passe <b>des vêtements d'or aux vêtements blancs ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

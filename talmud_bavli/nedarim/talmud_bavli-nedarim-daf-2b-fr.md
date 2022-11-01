@@ -42,4 +42,4 @@ La Guemara explique : Dans <b>ces</b> cas, <b>parce qu'il y a de nombreuses [<i>
 La Gemara demande : <b>N'est-ce pas</b> le mishna (<i>Shabbat</i> 51b) dit : <b>Avec quoi un animal peut-il sortir</b> dans le domaine public le Chabbat <b>et avec quoi ne peut-il pas sortir ?</b> C'est un cas <b>qui ne comporte pas beaucoup</b> de catégories, <b>et</b> pourtant la mishna <b>enseigne : Un chameau peut sortir</b> le Chabbat avec un <i>afsar</i>, etc. ce qui clarifie le début de la déclaration liminaire de la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

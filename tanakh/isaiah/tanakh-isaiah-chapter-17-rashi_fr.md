@@ -64,7 +64,7 @@
 <b>C'est la part de nos pillards</b> La part de Sennacherib et la part de Gog et Magog, quand ils viennent nous piller.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Je serai retiré d'être une ville</b> [L'hébreu dénote] une expression de retrait.
 <b>enlevé d'une ville</b> d'être une ville.
@@ -130,4 +130,4 @@
 <b>C'est la part de nos pillards</b> La part de Sennacherib et la part de Gog et Magog, quand ils viennent nous piller.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

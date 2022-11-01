@@ -54,4 +54,4 @@ En ce qui concerne les repas, ces <i>amora'im</i> ont instruit leurs fils : Dans
 § <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (<i>Middot</i> 1:2) : <b>L'homme [<i>homme</i>]</b> chargé de superviser les veilles <b>du Mont du Temple circulait</b> chaque nuit <b>entre chaque poste de veille,</b> pour s'assurer que les veilleurs étaient éveillés et accomplissaient correctement leur devoir. <b>Et</b> il y avait des <b>flambeaux allumés</b> portés <b>devant lui,</b> afin que les gardiens le voient approcher. <b>Et</b> à <b>chaque poste de garde où</b> le veilleur ne se serait <b>pas levé</b>, l'homme testait si le veilleur dormait ; <b>et l'homme du Mont du Temple</b> lui <b>disait :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

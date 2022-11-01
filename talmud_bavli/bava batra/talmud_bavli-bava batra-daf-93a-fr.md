@@ -36,4 +36,4 @@ La Guemara explique la preuve : <b>Quelle</b> nouveauté indique-t-on en disant 
 La Guemara concède que la mishna ne peut pas être conciliée avec l'opinion du Rav, mais suggère qu'il y a d'autres <i>tanna'im</i> qui tiennent en accord avec son opinion. Il s'agit <b>d'un différend entre <b><i>tanna'im</i>, comme il est enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui vend un produit à un autre, et</b> l'acheteur l'a <b>planté et il n'a pas germé,</b> si le produit était des <b>semences</b> pour des plantes de <b>jardin</b>, <b>qui ne sont pas du tout consommées</b>, alors le vendeur <b>porte</b> une <b>responsabilité financière pour celles-ci. </b> Si le produit était des <b>graines de lin,</b> qui ne sont consommées qu'occasionnellement, alors le vendeur <b>n'en porte pas</b> la <b>responsabilité financière. Rabbi Yosei dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

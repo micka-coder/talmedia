@@ -104,4 +104,4 @@
 <b>Ton royaume a été brisé, etc.</b> c'est-à-dire, UFARSIN signifie deux définitions de PEREIS ; la première est que ton royaume פְּרִיסַת, ton royaume a été brisé, et la seconde est qu'il a été donné à la Média et à la Perse (וּפָּרַס).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

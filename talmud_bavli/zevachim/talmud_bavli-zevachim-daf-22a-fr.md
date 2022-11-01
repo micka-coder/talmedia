@@ -48,4 +48,4 @@ La Gemara demande : <b>Est-ce à dire que</b> l'eau du Bassin <b>n'a pas besoin<
 La Gemara répond : <b>Non,</b> la déduction <i>a fortiori</i> est basée sur le fait <b>que</b> l'eau utilisée pour le Bassin est <b>sanctifiée</b> pour le service. La Gemara demande : <b>Mais l'eau sanctifiée</b> est-elle <b>préférable,</b> étant donné que la Torah stipule simplement "eau" ? <b>Mais Rabbi Shmuel n'a-t-il pas enseigné :</b> Le mot <b>"eau"</b> utilisé dans le verset désigne spécifiquement l'eau <b>dont le nom <b>n'a pas de modificateur;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

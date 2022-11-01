@@ -30,4 +30,4 @@ La Gemara rejette cette suggestion : <b>Ici aussi,</b> on peut comprendre la sit
 La Guemara fait remarquer : <b>Et même Rabbi Yoshiya dit</b> qu'un intendant ne peut pas annuler les vœux de l'épouse <b>uniquement parce qu'il s'agit d'un édit de la Torah,</b> en se basant sur les mots <b>"son mari peut le ratifier, ou son mari peut l'annuler"</b> (Nombres 30:14). <b>Mais</b> selon <b>tout le monde,</b> le principe selon lequel le statut juridique de <b>l'agent d'une personne est comme</b> celui de <b>même</b> est généralement valable. La seule objection à l'annulation des vœux par l'intendant est l'édit de la Torah. La Gemara demande : <b>Mais</b> ces voeux n'ont pas été entendus par</b> l'intendant ? Cela indique que le fait de ne pas avoir entendu les vœux n'est pas un obstacle à l'annulation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

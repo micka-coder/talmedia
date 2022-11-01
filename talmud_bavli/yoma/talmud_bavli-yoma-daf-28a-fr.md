@@ -24,4 +24,4 @@ Comme expliqué ci-dessus, la raison pour laquelle Rabbi Yoḥanan soutient que 
 La Guemara rejette cette preuve : La raison pour laquelle la mishna mentionne l'abattage est qu'elle préfère <b>enseigner</b> cette déclaration par rapport à <b>ce qui n'a pas de rectification</b> s'il est fait la nuit, comme l'abattage de l'offrande, qui est rendu irrémédiablement invalide s'il est effectué avant le lever du jour. <b>Il ne veut pas</b> <b>l'enseigner</b> en ce qui concerne <b>ce qui a une rectification</b> s'il est fait la nuit, comme la disposition des deux log, qui peuvent toujours être enlevées et replacées correctement. Cependant, il est possible que le moment approprié pour arranger les bûches soit le jour, et par conséquent, cela peut être considéré comme un service qui est complété par la combustion ultérieure des membres sur l'autel.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

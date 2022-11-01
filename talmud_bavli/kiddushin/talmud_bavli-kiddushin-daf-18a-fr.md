@@ -48,4 +48,4 @@ La Gemara demande : <b>Ici aussi,</b> dans le cas d'une servante hébraïque, le
 La Gemara commente : <b>Et</b> cette question est enseignée <b>dans la dispute</b> entre <b>ces <i>tanna'im</i>, comme elle est enseignée</b> dans une <i>baraita</i> à propos du verset : "Il n'aura pas le pouvoir de la vendre à un peuple étranger, vu qu'il l'a trompée [<i>bevigdo vah</i>]" (Exode 21:8).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

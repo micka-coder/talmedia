@@ -72,7 +72,7 @@ La Gemara répond : Les Sages <b>savent</b> que <b>là,</b> dans le cas de la mi
 § <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>celui qui prétend</b> avoir remboursé une dette qui a <b>déjà</b> été établie par <b>un acte de justice,</b> c'est-à-dire une ordonnance rabbinique obligeant à payer une dette, par exemple la somme principale d'un contrat de mariage, mais il n'a pas de témoins,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et</b> plus tard, le débiteur <b>dit : Je l'ai remboursé</b>, sa demande est <b>réputée crédible.</b> Il doit prêter serment et est dispensé de paiement. Par conséquent, si le <b>créancier vient</b> et demande au tribunal <b>d'écrire</b> une autorisation pour qu'il s'approprie les biens du débiteur, <b>on n'écrit pas</b> une autorisation <b>et on lui remet</b> le document <b>à lui.</b>
 
@@ -146,4 +146,4 @@ La Gemara répond : Les Sages <b>savent</b> que <b>là,</b> dans le cas de la mi
 § <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>celui qui prétend</b> avoir remboursé une dette qui a <b>déjà</b> été établie par <b>un acte de justice,</b> c'est-à-dire une ordonnance rabbinique obligeant à payer une dette, par exemple la somme principale d'un contrat de mariage, mais il n'a pas de témoins,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis de <b>
 Si le <b>trentième jour est arrivé et qu'elle a vu</b> un écoulement de sang, puis que le <b>vingtième jour</b> suivant est <b>arrivé et qu'elle n'a pas vu</b> un écoulement de sang, <b>et</b> que le <b>trentième jour</b> de son écoulement précédent est <b>arrivé et qu'elle n'a pas vu</b> du sang ce jour-là mais l'a vu un jour ultérieur, <b>et</b> ensuite le <b>vingtième jour</b> après son écoulement précédent <b>arrivé et qu'elle a vu</b> un écoulement de sang, le <b>trentième jour devient permis,</b> car elle a connu un saignement après un intervalle de trente jours seulement deux fois. Ceci est conforme à l'opinion de Rav Pappa selon laquelle un cycle de saignement qui s'est produit deux fois est déplacé par un seul temps de non saignement ce jour-là.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

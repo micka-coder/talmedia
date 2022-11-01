@@ -43,4 +43,4 @@
 <b>et un étonnement</b> Heb. ומשמה, une merveille, c'est-à-dire que tous ceux qui la verront s'en étonneront.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

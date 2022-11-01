@@ -42,4 +42,4 @@ Le prêtre <b>qui a gagné</b> la loterie <b>pour enlever</b> les cendres <b>de 
 <b>Personne n'entrerait avec</b> le prêtre qui enlevait les cendres, car il n'était permis d'entrer dans la zone située entre la salle d'entrée du Sanctuaire et l'autel que pour accomplir le service du Temple. <b>Et</b> il n'y avait <b>pas de lampe dans sa main</b> lorsqu'il allait chercher le bac à charbon. <b>Au contraire, il marchait à la lumière de l'arrangement</b> de bois sur l'autel, sur lequel on brûlait pendant la nuit les portions des offrandes sacrifiées la veille. Les autres prêtres <b>ne le voyaient pas,</b> car l'autel le cachait à leur vue,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

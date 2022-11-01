@@ -59,4 +59,4 @@
 <b>Ou bien... m'emporterait</b> Il m'enlèverait du monde. D'autres interprètent יִשָׂאֵנִי comme (Nahum 1:5), "et la terre a levé (ותשא) de devant moi [une colonne de fumée]."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

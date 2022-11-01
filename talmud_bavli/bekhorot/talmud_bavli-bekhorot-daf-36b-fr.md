@@ -66,4 +66,4 @@ La Gemara répond : <b>Si</b> la <i>halakha</i> est apprise <b>à partir de la m
 <b>Rav Ḥiyya bar Amram dit :</b> Un groupe de <b>trois</b> laïcs peut <b>permettre</b> un <b>premier-né</b> animal taché <b>dans un lieu où il n'y a pas d'expert</b> à consulter, et de même un groupe de <b>trois</b> laïcs peut <b>dissoudre un vœu dans un lieu où il n'y a pas de Sage.</b> La Gemara explique : La décision selon laquelle un groupe de <b>trois</b> laïcs peut <b>permettre</b> un animal taché <b>de premier-né</b> <b>dans un lieu où il n'y a pas d'expert</b> à consulter.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

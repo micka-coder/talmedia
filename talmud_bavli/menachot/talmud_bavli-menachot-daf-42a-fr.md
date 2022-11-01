@@ -69,4 +69,4 @@ La Guemara explique : <b>Une <i>sukka</i> est apte</b> même si elle a été con
 En revanche, la <i>halakha</i> en ce qui concerne les <b>phylactères</b> est <b>une réfutation concluante</b> de l'opinion du Rav Ḥisda. <b>Les phylactères sont impropres</b> lorsqu'ils sont écrits <b>par un Gentil, comme il est enseigné</b> par <b>Rav Ḥinnana, fils de Rava,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara explique le cas suivant dans la mishna : <b>Et les mains;</b> la rais
 La Guemara demande : <b>Lequel</b> de ces décrets <b>a été publié en premier par les Sages</b> ? Si vous dites</b> qu'ils ont <b>émis ce</b> décret, l'impureté des mains en général, <b>en premier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

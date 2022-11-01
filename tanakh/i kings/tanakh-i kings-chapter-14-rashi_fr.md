@@ -72,4 +72,4 @@
 <b>Les coureurs les portaient.</b> Devant lui, en [son] honneur,<sup>8</sup><i class="footnote">Alternativement, cela a pu être fait comme protection contre une rébellion.-Radak</i> et après, ils les rendaient<sup>9</sup><i class="footnote">C'est-à-dire les boucliers de cuivre. </i> à la chambre où les coureurs étaient toujours postés.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -12,4 +12,4 @@ Le deuxième type de document est celui où il dit : Prenez possession de ce cha
 <b>Et Rav Ḥiyya bar Avin</b> dit que <b>Rav Huna dit : Il existe</b> en fait <b>trois</b> types de <b>documents. Deux</b> sont <b>ceux que nous avons énoncés</b> ci-dessus, et <b>l'autre</b> est <b>si</b> le <b>vendeur a écrit le document à l'avance.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -35,5 +35,5 @@ Si un morceau de tissu de trois [tefahs] de côté [a été trouvé] dans un tas
 ### michna 12
 Un morceau d'étoffe de trois [tefahs] de côté qui a été déchiré : si on le pose sur une chaise et que sa peau touche la chaise, il est pur ; sinon, il reste pur. Une pièce d'étoffe de trois [tefahs] de côté dont un fil a été usé, ou dans lequel on a trouvé un noeud, ou dans lequel deux fils se sont côtoyés, est pure. Un morceau d'étoffe de trois [tefahs] de côté qui a été jeté sur le tas d'ordures devient pur. S'il l'a rapporté, il devient susceptible d'être impur. Le fait de le jeter le rend toujours pur et le fait de le rapporter le rend susceptible d'être impur, sauf s'il est de couleur pourpre ou cramoisi. Rabbi Eliezer dit : une pièce de tissu neuf est également soumise à la même loi. Rabbi Shimon dit : toutes ces matières deviennent pures ; elles n'ont été mentionnées qu'en rapport avec la restitution d'un bien perdu.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

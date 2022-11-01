@@ -27,4 +27,4 @@ Il est enseigné que <b>ceux</b> des femmes <b>de lignée distinguée parmi eux 
 Le tractat se termine par une déclaration liée au sujet de la danse. <b>Ulla</b> de la ville de <b>Bira'a a dit</b> que <b>Rabbi Elazar a dit : </b> Dans le <b>futur,</b> à la fin des temps, <b>le Saint, Béni soit-Il, organisera une danse des justes, et Il</b> sera <b>assis parmi eux dans</b> le <b>Jardin d'Eden, et chacun</b> des justes <b>pointera</b> Dieu <b>avec son doigt, comme il est dit : "Et l'on dira en ce jour-là : Voici notre Dieu, que nous avons attendu pour qu'il nous sauve. C'est le Seigneur, celui que nous attendions. Nous nous réjouirons et nous nous réjouirons de son salut" (Esaïe 25:9). Dieu sera révélé, de sorte que tout individu juste pourra dire : Celui-ci est notre Dieu, comme s'ils le désignaient du doigt.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

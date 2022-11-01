@@ -75,4 +75,4 @@ La Gemara rejette cette idée : <b>Si</b> on prétend que la mishna omet la <i>h
 La Gemara suggère une autre preuve : <b>Venez</b> et <b>entendez</b> une preuve issue d'une mishna (<i>Ketubot</i> 41a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara demande : <b>Et selon Rava, qui a dit</b> que la mishna fait référe
 La Guemara répond : <b>Oui, il a acquis</b> la propriété <b>en ce qui concerne son travail, comme le dit Reish Lakish : D'où</b> provient-il <b>qu'un Gentil puisse acquérir</b> un autre <b>Gentil</b> comme esclave <b>en ce qui concerne son travail ? Comme il est dit : "De plus, des enfants des étrangers qui séjournent parmi vous, vous pourrez en acquérir"</b> (Lévitique 25:45). Cela indique que <b>vous,</b> juifs, pouvez <b>acquérir</b> des esclaves <b>de leur part,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara demande : Si la progéniture ultérieure de l'animal n'est pas compt�
 <b>Rabbi Yoḥanan dit à Reish Lakish : D'où tirons-nous</b> qu'un cadavre qui a été déformé est pur ? Si nous disons</b> qu'il est dérivé <b>de ce que Rabbi Shabbtaï dit</b> que <b>Rabbi Yitzḥak de Migdal [<i>Migdala'a</i>] dit, et certains disent</b> de ce que <b>Rabbi Yitzḥak de Migdal dit</b> que <b>Rabbi Shabbtaï dit,</b> cela ne peut être correct. La Gemara cite la déclaration pertinente : En ce qui concerne <b>un cadavre qui a été brûlé mais dont la forme [<i>veshildo</i>]</b> existe encore,</b> c'est-à-dire qu'il a toujours la forme d'un cadavre humain, il <b>est impur. Il y eut un incident</b> impliquant un tel cadavre, <b>et</b> les Sages ont <b>réputé impurs</b> tous les objets qui se trouvaient sous les <b>grandes ouvertures</b> de la maison où se trouvait le cadavre, car ces ouvertures étaient aptes à faire sortir le cadavre de la maison à travers elles.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

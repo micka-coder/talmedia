@@ -54,4 +54,4 @@ La Guemara cite un incident connexe : C'est comme si la fille de l'empereur roma
 La fille de l'empereur <b>alla et dit</b> ceci <b>à son père. Il a mis le vin dans des vases d'or et d'argent et il est devenu aigre.</b> Lorsque ses conseillers <b>sont venus dire à l'empereur</b> que le vin était devenu aigre, <b>il a dit à</b> sa fille : <b>Qui t'a dit</b> de faire <b>cette chose ?</b> Sa fille <b>répondit : Rabbi Yehoshua ben Ḥananya.</b> L'empereur le <b>somma</b> et lui <b>dit : Pourquoi lui as-tu dit cela ? </b> Rabbi Yehoshua ben Ḥananya <b>lui a répondu : De même qu'elle m'a dit, je lui ai dit de dire,</b> pour lui démontrer que les matières fines se conservent mieux dans le moindre des récipients. L'empereur lui dit : <b>Mais il y a de belles personnes qui sont savantes.</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

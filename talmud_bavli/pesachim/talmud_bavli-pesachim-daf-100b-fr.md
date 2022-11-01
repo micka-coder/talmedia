@@ -15,4 +15,4 @@ La Gemara relate : <b>Rabba bar Rav Huna se trouva</b> à venir <b>dans la maiso
 La Guemara continue à discuter des <i>halakhot</i> de <i>kiddush</i> : En ce qui concerne <b>ces personnes qui ont récité le <i>kiddouch</i> à la synagogue,</b> comme il était d'usage de le faire à la fin de l'office de prière le soir du Shabbat, <b>Rav a dit : Ils n'ont pas rempli</b> leur obligation de réciter une bénédiction <b>sur le vin.</b> C'est-à-dire que la bénédiction sur le vin à la synagogue ne leur permet pas de boire du vin à la maison sans bénédiction supplémentaire. Cependant, <b>ils ont rempli</b> leur obligation <b>de</b> réciter le <b><i>kiddouch</i>. Et Shmuel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

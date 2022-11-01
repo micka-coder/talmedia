@@ -51,4 +51,4 @@ La Guemara repond : Ceci <b>appuie</b> l'opinion de <b>Rabbi Yehoshua ben Levi,<
 Un detail particulier etait surprenant : <b>Comment Rabbi Yirmeya a-t-il pu agir de la sorte</b> et prier derriere le Rav ? <b>N'est-ce pas Rav Yehuda qui a dit</b> que <b>Rav a dit : Une personne ne doit jamais prier</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

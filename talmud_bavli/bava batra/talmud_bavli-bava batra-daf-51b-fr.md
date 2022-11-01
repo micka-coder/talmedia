@@ -24,4 +24,4 @@ La Gemara répond : Ceci n'est <b>pas difficile,</b> car Rava fait référence �
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>On ne doit pas accepter les dépôts des femmes, ni des esclaves, ni des enfants.</b> Comme il est probable qu'elles ne possèdent pas de biens, elles pourraient avoir pris l'objet sans l'autorisation de leur mari, maître ou parent, respectivement. Par conséquent, on ne doit pas accepter le dépôt. Si, par contre, on <b>accepte</b> un dépôt <b>de la part d'une femme, on doit le rendre à la femme,</b> car on ne peut pas être certain qu'il ne lui appartient pas. <b>Et si</b> la femme <b>morte, il doit le rendre à son mari,</b> car il est son héritier. Si quelqu'un <b>accepte</b> un dépôt <b>de la part d'un esclave, il doit le rendre à l'esclave,</b> car il pourrait ne pas appartenir au maître. <b>Et si</b> l'esclave <b>mort, il doit le rendre à son maître.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Le Hekhal mesurait cent coudées sur cent, avec une hauteur de cent. La fondatio
 ### michna 7
 De l'est à l'ouest, il y avait cent coudées : Le mur du porche avait cinq coudées, le porche lui-même onze, le mur du Hekhal six coudées et son intérieur quarante, une coudée pour l'espace entre les deux, et vingt coudées pour le Saint des Saints, le mur du Hekhal six coudées, la cellule six coudées et le mur de la cellule cinq. Du nord au sud, il y avait soixante-dix coudées : Le mur de la mésibbah cinq coudées, la mésibbah elle-même trois, le mur de la cellule cinq et la cellule elle-même six, le mur du Hekhal six coudées et son intérieur vingt, puis le mur du Hekhal encore six et la cellule six et son mur cinq, puis l'endroit de la descente d'eau trois coudées et son mur cinq coudées. Le Porche s'étendait au-delà de quinze coudées au nord et quinze coudées au sud, et cet espace était appelé la Maison des couteaux d'abattage où l'on entreposait les couteaux. Le Hekhal était étroit derrière et large devant, ressemblant à un lion, comme il est dit : "Ah, Ariel, Ariel, la ville où David a campé" (Isaïe 29:1) : De même que le lion est étroit derrière et large devant, de même le Hekhal était étroit derrière et large devant.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -87,4 +87,4 @@ La Guemara demande : <b>Et voyons lequel d'entre eux a précédé</b> l'autre da
 <b>Au contraire, Rav Kahana a dit : Nous avons ici affaire</b> à un cas de <b>huit coudées exactement,</b> où ses quatre coudées sont adjacentes à ses quatre coudées à elle,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

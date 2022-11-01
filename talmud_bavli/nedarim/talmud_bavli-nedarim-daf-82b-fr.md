@@ -12,4 +12,4 @@
 Le Rav Asi <b>souleve une objection</b> contre Rabbi Yoḥanan à partir de la mishna suivante (<i>Nazir</i> 23a) : En ce qui concerne <b>une femme qui a fait vœu</b> d'être <b>un nazirite, et elle</b> a transgressé son vœu et <b>a bu du vin ou est devenue impure</b> en entrant en contact <b>avec les morts,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

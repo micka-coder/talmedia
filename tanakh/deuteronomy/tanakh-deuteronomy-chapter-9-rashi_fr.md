@@ -60,5 +60,5 @@
 ### passuk 25
 <b>Je me suis prosterné, etc.</b> Ce sont les jours mêmes mentionnés ci-dessus. Ils sont répétés ici parce que l'Écriture rapporte ici le modèle de sa prière, comme il est dit : "Hachem Dieu, ne détruis pas ton peuple, etc.". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

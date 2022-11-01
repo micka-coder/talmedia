@@ -36,4 +36,4 @@ Rabbi Abba le prêtre a demandé plus loin : Rabbi Yoḥanan <b>aurait dû dire 
 <b>Au contraire, Rabbi Abba le prêtre a dit : Je me demande si Reish Lakish</b> a réellement <b>soulevé cette objection originale</b> à l'opinion de Rabbi Yoḥanan, puisqu'elle a une réfutation si claire. La Guemara demande : <b>S'il l'a demandé ? Mais il l'a demandé,</b> comme cela est rapporté dans le récit. <b>Disons plutôt :</b> Je me demande <b>si Rabbi Yoḥanan a accepté</b> cette question et s'est tu parce qu'il n'avait rien à répondre, <b>ou s'il ne l'a pas acceptée</b> mais est néanmoins resté silencieux parce qu'il pensait que la question ne méritait pas de réponse.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

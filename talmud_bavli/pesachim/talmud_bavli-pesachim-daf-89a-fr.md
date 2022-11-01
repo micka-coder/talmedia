@@ -72,4 +72,4 @@ Nous avons appris dans la mishna : Les gens peuvent <b>être inscrits et se reti
 <b>Cela a également été enseigné</b> dans un <i>baraita</i> : Les gens <b>peuvent être inscrits et se retirer</b> d'être inscrits pour un agneau pascal <b>jusqu'à ce qu'il soit abattu. Rabbi Shimon dit : Ils peuvent être inscrits jusqu'à ce qu'il soit abattu et se retirer</b> d'être inscrits <b>jusqu'à ce que</b> le prêtre <b>produise le sang.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

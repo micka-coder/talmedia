@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais</b> selon Rabbi Abba bar Yirmeya, <b>par rapport à 
 La Gemara répond : <b>En fait,</b> le <i>baraita</i> fait référence à un cas <b>où elle a</b> un <b>cycle menstruel fixe, et puisque</b> son mari est rentré de ses voyages et a <b>demandé d'elle</b> qu'ils aient des rapports sexuels, <b>il n'y a pas de plus grand examen que celui-ci. </b> Puisqu'elle a eu le temps de réfléchir à la question pendant qu'il la demandait, elle s'en serait souvenue si elle avait senti le début de son cycle menstruel, alors que dans des circonstances normales, elle n'aurait peut-être pas eu le temps de s'en souvenir. Sur la base de cette explication, <b>Rav Pappa a dit à Rava : Quelle est</b> la <i>halakha</i> en ce qui concerne <b>l'action selon cette <i>baraita</i> ? </b> Peut-être faut-il la réveiller et lui demander si elle est rituellement pure.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

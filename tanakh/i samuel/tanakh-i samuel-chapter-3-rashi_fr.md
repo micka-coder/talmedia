@@ -59,4 +59,4 @@
 <b>Parce qu'Hachem s'est révélé à Chmouel.</b> Parce que l'Écriture a dit plus haut : "La parole d'Hachem était rare en ce temps-là"<sup>14</sup><i class="footnote">Supérieur 3:1.</i> elle dit ici que désormais, pour l'amour de Chmouel, Il s'est révélé à plusieurs reprises.<sup>15</sup><i class="footnote">Non seulement à Chmouel, mais d'autres aussi ont commencé à prophétiser.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

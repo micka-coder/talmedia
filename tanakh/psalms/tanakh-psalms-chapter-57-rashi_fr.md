@@ -31,4 +31,4 @@
 <b>Je réveillerai l'aube</b> Je réveille l'aube ; l'aube ne me réveille pas.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

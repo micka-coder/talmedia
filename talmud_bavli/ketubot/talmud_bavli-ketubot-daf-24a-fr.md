@@ -30,7 +30,7 @@ La Gemara demande : <b>C'est pour dire que Rabbi Yehuda s'inquiète de la collus
 <b>Rava dit :</b> Est-ce à dire que la contradiction entre une déclaration <b>de Rabbi Yéhouda</b> et une autre déclaration <b>de Rabbi Yéhouda est difficile,</b> mais que la contradiction entre une déclaration <b>des Rabbins et</b> une autre déclaration <b>des Rabbins n'est pas difficile ?</b> De toute évidence, la contradiction entre les décisions des Rabbins dans les <i>mishnayot</i> respectives est difficile. <b>Au contraire,</b> la contradiction entre une déclaration <b>de Rabbi Yehuda</b> et une autre déclaration <b>de Rabbi Yehuda n'est pas difficile, car nous avons expliqué</b> ci-dessus que Rabbi Yehuda était indulgent à l'égard des produits dont la dîme était douteuse. La contradiction entre une déclaration <b>des rabbins et</b> une autre déclaration <b>des rabbins n'est</b> également <b>pas difficile.</b> Fondamentalement, les rabbins ne sont pas concernés par la collusion entre les deux parties. Cependant, dans le cas des conducteurs d'ânes, ils sont concernés, <b>comme Rabbi Ḥama bar Ukva a dit</b> dans un autre contexte qu'il fait référence à un cas <b>où l'on a les outils de son métier en main.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Dire non,</b> sa demande n'est pas acceptée.
 
@@ -62,4 +62,4 @@ La Gemara demande : <b>C'est pour dire que Rabbi Yehuda s'inquiète de la collus
 <b>Rava dit :</b> Est-ce à dire que la contradiction entre une déclaration <b>de Rabbi Yéhouda</b> et une autre déclaration <b>de Rabbi Yéhouda est difficile,</b> mais que la contradiction entre une déclaration <b>des Rabbins et</b> une autre déclaration <b>des Rabbins n'est pas difficile ?</b> De toute évidence, la contradiction entre les décisions des Rabbins dans les <i>mishnayot</i> respectives est difficile. <b>Au contraire,</b> la contradiction entre une déclaration <b>de Rabbi Yehuda</b> et une autre déclaration <b>de Rabbi Yehuda n'est pas difficile, car nous avons expliqué</b> ci-dessus que Rabbi Yehuda était indulgent à l'égard des produits dont la dîme était douteuse. La contradiction entre une déclaration <b>des rabbins et</b> une autre déclaration <b>des rabbins n'est</b> également <b>pas difficile.</b> Fondamentalement, les rabbins ne sont pas concernés par la collusion entre les deux parties. Cependant, dans le cas des conducteurs d'ânes, ils sont concernés, <b>comme Rabbi Ḥama bar Ukva a dit</b> dans un autre contexte qu'il fait référence à un cas <b>où l'on a les outils de son métier en main.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

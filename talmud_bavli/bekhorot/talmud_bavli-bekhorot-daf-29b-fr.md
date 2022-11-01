@@ -45,4 +45,4 @@ La mishna enseigne : <b>Mais on</b> peut <b>acheter du fil filé</b> <b>de lui, 
 La Gemara relate : Il y avait <b>un certain boucher qui était soupçonné de vendre</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

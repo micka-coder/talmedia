@@ -51,4 +51,4 @@ La Gemara répond : C'est <b>différent ici</b> en ce qui concerne le levain, <b
 La Gemara demande : <b>Quel est le but de cette</b> période de <b>trente jours</b> qui la rend significative ? La Gemara répond : <b>Comme il a été enseigné</b> dans une <i>baraita</i> : <b>On s'interroge</b> sur <b>et on enseigne les <i>halakhot</i> de Pessa'h trente jours avant Pessa'h. Rabban Shimon ben Gamliel répond :</b> On commence à étudier ces <i>halakhot</i> <b>deux semaines</b> avant la Fête. La Guemara demande : <b>Quelle est la raison de l'opinion</b> du <b>premier <i>tanna</i>,</b> selon laquelle on commence à étudier les <i>halakhot</i> de Pessah trente jours avant la Fête ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

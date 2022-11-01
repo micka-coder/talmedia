@@ -36,4 +36,4 @@ La Guemara soulève une difficulté : La <i>halakha</i> à l'égard des <b>cheve
 La Guemara répond : <b>Lorsque le <i>halakha</i></b> transmis à Moïse depuis le Sinaï <b>vient</b> pour enseigner, ce n'est pas en ce qui concerne une interposition dans les cheveux, qui est effectivement dérivée d'un verset de la Torah. Il vient plutôt enseigner <b>conformément</b> à la déclaration <b>de Rabbi Yitzḥak, comme l'a dit Rabbi Yitzḥak :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

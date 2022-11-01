@@ -64,4 +64,4 @@
 <b>Et traversèrent.</b> Le Jourdain.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

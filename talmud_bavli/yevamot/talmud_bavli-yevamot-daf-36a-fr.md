@@ -48,4 +48,4 @@ Même si cette mishna ne soutient pas l'opinion de Reish Lakish, néanmoins <b>e
 <b>Mais s'il a dit</b> explicitement que la réception de ces portions devait être considérée <b>comme un héritage,</b> alors c'est comme si la division verbale de ses biens qu'<b>il a dite n'était rien,</b> c'est-à-dire qu'elle n'est pas contraignante, puisque ses paroles contredisent directement les <i>halakhot</i> d'héritage telles qu'elles sont écrites dans la Torah. Cependant, s'il a rédigé un testament et que quelque part dans celui-ci <b>il a écrit, que ce soit au début, à la fin ou au milieu,</b> que la réception des portions devait être considérée <b>comme un don,</b> par opposition à un héritage, alors <b>ses paroles sont contraignantes.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

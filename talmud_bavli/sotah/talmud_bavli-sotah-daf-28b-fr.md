@@ -18,4 +18,4 @@ La Guemara commence sa discussion sur la <i>baraita</i> en s'enquérant de l'éc
 <b>Et par ailleurs, d'où Rabbi Akiva tire-t-il</b> qu'il est interdit à une <i>sota</i> de se marier dans la <b>prêtrise ? Et si vous disiez</b> qu'en ce qui concerne son interdiction de se marier dans la <b>prêtrise, un verset n'est pas nécessaire,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ On oblige [l'associé d'une cour à contribuer à] la construction d'une guérit
 ### michna 6
 On ne divise pas une cour jusqu'à ce qu'il y ait quatre coudées pour tel [partenaire] et quatre coudées pour tel [partenaire]. On ne divise pas non plus [un champ] avant qu'il n'y ait neuf kavs pour ce [partenaire] et neuf kavs pour ce [partenaire]. Rabbi Juda dit : "Jusqu'à ce qu'il y ait neuf demi-kavs pour ce [partenaire] et neuf demi-kavs pour ce [partenaire]. On ne divise pas non plus un jardin jusqu'à ce qu'il ait un demi-kav pour ce [partenaire] et un demi-kav pour ce [partenaire]. Rabbi Akiva dit :  Un quart de kav. On ne divisera pas non plus une salle à manger, une tour de guet, un pigeonnier, un manteau, un bain ou un pressoir à olives avant d'en avoir suffisamment pour ce [partenaire] et ce [partenaire]. Telle est la règle générale : tout ce qui peut être divisé tout en étant appelé du même nom, on le divise ; sinon, on ne le divise pas. Quand en est-il ainsi ?  Lorsqu'ils ne souhaitent pas tous deux [diviser le bien]. Cependant, si les deux le souhaitent, ils peuvent le diviser même s'il est plus petit. Et en ce qui concerne les livres sacrés, ils ne peuvent être divisés même si les deux le souhaitent.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

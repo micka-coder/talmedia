@@ -84,4 +84,4 @@ Nous avons appris dans la mishna que <b>Rabbi Eliezer dit :</b> Deux <b>poteaux 
 <b>Venez</b> et <b>entendez</b> une résolution de ce dilemme à partir de ce qui a été relaté dans la <i>Tosefta</i>. Il y eut <b>un incident impliquant Rabbi Eliezer, qui se rendit chez Rabbi Yosei ben Perida, son disciple,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

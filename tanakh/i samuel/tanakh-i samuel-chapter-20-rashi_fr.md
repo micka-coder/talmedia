@@ -136,4 +136,4 @@
 <b>Venez à la paix.</b> Et le serment que nous avons prêté, que <span>ה׳</span> en soit le témoin à jamais.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

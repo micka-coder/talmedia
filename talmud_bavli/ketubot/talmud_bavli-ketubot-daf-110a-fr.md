@@ -63,7 +63,7 @@ La Gemara répond : <b>Cela s'applique uniquement</b> à un cas <b>où</b> le pr
 <strong>MISHNA :</strong> Eretz Yisrael est divisé en <b>trois</b> terres distinctes <b>en ce qui concerne <b>le mariage : La Judée, la Transjordanie et la Galilée.</b> Si un homme épouse une femme dans l'une de ces terres, il ne peut <b>pas la déplacer</b> <b>d'une <b>ville à</b> une autre <b>ville</b> dans une autre de ces terres ou <b>d'une <b>ville à</b> une autre <b>ville,</b> c'est-à-dire qu'il ne peut pas la contraindre à déménager dans une autre terre. <b>Cependant, dans la même terre, on peut la déplacer de</b> une <b>ville à</b> une autre <b>ville</b> ou <b>d'une <b>cité à</b> une autre <b>cité.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui produit un billet à ordre contre un autre, et cet</b> emprunteur <b>produit</b> un acte de vente daté après le billet à ordre qui indique <b>que</b> le prêteur <b>lui a vendu un champ</b> à lui, <b>Admon dit</b> que l'emprunteur <b>peut dire : Si je</b> t'étais vraiment <b>débiteur, tu aurais dû encaisser ton</b> prêt <b>lorsque tu m'as vendu le champ,</b> et tu n'aurais pas eu besoin de le vendre. <b>Et les rabbins disent :</b> Ceci n'est pas une preuve, car il est possible que <b>ce prêteur</b> ait été perspicace, puisqu'il a vendu</b> à l'emprunteur <b>le terrain</b> pour une bonne raison, <b>puisque maintenant il peut prendre</b> le champ comme <b>collatéral de lui</b> en lieu et place du prêt en cours.
 
@@ -128,4 +128,4 @@ La Gemara répond : <b>Cela s'applique uniquement</b> à un cas <b>où</b> le pr
 <strong>MISHNA :</strong> Eretz Yisrael est divisé en <b>trois</b> terres distinctes <b>en ce qui concerne <b>le mariage : La Judée, la Transjordanie et la Galilée.</b> Si un homme épouse une femme dans l'une de ces terres, il ne peut <b>pas la déplacer</b> <b>d'une <b>ville à</b> une autre <b>ville</b> dans une autre de ces terres ou <b>d'une <b>ville à</b> une autre <b>ville,</b> c'est-à-dire qu'il ne peut pas la contraindre à déménager dans une autre terre. <b>Cependant, dans la même terre, on peut la déplacer de</b> une <b>ville à</b> une autre <b>ville</b> ou <b>d'une <b>cité à</b> une autre <b>cité.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

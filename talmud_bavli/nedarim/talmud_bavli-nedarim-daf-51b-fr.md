@@ -27,4 +27,4 @@ La mishna enseigne que <b>celui qui fait vœu</b> que <b><i>tzaḥana</i></b> lu
 <strong>MISHNA :</strong> <b>Quelqu'un qui fait le vœu</b> que le <b>lait</b> lui est interdit <b>est autorisé</b> à prendre part au <b>whey [<i>kum</i>],</b> le liquide qui se sépare du lait lorsqu'il est transformé en fromage. <b>Mais Rabbi Yosei lui interdit</b> de prendre part au petit-lait. Si l'on fait le vœu que <b>le petit lait</b> lui est interdit <b>pour</b> lui, <b>il lui est permis</b> de prendre part au <b>lait. Abba Shaul dit : Celui qui fait vœu</b> que le <b>fromage</b> lui soit interdit <b>pour</b> lui <b>est interdit</b> d'en manger <b>qu'il soit <b>salé ou non salé. Celui qui fait vœu</b> que la <b>viande</b> lui soit interdite <b>pour</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

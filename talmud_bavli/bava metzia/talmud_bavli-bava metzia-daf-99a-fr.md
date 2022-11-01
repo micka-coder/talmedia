@@ -45,4 +45,4 @@ La Guemara explique comment il apparaît que Rabbi Ami est en désaccord avec Ra
 <b>Cette</b> opinion de Rabbi Elazar <b>est également enseignée</b> dans une <i>baraita</i> : <b>De même que</b> les Sages ont <b>institué pour les acheteurs</b> qu'ils peuvent acquérir un objet en le <b>tirant</b>, <b>de même</b> ils ont institué pour les bailees</b> que leurs droits et responsabilités sont initiés par le fait qu'ils <b>tirent</b> l'objet qu'ils ont accepté de sauvegarder. <b>Et tout comme</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

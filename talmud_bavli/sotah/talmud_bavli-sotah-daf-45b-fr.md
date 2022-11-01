@@ -60,4 +60,4 @@ La mishna a enseigné une autre opinion. <b>Rabbi Eliezer ben Ya'akov dit :</b> 
 <b>Les anciens de cette ville</b> se <b>lavaient alors les mains dans l'eau dans</b> le <b>lieu de la rupture du cou de la génisse, et ils récitaient : "Nos mains n'ont pas répandu ce sang, et nos yeux n'ont pas vu"</b> (Deutéronome 21, 7). La mishna explique : <b>Mais est-il entré dans notre esprit que les Sages de la cour sont des répandeurs de sang,</b> qu'ils doivent faire une telle déclaration ? <b>Au contraire,</b> ils entendent déclarer <b>que</b> la victime <b>n'est pas venue nous voir et</b> alors <b>nous l'avons laissé prendre congé sans nourriture, et nous ne l'avons pas vu et</b> alors <b>laissé</b> seul partir <b>sans accompagnement.</b> Ils attestent donc qu'ils ont pris soin de tous ses besoins et ne sont pas responsables de sa mort même indirectement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

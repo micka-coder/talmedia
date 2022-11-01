@@ -39,4 +39,4 @@ La Gemara demande : Pourquoi cette <i>halakha</i> nécessite-t-elle une dérivat
 Rav Ashi <b>dit à</b> Rav Aḥa, fils de Rava : <b>Le verset dit : "Alors ton frère sera déshonoré devant tes yeux"</b> (Deutéronome 25:3). Cela enseigne que <b>lorsque tu frappes, tu frappes sur le dos d'une personne vivante</b>. Une fois qu'elle est morte, on ne l'appelle plus : Ton frère. Rav Aḥa, fils de Rava, a continué à demander à Rav Ashi : <b>Mais</b> en ce qui concerne <b>ce qui est enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Makkot</i> 4:6) : S'ils l'ont <b>évalué</b> comme étant assez fort <b>pour absorber vingt</b> coups de fouet, <b>ils le flagellent seulement</b> avec un nombre de <b>coups de fouet qui peuvent être divisés en trois,</b> car les coups de fouet sont administrés par séries de trois, deux derrière et un devant. <b>Et combien sont-ils ? Dix-huit. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

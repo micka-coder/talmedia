@@ -27,4 +27,4 @@ Rav Sheshet lui <b>dit : Non,</b> ce que cela signifie c'est que <b>il n'acquier
 Rav Amram a demandé : <b>Mais laissons</b> le déposant <b>dire au dépositaire</b> : Si vous avez rendu les objets, <b>que fait votre document en ma possession ?</b> Rav Ḥisda <b>lui a répondu : Et selon votre raisonnement, si</b> le dépositaire lui avait <b>dit</b> que les objets <b>sont retirés</b> de lui <b>dans des circonstances indépendantes de sa volonté, pourrait-il lui dire : Que fait votre document en ma possession ?</b> Puisque cette revendication n'aurait pas pu être énoncée si le dépositaire avait énoncé la revendication alternative, elle ne peut pas non plus être énoncée lorsque le dépositaire prétend que les objets ont été rendus. Le Rav Amram lui <b>dit : </b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara remet en question cette lecture de la mishna : <b>Et selon</b> l'opini
 <b>Et</b> ceci est conforme à la déclaration que <b>Rav Pineḥas</b> a dite <b>au nom de Rava, comme Rav Pineḥas l'a dit au nom de Rava : Toute femme qui fait un vœu, fait son vœu avec le consentement de son mari.</b> Comme elle dépend de son mari pour sa subsistance, elle n'agit pas sans son consentement. Dans ce cas, comme le <i>yavam</i> est chargé de fournir la subsistance au <i>yevama</i>, on suppose que ses vœux sont également faits avec son consentement. C'est pour cette raison qu'il peut annuler ses vœux sans son père. Par conséquent, aucune preuve concluante ne peut être tirée d'ici en ce qui concerne la force de l'acquisition par les fiançailles léviriennes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

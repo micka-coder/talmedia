@@ -36,4 +36,4 @@ La Gemara conteste : <b>Mais que</b> Rava <b>considère également la terre</b> 
 <b>Et Rava dit : En récompense</b> de ce <b>que notre patriarche Abraham a dit</b> au roi de Sodome :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

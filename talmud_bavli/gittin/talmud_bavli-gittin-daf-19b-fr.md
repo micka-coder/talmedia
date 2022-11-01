@@ -63,4 +63,4 @@ La Gemara commente : <b>Et cette déclaration</b> ne s'applique que <b>lorsqu'un
 Il est raconté : Il y avait <b>un certain homme qui entra dans la synagogue, prit un rouleau de Torah,</b> et <b>le donna à sa femme. Et il lui dit : Ceci est ton acte de divorce. Rav Yosef a dit : En quoi</b> est-il <b>nécessaire de s'en inquiéter ? Si</b> vous dites qu'il devrait y avoir une préoccupation <b>à cause de l'eau de galle,</b> qu'il a peut-être écrit un acte de divorce sur l'extérieur du parchemin du rouleau de la Torah avec de l'eau de galle, et que cette écriture est maintenant invisible, <b>l'eau de galle n'est pas</b> permanente lorsqu'elle est appliquée <b>sur de l'eau de galle.</b> Puisque le parchemin du rouleau de la Torah est traité avec de l'eau de galle, il n'est pas possible d'écrire quelque chose avec de l'eau de galle qui restera de façon permanente sur le parchemin lui-même. Par conséquent, il n'y a aucune raison de craindre qu'il ait écrit un acte de divorce sur le parchemin.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

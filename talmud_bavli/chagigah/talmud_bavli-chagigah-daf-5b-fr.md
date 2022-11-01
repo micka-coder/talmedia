@@ -72,4 +72,4 @@ La Gemara relate : <b>Rav Idi, père de Rabbi Ya'akov bar Idi, faisait réguliè
 § La mishna a enseigné : <b>Qui est un mineur</b> qui est exempté de la mitsva de comparution dans le Temple ? <b>Tout</b> enfant <b>qui est incapable de monter sur les épaules de son père</b> et de monter de Jérusalem au Mont du Temple. <b>Rabbi Zeira s'oppose fermement à cela :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara dit : <b>Celui qui voit Ismael en reve,</b> c'est un presage que <b>sa
 La Gemara demande : <b>N'a-t-on pas enseigne</b> dans une <i>baraita</i> : <b>Toutes les especes d'animaux sont de bons</b> presages <b>dans un reve, a l'exception d'un elephant et d'un singe ?</b> La Gemara repond : Ce n'est <b>pas difficile.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

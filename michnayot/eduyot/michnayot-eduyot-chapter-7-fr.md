@@ -26,5 +26,5 @@ Menahem ben Signai a témoigné, concernant le rebord attaché au chaudron d'un 
 ### michna 9
 Rabbi Nehunia ben Gudgada a témoigné au sujet d'une sourde-muette que son père lui avait donnée en mariage, qu'elle pouvait être renvoyée avec un acte de divorce ; et au sujet d'une mineure, fille d'un Israélite qui avait épousé un prêtre, qu'elle pouvait manger de la teroumah, et si elle mourait, son mari héritait d'elle ; Et concernant une poutre volée qui avait été construite dans un palais, afin qu'elle puisse être restaurée par le paiement de sa valeur ; et concernant une offrande pour le péché qui avait été volée, et ceci n'était pas connu de beaucoup, qu'elle causait l'expiation à cause du bien-être de l'autel.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

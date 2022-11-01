@@ -78,4 +78,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> le fait que <b>le stade initial du
 La Guemara demande plus loin : <b>D'où déduit-on</b> que le stade initial du rapport sexuel est considéré comme un acte de rapport sexuel à l'égard de <b>ceux qui sont susceptibles</b> de recevoir une punition pour avoir violé <b>une mitzva positive,</b> par exemple, celui qui a des rapports sexuels avec un converti égyptien ou édomite ? Le verset indique : "Les enfants qui leur sont nés de la troisième génération peuvent entrer dans l'assemblée du Seigneur" (Deutéronome 23, 9). Il s'agit donc d'une mitzva positive selon laquelle seuls les petits-enfants de ces convertis peuvent avoir des relations sexuelles avec un Juif.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

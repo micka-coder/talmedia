@@ -51,4 +51,4 @@ La Gemara demande : <b>Qu'est-ce que</b> Rava <b>nous enseigne ? </b> Est-ce qu'
 § <b>Et Rava dit :</b> Si quelqu'un <b>avait quinze agneaux, il ne peut pas dire : Je vais en séparer dix et les amener dans l'enclos, et j'en prendrai un</b> comme dîme animale, <b>et le reste</b> sera <b>exonéré. Au contraire,</b> il doit <b>les amener tous <b>dans l'enclos, et en retirer dix</b> en les faisant sortir par l'ouverture, <b>et prendre l'un d'eux,</b> c'est-à-dire celui qui sort le dixième, comme dîme animale. <b>Et le reste se combine</b> avec les animaux nés plus tard, pour être soumis à la dîme <b>à un autre</b> moment désigné de <b>récolte. Ceci est également enseigné</b> dans une <i>baraita</i> : Si l'on <b>avait quinze agneaux,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

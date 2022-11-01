@@ -60,4 +60,4 @@ La Guemara reprend la discussion sur celui qui maudit un autre : <b>Au contraire
 La Guemara clarifie sa question : <b>Voici ce qui est difficile pour nous : </b> On peut <b>dire</b> que <b>pour celui qui prononce le nom du Ciel en vain, il lui suffit</b> de recevoir des <b>coups de fouet</b> pour expier son acte, <b>mais</b> dans le cas de <b>celui qui maudit un autre en utilisant le nom de Dieu, puisqu'il a accompli deux</b> actes impropres, d'abord <b>qu'il prononce le nom du Ciel en vain, et</b> ensuite qu'il <b>inflige une douleur à un autre, il ne devrait pas suffire qu'il</b> reçoive des <b>coups de fouet</b> pour expier son acte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

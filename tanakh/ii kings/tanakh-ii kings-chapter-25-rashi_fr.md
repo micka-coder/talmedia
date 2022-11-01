@@ -71,7 +71,7 @@
 <b>Il lui parla avec bonté.</b> Mots de consolation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La neuvième année de son règne.</b> De Tzidkiyohu.</sup></sup><i class="footnote">Ce qui correspond à la dix-septième année de Nevuchadnetzar.-Radak</i>.
 <b>Tours de siège.</b> [Le Targum Yonathan] a rendu כרקום [=ouvrages de siège].
@@ -144,4 +144,4 @@
 <b>Il lui parla avec bonté.</b> Mots de consolation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

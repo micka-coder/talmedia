@@ -54,4 +54,4 @@ La Gemara analyse la <i>baraita</i> à la lumière des avis précédents. <b>Acc
 La Gemara demande : <b>Mais</b> en ce qui concerne <b>la mishna qui enseigne :</b> Dans le cas de <b>quelqu'un qui est mi-esclave mi-affranchi, accordé, selon</b> l'opinion de <b>Rabba, il établit</b> la mishna comme se référant à un cas où l'esclave a été à moitié racheté <b>avec de l'argent, et tout le monde est d'accord</b> que cela est effectif. <b>Cependant, selon</b> l'avis de <b>Rav Yosef, doit-on dire</b> que la mishna <b>est</b> conforme à l'avis du seul <b>Rabbi</b> Yehuda HaNasi <b>et non</b> conforme à l'avis des <b>Rabbins ?</b> Selon l'avis de Rav Yosef, les Rabbins considèrent qu'un esclave ne peut pas être à moitié libéré, qu'il soit libéré via de l'argent ou un acte de manumission. <b>Ravina a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

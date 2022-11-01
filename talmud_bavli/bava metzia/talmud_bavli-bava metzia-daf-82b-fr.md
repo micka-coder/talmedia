@@ -21,4 +21,4 @@ La Gemara analyse ces opinions. Est-ce <b>pour dire</b> que <b>Rabbi Meir soutie
 La Gemara demande : <b>Attendu, un dépositaire non rémunéré prête serment qu'il n'a pas été négligent à l'égard</b> du tonneau, comme l'exige la loi de la Torah, <b>mais pourquoi un dépositaire rémunéré prête-t-il serment ?</b> Même <b>s'il n'a pas été négligent, il est quand même tenu de payer,</b> comme il est tenu de payer pour le vol et la perte. <b>Et même</b> en ce qui concerne <b>un dépositaire non payé,</b> cela <b>fonctionne bien</b> si le tonneau s'est brisé <b>sur un plan incliné [<i>midron</i>],</b> car l'accident s'est produit en raison de la difficulté à le transporter, mais s'il s'est brisé <b>non pas sur un plan incliné</b> mais dans des circonstances différentes, <b>comment peut-il prêter serment</b> qu'il n'a pas été négligent</b> avec lui ? De toute évidence, sa négligence a causé l'accident.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

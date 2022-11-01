@@ -36,4 +36,4 @@ La Gemara continue d'expliquer le verset susmentionné (Lévitique 7:37). Lorsqu
 La Gemara explique : <b>Il s'agit</b> d'une dispute entre <b><i>tanna'im</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

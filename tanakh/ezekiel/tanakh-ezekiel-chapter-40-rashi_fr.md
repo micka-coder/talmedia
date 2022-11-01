@@ -204,4 +204,4 @@
 <b>et des piliers aux poteaux</b> au lieu de Jachin et Boaz (I Rois 7,21) qui étaient dans le Premier Temple.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

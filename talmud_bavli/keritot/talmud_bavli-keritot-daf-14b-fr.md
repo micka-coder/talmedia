@@ -48,4 +48,4 @@ La Guemara demande : <b>Quelle interdiction élargie y a-t-il ici ?</b> La Guema
 <strong>GEMARA:</strong> <b>Rabbi Elazar dit</b> que <b>Rabbi Hoshaya dit : Rabbi Yoḥanan ben Nuri et Sumakhos ont dit la même chose.</b> En ce qui concerne <b>Rabbi Yoḥanan ben Nuri,</b> cela fait référence à <b>ce que nous avons énoncé</b> dans la mishna. En ce qui concerne <b>Sumakhos, quelle est</b> la décision équivalente qu'il a énoncée ? C'est la décision suivante, <b>comme nous l'avons appris</b> dans une mishna (<i>Ḥullin</i> 82a) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

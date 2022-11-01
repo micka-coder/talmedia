@@ -21,4 +21,4 @@ La Gemara répond : La <i>tanna</i> de la mishna <b>enseigne sur</b> seulement <
 <b>Cependant, selon celui qui a dit</b> que <b>dans</b> un cas <b>où la propriété de</b> la <b>personne qui rend</b> l'objet perdu <b>est interdite</b> au propriétaire de l'objet perdu <b>il ne peut le lui rendre</b>, <b>comment explique-t-il</b> la <i>halakha</i> enseignée en ce qui concerne <b>un lieu</b> où l'on prend un paiement ? Puisque la mishna se réfère à un cas où le bien du propriétaire de l'objet perdu est interdit à celui qui rend l'objet perdu, pourquoi est-il interdit au propriétaire de l'objet perdu de garder le paiement ? Il n'est pas interdit pour lui de bénéficier de la propriété de celui qui rend l'objet perdu. La Guemara conclut : En effet, c'est <b>difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

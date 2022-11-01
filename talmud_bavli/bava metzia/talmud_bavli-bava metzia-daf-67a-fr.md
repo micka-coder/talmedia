@@ -48,4 +48,4 @@ Si le prêteur <b>consomme</b> une mesure de produit valant <b>plus</b> que la v
 La Gemara relate : <b>Rav Ashi a effectué une action</b> dans un cas de ce genre même <b>concernant des orphelins mineurs,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

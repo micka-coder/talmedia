@@ -107,5 +107,5 @@ Qu'ils devront réserver à Hachem comme un <i>teroumah</i>-cadeau. <i data-comm
 <b>Vous ne porterez pas de péché à cause de cela, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Hence, si vous ne mettez pas de côté, vous porterez un péché. 
 <b>Et tu ne mourras pas.</b> Par conséquent, si tu profanes, tu mourras. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

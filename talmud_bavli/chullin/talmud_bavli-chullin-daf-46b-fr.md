@@ -36,4 +36,4 @@ La Gemara répond : <b>Vous</b> pouvez <b>même dire</b> que cette affirmation e
 <b>Et Rava dit : Ces deux lobes</b> du poumon <b>qui adhèrent l'un à l'autre</b> par de minces filaments <b>n'ont pas</b> besoin d'être <b>inspectés,</b> puisqu'il est certain que ces adhérences sont apparues suite à une perforation du poumon, rendant l'animal <i>tereifa</i>. La Gemara ajoute : <b>Et nous avons dit</b> cette <i>halakha</i> <b>seulement</b> en ce qui concerne les adhérences <b>défectueuses,</b> où un lobe a adhéré à un lobe non adjacent. <b>Mais</b> en ce qui concerne les adhérences qui sont <b>en ordre, c'est leur</b> mode normal de <b>croissance,</b> et l'animal est casher.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

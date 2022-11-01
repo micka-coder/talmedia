@@ -21,4 +21,4 @@ La Guemara demande : <b>Et qu'as-tu vu</b> qui t'a amené à conclure que "de lu
 La Guemara rejette cette affirmation : <b>Au contraire, c'est <i>teruma</i> que je n'exclurais pas</b> de l'interdiction, <b>car,</b> en ce qui concerne <i>teruma</i>, il existe de nombreux éléments rigoureux représentés par l'acronyme <b><i>mem</i>, <i>ḥet</i>, <i>peh</i>, <i>zayin</i>,</b> qui est un <b>mémotechnique</b> pour ce qui suit : <b><i>Mita</i>:</b> Celui pour qui le <i>teruma</i> est interdit qui en a mangé intentionnellement est passible de <b>mort</b> de la main du Ciel. <b><i>Ḥomesh</i>:</b> Un non-prêtre, pour qui le <i>teruma</i> est interdit, qui a mangé involontairement du <i>teruma</i> est obligé de payer sa valeur au prêtre plus <b>un cinquième</b> de la somme.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

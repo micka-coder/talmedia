@@ -48,4 +48,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution d'un <i>ba
 La Guemara suggère : <Venez</b> et <b>entendez, comme Rav Yehuda l'a dit</b> que <b>Shmuel a dit:</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Eliezer, fils de Rabbi Tzadok. </b> Puisque Shmuel statue que la <b><i>halakha</i></b> est conforme à son avis, on peut en déduire <b>par déduction que</b> les rabbins <b>désapprouvent</b> son avis, car sinon il n'y aurait pas besoin d'une décision de <i>halakha</i>. La Guemara affirme : En effet, <b>concluez-en</b> que cela est correct.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

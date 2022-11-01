@@ -33,4 +33,4 @@ La guemara complète la question : <b>Mais, selon Rav,</b> pourquoi la mishna d�
 <b>Rav Yosef a dit : De quoi s'agit-il ici ? </b> C'est un cas <b>où il n'y a pas de témoins du divorce</b> présents <b>là. Puisque</b> le mari <b>peut dire : Je ne l'ai pas divorcée</b> et elle n'a droit à rien,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

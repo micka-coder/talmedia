@@ -24,4 +24,4 @@ La Guemara demande : <b>Mais n'est-il pas enseigné dans</b> cette <b>dernière 
 § En ce qui concerne <b>la</b> question <b>elle-même, Rabbi Yoḥanan a dit :</b> En ce qui concerne <b>une <i>litra</i> d'oignons que l'on a prélevée de la dîme, et</b> ensuite <b>semée, on prélève la dîme selon la totalité de la</b> récolte. <b>Rabba s'est assis et a énoncé cette <i>halakha</i>. Rav Ḥisda lui a dit : Qui vous écoute, vous et Rabbi Yoḥanan, votre maître ? La partie permise de</b> la <i>litra</i>, <b>où est-elle allée ?</b> La <i>litra</i> originale qu'il a semée était permise en vertu du fait qu'il a payé la dîme, mais pourquoi est-il obligé de payer la dîme de toute la récolte ? La <i>litra</i> originale doit être soustraite de la récolte qui doit être soumise à la dîme. Rabba <b>dit à</b> Rav Ḥisda : <b>N'avons-nous pas appris une <i>halakha</i> correspondante dans une mishna (<i>Shevi'it</i> 6:3) : En ce qui concerne les <b>oignons de sixième année sur lesquels la pluie est tombée</b> pendant l'année sabbatique, <b>et ils ont germé,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

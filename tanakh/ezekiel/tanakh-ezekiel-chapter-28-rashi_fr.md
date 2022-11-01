@@ -83,4 +83,4 @@
 <b>À mon serviteur, à Jacob</b> Comme il a été donné à Jacob, un héritage sans limites (Gen. 28 : 14) : "et tu t'étendras vers l'ouest et l'est, vers le nord et le sud".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

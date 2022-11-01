@@ -30,4 +30,4 @@ Et <b>si vous le souhaitez, dites</b> plutôt que cette déclaration a effective
 <strong>MISHNA : </strong>Les préposés <b>apportent</b> des légumes <b>devant</b> le chef du seder avant le repas, s'il n'y avait pas d'autres légumes sur la table. <b>Il trempe le <i>ḥazeret</i></b> dans l'eau ou le vinaigre, pour goûter quelques aliments <b>avant d'arriver au</b> dessert du <b>pain,</b> c'est-à-dire les herbes amères, que l'on mangeait après la <i>matza</i>. <b>On apportait devant lui <i>matza</i> et</b> <i>ḥazeret</i> <b>et <i>ḥaroset</i>, et</b> au moins <b>deux plats cuisinés</b> en l'honneur de la Fête. Le <i>tanna</i> commente que c'était la pratique, <b>bien que</b> manger du <b><i>ḥaroset</i> ne soit pas une mitzva</b> mais simplement une coutume. <b>Rabbi Eliezer ben Tzadok dit :</b> En réalité, c'est <b>une mitzva</b> de manger <i>ḥaroset</i>. <b>Et dans</b> la période où <b>le Temple</b> s'élevait et où l'on offrait l'agneau pascal, <b>ils ont apporté devant lui le corps de l'agneau pascal.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

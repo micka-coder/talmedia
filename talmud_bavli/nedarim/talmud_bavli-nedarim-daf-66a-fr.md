@@ -45,4 +45,4 @@ La Gemara relate : <b>Et un incident</b> s'est produit <b>en ce qui concerne cel
 <strong>GEMARA:</strong> La Gemara pose une question : A-t-on cité <b>un incident</b> <b>pour contredire</b> ce qui venait d'être enseigné ? Il a d'abord été enseigné que si elle était laide et a été embellie par la suite, le vœu n'est pas dissous, puis la mishna a cité un incident impliquant Rabbi Yishmael où il a effectivement dissous le vœu. La Guemara répond : La mishna <b>est incomplète et voici ce qu'elle enseigne : Rabbi Yishmael dit : Même si elle était laide et est devenue belle, noire et est devenue blanche, petite et est devenue grande,</b> le vœu peut être dissous. <b>Un incident</b> s'est produit <b>concernant celui qui avait fait vœu</b> de ne pas avoir de bénéfice <b>de la fille de sa sœur,</b> car il ne souhaitait pas l'épouser. <b>Et on l'amena dans la maison de Rabbi Yishmael et il l'embellit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

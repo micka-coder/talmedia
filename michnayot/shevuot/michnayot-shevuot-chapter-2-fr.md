@@ -14,5 +14,5 @@ Et quel est le précepte positif concernant une femme en état de menstruation p
 ### michna 5
 Rabbi Eliezer a dit :  "[L'Écriture dit : "Si quelqu'un touche"¦ la carcasse d'un] reptile impur, et qu'il lui est inconnu" (Lévitique 5:2), lorsque le reptile impur lui est inconnu, il est responsable ; mais il n'est pas responsable, lorsque le [fait qu'il soit dans le] Temple lui est inconnu." Rabbi Akiba a dit :  "[L'Écriture dit :] "et qu'on lui cache qu'il est impur" : lorsque son impureté lui est inconnue, il est responsable ; mais il n'est pas responsable, lorsque [le fait qu'il soit dans le] Temple lui est inconnu." Rabbi Ismaël dit :  "[L'Ecriture] dit deux fois : ""et qu'elle lui soit cachée", afin de le rendre responsable à la fois de l'oubli de l'impureté et de l'oubli du Temple".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

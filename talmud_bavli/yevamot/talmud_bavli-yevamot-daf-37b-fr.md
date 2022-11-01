@@ -84,4 +84,4 @@ La Guemara poursuit : <b>Et</b> la déclaration de <b>Rabbi Yirmeya, qui a dit</
 La Guemara rejette cette comparaison : <b>Rabbi Abba</b> aurait pu vous <b>dire : Lorsque j'ai énoncé</b> ma décision, c'était <b>même en accord</b> avec l'opinion de <b>Admon. Admon énonce</b> sa décision <b>uniquement là,</b> dans le cas du chemin perdu, <b>parce que</b> le propriétaire du champ <b>a dit au</b> propriétaire du terrain environnant : <b>Quelle que soit la façon dont vous</b> regardez,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

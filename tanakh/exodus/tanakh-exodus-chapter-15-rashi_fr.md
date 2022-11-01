@@ -121,5 +121,5 @@
 <b>Douze sources d'eau -</b> correspondant aux douze Tribus furent mises à leur disposition.
 <b>Et soixante-dix dattiers.</b> Correspondant aux soixante-dix anciens.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

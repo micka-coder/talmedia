@@ -42,4 +42,4 @@ A propos du verset précité, <b>Rabbi Yoḥanan a dit : Chacun des acacias que 
 § La mishna dit : <b>Et de</b> quelles montagnes <b>allumeront-ils</b> les <b>torches ?</b> Du Mont des Oliviers à Sartava, et de Sartava à Gerofina, et de Gerofina à Ḥavran, et de Ḥavran à Beit Baltin. <b>Et à partir de Beit Baltin</b>, ils n'allumeraient pas de torches dans d'autres endroits préétablis. La Gemara demande : <b>Quel est</b> ce lieu appelé <b>Beit Baltin ? Rav répond :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Il était <b>enseigné</b> dans un <i>baraita</i> : <b>Un jour sur deux</b> il n
 § La mishna déclare : <b>Tous les</b> autres <b>jours, il était</b> d'un or <b>verdâtre</b> mais ce jour-là, il était d'un or rouge. <b>Rav Ḥisda a dit : Il y a sept</b> types <b>d'or</b> mentionnés dans la Bible : <b>L'or, le bon or, l'or d'Ophir</b> (I Rois 10:11), <b>et l'or scintillant</b> (I Rois 10:18), <b>et <i>shaḥut</i> l'or</b> (I Rois 10:17), <b>et l'or fermé</b> (I Rois 10:21), <b>et <i>parvayim</i> l'or</b> (II Chroniques 3:6). La Guemara explique la raison de ces noms : Il existe une distinction entre <b>l'or et le bon or, comme il est écrit</b> dans le verset : <b>"Et l'or de ce pays est bon"</b> (Genèse 2:12), ce qui indique l'existence d'un or de qualité supérieure. <b>L'or d'Ophir</b> est l'or <b>qui vient d'Ophir. L'or scintillant [<i>mufaz</i>]</b> est ainsi nommé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara soulève plusieurs questions par rapport à cette déclaration : Il <
 <b>Un dilemme a été soulevé devant</b> les Sages : <b>Quel est</b> la <i>halakha</i> dans le cas des personnes qui se tiennent aux <b>côtés</b> des prêtres ? Sont-elles incluses dans la bénédiction ? <b>Abba Mar bar Rav Ashi a dit : Venez</b> et <b>entendez</b> une réponse, <b>comme nous l'avons appris</b> dans une mishna (<i>Para</i> 12:2) à propos de la <i>halakha</i> d'aspersion des eaux de purification sur des récipients qui ont contracté une impureté rituelle communiquée par un cadavre : Si on <b>avait l'intention d'asperger</b> l'eau <b>vers l'avant</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

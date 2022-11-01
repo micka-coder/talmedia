@@ -27,4 +27,4 @@ La Guemara propose une preuve différente : <b>Venez</b> et <b>entendez de</b> u
 La Guemara offre une suggestion supplémentaire : <b>Venez</b> et <b>entendez</b> de <b>la teinture</b> utilisée sur les moutons, <b>car la <b>laine teinte</b> se détache en dessous.</b> Cela montre que les cheveux poussent à partir du bas. La Gemara ajoute : <b>Et</b> ce cas de teinture des moutons n'est pas simplement anecdotique, puisqu'il <b>a été enseigné</b> à propos des <i>halakhot</i> de la dîme animale. <b>Et par ailleurs, lorsque les vieillards se teignent la barbe,</b> on constate que la barbe <b>devient blanche</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

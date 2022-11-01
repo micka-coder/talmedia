@@ -96,4 +96,4 @@
 <b>sur tout Israël quarante ans</b> contrairement à David qui régna sept ans à Hébron et trente-trois ans à Jérusalem.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

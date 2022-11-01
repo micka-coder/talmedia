@@ -48,4 +48,4 @@
 <b>La ville de Suse était en confusion.</b> C'est-à-dire les Juifs qui s'y trouvaient.</sup>10</sup><i class="footnote">Les gentils de Suse commencèrent à harceler et à narguer les Juifs en leur disant qu'ils seront tués et que leur argent sera confisqué. (Esther Rabba 7:25) </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

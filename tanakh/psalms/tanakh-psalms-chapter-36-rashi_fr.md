@@ -40,4 +40,4 @@
 <b>C'est là que sont tombés les ouvriers d'iniquité</b> C'est là qu'ils comprendront leur chute, c'est là qu'ils ont été poussés et n'ont pu se relever.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

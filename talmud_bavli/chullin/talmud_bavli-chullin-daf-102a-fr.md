@@ -63,4 +63,4 @@ La Gemara répond : On peut expliquer <b>comme l'a dit Rav Naḥman</b> à propo
 La Guemara soulève une autre contestation de l'affirmation de Rav selon laquelle on ne reçoit des coups de fouet pour avoir mangé un membre coupé d'un animal vivant que si l'on mange une olive-bulot : <b>Venez</b> et <b>entendez</b> une preuve à cet égard, <b>comme le dit Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

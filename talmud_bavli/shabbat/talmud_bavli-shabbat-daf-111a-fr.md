@@ -27,4 +27,4 @@ La Gemara répond : <b>Rava s'est rétracté</b> et a interdit de siroter du vin
 Nous avons appris dans la mishna : <b>La personne qui s'inquiète</b> d'une douleur <b>dans ses reins</b> ne peut pas s'enduire d'huile de rose le Chabbat, et Rabbi Shimon permet de le faire. <b>Rabbi Abba bar Zavda a dit</b> que <b>Rav a dit : </b> La <b><i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Shimon.</b> La Guemara s'en étonne : <b>Est-ce à dire que Rav tient conformément</b> à l'opinion de <b>Rabbi Shimon ? Rav Shimi bar Ḥiyya n'a-t-il pas dit</b> ce qui suit <b>au nom de Rav ?</b> En ce qui concerne <b>cette</b> bouchon de tissu <b>inséré dans le bec <b>d'un tonneau,</b> <b>il s'agit de l'avis de Rav Shimon.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

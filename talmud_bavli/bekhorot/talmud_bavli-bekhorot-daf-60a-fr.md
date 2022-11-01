@@ -48,4 +48,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve provenant 
 <b>Rava dit :</b> Le dixième animal est sanctifié selon Rav Mari <b>parce qu'il</b> a été compté comme le numéro dix <b>dans le comptage persan, car ils appellent le dixième</b> un dans leur langue par le terme <b>un,</b> c'est-à-dire qu'ils ne comptent que par unités de dix, et appellent ces unités : Un. Donc, dans ce cas, il n'y a pas de contradiction entre la désignation et le nombre de l'animal.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

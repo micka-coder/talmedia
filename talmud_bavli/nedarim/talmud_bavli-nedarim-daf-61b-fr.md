@@ -27,4 +27,4 @@ La Gemara demande : <b>Quelle est la raison de la première <i>tanna</i>?</b> La
 § La mishna indique que si l'on dit : <b>Jusqu'à ce que l'été soit passé,</b> alors le vœu reste en vigueur <b>jusqu'à ce que</b> les gens <b>mettent de côté les couteaux</b> utilisés pour couper les figues. Il a été <b>enseigné :</b> Cela signifie <b>jusqu'à ce que la plupart</b> des gens <b>mettent de côté</b> leurs <b>couteaux,</b> même s'il y a encore quelques individus qui ne l'ont pas encore fait.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

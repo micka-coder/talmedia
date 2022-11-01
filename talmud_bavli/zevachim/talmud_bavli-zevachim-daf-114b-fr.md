@@ -39,4 +39,4 @@ La Gemara demande : <b>Si c'est le cas,</b> celui qui a égorgé l'offrande de c
 <b>Rav Huna s'oppose</b> à la déclaration de Rabbi Ḥilkiya selon laquelle une offrande de culpabilité dont le temps n'est pas encore arrivé est apte à être sacrifiée à l'intérieur si elle est abattue non pour elle-même : <b>Et existe-t-il une chose qui n'est pas apte</b> si son action est accomplie <b>pour son propre intérêt, mais qui est apte</b> si son action est accomplie <b>pas pour son intérêt ?</b> La Gemara répond : <b>Et</b> il n'y a <b>pas ? Mais</b> il y a...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

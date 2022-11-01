@@ -72,4 +72,4 @@ A la lumiere de la mention precedente de la benediction des heretiques, la Guema
 La Gemara raconte : <b>L'annee suivante,</b> lorsque Shmuel HaKatan servit comme chef de la priere, <b>il oublia</b> cette benediction,
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

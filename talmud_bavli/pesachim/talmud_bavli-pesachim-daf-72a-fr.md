@@ -45,4 +45,4 @@ La Guemara exprime sa surprise : <b>Et</b> comment pouvez-vous <b>comprendre</b>
 Les sages de <b>l'école de Rabbi Yannai ont dit : La première clause</b> de la <i>baraita</i> fait référence à une situation unique, <b>où le circonciseur <b>premier</b> a involontairement <b>circoncis la veille de Chabbat</b> le bébé qui aurait dû être circoncis le <b>Shabbat.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

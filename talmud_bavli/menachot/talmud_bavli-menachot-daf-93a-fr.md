@@ -51,4 +51,4 @@ Le rite du placement des mains est accompli en s'appuyant <b>sur la tête</b> de
 La Guemara demande : <b>Et selon celui qui a dit</b> que l'exclusion d'un aveugle est dérivée <b>de</b> l'<b>offrande brûlée d'apparition, quelle est la raison</b> pour laquelle <b>il ne dérive pas</b> ceci <b>de</b> l'imposition des mains effectuée par les <b>Vieux de</b> la <b>congrégation ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

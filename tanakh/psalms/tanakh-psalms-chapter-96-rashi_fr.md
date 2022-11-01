@@ -31,4 +31,4 @@
 <b>Tous les arbres de la forêt</b> Tous les dirigeants des nations.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

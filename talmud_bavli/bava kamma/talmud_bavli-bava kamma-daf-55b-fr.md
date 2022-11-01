@@ -60,4 +60,4 @@ La Guemara rejette cette opinion : On ne peut <b>pas</b> nécessairement déduir
 La Guemara clarifie chacun des cas énumérés dans la <i>baraita</i>. <b>Le Maître dit :</b> En ce qui concerne le cas de <b>celui qui enfreint une clôture</b> qui se trouvait <b>devant l'animal d'un autre, quelles sont les circonstances ? Si l'on dit</b> qu'il s'agit de parler <b>d'un mur stable</b> qui ne serait pas tombé tout seul, celui qui l'a violé <b>devrait aussi être responsable selon les lois humaines,</b> au moins pour les dommages causés au mur. <b>Au contraire,</b> voici...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

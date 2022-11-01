@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais</b> voler <b>moins que la valeur d'une <i>peruta</i>
 Il est indiqué dans la <i>baraita</i> que <b>toute mitzva qui a été énoncée à l'égard des descendants de Noé et qui a été répétée au Sinaï a été énoncée</b> à la fois <b>pour ce</b> groupe <b>et pour ce</b> groupe.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

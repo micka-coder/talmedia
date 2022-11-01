@@ -63,4 +63,4 @@ La Guemara rejette cette preuve : Le <i>baraita</i> <b>parle</b> en employant le
 § La source de la <i>halakha</i> selon laquelle <b>il est interdit à une personne en deuil</b> de recevoir <b>une coupe de cheveux</b> provient <b>du fait que <b>Le Miséricordieux déclare aux fils d'Aaron : "Ne laissez pas les cheveux de votre tête se défaire"</b> (Lévitique 10:6). Il leur était interdit de laisser pousser leurs cheveux pendant leur période de deuil suite à la mort de leurs frères, Nadav et Avihu. <b>Par déduction,</b> il s'agit d'enseigner <b>que pour tous ceux</b> autres, c'est-à-dire les non-prêtres, <b>il est interdit</b> de se couper les cheveux pendant la période de deuil.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

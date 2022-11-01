@@ -20,5 +20,5 @@ Comment cela ? S'il y avait une citerne ou une cave dans une maison et qu'un gra
 ### michna 7
 De même qu'ils protègent l'intérieur, ils protègent l'extérieur. Comment cela ?  Dans le cas d'un grand panier soutenu par des chevilles à l'extérieur [d'un ohel], s'il y avait une impureté en dessous, les récipients dans le panier resteraient propres. Mais s'il était [à côté] du mur d'une cour ou d'un jardin, il ne protège pas. Dans le cas d'une poutre placée en travers d'un mur à l'autre, avec un pot suspendu à celle-ci, s'il y avait une impureté en dessous, Rabbi Akiva déclare que les récipients à l'intérieur sont propres, mais les Sages les déclarent impurs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

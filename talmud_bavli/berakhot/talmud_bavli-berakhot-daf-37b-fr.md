@@ -39,4 +39,4 @@ Une autre question concernait les <b><i>terokanin</i>,</b> a propos desquels il 
 Et de meme, <b>Rabbi Hiyya a enseigne : Le pain fait pour <i>kutah</i>;</b> on <b>est exempt de</b> la mitsva de separer <b><i>halla</i>.</b> La Gemara demande : <b>N'a-t-on pas enseigne</b> dans une <i>baraita</i> qu'on <b>est oblige dans</b> la mitsva de separer <b><i>halla</i></b> du pain fait pour <i>kutah</i> ? La Gemara repond : <b>La, comme la raison a ete enseignee</b> que <b>Rabbi Yehuda dit :</b> Il y a une distinction entre les differents types de pain fait pour <i>kutah</i>, car <b>les actions</b> prises dans <b>sa</b> preparation <b>prouvent</b> le but pour lequel <b>il</b> a ete fait. <b>S'il les a faites</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

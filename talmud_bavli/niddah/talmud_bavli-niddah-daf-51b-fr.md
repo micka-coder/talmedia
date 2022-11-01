@@ -60,4 +60,4 @@ La Gemara demande : <b>Mais</b> s'il y a une preuve que <i>kaskeset</i> signifie
 La Guemara demande en outre : <b>Et selon</b> l'avis de <b>Rav Pappa, qui</b> juge que <b>on récite une bénédiction sur l'eau</b> après l'avoir bue, <b>quel</b> cas ce <i>halakha</i> de la mishna sert-il <b>à ajouter ? </b> La Guemara répond que la mishna, qui ne mentionne pas explicitement la nourriture, sert <b>à ajouter des mitzvot.</b> En d'autres termes, on récite une bénédiction avant d'accomplir une mitzva, par ex, le port des franges rituelles ou la prise du <i>lulav</i> et autres, mais on ne récite pas de bénédiction après son accomplissement. La Guemara demande : <b>Et selon</b> les <b>résidents de l'Ouest,</b> Eretz Yisrael, <b>qui récitent</b> la <b>bénédiction suivante après avoir retiré leurs phylactères : Qui nous a sanctifiés par Ses mitzvot et nous a ordonné de garder Ses lois, qu'est-ce que</b> cette <i>halakha</i> dans la mishna <b>vient ajouter ?</b> La Gemara répond : Elle sert <b>à ajouter</b> le cas de...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

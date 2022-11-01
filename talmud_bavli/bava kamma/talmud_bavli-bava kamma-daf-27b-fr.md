@@ -51,4 +51,4 @@ C'est <b>comme il a été dit,</b> que <b>Rav Yehuda dit : Une personne ne peut 
 Le Rav Yehouda <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

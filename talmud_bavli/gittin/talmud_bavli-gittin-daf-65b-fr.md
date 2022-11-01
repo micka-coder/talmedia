@@ -48,4 +48,4 @@ La Guemara répond : <b>Résolvez au moins une</b> de ces expressions, <b>comme 
 <strong>GEMARA : </strong>La Gemara relate : <b>Geneiva était</b> un de ceux qui <b>sortaient avec une chaîne au cou</b> pour être exécutés. <b>Alors qu'il sortait, il a dit</b> aux gens qui se trouvaient là comme legs de sa mort : <b>Donnez quatre cents dinars à Rabbi Avina du vin</b> que je possède dans la ville de <b>Nehar Panya. Rabbi Zeira dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

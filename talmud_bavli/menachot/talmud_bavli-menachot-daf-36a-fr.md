@@ -27,4 +27,4 @@ Il est en outre <b>enseigné</b> dans une <i>baraita</i> : <b>Lorsqu'on revêt</
 <b>Rav Naḥman dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'avis de <b>Rabbi Ya'akov.</b> De même, la Gemara relate que <b>Rav Ḥisda et Rabba bar Rav Huna priaient le soir,</b> c'est-à-dire l'office du soir, <b>avec</b> des phylactères. <b>Certains disent</b> que Rav Naḥman a jugé que la <b><i>halakha</i></b> n'est <b>pas en accord</b> avec l'avis de <b>Rabbi Ya'akov</b> mais en accord avec l'avis de la première <i>tanna</i> que la mitsva des phylactères se termine au coucher du soleil.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

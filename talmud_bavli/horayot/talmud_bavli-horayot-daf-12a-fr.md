@@ -60,4 +60,4 @@ La Guemara demande : <b>Quelle est la raison</b> de l'avis <b>de Rabbi Meir ?</b
 La Gemara demande : <b>Selon quelle</b> opinion <b>vous avez interprété</b> la mishna ? C'est <b>conformément</b> à l'avis des <b>rabbins.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

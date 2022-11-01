@@ -42,4 +42,4 @@ Et <b>dire</b> que dans <b>la dernière clause</b> de la mishna, où Rabbi Eliez
 <b>Au contraire, Rava dit :</b> La résolution citée ci-dessus est rejetée. <b>Pour ce qui est d'un grand</b> tapis, <b>tout le monde s'accorde à dire que</b> s'il a été produit <b>sans désignation,</b> vraisemblablement, il est <b>pour la toiture. Là où ils ne sont pas d'accord, c'est en ce qui concerne une petite</b> natte : <b>Le premier <i>tanna</i> soutient</b> qu'une petite</b> natte produite <b>sans désignation</b> est vraisemblablement <b>pour</b> le but de <b>se coucher</b> dessus, <b>et Rabbi Eliezer soutient</b> que <b>une petite</b> natte produite <b>sans désignation</b> est <b>également</b> vraisemblablement <b>pour la couverture.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

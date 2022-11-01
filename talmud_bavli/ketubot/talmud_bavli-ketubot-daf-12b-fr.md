@@ -36,7 +36,7 @@ La Guemara rejette cette suggestion. <b>Rav Naḥman</b> aurait pu <b>vous dire 
 La Guemara note : <b>En effet,</b> il est <b>aussi raisonnable</b> d'expliquer <b>comme nous l'enseignons, que c'est Rav Naḥman qui a dit</b> sa décision <b>conforme</b> à l'avis de <b>Rabban Gamliel.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Une fois</b> les membres de la cour ont <b>vu que</b> les prêtres <b>abaissaient</b> les veuves, <b>ils ont institué pour elles</b> un contrat de mariage de <b>deux cents</b> dinars, afin qu'elles soient traitées avec plus d'estime. <b>Lorsqu'ils virent que</b> les mariés <b>s'éloignaient</b> d'elles, comme ils le disaient : Au lieu d'épouser une veuve</b> qui est la fille de <b>prêtres</b> et de payer un contrat de mariage de deux cents, <b>allons épouser une vierge israélite</b> pour le même prix. Puisque les hommes n'épouseraient plus les veuves des familles sacerdotales, <b>ils ont rétabli</b> les choses <b>à leur</b> <b>état initial.</b> Ceci indique que la mishna et le <i>baraita</i> traitent de périodes différentes et d'ordonnances différentes.
 
@@ -74,4 +74,4 @@ La Guemara rejette cette suggestion. <b>Rav Naḥman</b> aurait pu <b>vous dire 
 La Guemara note : <b>En effet,</b> il est <b>aussi raisonnable</b> d'expliquer <b>comme nous l'enseignons, que c'est Rav Naḥman qui a dit</b> sa décision <b>conforme</b> à l'avis de <b>Rabban Gamliel.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara répond : <b>Non,</b> Rav Ḥisda fait <b>actuellement</b> référenc
 En ce qui concerne le verset : <b>"Et vous rassemblerez toutes ses dépouilles au milieu de sa place"</b> (Deutéronome 13:17), <b>les Sages ont enseigné:</b> Si la ville <b>n'a pas de place, elle ne devient pas une ville idolâtre,</b> car elle ne remplit pas le critère prescrit par le verset ; c'est <b>l'affirmation de Rabbi Yishmael. Rabbi Akiva dit :</b> Si la ville <b>n'a pas de place, on crée une place pour</b> la ville. La Guemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord ?</b> La Guemara explique : Un <b>Sage,</b> Rabbi Yishmael, <b>soutient que "sa place" indique</b> une place qui existait <b>dès le départ. Et</b> un <b>Sage,</b> Rabbi Akiva, <b>soutient</b> que <b>"son carré"</b> peut <b>également indiquer</b> un carré qui a été créé <b>maintenant.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

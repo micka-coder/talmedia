@@ -75,4 +75,4 @@ Les samaritains <b>sont jugés crédibles pour déclarer : Nous avons enterré l
 <b>Voici le principe</b> régissant la crédibilité des Samaritains : Dans le cas de toute <b>matière</b> de <i>halakha</i> <b>qu'ils sont soupçonnés</b> de ne pas remplir, <b>ils ne sont pas jugés crédibles</b> pour témoigner <b>à ce sujet.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

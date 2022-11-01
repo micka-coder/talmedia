@@ -51,4 +51,4 @@ La Guemara répond : Emendez la déclaration de Ulla et expliquez que <b>c'est</
 La Guemara relate que <b>Rav Yehuda bar Ishtata</b> a un jour <b>apporté un panier de fruits à Rav Natan bar Oshaya</b> dans une ville voisine, à quatre mille coudées de là, la veille de Chabbat. <b>Quand il s'en allait,</b> Rav Natan <b>le laissa jusqu'à ce qu'il descende d'une marche, et</b> alors <b>lui dit : Loge ici</b> ce soir. Il lui permit de commencer son voyage afin qu'il soit considéré comme s'étant mis en route. <b>Le lendemain</b> Rav Yehuda bar Ishtata <b>se leva tôt et rentra</b> chez lui.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

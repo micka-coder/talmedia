@@ -66,4 +66,4 @@ La Gemara dit : <b>Mais que cet</b> acte de divorce, sur le premier côté, celu
 La Gemara répond : C'est un cas <b>où</b> le mot <b>témoin n'est pas écrit.</b> Ce dernier côté ne comprend qu'un nom, ce qui n'est pas suffisant. <b>Et si vous le souhaitez, dites : En fait,</b> c'est un cas <b>où</b> l'expression : Ya'akov, <b>témoin, est écrite</b> sous le second acte de divorce ; <b>mais</b> c'est un cas <b>où nous savons que cette signature n'est pas celle de Ya'akov.</b> A l'évidence, elle fait partie de la signature de Reuven, fils de Ya'akov, et ne peut servir de signature séparée pour le second acte de divorce.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

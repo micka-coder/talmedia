@@ -42,4 +42,4 @@ La Guemara demande : <b>Mais n'est-il pas écrit</b> à propos des offrandes app
 La Gemara conteste : Mais <b>il exige ce</b> verset.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

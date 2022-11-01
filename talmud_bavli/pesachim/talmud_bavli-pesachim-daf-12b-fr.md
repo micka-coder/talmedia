@@ -54,4 +54,4 @@ Celui qui mange <b>à partir</b> de ce point <b>avant</b> n'en tire aucun béné
 <b>Au contraire,</b> émule de l'énoncé précédent : Si <b>un</b> témoin <b>dit</b> l'incident s'est produit <b>avant le lever du soleil et qu'un autre dit</b> qu'il s'est produit <b>pendant le lever du soleil, leur témoignage est nul.</b> La Gemara demande : <b>Cela aussi est évident,</b> car la différence entre ces moments est tout aussi flagrante. La Guemara répond : Il est nécessaire d'enseigner cette <i>halakha</i>, <b>de peur que l'on dise</b> que <b>les deux</b> témoins <b>sont en train de dire une seule chose, et</b> le fait <b>que</b> un témoin <b>dit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

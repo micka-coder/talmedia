@@ -54,4 +54,4 @@ S'il <b>a dit à propos d'un animal non casher et à propos d'un animal souillé
 Par conséquent, <b>Rav Yehuda dit</b> que <b>Rav a dit : La mishna n'est pas en accord avec</b> l'opinion de <b>Rabbi Shimon, car nous avons appris</b> dans une mishna (19b) que <b>Rabbi Shimon dit :</b> Dans le cas de celui qui désigne un animal femelle pour une offrande de culpabilité, puisqu'une femelle est impropre à être sacrifiée comme cette offrande, son statut halakhique est comme celui d'un animal taché dans le sens où il ne devient pas intrinsèquement sacré ; au contraire, seule sa valeur est sacrée. Par conséquent, <b>il peut être vendu sans</b> qu'il ait développé <b>une tare,</b> et une offrande de culpabilité est achetée avec l'argent reçu de sa vente.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

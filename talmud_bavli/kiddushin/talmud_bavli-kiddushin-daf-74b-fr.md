@@ -42,4 +42,4 @@ La Guemara demande : <b>Si oui, quelle est</b> la raison de <b>Rabbi Yehuda</b> 
 <b>Les Sages ont enseigné</b> (<i>Tosefta</i>, <i>Yevamot</i> 8:1) : Un garçon âgé de <b>neuf ans et un jour</b>, dont le rapport sexuel est considéré comme un acte de rapport en ce qui concerne les transgressions sexuelles, qui était <b>un Ammonite ou un Moabite converti,</b> ou <b>un Égyptien ou un Édomite</b> converti, ou <b>un Samaritain, ou un Gibéonite, un <i>ḥalal</i>, ou un <i>mamzer</i>,</b> et <b>qui a eu des rapports sexuels avec la fille d'un prêtre, ou la fille d'un Lévite, ou une femme israélite, l'a</b> ainsi <b>disqualifiée du sacerdoce. Rabbi Yosei dit : Quiconque dont la progéniture est inapte</b> à épouser un prêtre <b>disqualifie</b> une femme avec laquelle il a des rapports sexuels d'épouser un prêtre ; <b>et quiconque dont la progéniture n'est pas inapte ne la disqualifie pas</b>. <b>Rabban Shimon ben Gamliel dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

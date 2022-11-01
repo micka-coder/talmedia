@@ -123,5 +123,5 @@
 ### passuk 34
 <b>Eisov méprisé.</b> L'Écriture témoigne de sa méchanceté, qu'il était méprisant envers le Service de Dieu. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

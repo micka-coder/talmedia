@@ -66,4 +66,4 @@ La Guemara cite une série de déclarations discutant d'un animal qui ressemble 
 <b>Rabbi Tarfon dit : Le prêtre choisit le meilleur</b> des deux. <b>Rabbi Akiva dit : Ils évaluent</b> la valeur des agneaux <b>entre eux</b> et le prêtre prend le plus maigre des deux, comme cela sera expliqué dans la Guemara. <b>Et</b> en ce qui concerne <b>le deuxième agneau</b> qui reste en possession du propriétaire, puisqu'il ne peut pas en prendre part en raison de son statut incertain de premier-né, il <b>doit paître jusqu'à ce qu'il soit taché,</b> auquel moment il peut l'abattre et le manger.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ Rabbi Abba a répondu : <b>Si c'est le cas,</b> cette déclaration <b>de Rav,</b
 La Guemara raconte : <b>Lorsque Rabbi Abba est monté</b> de Babylone en Eretz Yisraël, <b>il a trouvé Rabbi Zeira assis et disant : Rav Huna a dit</b> que <b>Rav a dit</b> que <b>une luxation du fémur chez un oiseau</b> le rend <b>un <i>tereifa</i>.</b> Rabbi Abba lui <b>dit :</b> Par <b>la vie du Maître, depuis le jour où le Maître est monté jusqu'ici,</b> Eretz Yisrael,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

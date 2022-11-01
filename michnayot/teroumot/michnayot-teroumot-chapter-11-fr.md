@@ -29,5 +29,5 @@ Les vêches de teroumah peuvent être données au bétail, aux bêtes sauvages o
 ### michna 10
 On peut brûler de l'huile de teroumah qui doit être brûlée dans les synagogues, les maisons d'étude, les allées sombres, et pour les malades avec la permission du prêtre. Si la fille d'un Israélite marié à un prêtre se rend régulièrement dans la maison de son père, celui-ci peut brûler [cette huile] avec sa permission. On peut également brûler [une telle huile] dans une maison de fête mais pas dans une maison de deuil, ce sont les paroles de Rabbi Juda. Rabbi Yose dit : dans une maison de deuil, mais pas dans une maison de célébration. Rabbi Meïr l'interdit dans les deux endroits. Mais Rabbi Shimon l'autorise dans les deux cas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

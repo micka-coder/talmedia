@@ -51,4 +51,4 @@ La Guemara revient sur des versets de l'Ecclésiaste qui concernent la mort et l
 La Guemara relate une histoire : Lorsque <b>Rabbi Ḥanina' sa fille mourut, il ne la pleura pas. Sa femme lui dit : As-tu</b> simplement <b>laissé une poule hors de ta maison,</b> que tu ne montres aucun signe de chagrin ? <b>Il lui a répondu :</b> Si je pleure, je souffrirai <b>deux fois,</b> du <b>deuil et</b> de la <b>cécité.</b> La Gemara explique : <b>Il a tenu conformément à l'énoncé</b> que <b>Rabbi Yoḥanan a dit au nom de Rabbi Yosei ben Ketzarta : Il existe six</b> types de <b>larmes, dont trois</b> sont bonnes</b> pour les yeux <b>et trois</b> sont mauvaises.</b> Les larmes qui proviennent <b>de la fumée, et des pleurs</b> de chagrin,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

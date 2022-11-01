@@ -60,4 +60,4 @@ Mais si <b>deux</b> témoins <b>se sont présentés</b> le mardi <b>et ont dit :
 § La mishna enseigne que <b>Rabbi Yehuda dit</b> que si un seul ensemble de témoins a rendu de nombreux ensembles de témoins, qui ont tous témoigné qu'une personne en a tué une autre, des témoins conspirateurs, <b>cette</b> situation <b>est une conspiration,</b> et seul le premier ensemble de témoins conspirateurs est exécuté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

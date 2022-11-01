@@ -27,4 +27,4 @@ La mishna clarifie : <b>Comment</b> le violeur <b>boit-il de son récipient ? M�
 <strong>GEMARA:</strong> La mishna a enseigné qu'un violeur paie pour la douleur qu'il a causée. La Gemara demande : <b>Pour quelle douleur</b> est-il obligé de payer ? <b>Le père de Shmuel a répondu :</b> C'est pour la <b>douleur qu'il a causée</b> quand <b>il l'a plaquée au sol</b> en la violant. <b>Rabbi Zeira</b> s'oppose fortement à cela : Mais si</b> ce que vous dites est <b>ainsi,</b> si <b>il l'a plaquée sur la soie, de même</b> le <i>halakha</i> <b>que</b> il est <b>exempté</b> du paiement de la douleur ? <b>Et si vous dites en effet</b> que c'est <b>ainsi, mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Yehuda dit au nom de Rabbi Shimon : Un violeur ne paie pas</b> la <b>douleur due</b> au fait...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

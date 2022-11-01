@@ -26,5 +26,5 @@ Si un garçon âgé de neuf ans et un jour a eu des rapports sexuels avec sa yev
 ### michna 9
 Si un garçon âgé de neuf ans et un jour a eu des rapports sexuels avec sa belle-sœur, et qu'après sa majorité, il a épousé une autre femme puis est décédé, s'il n'avait pas connu la première femme après sa majorité, la première doit avoir la halitzah mais ne peut pas être prise en yibbum, tandis que la seconde peut avoir soit la halitzah soit le yibbum. Rabbi Shimon dit : [le yavam] peut faire yibbum avec celle qu'il veut, et il doit faire halitzah pour l'autre [femme]. La même loi s'applique] qu'il soit âgé de neuf ans et un jour, ou qu'il soit âgé de vingt ans mais n'ait pas encore produit deux poils pubiens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

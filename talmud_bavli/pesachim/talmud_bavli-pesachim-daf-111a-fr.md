@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais</b> qu'en est-il de <b>cette</b> qui <b>a été ense
 La Guemara ajoute : <b>Et</b> en ce qui concerne <b>l'ombre de la lune, nous avons dit</b> qu'il est dangereux d'y dormir <b>seulement</b> au début du mois lorsque la lune brille à l'est, et donc que son ombre est <b>à l'ouest. En revanche,</b> à la fin du mois, lorsque la lune brille à l'ouest et que son ombre est <b>à l'est, on n'a pas</b> de problème <b>avec elle.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

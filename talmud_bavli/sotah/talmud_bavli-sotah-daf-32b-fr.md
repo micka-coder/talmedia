@@ -75,4 +75,4 @@ La Guemara demande : <b>Mais</b> selon <b>Rabbi</b> Yehuda HaNasi <b>aussi, le m
 La Guemara demande : <b>Devons-nous dire que Rabbi</b> Yehuda HaNasi <b>tient</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

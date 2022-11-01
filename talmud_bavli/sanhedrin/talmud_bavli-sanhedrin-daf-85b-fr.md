@@ -72,4 +72,4 @@ La Guemara demande à propos des dilemmes soulevés par Rabbi Yirmeya : <b>Mais 
 <b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> qu'il est écrit : <b>"Si un homme est trouvé en train d'enlever une personne de ses frères"</b>, d'où il résulte que <b>qu'il enlève un homme, ou</b> qu'il <b>enlève une femme, ou</b> qu'il enlève <b>un converti, ou</b> qu'il enlève <b>un esclave émancipé ou un mineur,</b> il est <b>responsable. </b> S'il a <b>enlevé</b> un autre <b>mais ne l'a pas vendu,</b> ou s'il l'a <b>vendu mais qu'il reste dans son domaine,</b> le ravisseur est <b>exempté.</b> S'il l'a <b>vendu au</b> <b>père de</b> la personne enlevée, <b>ou à son frère, ou à un de</b> ses autres <b>parents,</b> le ravisseur est <b>responsable. Celui qui enlève des esclaves est exempt.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

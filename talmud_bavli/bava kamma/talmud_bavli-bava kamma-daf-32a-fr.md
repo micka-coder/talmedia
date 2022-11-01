@@ -66,4 +66,4 @@ La Gemara explique : <b>D'où déduit-on</b> que la mishna fait référence au c
 La Gemara répond : C'est <b>comme</b> ce <b>que Rabbi Ḥanina</b> dirait, <b>comme Rabbi Ḥanina dirait</b> au crépuscule de la veille de Chabbat :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara conteste cette réponse : <b>Mais</b> il y a l'exemple des documents 
 La Gemara soulève une difficulté : <b>Mais du fait</b> qu'il enseigne dans la dernière clause</b> de cette mishna que <b>Rabbi Shimon dit : Même ceux-ci,</b> les actes de divorce et les actes de manumission, <b>sont valides, et Rabbi Zeira a dit : Rabbi Shimon a accepté l'opinion de Rabbi Elazar, qui a dit</b> que les <b>témoins de la transmission</b> de l'acte de divorce <b>effectuent</b> le divorce, on peut apprendre <b>par déduction que le premier <i>tanna</i></b> ne tient <b>pas</b> conformément à l'opinion de Rabbi Elazar. Au contraire, il soutient que les témoins qui signent effectuent un divorce. Pourtant, même dans ce cas, ce <i>tanna</i> a énuméré les cas où les actes de divorce des tribunaux gentils sont invalidés, malgré le fait qu'ils sont invalides par la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

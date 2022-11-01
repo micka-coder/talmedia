@@ -45,7 +45,7 @@ La Guemara explique la raison de la décision de Rabbi Akiva : <b>Quelle est la 
 § La Guemara revient à la mishna, qui traite du cas de <b>quelqu'un qui est parti à l'étranger</b> et dont la femme réclame la subsistance. <b>Il a été dit</b> que les <i>amora'im</i> ont débattu de la question suivante . <b>Rav a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Concernant les vases de service du Temple, quelle est</b> la <i>halakha</i> par rapport à la possibilité <b>qu'ils soient préparés en</b> utilisant l'argent <b>consacré à l'entretien du Temple ? </b> La Guemara explique les deux côtés du dilemme : <b>Sont-ils des besoins de l'autel, et</b> donc ils <b>viennent de</b> l'argent <b>consacré à l'entretien du Temple, ou sont-ils des besoins d'offrandes, et</b> donc <b>ils ont été préparés à partir de la collecte de la</b> chambre du trésor du Temple ?</b> Rav <b>lui répondit : Elles sont préparées uniquement à partir de la collecte de la chambre.</b>
 
@@ -92,4 +92,4 @@ La Guemara explique la raison de la décision de Rabbi Akiva : <b>Quelle est la 
 § La Guemara revient à la mishna, qui traite du cas de <b>quelqu'un qui est parti à l'étranger</b> et dont la femme réclame la subsistance. <b>Il a été dit</b> que les <i>amora'im</i> ont débattu de la question suivante . <b>Rav a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

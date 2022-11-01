@@ -36,4 +36,4 @@ La mishna enseigne que <b>Rabbi Tarfon et Rabbi Akiva disent : Si nous avions é
 La Guemara demande : <b>A l'égard de celui qui a des rapports sexuels avec un parent interdit, comment auraient-ils agi</b> pour épargner l'accusé de l'exécution ? <b>Abaye et Rava disent tous deux</b> qu'ils auraient demandé aux témoins : <b>Avez-vous vu</b> le rapport sexuel, <b>comme un pinceau</b> entrant <b>dans un tube ?</b> Comme les témoins assistent rarement à l'acte d'aussi près, on pourrait prétendre que le témoignage est incomplet. La Guemara demande : <b>Et</b> concernant <b>les rabbins,</b> qui ne sont pas d'accord avec Rabbi Tarfon et Rabbi Akiva, <b>comment auraient-ils</b> <b>jugé</b> ce cas ? La Guemara répond : Ils tiennent <b>conformément</b> à la déclaration de <b>Shmuel, car Shmuel dit : Dans</b> les cas impliquant des <b>adultères</b> on peut témoigner et les condamner <b>à partir du moment où ils apparaîtront comme adultères,</b> sans qu'il ait besoin d'être témoin de l'acte dans les détails graphiques.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

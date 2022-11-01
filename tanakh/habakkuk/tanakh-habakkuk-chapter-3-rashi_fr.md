@@ -98,4 +98,4 @@
 <b>Avec mes mélodies</b> Il s'agit de l'expression d'une mélodie vocale pour élever et abaisser, <i>orgenedors</i> en ancien français. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

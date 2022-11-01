@@ -87,4 +87,4 @@
 <b>Silence toute la terre devant Lui</b> הַס est une expression du silence et du silence de la destruction. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

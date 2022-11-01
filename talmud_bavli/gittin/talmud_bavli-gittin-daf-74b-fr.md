@@ -57,4 +57,4 @@ La Gemara demande : <b>Et</b> comment pouvez-vous <b>le comprendre</b> de cette 
 Comment Rava prouve-t-il cela ? <b>D'après</b> le fait <b>que</b> il <b>a été nécessaire pour Hillel d'instituer</b> une ordonnance unique dans le cas des maisons des villes fortifiées selon laquelle <b>donner contre la volonté</b> du receveur <b>est</b> considéré comme <b>un don.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

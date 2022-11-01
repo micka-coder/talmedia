@@ -42,4 +42,4 @@ Auparavant, la Guemara supposait que Rav Huna discutait de la possibilité que l
 Rabba <b>lui a dit : Il</b> n'est <b>pas difficile à mon</b> avis <b>et il ne pose pas</b> <b>une difficulté à</b> l'avis de <b>Rav Ḥisda. Il</b> n'est <b>pas difficile à mon</b> avis, car je tiens que <b>la fin de</b> son rite sacrificiel <b>est comme son début.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

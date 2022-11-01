@@ -112,7 +112,7 @@
 <b>Mon berger</b> Mon roi.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Et maintenant, écoute</b> pour revenir à ma Torah, Jacob mon serviteur.
 
@@ -226,4 +226,4 @@
 <b>Mon berger</b> Mon roi.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

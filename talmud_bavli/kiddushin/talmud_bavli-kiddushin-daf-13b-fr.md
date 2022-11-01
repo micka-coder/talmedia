@@ -51,4 +51,4 @@ La Guemara explique : La <i>halakha</i> en ce qui concerne ces animaux est <b>qu
 § La mishna enseigne : <b>Et une <i>yevama</i></b> ne peut être <b>acquise</b> par le frère du mari décédé, le <i>yavam</i>, que <b>par des rapports sexuels.</b> Et elle s'acquiert par <i>ḥalitza</i> ou par la mort du <i>yavam</i>. La Guemara demande : <b>D'où déduit-on</b> qu'elle peut être acquise <b>par des rapports sexuels ? Le verset indique :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

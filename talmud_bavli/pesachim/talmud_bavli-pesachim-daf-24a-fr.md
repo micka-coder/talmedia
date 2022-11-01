@@ -48,4 +48,4 @@ Et si vous dites : <b>De peur</b> qu'on dise que le verset indique que <b>comme 
 De même, si quelqu'un a mangé <b>une fourmi, il est fouetté</b> de <b>cinq</b> séries de coups de fouet, deux séries pour les interdictions précédemment mentionnées de manger un animal rampant, une troisième basée sur le verset : "Tout reptile qui grouille sur la terre est une chose détestable ; on ne le mangera pas" (Lévitique 11:41), et une quatrième basée sur le verset : " Vous ne mangerez pas tous les reptiles qui pullulent sur la terre, car ils sont détestables " (Lévitique 11:42). Une cinquième interdiction est énoncée dans le verset : "Vous ne vous rendrez pas impurs par tous les reptiles qui pullulent sur la terre" (Lévitique 11:44).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -26,5 +26,5 @@ Si une seah de teroumah est tombée dans une centaine [de hullin], et avant qu'i
 ### michna 9
 Si une seah de teroumah est tombée dans cent [de hullin], et qu'elles ont été broyées ensemble et réduites en volume, tout comme le hullin a été réduit, la teroumah a également été réduite, et c'est permis. Si une seah de teroumah est tombée dans moins de cent [de hullin] et qu'elles ont été broyées ensemble et ont augmenté en volume, de la même façon que le hullin a augmenté, la teroumah a augmenté aussi, et c'est interdit. Si l'on sait que les grains de hullin étaient meilleurs que la teroumah, c'est permis. Si une seah de teroumah est tombée dans moins de cent [grains de hullin], et que plus de hullin est tombé par la suite, si c'est accidentel, c'est permis, mais si c'est intentionnel, c'est interdit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

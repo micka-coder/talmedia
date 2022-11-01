@@ -63,4 +63,4 @@ On a rapporté que <b>Rav, et Rabbi Ḥanina, et Rabbi Yoḥanan, et Rav Ḥaviv
 <b>Rav Pappa a dit : Et</b> les membres <b>de la maison de l'Exilarque ont été appréhendés</b> et punis <b>pour</b> les péchés du <b>monde entier.</b> Comme leur autorité s'étend à l'ensemble du monde juif, il est entre leurs mains de veiller à ce que personne ne commette de transgression. <b>Comme</b> indiqué par <b>ce que Rabbi Ḥanina a dit : Quel est</b> le sens de <b>ce qui est écrit : "Le Seigneur entrera en jugement avec les anciens de son peuple et ses princes</b>, en disant : C'est vous qui avez mangé la vigne, le vol des pauvres est dans vos maisons" (Isaïe 3.14) ? La question se pose : <b>Si les princes ont péché</b> en commettant des vols,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

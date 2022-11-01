@@ -18,4 +18,4 @@ Bien qu'un enfant soit généralement circoncis à huit jours, comme l'indique l
 Ce sont les lambeaux de chair qui invalident la circoncision s'ils ne sont pas coupés. L'élément essentiel de la circoncision est l'ablation de la chair qui recouvre la majeure partie de la couronne, et un enfant qui n'a pas été circoncis de cette manière est considéré comme non circoncis, et il ne mange pas de teruma. Et s'il a été circoncis correctement mais qu'il était charnu, et qu'il semble qu'il n'a pas été circoncis correctement, le circonciseur doit le corriger en circoncisant plus que nécessaire, pour éviter l'apparence de transgression, afin qu'il ne paraisse pas incirconcis. Si quelqu'un s'est circoncis mais n'a pas découvert la chair à l'endroit de la circoncision en repliant la fine membrane sous le prépuce, c'est comme s'il n'avait pas été circoncis.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

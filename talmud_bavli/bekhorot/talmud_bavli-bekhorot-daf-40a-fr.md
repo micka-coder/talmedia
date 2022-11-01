@@ -72,4 +72,4 @@ La mishna enseigne : <b>Ou que la plus grande partie</b> du segment de <b>sa lan
 <strong>GEMARA:</strong> La Gemara demande : <b>Quel</b> est le jugement <b>enseigné</b> dans la mishna précédente <b>que</b> le <i>tanna</i> évoque lorsqu'il <b>enseigne</b> ici : <b>Et</b> il y a eu <b>un incident?</b> La Gemara répond : <b>Puisque nous avons appris</b> dans la liste des défauts de la mishna précédente le cas où <b>sa bouche est semblable à</b> celle <b>d'un porc, et que les rabbins sont en désaccord avec Rabbi</b> Ila dans ce cas, <b>nous disons</b> ici que <b>lorsque les rabbins sont en désaccord avec Rabbi</b> Ila, c'est uniquement dans un cas <b>où sa lèvre supérieure chevauche la lèvre inférieure</b>. <b>Mais</b> dans un cas <b>où la mâchoire inférieure</b> dépasse la mâchoire supérieure</b>, tout le monde s'accorde à dire que <b>c'est une tare.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

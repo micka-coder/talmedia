@@ -32,5 +32,5 @@ Si une personne qui est entrée en contact avec une personne ayant contracté un
 ### michna 11
 Si le lait [d'une femme impure] s'écoule des seins d'une femme et tombe dans l'espace d'air d'un four, le four devient impur, car un liquide transmet l'impureté, qu'on le veuille ou non. Si elle le balayait et qu'une épine la piquait et qu'elle saignait, ou si elle se brûlait et mettait son doigt dans sa bouche, le four devient impur.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

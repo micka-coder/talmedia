@@ -57,4 +57,4 @@ La Guemara répond : <b>Là,</b> le <i>baraita</i> fait référence <b>au vin cu
 La Guemara répond : Ceci n'est <b>pas difficile. Cette</b> décision, qui stipule que les oignons ne peuvent pas être utilisés pour un <i>eirouv</i>, fait référence <b>aux</b> <b>feuilles d'oignon,</b> qui sont nuisibles ; alors que <b>cette</b> décision, qui stipule que les oignons peuvent être utilisés pour un <i>eirouv</i>, fait référence <b>aux</b> <b>bulbes d'oignon,</b> qui sont comestibles. <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Si quelqu'un <b>mangeait un oignon et mourait tôt</b> le lendemain matin, <b>on n'a pas besoin de demander de quoi il est mort,</b> car sa mort a certainement été causée par l'oignon. <b>Et Shmuel dit : Ils ont seulement enseigné</b> ceci <b>en ce qui concerne les feuilles ; mais en ce qui concerne</b> les <b>bulbes d'oignon, nous n'avons aucun</b> problème <b>avec cela. Et même en ce qui concerne les feuilles, nous avons seulement déclaré</b> ce souci.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

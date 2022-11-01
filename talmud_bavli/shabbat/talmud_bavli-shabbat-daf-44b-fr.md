@@ -9,4 +9,4 @@ Il explique son objection : <b>Et de même qu'une lampe, qui</b> est <b>faite po
 Par déduction : <b>S'il n'y a pas d'argent dessus,</b> on est <b>permis</b> de déplacer le chariot <b>même s'il y avait</b> de l'argent <b>sur lui au crépuscule.</b> Dans cette mishna, l'interdiction dépend exclusivement de la présence ou non d'argent sur le chariot à ce moment-là. La Guemara répond : <b>Cette</b> mishna <b>est</b> conforme à l'avis de <b>Rabbi Shimon, qui n'est pas d'avis</b> qu'il y a une interdiction de <b>mise de côté. Et Rav se tient en accord avec</b> l'opinion de <b>Rabbi Yehuda.</b> Puisque selon Rabbi Yehuda il y a une interdiction de mise en jachère, le chariot est devenu mis en jachère pendant la période du crépuscule et reste interdit pendant tout le Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

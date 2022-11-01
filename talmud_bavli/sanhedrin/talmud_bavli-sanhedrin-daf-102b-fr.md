@@ -60,4 +60,4 @@ La Guemara procède à l'examen du troisième roi énuméré dans la mishna. On 
 § La mishna enseigne que <b>Rabbi Yehuda dit : Manassé a une part dans le Monde-à-Venir, comme il est dit : "Il le pria et Il fut imploré de lui,</b> il exauça sa supplique et le ramena à Jérusalem dans son royaume" (II Chroniques 33, 13). <b>Rabbi Yoḥanan dit : Et tous deux,</b> Rabbi Yehouda et les rabbins, qui ne sont pas d'accord pour savoir si Manassé a une part dans le Monde à venir, ont <b>interprété un</b> et même <b>verset, comme il est dit : "Et j'en ferai un objet d'horreur pour tous les royaumes de la terre, à cause de Manassé, fils d'Ezéchias"</b> (Jérémie 15:4). Un <b>Sage,</b> Rabbi Yehuda, <b>soutient</b> que <b>"à cause de Manassé"</b> signifie que le peuple juif sera jugé sévèrement, <b>comme</b> finalement, un aussi méchant que Manassé <b>se repentait, et ils n'ont pas fait</b> ainsi. <b>Et</b> un <b>Sage,</b> les rabbins, <b>soutiennent</b> que...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

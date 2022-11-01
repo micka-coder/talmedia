@@ -42,4 +42,4 @@ La Guemara clarifie : <b>D'où vient</b> qu'il est établi <b>que nous traitons<
 <b>Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit : Il s'agit ici d'un aliment non sacré</b> <b>que l'on a acheté</b> à Jérusalem <b>avec</b> de l'argent de second</b> titre,</b> qui prend le statut de produit de second titre. Ce produit, à son tour, assume une impureté de troisième degré par le contact avec des mains qui ont une impureté de deuxième degré. <b>Et</b> cette mishna n'est <b>pas en accord</b> avec l'opinion de <b>Rabbi Meir, comme nous l'avons appris</b> dans une mishna (<i>Para</i> 11:5) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Le prêtre] ne doit pas entrer dans sa propre maison pour l'isoler, ni se tenir 
 ### michna 7
 Il revient à la fin de la semaine et inspecte le nega. S'il est revenu, "il démolira la maison, ses pierres, son bois et tout le mortier de la maison, et il les emportera hors de la ville dans un lieu impur" (Lévitique 14:45). Un épandage qui jouxte [le néga initial] est efficace, même s'il est petit ; celui qui est éloigné ne doit pas être inférieur à la taille d'un haricot fendu. Et un nega qui revient dans les maisons ne doit pas être inférieur à la taille de deux haricots cassés.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

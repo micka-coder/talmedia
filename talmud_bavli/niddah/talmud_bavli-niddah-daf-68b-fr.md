@@ -66,4 +66,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei et Rabbi Shim
 § <b>Un dilemme a été soulevé devant</b> les Sages : En ce qui concerne <b>un <i>zav</i> et un <i>zava</i> qui se sont examinés</b> le <b>premier jour</b> de leurs sept jours de pureté et se sont trouvés purs, <b>et</b> ils se sont examinés à nouveau le <b>huitième jour et se sont trouvés</b> purs, mais</b> ils ne se sont pas <b>examinés</b> les <b>jours restants,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

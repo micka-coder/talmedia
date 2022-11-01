@@ -32,5 +32,5 @@ S'il se rase après l'un des sacrifices et que le sacrifice s'avère être inval
 ### michna 11
 Si [un nazirite] au nom duquel une sorte de sang a été aspergée devient impur, Rabbi Eliezer dit : tout est annulé. Mais les Sages disent : il doit apporter ses sacrifices restants après purification. Ils lui dirent : il arriva que Miriam la Tadmorite fit asperger une sorte de sang en son nom, et on vint lui dire que sa fille était dangereusement malade. Elle y alla et la trouva morte et les sages lui dirent d'offrir les sacrifices qui lui restaient après la purification.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

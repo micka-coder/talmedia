@@ -13,4 +13,4 @@
 שָׁמַע  est un nom, comme  שֶׁמַע, avec un "ségol", mais à cause du "ethnactha" [qui dénote une pause], il est voyellé avec un long "kamatz", et donc, son accent est au-dessus, sous le "shin".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

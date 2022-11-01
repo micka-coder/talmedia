@@ -24,4 +24,4 @@ La mishna décrit la structure générale de la catacombe : <b>Et il</b> doit <b
 La Guemara conteste cette explication : <b>Mais Rabbi Yoḥanan ne dit-il pas</b> à propos de l'enterrement des personnes en position verticale :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

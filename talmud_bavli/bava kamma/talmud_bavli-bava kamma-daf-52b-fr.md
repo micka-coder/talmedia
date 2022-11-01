@@ -45,4 +45,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve différente d'u
 § La mishna enseigne : Si un homme creusait ou élargissait une fosse, et qu'un bœuf passant par là <b>est tombé en avant</b> dans la fosse, effrayé par le bruit du creusement, il est responsable. S'il est tombé en arrière dans la fosse à cause du bruit du creusement, il est exonéré. <b>Rav dit :</b> Le terme <b>avant</b> signifie <b>littéralement avant,</b> et le terme <b>arrière</b> signifie <b>littéralement arrière,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

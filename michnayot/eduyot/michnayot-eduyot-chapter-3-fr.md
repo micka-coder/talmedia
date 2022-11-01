@@ -35,5 +35,5 @@ Il a également déclaré trois décisions de caractère indulgent : On peut bal
 ### michna 12
 Rabbi Eleazar ben Azariah permet trois choses et les Sages les interdisent : Sa vache sortait avec la courroie qu'elle avait entre ses cornes ; On peut étriller le bétail pendant une fête ; Et on peut moudre le poivre dans son propre moulin. Rabbi Judah dit : on ne peut pas étriller le bétail lors d'une fête, car cela pourrait causer une blessure, mais on peut le peigner. Mais les Sages disent : on ne peut pas les étriller, et on ne peut même pas les peigner.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

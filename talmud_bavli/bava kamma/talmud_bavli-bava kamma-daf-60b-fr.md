@@ -78,4 +78,4 @@ Les rabbins répondent que David l'a sauvé en <b>ne leur permettant pas d'écha
 <b>Accordé,</b> selon les deux <b>de ces deux</b> avis, <b>c'est ainsi qu'il est écrit</b> dans <b>deux</b> <b>versets distincts,</b> l'un décrivant le champ de lentilles et l'autre le champ d'orge.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara rejette ce parallèle : <b>Il y a,</b> dans le cas des dix champs, <b>
 <b>Et certains énoncent</b> une version différente de la discussion précédente .
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

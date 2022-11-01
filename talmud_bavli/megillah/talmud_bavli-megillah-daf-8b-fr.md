@@ -69,4 +69,4 @@ La mishna a déclaré : Les rouleaux de la Torah <b>sont écrits dans n'importe 
 <b>Rava dit :</b> Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

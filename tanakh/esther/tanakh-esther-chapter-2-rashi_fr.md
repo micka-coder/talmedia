@@ -68,4 +68,4 @@
 <b>Cela a été inscrit dans le livre des archives.</b> La faveur que Mordékhaï a rendue au roi.</sup>22</sup><i class="footnote">Cela a été inscrit dans le livre des archives de Média et de Perse, et mentionné en 10:2 ci-dessous. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

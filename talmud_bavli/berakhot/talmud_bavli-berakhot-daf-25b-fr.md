@@ -75,4 +75,4 @@ La Gemara relate : <b>Rav Ahai a fait en sorte que son fils</b> se marie dans <b
 <b>Abaye a dit : Ils ont seulement enseigne</b> qu'un recipient a l'interieur d'un second recipient est suffisant <b>lorsque le recipient n'est pas le leur,</b> le rouleau de la Torah ou les phylacteres, le <b>recipient regulier. Mais un vase qui est leur</b> <b>ustensile regulier, meme dix vases sont consideres comme un seul vase,</b> et la Torah ou les phylacteres doivent etre couverts dans un autre vase qui n'est pas habituellement utilise a cet effet. <b>Rava a dit : Un manteau</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

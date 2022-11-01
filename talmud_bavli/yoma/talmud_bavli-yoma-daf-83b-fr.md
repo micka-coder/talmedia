@@ -57,4 +57,4 @@ Qu'ont-ils fait ? <b>Ils ont traîné</b> l'aubergiste <b>et l'ont amené dans u
 La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre ces</b> deux avis ? La Guemara répond : <b>Il y a</b> une différence pratique <b>entre eux</b> en ce qui concerne .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

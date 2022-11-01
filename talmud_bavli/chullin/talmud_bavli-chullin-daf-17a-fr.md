@@ -54,4 +54,4 @@ La mishna déclare : <b>Sauf</b> le côté dentelé de <b>la faucille à moisson
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

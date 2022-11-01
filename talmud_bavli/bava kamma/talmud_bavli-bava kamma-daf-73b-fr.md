@@ -51,4 +51,4 @@ Il est possible que la <i>baraita</i> discute d'un cas <b>où une deuxième sér
 Abaye développe : <b>D'où</b> est-ce que je dis que mon interprétation de la <i>baraita</i> est correcte ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

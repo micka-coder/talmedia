@@ -45,4 +45,4 @@ La Guemara répond : <b>En fait, Rabbi Ḥanina, le député</b> Grand <b>Prêtr
 La Gemara demande : <b>Avec quel avis</b>, parmi les <i>tanna'im</i> cités plus haut, <b>la <i>baraita</i> suivante <b>que les Sages ont enseignée, correspond-elle ? La seule</b> différence <b>entre le prêtre qui brûle la génisse et le Grand Prêtre</b> qui accomplit le service <b>à Yom Kippour est</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

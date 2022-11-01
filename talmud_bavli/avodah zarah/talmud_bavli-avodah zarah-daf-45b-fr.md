@@ -48,4 +48,4 @@ La Guemara demande : <b>Et d'où Rabbi Yosei, fils de Rabbi Yehuda,</b> tire-t-i
 La Gemara demande : <b>Et</b> qu'est-ce que <b>les rabbins</b> déduisent de ce verset ? La Gemara répond : <b>Ce</b> verset enseigne que c'est une mitzva <b>de donner</b> un <b>surnom désobligeant à</b> une idole. <b>Comme il est enseigné</b> dans une <i>baraita</i> que Rabbi Eliezer dit : <b>D'où vient</b> que lorsqu'on <b>déracine</b> un objet d'adoration d'une <b>idole, il faut en extirper toute trace ? Le verset dit : "Et tu détruiras leur nom</b> hors de ce lieu."
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

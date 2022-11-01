@@ -51,4 +51,4 @@ C'est la première qu'il a détestée. <b>Et</b> les autres sont <b>celui qui ha
 La Gemara cite un dicton similaire. <b>Rabbi Shimon ben Yoḥai dit : Quatre questions que le Saint, Béni soit-Il, déteste, et je ne les aime pas,</b> et ce sont : <b>Celui qui entre brusquement dans sa maison, et inutile de dire</b> celui qui entre brusquement dans <b>la maison d'un autre ; et celui qui tient</b> son <b>pénis et urine;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

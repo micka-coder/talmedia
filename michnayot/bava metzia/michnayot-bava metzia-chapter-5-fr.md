@@ -32,5 +32,5 @@ On peut dire à son prochain : "Aide-moi à sarcler et je t'aiderai à sarcler" 
 ### michna 11
 Voici ceux qui transgressent un commandement négatif : le prêteur, l'emprunteur, le garant et les témoins. Ils transgressent le commandement : "Tu ne lui donneras pas ton argent avec un intérêt" (Levitique 25:37), et "Tu ne prendras pas d'usure de lui" (Levitique 25:36) et "Tu ne seras pas pour lui comme un créancier" (Exode 22:24), et "Tu ne placeras pas sur lui de l'usure" (ibid.). ) et "Tu ne mettras pas de pierre d'achoppement devant un aveugle, et tu craindras ton Dieu, je suis le Seigneur" (Lévitique 19:14).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

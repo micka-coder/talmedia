@@ -48,4 +48,4 @@ La Gemara répond : <b>Peut-être avez-vous parlé d'un Ammonite</b> converti <b
 <b>Aussi, lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yoḥanan a dit : </b> En ce qui concerne <b>la fille d'un Ammonite converti</b> qui est la progéniture de son mariage interdit avec une femme de naissance juive, <b>et</b> de même, en ce qui concerne <b>la fille d'un <b>Égyptien</b> de deuxième</b> génération converti de son mariage interdit avec une femme de naissance juive, <b>Rabbi Yoḥanan a dit</b> qu'elle est <b>apte</b> à se marier à la prêtrise, <b>alors que Reish Lakish a dit</b> qu'elle est <b>disqualifiée</b> pour épouser un prêtre. <b>Reish Lakish a dit</b> qu'elle est <b>disqualifiée, car il dérive de</b> la <i>halakha</i> régissant <b>un Grand Prêtre</b> qui a épousé <b>une veuve</b> que la fille de toute union interdite est disqualifiée de la prêtrise. <b>Rabbi Yoḥanan dit</b> elle est <b>apte,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

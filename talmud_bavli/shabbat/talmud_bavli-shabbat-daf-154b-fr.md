@@ -51,4 +51,4 @@ La Guemara suggère : <b>Disons</b> que ces <i>amora'im</i> sont en désaccord d
 <b>Rava a dit : Celui qui a interdit</b> de se servir des <b>côtés a également interdit</b> de se servir des <b>côtés des côtés,</b> et <b>celui qui a permis</b> de se servir des <b>côtés a également permis</b> de se servir des <b>côtés des côtés. Rav Mesharshiyya soulève une objection</b> à l'opinion de Rava : Si l'on <b>conduit</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Nous avons appris dans la mishna : Si <b>on dit,</b> en traduisant le verset : <
 La Gemara énumère les sections indiquées par les lettres du mnémonique. La section <b>de l'acte de Création [<i>bereshit</i>],</b> à laquelle fait allusion la lettre <i>bet</i>, <b>est lue et traduite.</b> La Gemara commente : Ceci <b>est évident.</b> Pourquoi pourrait-on penser autrement ? La Guemara répond : <b>De peur que l'on dise</b> que si le récit de la Création est lu en public les gens <b>viennent poser</b> des questions qui ne doivent pas être posées, par exemple : <b>Qu'est-ce qui est en haut et qu'est-ce qui est en bas,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

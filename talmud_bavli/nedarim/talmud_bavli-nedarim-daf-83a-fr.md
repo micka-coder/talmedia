@@ -21,4 +21,4 @@ La Guemara rejette cet argument : <b>Mais plutôt, que</b> direz-vous ? Que <b>u
 Rav Asi <b>a soulevé une objection</b> contre l'avis de Rabbi Yoḥanan à partir de la <i>baraita</i> suivante : En ce qui concerne <b>une femme qui a fait vœu d'être nazirite et qui est devenue rituellement impure</b> par contact avec les morts, <b>et par la suite son mari a annulé</b> son vœu <b>pour elle, elle doit apporter une offrande de péché d'oiseau mais n'apporte pas d'holocauste d'oiseau. Et si vous dites</b> que le mari <b>peut annuler</b> le vœu <b>en ce qui concerne le pain</b> qui la conduirait à se <b>dépouiller, mais qu'il ne peut pas annuler</b> le vœu <b>en ce qui concerne</b> le pain qui ne la conduirait <b>pas</b> à se <b>dépouiller,</b> le même raisonnement devrait s'appliquer ici :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Guemara cite une autre explication pour expliquer pourquoi la préparation de
 <b>Abaye dit</b> qu'il existe une explication différente : Le <b>verset stipule : "De la fine farine pour une offrande de repas perpétuelle"</b> (Lévitique 6:13) ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

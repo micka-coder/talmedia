@@ -33,4 +33,4 @@ La Gemara commente : <b>Grâce,</b> la contradiction apparente entre une déclar
 La Gemara conteste : Il est <b>évident que</b> Rabbi Yishmael <b>n'exige pas</b> de conscience au début, <b>puisqu'il n'a pas de versets superflus</b> desquels dériver une telle exigence. Rabbi Akiva tire la leçon de la phrase superflue : <b>"Et il est caché</b> de lui" (Lévitique 5:4), que la conscience au début est nécessaire, mais Rabbi Yishmael dit que le verset sert à enseigner une autre <i>halakha</i>, <b>que l'on est responsable</b> d'apporter une offrande <b>pour un oubli de conscience</b> qu'il entrait dans <b>le Temple.</b> La Guemara rejette ce défi : <b>Au cas où vous diriez : Lorsque</b> Rabbi Yishmael <b>n'accepte pas</b> cette <i>halakha</i> exigeant une prise de conscience au début, cela signifie qu'il ne la dérive pas <b>d'un verset, mais qu'il l'accepte</b> <b>comme une tradition;</b> pour contrer cela, Reish Lakish <b>nous enseigne</b> que selon Rabbi Yishmael, il n'y a pas la moindre exigence de prise de conscience au début.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

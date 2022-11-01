@@ -51,4 +51,4 @@ La Gemara rejette cette idée : <b>De quoi s'agit-il ici ?</b> Il ne s'agit pas 
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve d'un <i>baraita</i> (<i>Tosefta</i>, <i>Terumot</i> 2:10) : S'il y avait <b>un Juif et un Gentil qui achetaient un champ en partenariat,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

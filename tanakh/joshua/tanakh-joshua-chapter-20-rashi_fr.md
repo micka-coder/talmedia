@@ -21,4 +21,4 @@
 <b>Ils ont été mis de côté.</b> Ils ont été préparés et mis de côté pour cela.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

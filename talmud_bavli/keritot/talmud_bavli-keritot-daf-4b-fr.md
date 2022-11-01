@@ -93,4 +93,4 @@ La Gemara développe : <b>Puisque le Miséricordieux écrit : "Et tu mangeras de
 La Gemara réfute cette preuve : <b>Si</b> la <i>halakha</i> était dérivée uniquement <b>de ce</b> verset, à savoir : "Et tu mangeras devant le Seigneur ton Dieu", <b>je dirais que cette déclaration</b> ne s'applique que <b>dans la mesure où il existe une interdiction dérivée par déduction d'une <b>mitsva positive,</b> pour laquelle on ne reçoit pas de coups de fouet, car elle a le statut de mitsva positive. <b>Mais</b> on pourrait <b>dire que</b> l'on ne transgresse <b>pas</b> un interdit.</b> C'est <b>en raison de cela</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

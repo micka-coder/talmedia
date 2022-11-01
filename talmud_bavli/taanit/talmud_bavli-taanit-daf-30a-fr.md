@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne le <b>vin de son pressoir, jusq
 <b>Rav Yehuda dit</b> que <b>Rav a dit : C'était la coutume de Rabbi Yehuda, fils de Rabbi Ilai.</b> La <b>veille du 9 Av,</b> vers le soir, <b>ils</b> lui <b>apporteraient du pain rassis avec du sel, et</b> il <b>s'assiérait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

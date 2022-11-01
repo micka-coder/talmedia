@@ -60,4 +60,4 @@ La Guemara soulève une difficulté : <b>N'a-t-on pas</b> Rabbi Yehoshua ben Lev
 Et il <b>a été enseigné</b> dans une <i>baraita</i> <b>conformément</b> à l'opinion de <b>Rav : Le sang et l'eau, les liquides de l'abattoir, devenus rituellement impurs, qu'ils</b> soient <b>dans des récipients ou sur le sol, sont purs.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -80,4 +80,4 @@
 <b>Et les Bnei Reuvein et les Bnei Gad appelèrent l'autel, car il est un témoin.</b> C'est l'un des versets raccourcis. Il aurait fallu ajouter un mot : Et les Bnei Reuven et les Bnei Gad appelèrent l'autel '<i>témoin,</i>' [car il est etc...].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

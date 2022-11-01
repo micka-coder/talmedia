@@ -57,4 +57,4 @@ La Gemara demande : <b>Qu'est-ce que</b> signifie : <b>Libérations excédentair
 <b>Rabbi Ḥiyya bar Yosef dit :</b> Cela signifie <b>les débordements des récipients de mesure. Rabbi Yoḥanan dit :</b> Les libations excédentaires sont <b>comme ce que nous avons appris</b> dans une autre mishna (<i>Shekalim</i> 13a) : Dans le cas de <b>celui qui accepte sur lui de fournir de la farine fine à quatre</b> <i>se'a</i> pour une <i>sela</i>, <b>et</b> son prix de marché <b>était de trois</b> <i>se'a</i> pour une <i>sela</i>, il est tenu de respecter son engagement et de <b>fournir</b> de la farine fine <b>à quatre</b> <i>se'a</i> pour une <i>sela</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

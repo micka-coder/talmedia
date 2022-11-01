@@ -27,4 +27,4 @@ La Guemara soulève une objection à la dernière clause de la <i>baraita</i> : 
 § La Guemara demande à propos de la purification mentionnée dans la mishna : <b>Comment nettoie-t-on</b> un pressoir, ou des ustensiles utilisés par un Gentil pour le vin ? <b>Rav répond : </b> On le nettoie <b>avec de l'eau. Rabba bar bar Ḥana dit :</b> On le nettoie <b>avec des cendres.</b> La Gemara demande : Lorsque <b>Rav dit :</b> On le nettoie <b>avec de l'eau,</b> veut-il dire seulement <b>avec de l'eau et non pas avec des cendres</b> également ? En outre, lorsque <b>Rabba bar bar Ḥana dit :</b> On le nettoie <b>avec des cendres,</b> veut-il dire seulement <b>avec des cendres, et pas avec de l'eau</b> aussi ? <b>Au contraire,</b> leurs déclarations doivent être comprises comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

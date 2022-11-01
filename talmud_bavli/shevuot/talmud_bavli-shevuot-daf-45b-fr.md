@@ -42,4 +42,4 @@ Rav Sheshet a suggéré : <b>Puisque cette dernière clause</b> traite d'un cas 
 <b>Rav Naḥman bar Yitzḥak a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

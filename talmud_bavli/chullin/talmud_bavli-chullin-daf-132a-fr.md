@@ -60,4 +60,4 @@ Si l'israélite <b>dit</b> à celui qui abat l'animal : <b>Vends-moi les entrail
 <strong>GEMARA:</strong> La mishna enseigne que si un animal premier-né a été mêlé à cent animaux non sacrés, chacun appartenant à une personne différente, tous les animaux sont exclus de l'obligation de faire les dons, en raison de l'incertitude de savoir quel animal est le premier-né. La Gemara demande : <b>Mais pourquoi</b> est-ce la <i>halakha</i> ? <b>Que le prêtre se présente</b> à chaque abatteur avec une revendication <b>de deux côtés,</b> c'est-à-dire qu'il <b>laisse</b> le prêtre lui <b>dire : Si</b> cet animal <b>est un premier-né, il est entièrement à moi ; et si ce n'est pas un premier-né</b> mais plutôt un animal non sacré, alors <b>donnez-moi mes dons.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -78,4 +78,4 @@ Les différents aspects du dilemme sont les suivants : <b>Une substance</b> en c
 Abaye <b>s'adressa à lui :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

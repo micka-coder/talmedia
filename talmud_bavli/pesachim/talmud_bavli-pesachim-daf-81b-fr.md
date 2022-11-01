@@ -69,4 +69,4 @@ Afin de vérifier si quelqu'un a jamais eu connaissance du cadavre, on tient com
 Il a été énoncé dans la mishna que si <b>une minorité de celle-ci est devenue rituellement impure,</b> et de même, si une partie est restée, elle est brûlée dans les cours des propriétaires' avec leur propre bois. La Guemara <b>souleve une contradiction</b> basée sur ce qui a été enseigné dans une mishna différente : <b>Et de même,</b> en ce qui concerne <b>ceux qui ont quitté Jérusalem et se souviennent qu'il y a de la viande consacrée dans leur main,</b> qui est maintenant disqualifiée parce qu'elle a quitté Jérusalem et doit donc être brûlée, <b>s'il a passé</b> le mont <b>Scopus, il brûle</b> la viande <b>à l'endroit</b> où <b>il</b> se trouve, et il n'a pas besoin de revenir pour la brûler à Jérusalem ; <b>et si</b> il n'a <b>pas</b> encore dépassé le mont Scopus,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

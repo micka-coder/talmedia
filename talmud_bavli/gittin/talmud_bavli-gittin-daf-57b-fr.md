@@ -66,4 +66,4 @@ Comme <b>ils l'emmenaient pour être tué, sa mère leur dit : Donnez-le moi afi
 <b>Rav Naḥman bar Yitzḥak dit : Ces</b> personnes dans le verset <b>sont des érudits de la Torah qui se tuent pour les paroles de la Torah, conformément</b> à la déclaration de <b>Rabbi Shimon ben Lakish. Comme Rabbi Shimon ben Lakish le dit : Les paroles de la Torah ne durent que pour celui qui se tue pour elles, comme il est dit : "Voici la Torah, quand un homme meurt dans une tente"</b> (Nombres 19:14). <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit : Quarante <i>se'a</i></b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

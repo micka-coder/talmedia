@@ -36,4 +36,4 @@ La Gemara relate : <b>Lorsqu'ils prenaient congé l'un de l'autre,</b> Rav Naḥ
 <b>Et quand il voulut partir, il dit : Arbre, arbre, de quoi te bénirai-je ? Si je te dis que tes fruits doivent être doux, tes fruits sont</b> déjà <b>doux;</b> si je dis <b>que ton ombre doit être agréable, ton ombre est</b> déjà <b>agréable;</b> si je dis <b>qu'un courant d'eau doit couler sous toi, un courant d'eau</b> déjà <b>coule sous toi. Au contraire,</b> je te bénirai comme suit : <b>Que ce soit</b> la volonté de Dieu <b>que tous les jeunes arbres qu'ils plantent à partir de toi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

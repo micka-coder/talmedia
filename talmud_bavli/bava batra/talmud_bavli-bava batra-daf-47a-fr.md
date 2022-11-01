@@ -24,4 +24,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles on est
 La Gemara demande : <b>Accordé, il était nécessaire</b> de préciser que <b>un fils</b> qui s'est <b>séparé</b> établit la présomption de propriété. Si le <i>baraita</i> n'avait pas précisé cela, il aurait <b>entré dans votre esprit de dire</b> que le père a <b>pardonné</b> l'utilisation non autorisée de sa terre <b>par</b> son fils, et n'a pas déposé de protestation malgré le fait que la terre n'appartenait pas au fils. Par conséquent, la <i>baraita</i> <b>nous apprend que</b> ce n'est <b>pas</b> ainsi, et que le fils établit bien la présomption de propriété. <b>Mais</b> dans le cas de la <b>femme qui a divorcé,</b> il est <b>évident</b> qu'elle n'a aucune relation avec son ex-mari, alors pourquoi est-il nécessaire que la <i>baraita</i> enseigne qu'elle est en mesure d'établir la présomption de propriété ? La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> d'enseigner qu'elle n'établit pas la présomption de propriété...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

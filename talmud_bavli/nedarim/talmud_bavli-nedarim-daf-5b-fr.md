@@ -24,4 +24,4 @@ La Gemara répond : <b>Abaye</b> aurait pu vous <b>dire : Je dis</b> ma déclara
 <b>Et Rava</b> aurait pu <b>déclarer : Je dis</b> ma déclaration <b>même en accord</b> avec l'opinion des <b>Rabbins. Les rabbins disent que nous n'exigeons pas d'intimations évidentes seulement en ce qui concerne un acte de divorce,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

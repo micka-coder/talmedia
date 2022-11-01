@@ -54,4 +54,4 @@ La Guemara donne son explication finale de la déclaration de Rava : <b>Au contr
 <b>Rav Sheshet a dit : Je dis</b> que <b>lorsque Rav avait sommeil et qu'il s'est couché</b> pour se reposer <b>il a dit cette <i>halakha</i>,</b> c'est-à-dire qu'il n'y a pas suffisamment réfléchi. Cette décision est incorrecte, <b>comme cela est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Akiva a dit : Pour quelle raison la Torah a-t-elle dit que</b> si un voleur <b>abat ou vend</b> un bœuf ou un mouton volé, <b>il paie</b> le <b>quintuple ou le quintuple paiement ?</b> C'est <b>parce que</b> en vendant ou en abattant l'animal, le voleur <b>devient</b> plus <b>enraciné dans le péché.</b> Rav Sheshet analyse la déclaration de Rabbi Akiva : <b>Quand</b> cette vente de l'animal volé a-t-elle eu lieu ? <b>Si nous disons</b> qu'elle a eu lieu <b>avant</b> le <b>désespoir</b> du propriétaire de récupérer son bien,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

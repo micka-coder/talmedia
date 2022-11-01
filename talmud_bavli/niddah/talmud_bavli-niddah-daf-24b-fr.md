@@ -63,4 +63,4 @@ En ce qui concerne l'effet de la consommation de vin sur le corps d'une personne
 La Guemara poursuit : <b>Et Rav Ḥiyya n'atteignit</b> que <b>l'épaule de</b> Rabbi Yehuda HaNasi, <b>et Rabbi Ḥiyya était la plus grande</b> personne <b>de sa génération. Et Rav n'a atteint</b> que <b>l'épaule de</b> Rabbi Ḥiyya, et <b>Rav était la plus grande</b> personne <b>de sa génération. Et Rav Yehuda n'atteignait</b> que <b>l'épaule de</b> Rav, <b>et Rav Yehuda était la plus grande</b> personne <b>de sa génération. Et Adda le préposé [<i>dayyala</i>] n'atteignait</b> que <b>l'épaule de</b> Rav Yehuda,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

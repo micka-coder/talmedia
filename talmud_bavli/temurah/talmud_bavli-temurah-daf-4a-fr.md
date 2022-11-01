@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais</b> s'il en est ainsi, il s'ensuit que c'est <b>Rab
 La Guemara répond : <b>Non,</b> lorsque <b>Rabbi Yosei, fils de Rabbi Ḥanina,</b> a déclaré simplement : Même celui qui sépare le <i>teruma</i> avant la séparation des prémices,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara demande : Peut-être peut-on <b>dire</b> qu'un nazirite n'est pas aut
 <b>Au contraire,</b> direz-vous que c'est <b>conforme</b> à l'opinion <b>de Rabbi Eliezer,</b> qui permet à un nazirite de boire du vin seulement après avoir accompli tout le rituel ? Ceci <b>est évident ; Rabbi Eliezer n'a-t-il pas dit</b> qu'il lui est permis de boire du vin seulement <b>après que toutes les actions</b> soient achevées ? La Guemara répond que cette déclaration est nécessaire, <b>de peur que vous ne disiez : Puisqu'en ce qui concerne</b> l'<b>expiation</b> effectuée par toutes les autres offrandes, l'onction <b>est</b> considérée comme <b>un aspect périphérique de la mitzva,</b> c'est-à-dire que l'on réalise l'expiation même si l'on n'a pas accompli le rituel de l'onction, <b>là aussi</b> son absence <b>n'empêche pas</b> la libération des interdictions d'un nazirite. Le Rav nous <b>enseigne donc</b> que selon l'opinion de Rabbi Eliezer l'onction est indispensable dans le cas d'un nazirite.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

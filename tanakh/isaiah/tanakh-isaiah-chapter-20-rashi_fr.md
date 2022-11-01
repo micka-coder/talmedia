@@ -22,7 +22,7 @@
 <b>île</b> comme les îles de la mer.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -46,4 +46,4 @@
 <b>île</b> comme les îles de la mer.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

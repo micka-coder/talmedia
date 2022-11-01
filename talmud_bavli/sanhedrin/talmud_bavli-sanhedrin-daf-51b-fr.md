@@ -69,4 +69,4 @@ La Guemara demande : <b>Et</b> pourquoi <b>Rabbi Yishmael</b> ne déduit-il pas 
 La Guemara demande : <b>Et</b> quant à <b>Rabbi Yishmael,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

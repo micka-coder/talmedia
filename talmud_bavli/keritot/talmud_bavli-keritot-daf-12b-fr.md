@@ -75,4 +75,4 @@ De même, celui qui a <b>mangé</b> un quart de pain de <b>aliments impurs ou bu
 La Gemara suggère une résolution : <b>Venez</b> et <b>entendez</b> la mishna : <b>Et les rabbins disent : A moins que</b> le temps qu'il <b>dépense du début à la fin</b> soit le temps qu'il faut <b>pour manger une demi-miche</b> de pain.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

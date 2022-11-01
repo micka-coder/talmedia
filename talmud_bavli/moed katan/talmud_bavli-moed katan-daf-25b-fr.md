@@ -45,4 +45,4 @@ Quand <b>Rabbi Tanḥum bar Ḥiyya</b> est décédé, <b>toutes les statues [<i
 § La Guemara revient sur le sujet de la déchirure des vêtements en cas de deuil : <b>Les Sages ont enseigné</b> la <i>baraita</i> suivante :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

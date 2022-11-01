@@ -14,5 +14,5 @@ Si le Jubilé est arrivé et qu'il n'a pas encore été racheté, alors les prê
 ### michna 5
 Si quelqu'un a acheté un champ à son père, que son père est mort et qu'ensuite il l'a consacré, il est considéré comme un champ de possession. S'il l'a consacré et qu'ensuite son père est mort, alors il est considéré comme un champ acquis par achat, ce sont les paroles de Rabbi Meir. Rabbi Juda et Rabbi Shimon disent : il est considéré comme un champ de possession, comme il est dit : "Et si un champ qu'il a, qui n'est pas un champ de sa possession" (Levitique 27:22) un champ qui n'est pas capable de devenir un champ de sa possession, excluant ainsi un champ qui est capable de devenir un champ de possession. Un champ acquis par achat ne va pas aux prêtres l'année du Jubilé, car aucun homme ne peut consacrer un objet qui ne lui appartient pas. Les prêtres et les lévites peuvent consacrer [leurs champs] à tout moment et racheter à tout moment, avant et après le jubilé.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

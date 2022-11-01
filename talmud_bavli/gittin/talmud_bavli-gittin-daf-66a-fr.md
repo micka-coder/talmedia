@@ -51,4 +51,4 @@ La Gemara raconte : Il y avait <b>un certain homme qui entra dans la synagogue e
 <strong>MISHNA :</strong> Si un homme <b>dit à deux</b> personnes : <b>Donnez un acte de divorce à ma femme,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

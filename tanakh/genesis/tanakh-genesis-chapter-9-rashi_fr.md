@@ -92,5 +92,5 @@
 <b>Mais Il habitera dans les tentes de Sheim.</b> [signifie :] qu'Il fasse habiter Sa Présence Divine parmi [la Nation d'] Israël Un exposé des Sages [explique :] Bien que Dieu ait élargi Yefet, par lequel Cyrus, le descendant de Yefet, a construit le Second Temple, [pourtant,] la Présence Divine n'y a pas habité. Où a-t-elle habité ? Dans le Premier Temple construit par Shlomo, qui était un descendant de Sheim. 
 <b>Canaan sera leur esclave.</b> Même après l'exil des descendants de Sheim, les descendants de Canaan leur seront vendus comme esclaves. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

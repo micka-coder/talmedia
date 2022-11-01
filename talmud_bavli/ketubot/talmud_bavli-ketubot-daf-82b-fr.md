@@ -39,4 +39,4 @@ C'est pourquoi les Sages ont <b>institué</b> une ordonnance <b>qu'ils la placer
 <b>Et encore, quand il était en colère contre elle, il</b> lui <b>disait : Prends ton contrat de mariage et pars, jusqu'à ce que Shimon ben Shataḥ vienne et institue</b> une ordonnance <b>qu'il</b> ne lui donne pas réellement l'argent pour son contrat de mariage. Au contraire, <b>il doit lui écrire : Tous mes biens sont garantis pour son contrat de mariage,</b> et ils ne sont pas localisés à un lieu ou à un objet particulier. Par conséquent, il devra vendre une partie de ses biens s'il souhaite divorcer d'elle, et réfléchira donc bien avant d'entreprendre une action aussi radicale.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

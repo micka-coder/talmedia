@@ -21,4 +21,4 @@ La Gemara demande : <b>Mais</b> selon cette explication, <b>quelle serait la <i>
 La <i>baraita</i> continue : S'il a enterré son mort <b>huit jours avant une Fête de pèlerinage,</b> le <b>décret rabbinique de</b> les restrictions de <b>trente</b> jours de deuil <b>est annulé pour lui</b> aussi. Puisqu'il a déjà observé un jour de ce type de deuil, il n'a pas besoin de compléter la période entière, <b>et il est</b> donc <b>permis</b> pour lui <b>de se couper les cheveux la veille de la Fête du pèlerinage</b> en l'honneur de la Fête. <b>Mais s'il ne s'est pas coupé les cheveux la veille de la Fête du pèlerinage, il lui est interdit</b> de se couper les cheveux après la Fête du pèlerinage,</b> jusqu'à ce que trente jours de deuil soient passés.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

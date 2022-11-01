@@ -54,4 +54,4 @@ Si <b>il était à l'est et qu'il a écrit</b> le lieu dans l'acte de divorce co
 Si <b>elle était une femme israélite,</b> alors par ces deux mariages <b>elle</b> devient <b>disqualifiée pour</b> se marier à la <b>prêtrise,</b> en raison de l'interdiction faite à un prêtre d'épouser une <i>zona</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

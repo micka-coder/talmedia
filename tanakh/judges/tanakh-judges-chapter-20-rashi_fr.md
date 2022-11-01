@@ -129,4 +129,4 @@
 <b>Y compris le bétail</b> le peuple est inclus dans "anéantissant complètement", puisque <span><b>מְּתֹם</b></span> dénote un anéantissement absolu. Il y a un problème avec l'emplacement de mille, car vingt-six mille ont été comptés dans les villes, et sept cents à Givoh;<sup>19</sup><i class="footnote">V.15.</i> ici, ceux qui sont tombés totalisent vingt-cinq mille, cent troupes,<sup>20</sup><i class="footnote">V. 46.</i> et six cents se sont échappés vers la falaise de Rimon.<sup>21</sup><i class="footnote">V. 47. Ce qui fait un total de 25 700, alors que le total du v. 15 était de 26 700.</i> De toute évidence, mille ont fui vers les villes, et sont tombés le lendemain lorsque les Bnei Israël se sont tournés vers les villes de Binyamin pour anéantir les femmes et les enfants.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Une maison desservie par un mur est soumise au principe de la peau d'ail. Commen
 ### michna 7
 Les récipients situés sous le sommet en forme de fleur [d'un pilier] restent purs. Rabbi Yohanan ben Nuri les déclare impurs. Dans le cas où] l'impureté et les récipients se trouvent [ensemble] sous le sommet en forme de fleur [d'un pilier] : S'il y a un espace d'un tefah [paume] cube, [les récipients] deviennent impurs ; sinon, ils restent purs. Dans le cas de] deux armoires murales, l'une à côté de l'autre, ou l'une au-dessus de l'autre, si l'une d'elles est ouverte, elle et la maison deviennent impures, mais son compagnon reste pur. L'armoire murale est considérée comme étant bouchée, et elle est soumise au principe des moitiés pour la transmission de l'impureté dans la maison.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

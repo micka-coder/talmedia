@@ -51,4 +51,4 @@ La Gemara propose une autre possibilité. Cette décision s'explique <b>même</b
 La Guemara revient à la mishna. <b>Qu'est-ce que</b> alors le mishna veut dire par la phrase : <b>Comme des montagnes suspendues par un cheveu?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

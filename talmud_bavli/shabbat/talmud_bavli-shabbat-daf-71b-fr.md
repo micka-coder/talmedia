@@ -21,4 +21,4 @@ Ravina n'accepte pas cette preuve, car, à son avis, elle est imparfaite : <b>Et
 <b>Ulla a dit : Selon celui qui a dit</b> que pour désigner <b>une offrande de culpabilité définitive,</b> un sacrifice apporté par celui qui a commis un vol, fait un mauvais usage des objets sacrés ou eu des relations avec une servante désignée, on <b>n'a pas besoin de savoir préalablement</b> qu'il a définitivement péché,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

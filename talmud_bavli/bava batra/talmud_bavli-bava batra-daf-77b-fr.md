@@ -24,4 +24,4 @@ La mishna enseigne : Celui qui <b>vend un joug n'a pas vendu les bœufs;</b> et 
 La Gemara explique : <b>Non,</b> leur dispute est <b>nécessaire dans un endroit où ils appellent un joug : <i>Tzimda</i>, et</b> appellent <b>bœuf : <i>Bakar</i>, mais il y a aussi</b> ceux <b>qui appellent bœufs : <i>Tzimda</i>.</b> Puisqu'il n'est pas clair ce que l'on entend par le terme : <i>Tzimda</i>, <b>Rabbi Yehuda soutient</b> que <b>la</b> somme d'<b>argent indique</b> s'il a acheté un joug ou des bœufs, <b>et les rabbins soutiennent</b> que <b>la</b> somme d'<b>argent ne sert pas de <b>preuve.</b> La Gemara demande : <b>Mais si le</b> montant de la <b>monnaie ne sert pas</b> de <b>preuve,</b> alors dans le cas où l'acheteur a payé deux cents dinars et n'a reçu qu'un joug, <b>laissons</b> la <b>transaction être annulée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

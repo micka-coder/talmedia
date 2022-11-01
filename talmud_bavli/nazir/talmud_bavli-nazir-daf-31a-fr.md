@@ -33,4 +33,4 @@ La Gemara répond : Ce n'est pas le cas ; <b>Au contraire, ce sont les Beit Hill
 La Guemara continue à demander : <b>Et</b> est-ce que <b>Beit Shammai soutient</b> qu'un acte indiscutablement <b>erroné</b> de <b>consécration n'est pas</b> considéré comme une <b>consécration ? Venez</b> et <b>entendre</b> la preuve de la mishna (32b) qu'ils soutiennent qu'un objet consacré par erreur est considéré comme consacré : S'il <b>y avait</b> plusieurs personnes <b>marcheuses sur le chemin,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

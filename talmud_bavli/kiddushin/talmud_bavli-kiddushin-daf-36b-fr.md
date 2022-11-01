@@ -24,4 +24,4 @@ La Gemara demande : <b>Nous avons trouvé</b> une source pour l'offrande de repa
 <strong>MISHNA:</strong> <b>Toute mitzva qui dépend de la terre [<i>aretz</i>] ne s'applique qu'en Eretz</b> Yisraël, <b>et</b> toute mitzva <b>qui ne dépend pas de la terre s'applique à la fois en Eretz</b> Yisraël <b>et en dehors d'Eretz</b> Yisraël.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -77,4 +77,4 @@
 <b>Réveillez-vous et éveillez</b> la suite céleste pour juger ma cause de mes ennemis.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

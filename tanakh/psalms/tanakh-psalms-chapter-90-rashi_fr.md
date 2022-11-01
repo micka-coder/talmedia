@@ -65,4 +65,4 @@
 <b>Établissez-le</b> Établissez-le. Les deux fois où " et l'oeuvre de nos mains établir " [sont mentionnées sont pour les buts suivants] : L'une est pour l'oeuvre du Tabernacle, lorsqu'il bénit Israël et prie pour que la Shechinah repose sur l'oeuvre de leurs mains dans le Tabernacle, et l'autre est pour qu'il y ait une bénédiction dans l'oeuvre de leurs mains.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

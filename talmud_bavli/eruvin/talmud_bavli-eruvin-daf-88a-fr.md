@@ -60,4 +60,4 @@ Cette <i>halakha</i> s'applique <b>que la fosse ait été façonnée <b>à l'ext
 <strong>GEMARA:</strong> La Gemara demande : <b>Quelle est la raison</b> pour laquelle une cour d'une superficie de quatre coudées sur quatre ne nécessite pas de fosse ? <b>Rabba dit : Parce qu'une personne utilise ordinairement deux <i>se'a</i> d'eau par jour,</b> et en ce qui concerne une cour <b>de</b> au moins <b>quatre coudées</b> par quatre coudées, <b>une personne veut asperger</b> l'eau sur le sol pour empêcher toute poussière de monter. Par conséquent, même si en pratique l'eau s'écoule hors de la cour, cet effet n'est pas nécessairement son intention.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

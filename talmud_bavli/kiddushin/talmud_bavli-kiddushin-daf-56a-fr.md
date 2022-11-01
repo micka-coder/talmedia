@@ -18,4 +18,4 @@ La Guemara remet en question cette affirmation : <b>Mais n'avons-nous pas appris
 <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

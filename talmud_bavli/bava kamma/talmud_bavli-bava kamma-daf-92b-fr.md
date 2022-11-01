@@ -51,4 +51,4 @@ Rabba bar Mari explique chacune des sources. Il <b>est écrit dans la Torah, com
 <b>Rava dit à Rabba bar Mari : D'où vient cette affaire</b> dérivée <b>par laquelle les gens disent : Quand nous étions petits,</b> on nous considérait <b>comme des <b>hommes ; maintenant que nous sommes vieux,</b> on nous considère <b>comme des <b>enfants [<i>ledardekei</i>] ?</b> Rabba bar Mari <b>lui répondit</b> que la source est que <b>initialement, il est écrit</b> à propos du peuple juif voyageant dans le désert : <b>"Et le Seigneur marchait devant eux le jour dans une colonne de nuée, pour leur indiquer le chemin, et la nuit dans une colonne de feu, pour les éclairer"</b> (Exode 13, 21). Dieu lui-même veillait sur le peuple juif. <b>Mais à la fin,</b> après qu'un certain temps se soit écoulé et que l'on puisse s'attendre à ce que le peuple juif soit considéré comme plus important, <b>il est écrit:</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

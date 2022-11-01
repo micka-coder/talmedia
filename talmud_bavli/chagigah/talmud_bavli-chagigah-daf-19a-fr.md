@@ -66,4 +66,4 @@ Rabbi Yoḥanan <b>lui a dit : Tu</b> l'as déjà <b>appris</b> dans la <i>Tosef
 Ulla soulève une difficulté : <b>Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

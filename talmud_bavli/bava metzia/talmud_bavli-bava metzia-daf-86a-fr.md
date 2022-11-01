@@ -42,4 +42,4 @@ La Guemara conclut sa discussion précédente sur les Sages obèses (84a). <Rabb
 § La mishna enseigne qu'il y eut <b>un incident impliquant Rabbi Yoḥanan ben Matya, qui dit à son fils : Sors et engage</b> des ouvriers pour nous. Son fils engagea les ouvriers et stipula qu'il leur assurerait la subsistance. La Gemara demande : Après que la mishna ait affirmé que toutes les pratiques sont conformes à la coutume régionale, comment peut-elle citer cet <b>incident,</b> qui semble <b>contraire</b> à la décision précédente, puisque Rabbi Yoḥanan ben Matya et son fils n'ont pas suivi la coutume régionale ? La Guemara répond : La mishna <b>est incomplète et voici</b> ce qu'elle <b>enseigne :</b> Toutes les pratiques sont conformes à la coutume régionale, <b>mais si</b> l'employeur s'est engagé à leur assurer la subsistance,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

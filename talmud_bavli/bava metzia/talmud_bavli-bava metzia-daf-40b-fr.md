@@ -48,4 +48,4 @@ La Gemara répond : Ce n'est <b>pas difficile, car cette</b> <i>baraïta</i>, da
 <strong>GEMARA : </strong>Selon <b>l'avis de qui</b> <b>cette mishna</b> ? <b>C'est</b> conformément à l'avis de <b>Rabbi Yishmael, qui dit :</b> Lorsqu'un voleur rend un objet qu'il a volé, <b>on n'exige pas la connaissance du propriétaire</b> pour que l'objet soit considéré comme rendu, <b>comme cela est enseigné</b> dans une <i>baraita</i> : Dans le cas de <b>celui qui vole un agneau du troupeau ou une <i>sela</i> de la bourse, il doit la restituer à l'endroit d'où il l'a volée</b>, et il n'est pas nécessaire d'en informer le propriétaire ; c'est <b>la déclaration de Rabbi Yishmael. Rabbi Akiva dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

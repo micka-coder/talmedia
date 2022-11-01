@@ -51,4 +51,4 @@ Moïse était <b>riche,</b> comme il est écrit : <b>"Hew pour toi"</b> (Exode 3
 <strong>MISHNA:</strong> <b>Et</b> en ce qui concerne celui pour qui le bénéfice d'une autre personne est interdit par vœu, cette autre personne <b>peut nourrir</b> sa <b>femme et ses enfants, bien que</b> celui qui est lié par le vœu <b>soit obligé dans leur soutien</b> et bénéficie quand un autre les soutient. <b>Et il ne peut nourrir son animal, qu'il s'agisse</b> d'un animal <b>cacher</b> ou <b>d'un animal non cachère</b>. <b>Rabbi Eliezer dit : Il peut nourrir l'animal non casher</b>, <b>et il ne peut pas nourrir l'animal casher</b>. Les rabbins lui <b>disent : Quelle est</b> la différence <b>entre les animaux casher et non casher</b> à cet égard ? Rabbi Eliezer leur <b>dit : L'<b>être</b> de l'animal casher</b> appartient <b>au Ciel, et</b> le <b>corps de l'animal est</b> la propriété de son propriétaire, puisqu'il peut le manger. Par conséquent, le propriétaire bénéficie directement lorsqu'un autre nourrit son animal. <b>Et un animal non casher</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

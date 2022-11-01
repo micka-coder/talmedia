@@ -35,5 +35,5 @@ S'il n'a pas écrit pour elle : "les enfants de sexe féminin que j'aurai de toi
 ### michna 12
 S'il n'a pas écrit pour elle : "Tu vivras dans ma maison et tu seras entretenue par mes biens pendant toute la durée de ton veuvage", il est néanmoins responsable, car [cette clause] est une condition fixée par le tribunal. Les hommes de Jérusalem ont écrit ainsi. Les hommes de Galilée écrivaient comme les hommes de Jérusalem. Les hommes de Judée écrivaient : "Jusqu'à ce que les héritiers veuillent te payer ta ketubah". Donc si les héritiers le souhaitent, ils peuvent lui payer sa ketubah et la renvoyer.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Nous avons appris dans la mishna : <b>Et de même,</b> l'évaluation de la valeu
 <strong>MISHNA:</strong> <b>La personne qui lit la Torah</b> à la synagogue <b>ne doit pas lire moins de trois versets. Et</b> lorsqu'elle est traduite, <b>il ne doit pas lire au traducteur plus d'un verset</b> à la fois, afin que le traducteur ne soit pas confus.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

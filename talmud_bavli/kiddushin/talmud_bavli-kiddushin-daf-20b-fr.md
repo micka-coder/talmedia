@@ -66,4 +66,4 @@ Le <i>baraita</i> soulève une difficulté contre cette déduction <i>a fortiori
 Le <i>baraita</i> répond : Le cas de celui qui <b>vend une maison parmi</b> les <b>maisons des villes fortifiées peut prouver</b> le contraire, <b>car son pouvoir est accru en ce qui concerne le rachat</b> de celle-ci <b>immédiatement,</b> et pourtant <b>il ne peut pas emprunter</b> de l'argent <b>et racheter</b> la maison <b>et</b> il ne peut pas la <b>rembourser partiellement</b>. En tout cas, en ce qui concerne la question qui nous occupe, la <i>baraita</i> indique le contraire de la conclusion précédente : Celui qui vend une maison dans une ville fortifiée ne peut pas la racheter partiellement. Le Rav Sheshet répond : Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

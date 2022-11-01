@@ -33,4 +33,4 @@ La Guemara rejette la déduction de la mishna : <b>Mais peut-être</b> il <b>n'a
 La Gemara demande : <b>C'est pour dire que Rav soutient</b> que <b>un acte de vente</b> génère de la <b>publicité, mais que les témoins ne</b> génèrent pas de <b>publicité ? Mais Rav ne dit-il pas</b> qu'en ce qui concerne <b>celui qui vend un champ en</b> présence de <b>témoins,</b> et que ce champ est ensuite saisi par les créanciers du vendeur, l'acheteur <b>récupère auprès</b> des <b>biens libérés</b> que le vendeur avait vendus à d'autres, pour être remboursé de son champ saisi ? Si ce n'est que la vente en présence de témoins génère de la publicité, ceux qui ont acheté plus tard un terrain au vendeur n'auraient pas su que le bien qu'ils achètent est lié au premier acheteur. La Gemara répond : <b>Voilà,</b> en ce qui concerne les <b>acheteurs,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

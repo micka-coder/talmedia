@@ -60,4 +60,4 @@ La Guemara rejette cette preuve : Un grain est une <b>entité distincte,</b> et 
 §<b>Rav Oshaya soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

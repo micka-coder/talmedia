@@ -48,4 +48,4 @@ La Gemara rejette cette idée : Il ne s'agit pas d'un cas où la moitié du sang
 La Guemara demande en outre : Et n'y a-t-il vraiment aucun cas de ce genre ? Mais n'avons-nous pas appris dans une mishna (<i>Yoma</i> 58b) à propos du service de Yom Kippour : Après que le Grand Prêtre a aspergé de sang les quatre coins de l'autel des encens, <b>il a aspergé</b> de sang <b>sept fois sur le <i>tohoro</i> de l'autel.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara répond : <b>En fait,</b> Rabbi Meir <b>se conforme</b> à l'opinion 
 <b>Et si vous le souhaitez, dites</b> à la place : <b>En fait, les</b> tables <b>étaient disposées d'est en ouest, et en raison</b> de l'honneur de <b>la Présence Divine, ce n'était pas une conduite correcte</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

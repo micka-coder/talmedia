@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais Rava est</b> celui <b>qui a dit</b> que la raison po
 <b>Rav Ḥanin raconte : Rav Kahana a apporté un acte de divorce, et je ne sais pas si</b> il l'a apporté <b>de Sura à Neharde'a</b> ou <b>si</b> il l'a apporté <b>de Neharde'a à Sura. Il s'est présenté devant le Rav</b> et lui a <b>dit : Suis-je tenu de dire : Il a été écrit en ma présence et il a été signé en ma présence, ou bien ne suis-je pas tenu</b> d'énoncer cette déclaration ? Rav <b>lui a dit : Vous n'êtes pas tenu</b> de le faire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

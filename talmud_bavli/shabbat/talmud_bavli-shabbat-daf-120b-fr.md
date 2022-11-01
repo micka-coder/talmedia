@@ -45,4 +45,4 @@ La Guemara rejette cette idée : <b>Et</b> comment pouvez-vous <b>le comprendre<
 La Guemara demande : Si c'est le cas, selon <b>les sages</b> il devrait <b>également</b> être suffisant pour <b>que quelqu'un place sa main sur lui.</b> La Guemara explique : Les sages sont inquiets car <b>parfois on</b> oubliera et retirera</b> sa main. La Guemara demande : Est-ce que <b>Rabbi Yosei ne devrait pas aussi</b> être inquiet parce que <b>parfois quelqu'un</b> va <b>oublier et enlever</b> sa main ? <b>Au contraire, si l'on dispose d'un roseau</b>, Rabbi Yosei <b>en effet</b> concède que l'on couvre le nom de Dieu avec celui-ci. Cependant, <b>A quelle situation</b> avons-nous affaire ici ? </b> Nous avons affaire à un cas dans lequel il faudrait <b>chercher un roseau.</b> Dans ce cas, <b>les sages soutiennent</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

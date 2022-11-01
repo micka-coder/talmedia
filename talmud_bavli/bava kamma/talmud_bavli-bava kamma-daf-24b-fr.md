@@ -45,4 +45,4 @@ Les rabbins lui <b>dirigent :</b> Bien qu'il y ait une <i>a fortiori</i> déduct
 Rabbi Tarfon <b>leur dit :</b> Si telle est votre opinion, alors <b>moi aussi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

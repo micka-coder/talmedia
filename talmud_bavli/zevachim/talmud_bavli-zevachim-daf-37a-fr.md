@@ -39,4 +39,4 @@ La Guemara soulève une question concernant le désaccord sur l'interprétation 
 <b>Mais selon</b> l'opinion de <b>Rabbi Yosei, qui interprète</b> ce verset comme se référant <b>aussi</b> à une offrande <b>tithe</b> animale <b>et à une offrande pascale,</b> il y a une difficulté, car une offrande <b>tithe</b> animale <b>et une offrande pascale sont mangées par leurs propriétaires,</b> pas par les prêtres. Si tel est le cas, <b>Quel est le sens de la phrase <b>"et leur viande sera la tienne"?</b> La Gemara répond que le terme pluriel "leur viande", ne fait pas référence à une offrande de dîme animale ou à une offrande pascale, mais à différents types de premiers-nés, c'est-à-dire, <b>à la fois un animal non taché</b>, dont le sang est versé sur l'autel, <b>et un animal taché</b>, qui n'est pas apporté en offrande sur l'autel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

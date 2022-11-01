@@ -24,4 +24,4 @@ L'un des Sages <b>a enseigné : Une femme sage asperge</b> d'eau le sol de <b>sa
 <strong>GEMARA :</strong> Abaye a soulevé une contradiction devant Rava, et certains disent <b>que c'était</b> Rabbi Ḥiyya bar Rav <b>qui a soulevé la contradiction devant</b> Rav : <b>D'une part,</b> nous avons appris <b>dans la mishna que</b> Rabbi Shimon juge <b>une personne</b> exempte dans <b>à la fois</b> ce <b>cas</b> et ce <b>cas.</b> Apparemment, Rabbi Shimon assimile <b>un</b> pot perforé à</b> un <b>pot non perforé. Et</b> ils ont soulevé une contradiction : Rabbi Shimon dit : La seule différence entre un <b>pot perforé</b> et un <b>pot non perforé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

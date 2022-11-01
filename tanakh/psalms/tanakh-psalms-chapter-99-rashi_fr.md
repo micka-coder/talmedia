@@ -29,4 +29,4 @@
 <b>Car le Seigneur notre Dieu est saint</b> parce qu'il est strict avec les justes, il est sanctifié dans le monde, c'est pourquoi il dit (Exod. 29:43) : " et il sera sanctifié par ma gloire ", c'est-à-dire " par ceux qui sont glorifiés par moi ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

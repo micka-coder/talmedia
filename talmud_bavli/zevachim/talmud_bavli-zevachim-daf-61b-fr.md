@@ -33,4 +33,4 @@ La Gemara explique : Rav Huna <b>déclara</b> son opinion <b>conformément</b> �
 <b>Mais finalement,</b> à l'époque du Second Temple, <b>ils ont maintenu</b> que le <b>buvage de l'autel est comme</b> son <b>mangeage,</b> c'est-à-dire que de même que les offrandes sont brûlées sur l'autel, les libations doivent être versées sur l'autel lui-même et non sur son côté. Par conséquent, ils ont élargi l'autel pour couvrir les cavités souterraines, et ont créé des trous dans l'autel afin que les libations puissent être versées sur le dessus de l'autel et s'écouler dans les cavités souterraines. <b>Et</b> d'après cela, <b>quelle est la signification de l'expression <b>"un autel de terre" ? </b> Elle enseigne <b>que</b> l'autel doit <b>être attaché à la terre,</b> donc <b>qu'on ne peut pas le construire au sommet des arcs</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

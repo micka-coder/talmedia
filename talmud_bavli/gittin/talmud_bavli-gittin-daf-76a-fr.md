@@ -60,4 +60,4 @@ Si un mari dit à sa femme : <b>Voici ton acte de divorce</b> si à <b>tout mome
 <strong>GEMARA:</strong> La Gemara demande : <b>C'est pour dire qu'Antipatris était en Galilée ?</b> Il ressort de la mishna qu'Antipatris était à la frontière de la Galilée, puisque la condition du résident de Judée devenait nulle en atteignant Antipatris et en revenant. <b>Et</b> la Guemara <b>souleve une contradiction</b> en se basant sur ce qui est enseigné dans une <i>baraita</i> (<i>Tosefta</i> 7:9) : <b>Antipatris</b> est <b>en Judée, et Kefar Otnai</b> est <b>en Galilée.</b> Et en ce qui concerne la zone <b>entre les deux, une règle rigoureuse</b> lui est imposée,</b> et elle est traitée comme si elle était située à la fois en Judée et en Galilée. Si le mari qui a posé une telle condition atteint cette région et retourne chez lui, il n'est pas certain que la condition jointe à l'acte de divorce ait été remplie. Par conséquent, il y a une incertitude quant à savoir si <b>elle est divorcée</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

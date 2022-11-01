@@ -33,4 +33,4 @@ La Gemara demande : <b>Et d'où tirons-nous</b> cette <i>halakha</i> <b>que</b> 
 <b>Les Sages ont enseigné :</b> Dans le cas des <b>vaches qui foulent des produits</b> pour lesquels le travail est terminé mais qui sont battus à nouveau de cette manière dans le cadre de leur préparation en nourriture,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

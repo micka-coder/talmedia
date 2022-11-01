@@ -59,4 +59,4 @@
 <b>et ne prophétise pas</b> [Héb.. וְלֹאתַטִּיף. C'est une expression de prophétie, et il y en a beaucoup dans l'Écriture, par exemple (Ézéchiel 21:2) "Et prophétise (וְהַטֵּף) au sud."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

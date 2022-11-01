@@ -45,4 +45,4 @@ Le terme <b>"celui qui offre"</b> indique que le <i>piggul</i> <b>est disqualifi
 La phrase <b>"il ne sera pas non plus crédité [<i>yeḥashev</i>]"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

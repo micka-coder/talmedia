@@ -39,4 +39,4 @@ Dans les offrandes de repas qui se présentent sous forme de pains, c'est après
 En ce qui concerne les trois placements de l'huile dans une offrande de repas à la poêle et une offrande de repas à la poêle profonde, <b>les Sages ont enseigné</b> que le verset stipule : <b>"Et si ton offrande est une offrande de repas de poêle profonde, elle sera faite de farine fine dans l'huile"</b> (Lévitique 2:7). Cela <b>enseigne qu'il faut</b> le <b>placement de l'huile dans</b> un <b>vase vide,</b> et la farine est ajoutée ensuite. En outre, le terme <b>"ton offrande"</b> dans ce verset et le terme <b>"ton offrande"</b> (Lévitique 2:5), écrit à propos de l'offrande de repas préparée dans une poêle, sont compris <b>pour</b> enseigner <b>une analogie verbale:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

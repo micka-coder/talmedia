@@ -69,4 +69,4 @@ La Guemara rejette cette idée : Comment aurait-on pu penser que le prêtre doit
 La Gemara demande : <b>Pourquoi ai-je</b> besoin de la suite du verset : <b>"Faire fumer une offrande par le feu"?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

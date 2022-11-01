@@ -92,5 +92,5 @@
 ### passuk 33
 <b>N'ont pas atteint.</b> [לֹא נִתַּךְ sens] n'ont pas atteint. Même ceux qui étaient déjà en l'air [n'ont jamais] atteint le sol. Similaire à ceci : " וַתִּתַּךְ עָלֵינוּ la malédiction et le serment " dans le livre de Daniel [וְתַּגִּיעַ עָלֵינוּ signifiant :] il nous a atteint. Menachem ben Saruk l'a classé dans la catégorie des כְּהִתּוּךְ כֶּסֶף signifiant : la coulée (fusion) du métal. Je suis d'accord avec son opinion, car Onkelos traduit " וַיִּצֹק par וְאַתִּיךְ [et] " לָצֶקֶת " לְאַתָּכָא - couler. De même, לֹא נִתַּךְ לָאָרֶץ [a le sens :] [La grêle] n'a pas été versée au sol. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

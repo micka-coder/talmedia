@@ -87,4 +87,4 @@ La Guemara explique : <b>Cette <i>tanna</i></b> de la mishna <b>s'accorde avec</
 <b>Aussi,</b> en ce qui concerne <b>toutes les offrandes de repas, il était logique qu'elles exigent</b> la plus haute qualité d'<b>huile d'olive raffinée,</b> tout comme le Candélabre. Car <b>si</b> le <b>Chandelier, dont l'huile <b>ne doit pas être consommée</b> sur l'autel, <b>exige de l'huile d'olive raffinée,</b> alors les <b>offrandes de repas, qui</b> doivent être <b>consommées</b> sur l'autel, <b>n'est-il pas logique qu'elles exigent de l'huile d'olive raffinée ?</b> Pour dissiper cette idée, <b>le verset précise : "Huile d'olive pilée raffinée</b> <b>pour l'illumination"</b> (Lévitique 24:2), ce qui indique que l'huile pilée raffinée de haute qualité est nécessaire pour le candélabre, <b>mais il n'y a pas</b> besoin d'huile d'olive <b>pilée raffinée</b> <b>pour les offrandes de repas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

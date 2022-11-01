@@ -54,4 +54,4 @@ La Guemara répond : <b>S'il vous vient à l'esprit</b> que Rabbi Yosei <b>s'ali
 <b>De même que</b> en ce qui concerne les <b>aliments dont l'impureté</b> provient de celui qui s'est immergé ce jour-là, alors que celui qui s'est immergé ce jour-là est lui-même autorisé à</b> consommer des aliments <b>non sacrés</b>, néanmoins <b>vous dites</b> que les aliments <b>participent du statut d'impureté de quatrième</b> degré <b>sur les aliments sacrificiels</b>, alors en ce qui concerne les <b>aliments</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

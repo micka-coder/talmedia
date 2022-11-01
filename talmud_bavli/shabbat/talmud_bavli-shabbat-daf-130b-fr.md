@@ -27,4 +27,4 @@ A propos de cette même <i>halakha</i>, <b>il a été affirmé</b> comme princip
 <b>Rav Ḥanina Ḥoza'a dit à Rabba : Qu'y a-t-il de différent</b> dans un cas <b>où</b> on <b>rejoint les cours aux maisons ?</b> Est-ce <b>parce que</b> les <b>cours se sont détachés et sont devenus</b> comme des <b>maisons ? Et Rav suit sa</b> ligne régulière de <b>raisonnement,</b> car <b>Rav a dit : Une ruelle ne peut être transformée</b> en <b>zone autorisée</b> pour le portage <b>au moyen d'un poteau latéral et d'une traverse,</b> ce qui est la norme <i>halakha</i> dans une ruelle fermée, <b>s'il y a</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

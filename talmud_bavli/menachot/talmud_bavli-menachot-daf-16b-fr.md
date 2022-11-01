@@ -90,7 +90,7 @@ La Guemara développe : <b>Celui qui dit</b> que <b>tous sont d'accord</b> qu'il
 § Alors <b>disons</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 La Guemara soulève une difficulté contre l'interprétation de Rav Ashi : <b>Mais</b> le <i>baraita</i> <b>enseigne : Que</b> lors de la première présentation ou <b>que</b> lors de la seconde, ce qui indique que les rabbins ne sont pas d'accord avec Rabbi Meir même en ce qui concerne un cas où le prêtre avait une intention de <i>piggul</i> lors de l'une des présentations. La Guemara note : En effet, cela pose <b>une difficulté.</b>
 
@@ -182,4 +182,4 @@ La Guemara développe : <b>Celui qui dit</b> que <b>tous sont d'accord</b> qu'il
 § Alors <b>disons</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

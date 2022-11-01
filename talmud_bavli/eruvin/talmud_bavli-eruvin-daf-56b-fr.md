@@ -36,4 +36,4 @@ La Guemara explique le calcul : <b>De combien est plus grande</b> l'aire d'un <b
 <b>Abaye a dit : Tu trouveras aussi</b> que l'espace libre représente le quart de la superficie totale <b>d'une ville qui fait mille</b> coudées <b>par mille</b> coudées. <b>Combien</b> de coudées <b>est le</b> étendu de la <b>frontière</b> de la ville sans les angles ? Elle est de <b>huit</b> millions de coudées carrées. Des zones supplémentaires sont annexées le long de chaque côté de la ville et s'étendant deux mille coudées au-delà de la ville elle-même. Chacune de ces zones mesure deux mille coudées sur mille coudées, soit une superficie totale de deux millions de coudées carrées. Comme il y a quatre de ces zones, leur superficie totale est de huit millions de coudées carrées. <b>Combien</b> de coudées <b>sont les coins ?</b> Ils sont <b>seize</b> millions de coudées carrées, puisque des carrés de deux mille coudées par deux mille coudées sont ajoutés à chacun des quatre coins.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

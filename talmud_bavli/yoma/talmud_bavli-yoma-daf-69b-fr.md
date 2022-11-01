@@ -63,4 +63,4 @@ La Guemara propose une résolution différente . <b>Abaye dit : Ceci n'est pas d
 <b>Comme il a été enseigné</b> dans un <i>baraita</i> : <b>On</b> peut <b>sauter</b> des sections en lisant <b>dans la Torah</b> lorsque les deux sections lues <b>se rapportent à un seul sujet, et dans les Prophètes</b> on peut sauter d'une section à l'autre même si elles <b>se rapportent à deux</b> différents <b>sujets. </b> Tant <b>ici que là,</b> on ne peut sauter que <b>lorsque</b> la section sautée est <b>de si courte</b> <b>longueur que</b> lorsque l'enroulement est terminé <b>le traducteur</b> n'aura toujours pas <b>terminé</b> sa traduction. Mais <b>On</b> ne peut <b>pas passer d'un</b> livre des <b>Prophètes à un autre</b> livre des <b>Prophètes</b> même si les deux portent sur le même sujet, et même si l'écart entre eux est court. Cependant, <b>parmi les</b> livres des <b>Douze Prophètes on peut sauter,</b> car les douze sont considérés comme un seul livre à ces fins.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

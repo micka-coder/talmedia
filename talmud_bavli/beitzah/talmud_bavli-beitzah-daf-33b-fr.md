@@ -36,4 +36,4 @@ La Guemara demande : <b>Et</b> est-ce que <b>Rabbi Eliezer n'accepte pas cette</
 § La mishna indique que <b>On ne peut pas blanchir des carreaux</b> en les chauffant, afin de faire rôtir des aliments dessus. La Guemara demande : <b>Que fait-on</b> ainsi <b>faire ; </b> puisque son intention est de préparer des aliments, en quoi cela diffère-t-il de toute autre manière de rôtir ? <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan a dit : Il s'agit ici de tuiles neuves,</b> et c'est interdit <b>parce que</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

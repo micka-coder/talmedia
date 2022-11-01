@@ -27,4 +27,4 @@ Rabbi Yehouda poursuit : Mais si l'on <b>pressait</b> la <i>litra</i> de figues 
 § La Guemara soulève une difficulté avec la décision de la mishna selon laquelle tous les animaux sont interdits. <b>Et tirons et sacrifions un</b> animal <b>du</b> mélange, <b>et disons,</b> c'est-à-dire appliquons le principe : <b>Tout</b> élément <b>qui se sépare</b> d'un groupe est supposé s'être <b>séparé de la majorité.</b> En conséquence, l'animal qui a été sacrifié est présumé apte. On peut continuer de cette manière jusqu'à ce qu'il ne reste que deux animaux du mélange. La Guemara remet en question cette suggestion : Devrions-nous tirer un animal du mélange ? Mais ceci <b>est</b> le retrait d'un élément de sa <b>place fixe</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

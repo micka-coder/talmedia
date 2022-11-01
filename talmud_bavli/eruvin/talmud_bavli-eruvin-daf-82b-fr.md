@@ -72,4 +72,4 @@ La Guemara commente : Néanmoins, il y a <b>une contradiction entre</b> une déc
 Nous avons appris dans la mishna que le temps nécessaire pour manger <b>la moitié</b> du pain est le temps nécessaire <b>pour</b> que les vêtements de celui qui est entré dans <b>une maison lépreuse</b> deviennent rituellement impurs, et <b>la moitié de sa moitié,</b> du pain, est la quantité de nourriture rituellement impure qui <b>disqualifie le corps</b> de manger du <i>teruma</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

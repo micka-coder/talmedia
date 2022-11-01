@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais s'il en est ainsi,</b> que les mots "il y avait" pro
 La Guemara cite un autre avis concernant l'époque à laquelle Job a vécu. <Rabbi Yoḥanan et Rabbi Elazar disent tous deux : Job était parmi ceux qui sont montés de l'exil</b> en Eretz Yisrael au début de la période du Second Temple, <b>et sa maison d'étude était à Tibériade.</b> La Guemara <b>souleve une objection</b> à partir de ce qui est enseigné dans une <i>baraita</i> : <b>Les jours de la vie de Job</b> s'étendaient <b>de l'entrée d'Israël en Égypte jusqu'à sa sortie,</b> ce qui indique qu'il s'agit de la période durant laquelle il a vécu et non, comme suggéré, aux premiers jours du Second Temple.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

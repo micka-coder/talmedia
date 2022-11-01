@@ -45,4 +45,4 @@ Le <i>baraita</i> cité poursuit : <b>"L'offrande de culpabilité"</b> enseigne 
 La mishna enseigne que le verset qui dit : "Et tu sacrifieras l'offrande pascale à l'Éternel, ton Dieu, du troupeau et du bétail" (Deutéronome 16, 2), indique par juxtaposition que chaque offrande obligatoire, comme l'offrande pascale, ne peut être apportée que par de l'argent non sacré. La Guemara demande donc : <b>Et</b> quant à <b>Rabbi Akiva,</b> qui déduit cela du verset : "C'est la loi de... l'offrande pour le péché", <b>ce verset : <b>"Et tu sacrifieras l'offrande pascale,"</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara ajoute qu'en ce qui concerne les <b>produits non lavés,</b> bien que 
 <b>Comme nous l'avons appris</b> dans une mishna (<i>Avoda Zara</i> 74a) : Dans le cas du <b>vin</b> utilisé pour <b>une libation</b> dans le culte des idoles <b>qui est tombé dans</b> une <b>citerne à vin,</b> il est <b>interdit</b> de <b>dériver un bénéfice</b> de <b>tout</b> le vin de la citerne, même si le volume du vin utilisé pour une libation était faible par rapport au volume du reste du vin de la citerne. <Rabban Shimon ben Gamliel dit : Tout le</b> vin de la citerne <b>peut être vendu à un Gentil,</b> et l'argent payé pour cela est permis, <b>sauf pour la valeur du vin</b> utilisé pour <b>une libation</b> qui s'y trouve.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

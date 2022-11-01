@@ -30,4 +30,4 @@ De même, <b>tout objet</b> qui devient rituellement impur</b> avec l'impureté 
 § Au sujet des trous dans les récipients en faïence, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Comment tester</b> un <b>vase en terre cuite cassé pour savoir s'il a été percé</b> d'un trou <b>qui permet au liquide d'y entrer</b> <b>ou pas ? On apporte un baquet rempli d'eau et on y place</b> le <b>vase cassé. Si</b> l'eau de la baignoire <b>entre</b> dans le pot, <b>on sait que</b> le pot contient un trou <b>qui permet au liquide d'entrer. Et si</b> l'eau n'entre <b>pas</b> dans le pot, <b>on sait que</b> le récipient ne contient qu'un petit trou <b>qui</b> ne fait que <b>permettre</b> la <b>sortie</b> des <b>liquides.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

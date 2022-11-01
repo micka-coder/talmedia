@@ -45,4 +45,4 @@ En plus du Rav Malkiyya, dont la décision vient d'être citée, il existait un 
 <b>Rav Pappa a dit</b> une opinion différente : Les énoncés de la <b>Mishna et des <i>baraita</i></b> ont été émis par <b>Rav Malkiyya,</b> alors que les décisions de <b><i>halakha</i></b> qui ne sont pas liées à une mishna ou à une <i>baraita</i> ont été enseignées par <b>Rav Malkiyyu. Et le moyen mnémotechnique</b> pour s'en souvenir est : <b>La mishna est une reine [<i>malketa</i>],</b> c'est-à-dire que les déclarations qui se rapportent à une mishna ont été faites par Rav Malkiyya, dont le nom est similaire au terme araméen pour reine. La Gemara demande : <b>Quelle</b> est la différence <b>entre</b> les avis du Rav Ḥanina et du Rav Pappa ? La Gemara répond : <b>Il y a</b> une différence <b>entre eux</b> en ce qui concerne la <i>halakha</i> concernant les <b>servantes.</b> Selon Rav Ḥanina, cette <i>halakha</i> a été énoncée par Rav Malkiyyu, alors que Rav Pappa soutient qu'elle a été enseignée par Rav Malkiyya, car il fait référence à une dispute dans une mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

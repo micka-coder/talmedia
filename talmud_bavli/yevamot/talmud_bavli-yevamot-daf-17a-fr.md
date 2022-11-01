@@ -27,4 +27,4 @@ La Gemara commente : <b>Ceux qui</b> sont <b>disqualifiés de Harpanya</b> sont 
 La Gemara commente : <b>Et ceci</b> explique le dicton populaire <b>que les gens disent</b> à ce sujet : <b>Un grand épha et un petit épha,</b> qui sont tous deux des ustensiles imprécis qui ne peuvent pas être utilisés pour mesurer, <b>roulent vers le monde souterrain, et du monde souterrain à Tarmod, et de Tarmod à Meishon, et de Meishon à Harpanya.</b> La même idée exprimée par les Sages en ce qui concerne la disqualification du lignage a également été incorporée dans un adage bien connu des roturiers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

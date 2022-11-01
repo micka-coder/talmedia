@@ -36,4 +36,4 @@ La mishna délimite la manière dont l'expiation s'effectue pour les autres tran
 <strong>GEMARA:</strong> La Gemara s'interroge : <b>Maintenant, le <i>tanna</i> quitte</b> le tractat <b><i>Makkot</i>,</b> le tractat qui précède le tractat <i>Shevuot</i> dans l'ordre mishnique. <b>Qu'est-ce qui est distinctif</b> du tractat <i>Shevuot</i> <b>pour qu'il enseigne</b> le tractat <b><i>Shevuot</i></b> après le tractat <i>Makkot</i> ? La Gemara répond : C'est <b>en raison</b> du fait <b>qu'il enseigne</b> dans une mishna à la fin du tractat <i>Makkot</i> (20a) : <b>Pour</b> avoir arrondi les bords de sa <b>tête</b> on est <b>susceptible</b> de recevoir <b>deux</b> séries de coups de fouet : <b>Un d'ici,</b> le poil adjacent à une oreille, <b>et un de là,</b> le poil adjacent à l'autre oreille.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

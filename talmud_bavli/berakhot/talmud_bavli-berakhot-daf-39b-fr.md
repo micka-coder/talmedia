@@ -33,4 +33,4 @@ En ce qui concerne la maniere dont ces deux pains doivent etre rompus, <b>Rav As
 En ce qui concerne le fait de manger le Chabbat, la Gemara relate : <b>Rav Ami et Rav Asi, lorsque l</b> occasion d'utiliser <b>le pain du <i>eirouv</i></b> dans le repas de Chabbat <b>se presenterait,</b> ils <b>recitaient : Qui fait sortir le pain de la terre sur elle. Ils ont dit</b> en explication : <b>Puisqu'une mitzva a ete accomplie avec elle, nous accomplirons une autre mitzva avec elle.</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

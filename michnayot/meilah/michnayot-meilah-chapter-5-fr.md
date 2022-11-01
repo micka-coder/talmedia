@@ -14,5 +14,5 @@ S'il a enlevé une pierre ou une poutre appartenant à la propriété du Temple,
 ### michna 5
 La portion qu'une personne a mangée elle-même et celle qu'elle a donnée à son ami pour qu'il la mange, ou la portion qu'elle a utilisée elle-même et celle qu'elle a donnée à son ami pour qu'il l'utilise, ou la portion qu'elle a mangée elle-même et celle qu'elle a donnée à son ami pour qu'il l'utilise, ou la portion qu'elle a utilisée elle-même et celle qu'elle a donnée à son ami pour qu'il la mange, peuvent se combiner l'une à l'autre même après un long laps de temps.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

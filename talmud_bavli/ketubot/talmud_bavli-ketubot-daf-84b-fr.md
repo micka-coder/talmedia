@@ -36,4 +36,4 @@ La Gemara relate un autre incident : Les membres de <b>la maison du prince</b> d
 La Guemara relate un autre incident : Un homme appelé <b>Yeimar bar Ḥashu devait de l'argent à un certain homme</b> qui <b>mort et laisse</b> derrière lui <b>un bateau.</b> Yeimar bar Ḥashu <b>dit à son agent : Va</b> et <b>saisis</b> le bateau <b>pour moi.</b> L'agent <b>alla</b> et <b>saisit le bateau. Rav Pappa et Rav Huna, fils de Rav Yehoshua, le rencontrèrent. Ils lui dirent : Tu saisis</b> des biens <b>pour un créancier dans une situation</b> où ton action causera <b>un désavantage pour les autres,</b> car le débiteur devait également de l'argent à d'autres personnes. <b>Et Rabbi Yoḥanan a dit</b> que <b>celui qui saisit</b> des biens <b>pour un créancier dans une situation</b> qui entraînera <b>un désavantage pour les autres</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

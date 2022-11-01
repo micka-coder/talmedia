@@ -42,7 +42,7 @@ La Gemara répond : <b>On peut même dire</b> que la mishna est conforme à l'op
 La Gemara demande : <b>Mais n'est-ce pas une <i>a fortiori</i></b> déduction ? <b>Si là,</b> dans un cas <b>où</b> ce <b>Maître a une association financière</b> avec l'objet, <b>et</b> ce <b>Maître a une association financière</b> avec l'objet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Comme l'avait</b> le <i>tanna</i> <b>enseigné</b> le cas d'un <b>objet trouvé</b> seul, <b>je dirais</b> que <b>c'est</b> seulement dans le cas d'un <b>objet trouvé que les Sages lui ont imposé un serment, car</b> dans ce cas <b>on peut rationaliser</b> ses actions <b>et dire : L'autre</b> partie, celle qui a effectivement trouvé l'objet, <b>ne perd rien</b> en ne gardant pas tout <b>l'objet,</b> puisqu'il ne lui appartenait pas au départ. <b>J'irai le saisir</b> chez lui <b>et le partager</b> <b>avec lui. Mais</b> dans le cas d'un <b>achat et d'une vente, où cela ne peut être dit, dites</b> que les Sages ne lui ont <b>pas</b> imposé de serment.
 
@@ -86,4 +86,4 @@ La Gemara répond : <b>On peut même dire</b> que la mishna est conforme à l'op
 La Gemara demande : <b>Mais n'est-ce pas une <i>a fortiori</i></b> déduction ? <b>Si là,</b> dans un cas <b>où</b> ce <b>Maître a une association financière</b> avec l'objet, <b>et</b> ce <b>Maître a une association financière</b> avec l'objet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

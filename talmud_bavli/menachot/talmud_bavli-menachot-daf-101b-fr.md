@@ -72,7 +72,7 @@ La Guemara répond : <b>C'est bien ce qu'il dit</b> dans le <i>baraita</i>, que 
 La Guemara demande : Rabbi Chimon soutient-il en fait qu'un article qui se tient pour être racheté est traité comme s'il avait déjà été racheté, et est donc considéré comme ayant eu un temps pendant lequel il est apte, même s'il n'a jamais été réellement racheté ? <b>Mais n'est-ce pas</b> que lorsqu'on <b>rend des offrandes d'ordre très sacré ou des offrandes de moindre sainteté <i>piggul</i>,</b> il y avait <b>une mitzva d'asperger</b> le sang une fois l'offrande égorgée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 la chair d'un <b>bœuf lapidé, d'une génisse dont le cou est brisé,</b> des oiseaux</b> sacrifiés par <b>un lépreux</b> (voir Lévitique 14:4-7), <b>d'un âne premier-né</b> dont le cou a été brisé, <b>et la viande</b> cuite avec <b>du lait sont tous</b> susceptibles d'être soumis à <b>l'impureté rituelle des aliments,</b> malgré le fait qu'ils soient interdits à la consommation.
 
@@ -146,7 +146,7 @@ La Guemara répond : <b>C'est bien ce qu'il dit</b> dans le <i>baraita</i>, que 
 La Guemara demande : Rabbi Chimon soutient-il en fait qu'un article qui se tient pour être racheté est traité comme s'il avait déjà été racheté, et est donc considéré comme ayant eu un temps pendant lequel il est apte, même s'il n'a jamais été réellement racheté ? <b>Mais n'est-ce pas</b> que lorsqu'on <b>rend des offrandes d'ordre très sacré ou des offrandes de moindre sainteté <i>piggul</i>,</b> il y avait <b>une mitzva d'asperger</b> le sang une fois l'offrande égorgée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 la chair d'un <b>bœuf lapidé, d'une génisse dont le cou est brisé,</b> des oiseaux</b> sacrifiés par <b>un lépreux</b> (voir Lévitique 14:4-7), <b>d'un âne premier-né</b> dont le cou a été brisé, <b>et la viande</b> cuite avec <b>du lait sont tous</b> susceptibles d'être soumis à <b>l'impureté rituelle des aliments,</b> malgré le fait qu'ils soient interdits à la consommation.
 
@@ -220,4 +220,4 @@ La Guemara répond : <b>C'est bien ce qu'il dit</b> dans le <i>baraita</i>, que 
 La Guemara demande : Rabbi Chimon soutient-il en fait qu'un article qui se tient pour être racheté est traité comme s'il avait déjà été racheté, et est donc considéré comme ayant eu un temps pendant lequel il est apte, même s'il n'a jamais été réellement racheté ? <b>Mais n'est-ce pas</b> que lorsqu'on <b>rend des offrandes d'ordre très sacré ou des offrandes de moindre sainteté <i>piggul</i>,</b> il y avait <b>une mitzva d'asperger</b> le sang une fois l'offrande égorgée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

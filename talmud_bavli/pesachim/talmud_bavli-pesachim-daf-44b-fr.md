@@ -54,4 +54,4 @@ La Guemara demande : <b>Et</b> que disent <b>les sages</b> à propos de la déri
 Rav Ashi <b>lui dit :</b> Ceci ne peut servir de preuve,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

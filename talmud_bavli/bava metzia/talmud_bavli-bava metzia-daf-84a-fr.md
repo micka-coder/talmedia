@@ -54,4 +54,4 @@ Rabbi Elazar ben Pedat <b>se rendit et s'assit devant</b> Rabbi Yoḥanan. A pro
 Rabbi Yoḥanan <b>se promenait, déchirant ses vêtements, pleurant et disant : Où es-tu, fils de Lakish ? Où es-tu, fils de Lakish ? "</b> Rabbi Yoḥanan <b>crutait jusqu'à ce que son esprit lui soit enlevé,</b> c'est-à-dire qu'il devint fou. <b>Les rabbins</b> prièrent et <b>demandèrent</b> à Dieu d'avoir <b>la miséricorde sur lui</b> et de prendre son âme, <b>et</b> Rabbi Yoḥanan <b>mort.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

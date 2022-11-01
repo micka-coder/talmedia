@@ -29,5 +29,5 @@ Il avait l'habitude de dire : le père transmet au fils la beauté, la force, la
 ### michna 10
 Il avait aussi l'habitude de dire qu'il y a cinq choses qui durent douze mois : Le jugement de la génération du déluge [a continué] douze mois ; Le jugement de Job [a continué] douze mois ; Le jugement des Egyptiens [a continué] douze mois ; Le jugement de Gog et Magog dans le temps à venir [continuera] douze mois ; Le jugement des méchants dans le gehinom [continue] douze mois, car il est dit, et "Il sera d'un mois à son [même] mois" (Isaïe 66:23). Rabbi Yohanan ben Nuri dit : "[Aussi longtemps que] de Pessah à Shavuoth, car il est dit : "Et d'un sabbat à son sabbat [suivant] "(ibid.).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

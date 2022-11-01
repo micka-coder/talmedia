@@ -51,4 +51,4 @@ La Gemara continue : <b>Et</b> lorsque Rav Yossef a rapporté cette décision, <
 <b>Abaye dit à Rav Yosef : Cette</b> décision <b>du Rav Yehuda est</b> une décision <b>de</b> son maître <b>Shmuel,</b> et non de son autre maître, Rav.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

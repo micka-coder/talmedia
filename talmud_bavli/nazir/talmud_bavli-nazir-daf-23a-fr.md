@@ -60,4 +60,4 @@ La Gemara demande : <b>Et qu'aurait-il pu faire</b> à ce sujet ? <b>Ce qui est 
 § <b>Rava a interprété</b> un verset <b>homilétique</b> en ce qui concerne Lot : <b>Quel est</b> le sens de ce <b>qui est écrit : "Un frère offensé est plus difficile à gagner qu'une ville forte,</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

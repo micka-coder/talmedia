@@ -27,4 +27,4 @@ Et Rabbi Yehuda dit encore, en ce qui concerne les deux jours de Rosh HaShana qu
 Rabbi Dosa ben Harekinas dit : Celui qui passe devant l'arche dans la synagogue et dirige la congrégation dans la prière le premier jour de la fête de Rosh HaShana dit : Fortifie-nous, Seigneur notre Dieu, en ce jour de la Nouvelle Lune, que ce soit aujourd'hui ou demain. Et de même, le jour suivant, il dit : Que Rosh HaShana soit aujourd'hui ou hier. Et les sages n'étaient pas d'accord avec lui pour que l'on formule sa prière de cette manière conditionnelle.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

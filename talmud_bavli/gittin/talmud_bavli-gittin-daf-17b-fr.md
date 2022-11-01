@@ -39,4 +39,4 @@ Rav Yosef a répondu : <b>Elle aide pour la période de sept ans qui la précèd
 <b>Ravina dit à Rava :</b> Si <b>il écrit</b> l'acte de divorce ,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

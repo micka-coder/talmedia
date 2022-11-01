@@ -112,4 +112,4 @@
 <b>Les lèvres d'un homme juste savent plaire</b> Elles savent plaire et apaiser son Créateur, et elles savent plaire aux gens et faire la paix entre eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

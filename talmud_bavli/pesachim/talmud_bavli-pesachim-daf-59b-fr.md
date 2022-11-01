@@ -45,4 +45,4 @@ Rav Pappa développe la différence entre ces deux explications différentes. De
 <b>Parce que si</b> notre mishna est en accord avec l'opinion de <b>Rabbi Meir,</b> sûrement <b>il a dit : Tenir</b> quelqu'un pour responsable de <b>la première expression,</b> et ce qu'il dit ensuite est sans conséquence. Rabbi Meir est en désaccord avec Rabbi Yosei sur le cas de celui qui dit : Cet animal est un holocauste et un sacrifice de paix, car il soutient que le sacrifice a le statut d'holocauste. Puisque le premier terme qu'il a prononcé était un holocauste, l'animal est consacré comme un holocauste, et il ne peut plus devenir un sacrifice de paix. De même, dans le cas de notre mishna, où le prêtre dit que son intention est de faire un agneau pascal et un sacrifice de paix, Rabbi Meir dira que l'animal a été abattu uniquement pour un agneau pascal et que l'offrande est apte.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

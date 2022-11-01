@@ -45,4 +45,4 @@
 <b>et que mes ennemis voient</b> le signe et soient honteux. Mais le Saint, béni soit-Il, ne l'a pas écouté pour accorder le signe de son vivant. Au lieu de cela, [il est venu] du vivant de son fils Salomon, lorsque les portes se sont accrochées les unes aux autres et ne se sont pas ouvertes jusqu'à ce qu'il dise (II Chron. 6:42) : " Ne fais pas reculer la face de Ton oint, souviens-toi des bonnes actions de David, Ton serviteur ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

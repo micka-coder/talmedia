@@ -36,4 +36,4 @@ La Gemara suggère : <b>Mais conservons</b> le document un jour supplémentaire,
 § La mishna enseigne que <b>Rabbi Ḥanina ben Gamliel dit : Un document lié</b> dont les témoins ont écrit leur signature à l'intérieur est valide, car on peut le transformer en un document ordinaire en le déliant. <b>Rabbi</b> Yehuda HaNasi <b>a soulevé une objection à la déclaration de Rabbi Ḥanina ben Gamliel:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

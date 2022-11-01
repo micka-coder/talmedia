@@ -27,4 +27,4 @@ La Guemara relate : <b>Rabbi Yoḥanan ben Nuri se dressa sur ses pieds et,</b> 
 <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Elazar dit : Tout ce qui émerge de l'arbre</b> n'a <b>pas</b> le statut légal d'une surface de <b>trois par trois</b> brins de doigt. Même si elle est de trois par trois brins de doigt, elle n'est pas considérée comme suffisamment grande pour devenir rituellement impure. <b>Et,</b> par conséquent, <b>on peut couvrir</b> sa <i>sukka</i> <b>avec elle,</b> car la couverture de sa <i>sukka</i> ne peut être faite d'aucun matériau pouvant devenir rituellement impur. C'est le cas pour tout ce qui provient d'un arbre <b>à l'exception du lin,</b> qui a un statut juridique unique. <b>Abaye a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

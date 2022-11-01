@@ -30,4 +30,4 @@ Rav Yosef a affirmé que cette <i>baraita</i> peut servir de preuve en ce qui co
 § Un différend amoraïque <b>a été énoncé</b> à propos de <b>celui qui vend un tonneau de vin à un autre, et</b> suite à la vente <b>il s'est transformé en vinaigre. Le Rav a dit :</b> S'il a tourné au cours de <b>l'un des trois premiers jours</b> suivant la vente, on présume qu'il avait déjà commencé à tourner <b>dans le domaine</b> du <b>vendeur,</b> et il en porte la responsabilité financière ; <b>à partir de ce <b>point</b>, on présume que le vin a tourné <b>dans le domaine</b> du <b>acheteur,</b> et c'est sa perte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

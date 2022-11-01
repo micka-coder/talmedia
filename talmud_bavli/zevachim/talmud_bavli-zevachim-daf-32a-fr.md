@@ -36,4 +36,4 @@ La Guemara demande : En ce qui concerne <b>le placement des mains aussi, c'est p
 <b>Rav Ḥisda a enseigné la</b> <i>baraita</i> de la manière <b>opposée</b> : <b>"Et il posera</b> sa main sur la tête de l'holocauste...<b>et il égorgera</b> le taureau" (Lévitique 1:4-5), enseigne que <b>tout comme l'égorgement</b> ne peut être effectué que <b>par des individus rituellement purs</b>, <b>de même, poser les mains</b> ne peut être effectué que <b>par des individus rituellement purs</b>. La Guemara demande : <b>Qu'y a-t-il de différent</b> dans l'<b>abattage</b> pour qu'il ne puisse être accompli que par des individus rituellement purs ? C'est <b>qu'il est écrit</b> à son sujet : <b>"Devant le Seigneur"</b>, ce qui fait référence à la cour du Temple, et une personne rituellement impure ne peut entrer dans la cour du Temple.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ Rav Pappa a dit à Abaye : Bien qu'il soit possible de construire un scénario o
 En ce qui concerne la dispute dans la mishna, <b>il a été déclaré</b> qu'il y a une dispute amoraïque : <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Yosei, et Rav Naḥman dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi</b> Yehuda HaNasi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

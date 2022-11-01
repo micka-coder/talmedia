@@ -73,4 +73,4 @@
 <b>L'homme est dans sa gloire mais il ne comprend pas</b> Le chemin de la vie est placé devant lui ; s'il le suit, il sera honoré, mais il ne comprend pas le bien [qui en résulte].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

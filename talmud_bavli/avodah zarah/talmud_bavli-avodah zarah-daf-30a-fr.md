@@ -48,4 +48,4 @@ En revanche, <b>Shmuel ne boirait pas l'eau de la maison d'une veuve,</b> car <b
 <b>Rabbi Shimon ben Lakish dit : <i>Karina</i> n'est pas soumise</b> à la <i>halakha</i> de <b>l'exposition.</b> La Gemara demande : <b>Qu'est-ce</b> qu'une <b><i>Karina</i> ? Rabbi Abbahou répond :</b> C'est <b>un vin doux qui vient d'Asie [<i>Asya</i>]</b> mineure. <b>Rava dit : Mais dans son lieu</b> d'origine, <b>il est soumis</b> à la <i>halakha</i> de <b>l'exposition. Quelle en est la raison ? </b> La raison est que là, <b>il est le vin de la province</b> et les serpents n'hésitent pas à s'y abreuver. <b>Rava dit :</b> En ce qui concerne <b>ce vin qui a tourné [<i>de'akrim</i>], jusqu'à ce que trois jours</b> se soient écoulés depuis qu'il a commencé à tourner, <b>il est soumis</b> à la <i>halakha</i> de <b>l'exposition et est soumis</b> à l'interdiction du <b>vin</b> utilisé pour <b>une libation.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

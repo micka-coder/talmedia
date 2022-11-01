@@ -24,4 +24,4 @@ La Gemara demande : <b>Mais du fait</b> que <b>Rabbi Yoḥanan a dit à propos</
 <strong>MISHNA : </strong>Dans le cas de <b>celui qui sépare un animal femelle</b> <b>pour son agneau pascal</b> alors que la Torah exige un mâle, <b>ou un mâle qui est dans sa deuxième année</b> alors que l'agneau pascal doit être un animal qui est dans sa première année, l'animal est laissé en pâture jusqu'à ce qu'il développe une tare et devienne impropre, et il est alors vendu et son argent est utilisé pour des offrandes volontaires ou des offrandes de paix. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

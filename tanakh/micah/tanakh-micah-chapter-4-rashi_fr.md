@@ -47,4 +47,4 @@
 <b>Avec une verge, ils frappent... sur la joue</b> - Qui a provoqué leur succès (Babylone) ? Les Israélites tournent en dérision leurs prophètes et leurs juges et les frappent sur la joue. C'est ce qu'ils avaient coutume de faire, et c'est ce que nous trouvons dans la <i>Pesikta</i> (<i>d'Rav Kahana</i>, p. 125b), et c'est ce que dit Isaïe (<a class="refLink" href="/Isaïe.50.6" data-ref="Isaïe 50:6">Isaïe 50:6</a>) "J'ai donné mon dos aux frappeurs". 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

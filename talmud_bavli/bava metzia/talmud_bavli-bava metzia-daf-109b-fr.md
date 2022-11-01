@@ -30,7 +30,7 @@ La Gemara rejette cet argument : <b>Non,</b> l'arbre <b>haché</b> mentionné da
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de l'opinion de Rava issue d'une mishna (<i>Ketubot</i> 79b) : Si une femme après son mariage avait des <b>vignes anciennes et des oliviers</b> qui lui ont été <b>légués</b> par voie d'héritage,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et un scribe de la ville</b> qui rédige des documents au nom des habitants, <b>toutes ces personnes sont considérées comme prévenues.</b> Par conséquent, toute perte subie du fait de ces personnes est déduite de leur salaire, et elles sont condamnées à une amende sans qu'il soit nécessaire de les prévenir au préalable. <b>Le principe de</b> cette <b>matière</b> est le suivant : En ce qui concerne <b>toutes les pertes qui ne sont pas récupérables, ils sont considérés comme prévenus.</b>
 
@@ -62,4 +62,4 @@ La Gemara rejette cet argument : <b>Non,</b> l'arbre <b>haché</b> mentionné da
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de l'opinion de Rava issue d'une mishna (<i>Ketubot</i> 79b) : Si une femme après son mariage avait des <b>vignes anciennes et des oliviers</b> qui lui ont été <b>légués</b> par voie d'héritage,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

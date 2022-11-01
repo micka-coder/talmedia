@@ -30,4 +30,4 @@ La Gemara commente : <b>Et maintenant,</b> depuis l'époque de Rav Naḥman, <b>
 La Guemara demande : <b>Mais n'y a-t-il pas</b> le cas des <b>fiançailles de lévirat,</b> où la <i>yevama</i> <b>se soustrait à l'autorité de son père, et</b> pourtant <b>on a appris</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

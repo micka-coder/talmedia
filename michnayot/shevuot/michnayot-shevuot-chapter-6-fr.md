@@ -20,5 +20,5 @@ Rabbi Meir dit : "Il y a des choses qui sont [attachées] à la terre, mais qui 
 ### michna 7
 Si un homme prête [de l'argent] à son voisin sur un gage, et que le gage a été perdu, et qu'il lui dit : "Je t'ai prêté un sela dessus, et il [le gage] valait un shekel", et l'autre dit : "Non ! Tu m'as prêté un sela dessus, et il valait un sela", il est exempté. "Je t'ai prêté une sela sur ce gage, et il valait un shekel", et l'autre dit : "Non ! Tu m'as prêté une sela sur ce gage, et il valait trois deniers", il est responsable. "Tu m'as prêté une sela dessus, et elle valait deux deniers," et l'autre dit, "Non ! je t'ai prêté une sela dessus, et elle valait un sela", il est exempt. "Tu m'as prêté une sela dessus, et elle valait deux", et l'autre dit : "Non ! Je t'ai prêté une sela dessus, et elle valait cinq deniers", il est responsable. Et qui prête serment ? Celui qui avait le dépèt, de peur que, si l'autre fait le serment, celui-ci ne fasse ressortir le dépèt.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

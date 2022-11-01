@@ -63,4 +63,4 @@ Si le verset avait écrit seulement "son jabot", on <b>pourrait</b> penser que l
 Un Sage <b>de l'école de Rabbi Yishmael a enseigné :</b> Le mot <b><i>benotzatah</i></b> est une contraction des mots <b><i>benotza shelah</i>,</b> signifiant ses plumes. Cela enseigne que le prêtre <b>le coupe avec un couteau,</b> créant une ouverture <b>comme une fenêtre</b> en face du jabot. Cela lui permet de retirer le jabot avec seulement les plumes et la peau directement en face, et c'est ce qu'il apporte à l'endroit des cendres.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

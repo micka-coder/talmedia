@@ -43,4 +43,4 @@
 <b>Et je détruirai tes ennemis</b> Heb. עָרֶיךָ. <i>Jonathan</i> rend : Et je détruirai tes ennemis. De même, (<a class="refLink" href="/Isaiah.14.21" data-ref="Isaiah 14:21">Isa. 14:21</a>) "Et remplis la surface de la terre d'ennemis (עָרִים)", et (<a class="refLink" href="/I_Samuel.28.16" data-ref="I Samuel 28:16">I Sam. 28:16</a>) "Et est devenu votre adversaire (עָרֶךָ)." 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

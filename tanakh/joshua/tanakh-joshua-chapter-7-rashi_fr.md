@@ -75,4 +75,4 @@
 <b>Et ils les lapidèrent.</b> Il s'agit du bœuf(en) et des autres animaux.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

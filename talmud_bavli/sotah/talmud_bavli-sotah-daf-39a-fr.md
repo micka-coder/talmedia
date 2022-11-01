@@ -18,4 +18,4 @@ La Gemara demande : <b>Quelle bénédiction</b> les prêtres récitent-ils avant
 La Guemara poursuit : <b>Lorsque</b> le prêtre <b>commence à marcher</b> vers l'estrade pour réciter la bénédiction, <b>que dit-il ?</b> La Gemara répond : <b>Que ce soit Ta volonté, Seigneur notre Dieu, que cette bénédiction par laquelle Tu nous as ordonné de bénir Ton peuple, Israël, ne contienne aucune pierre d'achoppement ou iniquité. Et</b> lorsque la bénédiction est achevée, <b>quand il détourne son visage de la congrégation, que dit-il ? Le Rav Ḥisda a instruit le Rav Ukva et lui a enseigné</b> que voici ce qu'il devait dire : <b>Maître de l'Univers, nous avons accompli ce que Tu as décrété sur nous. Fais-nous</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

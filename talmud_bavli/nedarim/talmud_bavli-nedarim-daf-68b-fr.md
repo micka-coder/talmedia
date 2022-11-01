@@ -9,4 +9,4 @@ Si <b>son père a entendu</b> ou a été mis au courant du vœu <b>et l'a annul�
 Si <b>son mari a entendu et annulé</b> le vœu <b>pour elle, et que le père n'a pas réussi à entendre</b> le vœu <b>avant de mourir, le mari ne peut pas l'annuler</b>, bien qu'elle n'ait plus de père, <b>car le mari ne peut annuler</b> les vœux <b>qu'en partenariat</b> avec le père.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

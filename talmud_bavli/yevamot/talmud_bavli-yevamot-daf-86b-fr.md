@@ -27,4 +27,4 @@ La Gemara pose la question à propos de la pénalité imposée aux Lévites : <b
 Si <b>son enfant de l'israélite</b> est également <b>mort,</b> alors que son fils du lévite est resté en vie, <b>elle peut participer à la dîme</b> à cause de l'enfant du lévite. Si <b>son enfant du Lévite est mort,</b> la laissant avec un fils du prêtre, <b>elle peut</b> à nouveau <b>participer à <i>teruma</i>.</b> Si <b>son enfant du prêtre est mort</b> également, <b>elle ne peut plus</b> <b>participer ni à <i>teruma</i> ni à la dîme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

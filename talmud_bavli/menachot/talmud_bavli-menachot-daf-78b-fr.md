@@ -72,4 +72,4 @@ Si l'on a <b>abattu</b> l'offrande de remerciements <b>non pas pour elle</b> mai
 <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>Voici le principe : Tout</b> cas dans <b>où</b> la <b>disqualification</b> de l'offrande de remerciements <b>précède</b> son <b>abattage, les pains n'ont pas été consacrés,</b> et tout cas dans lequel <b>sa disqualification</b> est apparue <b>après</b> son <b>abattage, les pains ont été consacrés. </b> Par conséquent, si quelqu'un <b>abattait</b> l'offrande de remerciements avec l'intention d'y prendre part ou de brûler les portions sacrificielles <b>au-delà de son <b>temps désigné ou en dehors de sa</b> <b>zone désignée, les pains étaient consacrés,</b> car l'offrande restait apte jusqu'après son abattage. Mais si l'on <b>abattait</b> l'offrande de remerciement <b>et que l'on découvrait</b> qu'elle était <b>un <i>tereifa</i>, les pains n'étaient pas consacrés,</b> car la cause de la disqualification de l'animal précédait son abattage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

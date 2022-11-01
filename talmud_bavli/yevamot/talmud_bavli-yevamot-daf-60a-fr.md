@@ -48,4 +48,4 @@ La Gemara demande : <b>Pourquoi ai-je besoin d'un verset</b> pour inclure une fe
 <b>Et Rabbi Yosei et Rabbi Shimon, quelle est leur raison ? Ils expliquent comme suit : "Et pour sa sœur vierge" exclut</b> une femme qui a été <b>rapée ou séduite et une femme dont l'hymen a été déchiré accidentellement,</b> qui n'est pas non plus considérée comme vierge. <b>"Qui n'a pas eu</b> d'homme" <b>exclut une sœur fiancée</b>, bien qu'elle ne soit pas encore pleinement mariée. <b>"Qui est proche";</b> il s'agit <b>d'inclure une femme fiancée</b> <b>qui a été</b> ensuite <b>divorcée,</b> car elle est à nouveau proche de son frère. <b>"A lui";</b> il s'agit d'inclure une femme adulte.</b> La Gemara demande : Le terme <b>"qui est proche"</b> peut-il venir <b>inclure une femme fiancée</b> <b>qui a divorcé ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

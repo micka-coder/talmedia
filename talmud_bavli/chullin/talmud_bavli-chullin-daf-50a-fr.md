@@ -54,4 +54,4 @@ De même, <b>Abaye et Rava disent tous deux : On peut comparer</b> des zones sec
 <b>Les Sages ont dit ceci</b> <i>halakha</i> <b>devant Rava au nom du Rav Naḥman.</b> Rava <b>leur a dit</b> : <b>Ne vous ai-je pas dit de ne pas vous accrocher</b> Rav Naḥman.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -35,5 +35,5 @@ Si un homme a volé un converti et lui a juré [faussement], et que le converti 
 ### michna 12
 Si celui qui a volé le convertisseur a donné l'argent aux hommes de la garde sacerdotale et qu'il est mort, ses héritiers ne pourront pas le récupérer de leurs mains [les prêtres], car il est dit : "Tout ce qu'un homme donne à un prêtre sera à lui" (Nombres 5:10). S'il a donné l'argent à Yehoyariv et l'offrande de culpabilité à Yedayah, il a rempli son obligation. S'il a donné l'offrande de culpabilité à Yehoyariv et l'argent à Yedayah : s'il reste l'offrande de culpabilité, les fils de Yedayah l'offriront ; sinon, il devra apporter une autre offrande de culpabilité. En effet, si un homme a apporté ce qu'il avait volé avant d'offrir son offrande de culpabilité, il a rempli son obligation. Mais s'il a apporté son offrande de culpabilité avant d'avoir apporté ce qu'il avait volé, il n'a pas encore rempli son obligation. S'il a donné la valeur mais pas le cinquième [ajouté], le cinquième [ajouté] ne l'empêche pas [d'offrir le sacrifice de culpabilité].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

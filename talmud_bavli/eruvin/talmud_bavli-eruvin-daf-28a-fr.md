@@ -42,4 +42,4 @@ La Guemara demande : <b>La Babylonie est-elle la majorité du monde ?</b> Les lo
 La Gemara répond : <b>Lorsque Rav a dit</b> que le grain vert peut être utilisé pour un <i>eirouv</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

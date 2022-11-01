@@ -116,5 +116,5 @@
 ### passuk 31
 <b>Le sixième jour.</b> La lettre ה' a été ajoutée le sixième jour, lorsque les jours de la création ont pris fin, pour enseigner qu'Il a stipulé avec eux, ["Vous avez été créés] à la condition que Bnei Yisrael accepte les Cinq Livres de la Torah." Une autre explication pour "le sixième jour". Ils sont tous [c'est-à-dire toute la création] en attente jusqu'au "sixième jour", en référence au sixième jour du [mois] Sivan destiné à être le jour du don de la Torah. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

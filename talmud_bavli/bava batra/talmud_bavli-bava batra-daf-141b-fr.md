@@ -39,4 +39,4 @@ La Guemara propose une autre résolution à l'objection de Rav Naḥman : <b>Mai
 La Guemara propose une autre résolution à l'objection du Rav Naḥman : <b>Mais laissons</b> Rav Huna <b>dire à</b> Rav Naḥman : La mishna fait référence <b>à</b> un cas <b>où</b> le don a été fait après que sa femme ait déjà <b>donné naissance</b> mais qu'il ne connaissait pas encore le sexe du bébé. La Guemara rejette également cette explication : <b>Si c'est ainsi,</b> alors concernant <b>cette</b> que <b>la dernière clause</b> de la mishna <b>enseigne : Toute</b> progéniture à laquelle <b>ma femme donne naissance recevra</b> une certaine somme, et qu'elle a donné naissance à un <i>tumtum</i>, le <i>tumtum</i> <b>reçoit</b> cette somme, il y a une difficulté. Selon cette explication, la phrase : <b>Quelle que soit la progéniture</b> de ma femme <b>qui lui donne naissance,</b> est incorrecte. La mishna aurait dû dire : Quelle que soit la progéniture</b> de ma femme <b>qui lui donne naissance.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

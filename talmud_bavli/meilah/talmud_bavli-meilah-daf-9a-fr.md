@@ -57,4 +57,4 @@ La Gemara clarifie cette dispute : <b>Avant l'enlèvement des cendres, tout le m
 La Guemara soulève une difficulté contre l'opinion du Rav. <b>Nous avons appris</b> dans la mishna, à propos de l'holocauste des oiseaux : <b>On est</b> responsable de <b>son mauvais usage jusqu'à ce qu'il parte vers le lieu des cendres,</b> où il est brûlé. Cela indique que les <i>halakhot</i> de mauvais usage s'appliquent tant que les cendres restent sur l'autel, même après le retrait des cendres, ce qui est <b>difficile pour</b> l'opinion de <b>Rav. </b> La Guemara répond que <b>Rav</b> aurait pu <b>vous dire :</b> La mishna signifie que l'on est responsable <b>jusqu'à</b> ce que la cendre <b>soit apte</b> à être sortie <b>à l'endroit des cendres,</b> c'est-à-dire, une fois qu'il a été brûlé sur l'autel et qu'une pelletée de cendres en a été retirée.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

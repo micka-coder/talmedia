@@ -50,5 +50,5 @@ Il y a trois types différents de filets à cheveux : celui d'une fille est susc
 ### michna 17
 Il existe trois types de paniers différents : Si un panier usé est rapiécé sur un panier sain, tout est déterminé par le sain ; Si un petit panier est rapiécé sur un grand, tout est déterminé par le grand ; S'ils sont égaux, tout est déterminé par l'intérieur. Rabbi Shimon dit : si la coupe d'une balance a été fixée au fond d'une chaudière à l'intérieur, cette dernière devient impure ; mais si elle est fixée à l'extérieur, elle reste propre. Si elle a été collée sur le côté, que ce soit à l'intérieur ou à l'extérieur, elle reste propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

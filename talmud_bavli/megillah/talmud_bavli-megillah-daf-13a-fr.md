@@ -72,4 +72,4 @@ Le verset indique : <b>Et lorsque les vierges furent réunies pour la deuxième 
 § <b>Rabbi Elazar a dit : Quel est</b> le sens de ce <b>qui est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

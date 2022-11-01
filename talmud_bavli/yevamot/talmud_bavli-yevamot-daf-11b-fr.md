@@ -63,4 +63,4 @@ Rabbi Ḥiyya bar Abba développe : <b>Comme</b> dans ce cas, <b>on énonce une 
 <b>Rav Naḥman bar Yitzḥak</b> enseignerait</b> une version différente de cette discussion, <b>comme suit : Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan a soulevé un dilemme :</b> En ce qui concerne <b>celui qui se remarie avec sa divorcée après qu'elle ait été mariée à un autre, quelle est</b> la <i>halakha</i> concernant son mariage lévirat ? <b>Rabbi Ami lui a répondu : Et</b> vous pouvez <b>soulever le dilemme</b> à l'égard de <b>sa femme rivale</b> également. Rabbi Ḥiyya bar Abba répondit : La <i>halakha</i> de <b>sa femme rivale ne constitue pas un dilemme pour moi, car la déduction <i>a fortiori</i></b> n'est pas assez forte</b> <b>pour invalider une femme rivale. Au contraire, là où je soulève le dilemme</b> c'est par rapport à la divorcée <b>elle-même. Qu'est-ce que</b> le <i>halakha</i> ? <b>La <i>a fortiori</i></b> déduction est-elle <b>suffisamment forte</b> pour qu'elle puisse être acceptée même <b>à la place d'une mitzva</b> de contracter un mariage lévirat, <b>ou pas ?</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Rav Ḥisda <b>lui a dit : Selon la déclaration de</b> celui <b>qui permet</b> 
 <b>Rav Adda bar Mattana soulève une objection à Rava</b> à partir d'une <i>baraita</i> : <b>Si la</b> croix <b>poutre</b> utilisée pour rendre une ruelle permise au portage <b>est</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

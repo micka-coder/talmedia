@@ -87,4 +87,4 @@ La Gemara demande : <b>Mais <i>sota</i> est</b> un cas impliquant des <b>affaire
 Une difficulté est soulevée : Selon Rabbi Meir, qui n'accepte pas ce principe : D'une déclaration négative on peut déduire une déclaration positive, les deux éventualités, positive et négative, auraient dû être écrites dans le verset. <b>Et Rabbi Tanḥum bar Ḥakhinai dit</b> pour résoudre la difficulté : <b><i>Hinnaki</i> est écrit,</b> ce qui signifie : Tu seras absous. Mais comme il est écrit sans la lettre <i>yod</i>, on l'interprète comme si <i>ḥinnaki</i> était écrit, ce qui signifie : Tu seras étranglé, ce qui est l'éventualité si elle a commis l'adultère. La Guemara conclut : <b>La raison</b> pour laquelle ce verset n'est pas difficile est <b>que <i>hinnaki</i> est écrit</b> et que <i>ḥinnaki</i> est interprété ; <b>mais</b> si <b>cela</b> n'était <b>pas</b> le cas, <b>on ne dit pas : D'une déclaration négative</b> <b>vous</b> pouvez <b>inférer une déclaration positive</b>. Apparemment, même en matière de rituel, Rabbi Meir n'accepte pas ce principe.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

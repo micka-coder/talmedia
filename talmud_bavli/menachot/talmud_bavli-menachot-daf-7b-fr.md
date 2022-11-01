@@ -66,4 +66,4 @@ La Guemara soulève une difficulté : <b>Grâce,</b> après avoir <b>achevé</b>
 § La Guemara revient sur la question de la sanctification du sang recueilli dans deux récipients : <b>Et Rabbi Elazar</b> a-t-il vraiment <b>dit ceci,</b> que le sang n'est sanctifié que lorsqu'une mesure complète est initialement recueillie dans un seul récipient ? <b>Mais il a été dit</b> à propos de l'offrande du <b>gâteau de grillage</b> du Grand Prêtre : <b>Rabbi Yoḥanan dit</b> qu'elle n'est pas sanctifiée par moitié,</b> c'est-à-dire que si la moitié d'un dixième d'épha a été placée dans un récipient, et une seconde moitié dans un autre récipient, aucune des deux n'est sanctifiée. <b>Rabbi Elazar dit : Puisqu'elle est sacrifiée par moitié,</b> comme la moitié de l'offrande de repas est sacrifiée le matin et la moitié l'après-midi, elle peut être <b>sanctifiée par moitié.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

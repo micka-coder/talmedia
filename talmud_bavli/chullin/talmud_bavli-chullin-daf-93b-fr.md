@@ -66,4 +66,4 @@ Aussi longtemps</b> que les bouchers se <b>souvenaient</b> de l'avis <b>de Rabbi
 <strong>GEMARA:</strong> La déclaration de la mishna selon laquelle un Juif peut envoyer une cuisse à un Gentil indique que si elle est <b>entière, oui,</b> un Juif peut l'envoyer à un Gentil, mais si la cuisse a été <b>coupée,</b> un Juif peut <b>ne pas</b> l'envoyer à un Gentil. La Gemara demande : <b>De quoi s'agit-il ? Si nous disons</b> que la mishna fait référence <b>à un endroit où</b> tous les bouchers sont juifs mais où <b>ils n'annoncent pas</b> publiquement lorsqu'ils ont vendu à un Gentil un animal qui s'avère avoir une blessure qui le fera mourir dans les douze mois [<i>tereifa</i>], alors il est interdit aux Juifs d'acheter toute viande à des Gentils, en raison de la possibilité qu'elle provienne d'un animal qui était une <i>tereifa</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

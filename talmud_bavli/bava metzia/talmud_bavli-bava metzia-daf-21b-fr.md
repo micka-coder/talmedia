@@ -51,7 +51,7 @@ La Gemara demande : <b>Si oui,</b> alors <b>même</b> dans la <b>première</b> c
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve provenant d'un <i>baraita</i> : <b>Un voleur qui a pris</b> un objet <b>de cette</b> personne <b>et l'a donné</b> <b>à cette</b> personne, <b>et de même, un brigand qui a pris</b> un objet <b>de cette</b> personne <b>et l'a donné</b> <b>à cette</b> personne,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 En ce qui concerne le <b>désespoir</b> de quelqu'un de retrouver son objet perdu <b>ce n'est pas un sentiment conscient</b>, c'est-à-dire que s'il était conscient de la perte de son bien, il aurait désespéré de le retrouver, mais il n'était pas conscient de sa perte lorsque le trouveur a découvert l'objet, <b>Abaye a dit : Ce n'est pas</b> considéré comme un <b>désespoir;</b> le propriétaire conserve la propriété de l'objet, et le trouveur ne peut le garder. <b>Et Rava a dit : C'est</b> considéré comme <b>despair</b> et celui qui le trouve peut le garder.
 
@@ -104,4 +104,4 @@ La Gemara demande : <b>Si oui,</b> alors <b>même</b> dans la <b>première</b> c
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve provenant d'un <i>baraita</i> : <b>Un voleur qui a pris</b> un objet <b>de cette</b> personne <b>et l'a donné</b> <b>à cette</b> personne, <b>et de même, un brigand qui a pris</b> un objet <b>de cette</b> personne <b>et l'a donné</b> <b>à cette</b> personne,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

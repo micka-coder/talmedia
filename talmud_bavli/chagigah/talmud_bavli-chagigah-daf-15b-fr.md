@@ -48,4 +48,4 @@ Le philosophe Gentil, <b>Nimos HaGardi, demanda à Rabbi Meir :</b> Est-ce que <
 § La Guemara revient sur les quatre personnes qui sont entrées dans le verger. Il est dit plus haut que <b>Rabbi Akiva est monté en sécurité et est descendu en sécurité. En ce qui le concerne, le verset indique : "Tire-moi, nous courrons après toi;</b> le roi m'a amené dans ses chambres" (Cantique des Cantiques 1:4). La Guemara relate : <b>Et même Rabbi Akiva, les anges tutélaires cherchaient à le pousser</b> hors du verger. <b>Le Saint, Béni soit-Il, leur dit : Laissez cet Ancien, car il est apte à servir Ma gloire.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

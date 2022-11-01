@@ -39,4 +39,4 @@ La Guemara réfute cette affirmation : <b>Et peut-être</b> le <b>premier <i>tan
 Rabbi Asi lui <b>dit : </b> Il n'y a pas de preuve d'ici, car lorsque <b>la Torah a été</b> plus tard <b>donnée,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

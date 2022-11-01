@@ -14,5 +14,5 @@ Ce jour-là, Rabbi Akiva a expliqué : "Moïse et les enfants d'Israël chantèr
 ### michna 5
 Ce jour-là , Rabbi Joshua ben Hyrcanus a exposé : Job n'a servi le Saint, béni soit-Il, que par amour : comme il est dit : "Même s'il me tue, je l'attendrai" (Job 13:15). Et l'on ne sait toujours pas s'il faut lire "Je l'attendrai" ou "Je ne l'attendrai pas" ? L'Ecriture dit : "Jusqu'à ma mort, je garderai mon intégrité" (Job 27:5), ce qui enseigne que ce qu'il a fait était de l'amour. Rabbi Joshua [ben Hananiah] a dit : qui va enlever la poussière de tes yeux, Rabban Yohanan ben Zakkai, puisque tu as exposé toute ta vie que Job ne servait l'Omniprésent que par crainte, comme il est dit : "Un homme droit et sans reproche qui craint Dieu et fuit le mal "(Job 1:8), Joshua, l'élève de ton élève, n'a-t-il pas enseigné que ce qu'il a fait était par amour ?
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

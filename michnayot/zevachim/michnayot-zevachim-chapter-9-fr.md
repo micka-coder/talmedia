@@ -20,5 +20,5 @@ Et si l'un de ces objets s'est détaché de l'autel, il ne sera pas remplacé. D
 ### michna 7
 De même que l'autel sanctifie tout ce qui est admissible pour lui, de même la montée sanctifie tout ce qui est admissible pour elle ; Et de même que l'autel et la montée sanctifient tout ce qui est admissible pour eux, de même les récipients sanctifient. Les récipients pour les liquides sanctifient les liquides, Et les mesures sanctifient les matières sèches. Un récipient pour liquide ne sanctifie pas une matière sèche, et une [mesure] sèche ne sanctifie pas un liquide. Si les vases saints ont été perforés et qu'ils peuvent être utilisés pour le même usage que lorsqu'ils sont entiers, ils sanctifient [ce qui y est placé] ; sinon, ils ne sanctifient pas. Et tous ces objets ne sanctifient que dans le lieu saint.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

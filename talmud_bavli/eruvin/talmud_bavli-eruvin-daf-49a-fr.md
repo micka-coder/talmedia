@@ -75,4 +75,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique, halakhique <b>ent
 <b>Et</b> une autre différence pratique entre eux concerne la question de savoir si un <i>eirouv</i> peut être établi avec un aliment qui est <b>moins que la valeur d'une <i>peruta</i>. </b> Selon l'opinion de Shmuel, ce ne serait pas un <i>eirouv</i> valide, car il n'y a pas d'acquisition avec quelque chose de moins que la valeur d'une <i>peruta</i> ; alors que selon l'opinion de Rabba, puisqu'un <i>eirouv</i> est effectif en établissant la résidence d'une personne, cela peut être fait même avec une quantité de nourriture valant moins d'une <i>peruta</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

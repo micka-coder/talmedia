@@ -51,4 +51,4 @@ La Gemara demande : En ce qui concerne Shmuel, <b>celui qui dit</b> que cela sig
 La Gemara demande : <b>Et selon</b> Rav, <b>celui qui dit</b> que cela signifie effectivement <b>verser, quelle est la raison</b> pour laquelle il <b>n'a pas dit</b> que cela signifie <b>mélanger ?</b> La Gemara répond : Il aurait pu <b>vous dire : Mélanger</b> le vin de libation avec du vin casher.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

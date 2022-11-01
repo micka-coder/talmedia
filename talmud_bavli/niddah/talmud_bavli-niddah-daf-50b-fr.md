@@ -51,4 +51,4 @@ Les rabbins <b>ont dit à</b> Rabbi Yoḥanan ben Nuri : <b>Non,</b> ce n'est pa
 La Gemara demande : <b>Quel</b> est le sens de la clause : Il <b>n'assume pas</b> son statut <b>avec cette</b> exigence de pensée ? De quelle manière la pensée est-elle requise pour l'impureté indulgente de la nourriture qu'elle confère dans le cas d'une carcasse d'oiseau, mais non requise pour l'impureté sévère qu'elle confère lorsqu'elle est dans la gorge ? <b>Rava dit</b> que <b>c'est ce que</b> les rabbins <b>ont dit à</b> Rabbi Yoḥanan ben Nuri : <b>Non, si tu as dit</b> qu'il n'y a pas d'obligation de penser...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

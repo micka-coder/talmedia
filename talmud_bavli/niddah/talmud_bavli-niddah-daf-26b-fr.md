@@ -39,4 +39,4 @@ La Gemara relate : <b>Shmuel, les élèves du Rav, et le Rav Yéhouda étaient a
 Rabbi Yosei ben Shaul a ensuite demandé à Rabbi Yehuda HaNasi : Si la post-naissance est <b>liée</b> à l'article qui a la forme d'un corbeau, <b>qu'est-ce que</b> la <i>halakha</i> ? Rabbi Yehuda HaNasi <b>lui a dit : Tu as posé</b> une question sur <b>une matière qui n'existe pas.</b> Rabbi Yosei ben Shaul <b>a soulevé une objection à</b> cette réponse d'une <i>baraita</i> : En ce qui concerne une femme <b>qui décharge un type d'animal domestiqué, d'animal non domestiqué ou d'oiseau, et</b> elle décharge <b>un post-naissance avec eux,</b> dans un cas <b>où le <b>post-naissance est lié à eux, nous ne sommes pas concernés par</b> la possibilité d'une <b>autre descendance. </b> Si l' <b>afterbirth n'est pas lié à eux, nous sommes concernés par le fait que</b> l'afterbirth contenait <b>une autre progéniture.</b> Et <b>Je leur impose</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Si la <b>propriété est entrée</b> dans la possession de l'homme en question <
 Guemara La mishna enseigne que celui qui dit : <b>C'est mon fils,</b> est <b>réputé crédible. A l'égard de quelle <i>halakha</i></b> cela est-il énoncé ? <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> Il est dit <b>en ce qui concerne l'héritage</b> de <b>lui,</b> c'est-à-dire que le fils hérite de son interlocuteur, <b>et en ce qui concerne le fait de rendre sa femme exempte de lévirat.</b> Parce qu'il affirme que la personne en question est son fils, sa femme n'est pas tenue de contracter un lévirat après sa mort, car il a un enfant.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

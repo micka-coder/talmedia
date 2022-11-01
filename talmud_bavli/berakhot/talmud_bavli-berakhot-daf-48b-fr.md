@@ -39,4 +39,4 @@ A propos de ce verset, <b>Rabbi Meir dit : D'ou</b> provient que <b>comme on rec
 En ce qui concerne la formule de la grace apres les repas, la Guemara poursuit : <b>Il a ete enseigne</b> dans une <i>baraita</i> : <b>Rabbi Eliezer dit : Quiconque n'a pas dit : Une terre desirable, bonne et spacieuse dans la benediction de la terre, et</b> qui n'a pas mentionne <b>la maison royale de David dans</b> la benediction : <b>Qui construit Jerusalem, n'a pas rempli son obligation. Nahum l'Ancien dit : On doit mentionner l'alliance</b> de la circoncision <b>dans</b> la benediction de la terre. <b>Rabbi Yosei dit : On doit mentionner la Torah dans</b> la benediction de la terre. <b>Pelimu,</b> l'un des derniers <i>tannaim</i>, <b>dit : Il doit</b> faire mention de l'<b>alliance</b> de la circoncision <b>precedant</b> la mention de la <b>Torah, car celle-ci,</b> la Torah, <b>a ete donnee</b> au peuple juif <b>avec trois alliances,</b> <b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -71,4 +71,4 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint
 <b>Dieu avait touché.</b> [Le targum rend] : " les hommes qui craignent le péché, dans le cœur desquels <span>ה</span> a instillé la peur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

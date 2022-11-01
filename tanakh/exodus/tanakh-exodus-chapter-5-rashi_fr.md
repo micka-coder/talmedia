@@ -76,5 +76,5 @@
 ### passuk 23
 <b>Il a fait du mal [à]</b> הֵרַע est à la forme <i>hiphil</i> (causative), [c'est-à-dire] "il a provoqué une augmentation du mal sur eux." Onkelos traduit [הֵרַע] : אַבְאֵשׁ - <i>il a maltraité.</i> 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

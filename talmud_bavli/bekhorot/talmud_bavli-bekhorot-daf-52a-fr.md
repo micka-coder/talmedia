@@ -24,4 +24,4 @@ La mishna enseigne : <b>Non</b> le <b>yavam</i></b> ne reçoit pas ces portions.
 La mishna enseigne : <b>Et tous ne prennent pas</b> une part <b>dans</b> tout <b>accroissement.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

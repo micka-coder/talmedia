@@ -48,4 +48,4 @@ La Guemara demande : Qu'en est-il des cas d'un <b>voleur et d'un brigand, qui</b
 La Gemara demande : <b>Et</b> quant à <b>Rabbi Ḥiyya aussi, n'enseigne-t-il pas</b> ces cas ; comme il énumère dans sa liste le <b>bailleur impayé et l'emprunteur ?</b> Pourquoi Rabbi Ḥiyya les énumère-t-il séparément ? La Guemara répond : Rabbi Ḥiyya fait une distinction entre les différents types de vol : Il <b>enseigne</b> des cas de vol concernant des <b>biens qui sont entrés</b> en possession de quelqu'un de manière autorisée</b>, par ex, un dépositaire non rémunéré à qui l'on a confié un dépôt et qui l'a détourné par la suite, <b>et</b> il <b>enseigne</b> des cas de vol à l'égard de <b>biens qui sont entrés</b> en sa <b>possession d'une manière interdite</b>, par exemple, les actions d'un voleur et d'un brigand.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

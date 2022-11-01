@@ -15,4 +15,4 @@ De plus, <b>Rav Mesharshiyya a dit à Rava : Mais</b> n'y a-t-il pas <b>Rabbi Sh
 La Gemara développe : Lorsqu'on <b>fait</b> le résultat <b>dépendant de sa propre décision,</b> Rabbi Shimon <b>n'accepte pas</b> le principe de <b>clarification rétroactive.</b> Cela se comprend à partir de <b>ce que nous avons dit</b> dans le cas du vin acheté à des Samaritains. Lorsque <b>on rend</b> le résultat <b>dépendant de la décision d'autrui,</b> Rabbi Shimon <b>accepte</b> le principe de <b>clarification rétroactive, comme il est enseigné</b> dans une <i>baraïta</i> de la <i>Tosefta</i> (<i>Kiddushin</i> 3:7) : Si un homme dit à une femme : <b>J'ai des rapports sexuels avec toi</b> dans un but de fiançailles <b>à condition que</b> mon <b>père désire</b> nos fiançailles, et qu'ensuite il l'épouse sans spécification, alors <b>même si le père ne l'a pas désiré</b> <b>elle est</b> néanmoins <b>fiançailles</b> par cet acte sexuel. <b>Rabbi Shimon ben Yehuda dit au nom de Rabbi Shimon :</b> Si <b>le père le désire</b>, <b>elle est fiancée,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara répond : <b>Vous</b> pouvez <b>même dire</b> que la mishna est en a
 La mishna enseigne que <b>Rabbi Eliezer ben Ya'akov dit :</b> Les mineurs <b>ne sont pas comptabilisés dans le</b> minimum <b>total</b> de douze Lévites...et ils étaient appelés cadets [<i>tzoarei</i>] des Lévites. Les Sages <b>enseignaient</b> dans une <i>baraita</i> : <b>Et on les appelait les aides [<i>soadei</i>] des lévites.</b> La Gemara demande : <b>Et le <i>tanna</i> de notre</b> mishna, pourquoi se réfère-t-il à eux comme <i>tzoarei</i> ? La Guemara répond : <b>Puisque ces</b> mineurs avaient des <b>voix aiguës et que ces</b> adultes avaient des <b>voix profondes,</b> et que <b>ces mineurs</b> <b>chaient d'une voix aiguë [<i>mekateti</i>], et que ces</b> adultes ne pouvaient <b>pas chanter d'une telle <b>voix aiguë</b>, ils étaient appelés <i>tzoarei</i>,</b> car ils causaient aux Lévites adultes une angoisse [<i>tza'ar</i>] du fait qu'ils ne pouvaient pas produire les mêmes sons agréables que les mineurs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

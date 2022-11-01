@@ -51,4 +51,4 @@ La Guemara demande : <b>S'il apprend</b> cette analogie verbale, <b>il doit tout
 La Gemara demande : <b>Si c'est le cas,</b> si les verbes au pluriel sont chacun compris comme ajoutant deux juges supplémentaires, alors l'expression : <b>"Et ils sortiront"</b> dans la suite du verset (Deutéronome 21:2) indique un autre <b>deux,</b> et l'expression : <b>"Et ils mesureront"</b> ajoute un autre <b>deux,</b> ce qui signifie que selon <b>Rabbi Yehuda, il</b> devrait y avoir <b>neuf</b> juges, et selon <b>Rabbi Shimon, sept.</b> La Guemara répond : <b>Il a besoin de cette</b> exposition <b>pour ce qui est enseigné</b> dans une <i>baraita</i> : Le verset dit : <b>"Et ils sortiront"</b> pour souligner que <b>ils</b> doivent sortir, <b>et non leurs agents,</b> et le verset dit : <b>"Et ils mesureront"</b> pour enseigner que cette mesure est elle-même une mitzva, de telle sorte <b>que même</b> si le cadavre <b>est retrouvé</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

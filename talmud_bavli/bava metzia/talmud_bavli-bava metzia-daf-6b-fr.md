@@ -30,4 +30,4 @@ Rav Hamnuna poursuit : <b>Et ici, où</b> la mishna <b>dit effectivement</b> que
 Ce principe est <b>comme le dit Rava : Un décompte apte</b> à atteindre dix <b>s'exempte</b> de l'obligation de la dîme. Si quelqu'un a commencé à compter des animaux dans le but de payer la dîme et que, lorsqu'il a commencé le décompte, le groupe était apte à être soumis à la dîme, mais que finalement il n'a pas pu séparer la dîme, par exemple parce qu'un des animaux est mort et qu'il n'en restait que neuf, ceux qui ont été comptés alors que le décompte était apte à atteindre dix sont exemptés de l'obligation de la dîme des animaux, et le propriétaire n'est pas tenu de les inclure dans la dîme l'année suivante. De même, dans le cas où l'un des dix animaux a déjà été compté, les neuf autres sont néanmoins exemptés de ce décompte, car pendant qu'il les comptait, le décompte pouvait atteindre dix.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

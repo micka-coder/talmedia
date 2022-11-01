@@ -48,4 +48,4 @@ La Gemara demande : <b>N'avons-nous pas appris</b> dans la mishna : S'il atteint
 <b>Rav Yehuda dit</b> que <b>Shmuel a dit : Ils ont enseigné</b> la méthode de percement <b>uniquement là où un fil à plomb ne tombe pas tout droit,</b> c'est-à-dire lorsque le canyon a une pente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ Une gerbe oubliée par les ouvriers et non oubliée par le propriétaire, ou oub
 Celui qui rassemble les gerbes en tas en forme de chapeau ou de chapeau ou en tas circulaires, ceux-ci ne sont pas [soumis à] Shikhechah ; s'ils sont transportés de là à l'aire de battage, ils sont [soumis à] Shikhechah. Celui qui rassemble les gerbes en une pile, celles-ci sont [soumises à] Shikhechah ; si elles sont amenées à l'aire de battage, elles ne sont pas [soumises à] Shikhechah. Ceci est la règle générale : Lorsque les gerbes sont rassemblées à un endroit où leur travail est terminé, elles sont [soumises à] Shikhechah ; de là à l'aire de battage, elles ne sont pas [soumises à] Shikhechah. Lorsque les gerbes sont rassemblées] dans un lieu où leur travail n'est pas terminé, elles ne sont pas [soumises à] Shikhechah, de là à l'aire de battage, elles sont [soumises à] Shikhechah.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

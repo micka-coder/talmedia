@@ -45,4 +45,4 @@ La Guemara en déduit : <b>D'après</b> le fait que <b>cela est indiqué</b> dan
 <strong>GEMARA : </strong>La Guemara réduit le différend : <b>Si</b> le verrou <b>peut être déplacé par la corde</b> avec laquelle il est attaché à la porte, <b>tout le monde est d'accord</b> qu'il est considéré comme faisant partie de la porte, et on peut sécuriser la porte avec. <b>Quand</b> Rabbi Yosei et Rabbi Eliezer <b>sont en désaccord,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

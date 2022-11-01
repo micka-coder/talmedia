@@ -63,4 +63,4 @@ De meme, <b>Rav Ami a dit : Deux</b> personnes <b>et Chabbat se rejoignent</b> p
 Concernant l'inclusion d'un mineur dans un <i>zimmun</i>, <b>Rabbi Yohanan a dit : Un mineur mur,</b> c'est-a-dire celui qui est encore mineur en termes d'age, mais qui presente des signes de puberte, <b>est inclus dans un <i>zimmun</i>. Cette</b> opinion <b>a egalement ete enseignee</b> dans une <i>baraita</i> : <b>Un mineur qui a laisse pousser deux</b> poils pubiens <b>signes de la puberte,</b> <b>est inclus dans un <i>zimmun</i> ; et celui qui n'a pas laisse pousser deux poils n'est pas inclus dans un <i>zimmun</i>. Et on n'est pas exigeant a l'egard d'un mineur.</b> La Gemara commente : <b>Cette</b> <i>baraita</i> <b>elle-meme est difficile. Vous avez dit que</b> un mineur <b>qui a pousse deux cheveux, oui,</b> il est inclus, <b>un qui n'a pas pousse</b> deux cheveux, <b>non,</b> il n'est pas inclus, <b>et ensuite il a enseigne qu'on n'est pas exigeant a l'egard d'un mineur. Que</b> cette derniere clause vient-elle <b>inclure ? N'est-ce pas</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

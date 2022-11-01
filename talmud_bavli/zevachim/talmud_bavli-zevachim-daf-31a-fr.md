@@ -48,4 +48,4 @@ La Gemara répond : <b>Si l'on exprimait</b> son intention de brûler l'offrande
 <b>Abaye dit : Venez</b> et <b>entendre</b> une preuve de la mishna : Si son intention était de <b>manger un demi-bulot d'olives et de brûler un demi-bulot d'olives</b> au-delà de l'heure prévue ou en dehors de l'endroit prévu, l'offrande est <b>convenable car manger et brûler ne se rejoignent pas.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

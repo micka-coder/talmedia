@@ -69,4 +69,4 @@ En revanche, si le propriétaire de la cour <b>n'a pas dit</b> au propriétaire 
 <b>Comment paie-t-il une indemnité pour</b> <b>la progéniture fausse-couche,</b> c'est-à-dire comment leur valeur est-elle évaluée ? Le tribunal <b>apprécie</b> la valeur de <b>la femme</b> en calculant <b>comment elle</b> serait <b>valeur</b> si elle était vendue comme servante <b>avant d'accoucher, et combien elle</b> serait <b>valeur après avoir accouché.</b> Il verse ensuite la différence de valeur au mari de la femme. <b>Rabban Shimon ben Gamliel a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

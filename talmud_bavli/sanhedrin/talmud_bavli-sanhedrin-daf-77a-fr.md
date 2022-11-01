@@ -24,4 +24,4 @@ La Guemara rejette cette suggestion : <b>Au contraire, concluez que c'est Rabbi 
 Les Sages <b>Disent :</b> Dans le cas <b>là,</b> où l'on enferme une autre personne dans une maison de marbre, <b>sans</b> une <b>lampe allumée, l'atmosphère ne commence pas</b> à provoquer la suffocation...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

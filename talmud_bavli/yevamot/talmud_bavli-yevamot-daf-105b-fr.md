@@ -48,4 +48,4 @@ La Guemara répond : Les deux <b>sont nécessaires, car si seulement la</b> prem
 <b>Un dilemme a été soulevé devant</b> les étudiants de la maison d'étude à propos de l'incident relaté dans la mishna dans lequel une <i>ḥalitza</i> privée effectuée dans une prison a été validée : <b>L'incident au cours duquel ils ont accompli <i>ḥalitza</i> entre lui et elle</b> en privé a-t-il en fait <b>se déroulé à l'extérieur</b> dans un lieu différent, <b>et</b> la référence à la prison est que <b>l'affaire est venue devant Rabbi Akiva</b> alors qu'il était confiné <b>en prison ? Ou, peut-être que l'incident où ils ont effectué <i>ḥalitza</i> entre lui et elle a eu lieu en prison,</b> et qu'ensuite cette affaire est venue devant Rabbi Akiva ? <b>Rav Yehuda a dit</b> que <b>Rav a dit : Le</b> <i>ḥalitza</i> <b>incident a eu lieu en prison, et</b> aussi <b>l'affaire est venue</b> à Rabbi Akiva quand il était <b>en prison.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

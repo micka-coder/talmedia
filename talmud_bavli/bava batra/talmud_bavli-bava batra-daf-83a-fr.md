@@ -36,4 +36,4 @@ Si l'on a acheté trois arbres plantés de cette manière, <b>celui-ci a acquis<
 <b>Rav Pappa soulève un dilemme :</b> Si le propriétaire d'un champ <b>vend à</b> quelqu'un <b>deux</b> arbres <b>dans son champ et un</b> situé <b>sur</b> sa <b>frontière, quelle est</b> la <i>halakha</i> ? De même, si on a acheté <b>deux</b> arbres <b>dans</b> le champ <b>de</b> une personne <b>et un dans</b> le champ <b>d'une autre, quel</b> est le <i>halakha</i> ? Les arbres se combinent-ils pour former une unité de trois arbres, ou non ? La Guemara affirme que ce dilemme <b>doit rester</b> non résolu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

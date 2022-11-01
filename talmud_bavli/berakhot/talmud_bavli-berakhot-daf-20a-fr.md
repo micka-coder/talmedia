@@ -30,4 +30,4 @@ De meme, la Gemara relate que <b>Rabbi Yohanan avait l'habitude d'aller s'asseoi
 MISHNA <b>Les femmes, les esclaves et les mineurs,</b> qui ont des obligations paralleles dans diverses mitzvot, <b>sont exemptes de la recitation du <i>Shema</i></b>.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

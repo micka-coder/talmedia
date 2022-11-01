@@ -36,4 +36,4 @@ La Guemara continue de citer des sources pertinentes. <b>Venez</b> et <b>entende
 La Gemara réfute cet argument : <b>En fait, je</b> pourrais <b>vous dire</b> que le <b>mari déracine</b> le vœu, <b>et</b> la raison pour laquelle la mishna enseigne de cette manière est <b>due</b> au fait <b>que</b> le <i>tanna</i> <b>enseigne</b> dans <b>la dernière clause</b> de la mishna : Si le <b>mari a annulé son</b> vœu <b>et qu'elle ne le savait pas, et qu'elle buvait du vin et se rendait rituellement impure</b> par contact <b>avec les morts, elle n'encourt pas les quarante</b> coups de fouet, malgré son intention de pécher, car elle n'a pas commis de transgression en pratique.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

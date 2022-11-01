@@ -42,4 +42,4 @@ Dans <b>l'école de Rav Anan</b>, il était <b>enseigné : Quel est</b> le sens 
 § La mishna poursuit : <b>Comme son exécution pendant la semaine,</b> ainsi est son exécution le Chabbat, sauf que le Chabbat, on ne puiserait pas d'eau. Au lieu de cela, la veille de Chabbat, on remplirait un tonneau en or qui n'était pas consacré et on le placerait dans la chambre du Temple, et on y puiserait de l'eau le Chabbat. La Guemara demande : <b>Et pourquoi</b> on doit faire cela ? <b>Que</b> il <b>apporte</b> l'eau <b>dans un tonneau consacré</b>. <b>Ze'iri a dit : </b> La <i>tanna</i> de la mishna <b>dit qu'il n'y a pas</b> de <b>mesure requise pour l'eau</b> à verser pour la libation, et donc que plus de trois <i>log</i> pourraient être consacrés ; <b>et</b> que les <b>vases du temple consacrent</b> leur contenu s'il est apte à être consacré, même <b>sans intention</b> de le consacrer.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

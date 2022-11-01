@@ -78,4 +78,4 @@ La Guemara relate : <b>Rav Huna</b> a un jour <b>décrété un jour de jeûne.</
 <b>Il leur dit : Il a été enseigné</b> dans une <i>baraita</i> : <b>Dans quel</b> cas <b>cette affirmation,</b> selon laquelle l'argent est rendu lorsque les gens partent, <b>est-elle dite ? Quand il n'y a pas</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ On raconte que <b>Ifera Hurmiz, la mère du roi Shapur,</b> roi de Perse, <b>a e
 La Guemara demande : <b>Mais</b> est-ce que <b>Rabbi Ami</b> n'a pas <b>aussi</b> vu l'importance d'accepter l'argent <b>pour le bien de la paix avec le royaume ?</b> La Guemara répond : Rabbi Ami soutient que Rava <b>aurait dû distribuer</b> l'argent <b>aux pauvres gentils</b> plutôt qu'aux pauvres juifs, car c'est une honte pour les Juifs d'exiger la bonté des nations du monde pour soutenir leurs pauvres. La Guemara commente : En fait, <b>Rava a également donné</b> l'argent <b>aux pauvres gentils</b> et non aux pauvres juifs. <b>Et Rabbi Ami se mit en colère</b> car .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

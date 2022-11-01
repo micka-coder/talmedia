@@ -18,4 +18,4 @@
 <b>Si l'on a écrit</b> le parchemin <b>comme une lettre,</b> c'est-à-dire sans avoir préalablement marqué les lignes sur le parchemin, <b>il est impropre,</b> comme <b>le Miséricordieux</b> le déclare dans la Torah : <b>"Dans un rouleau"</b> indiquant qu'il doit être écrit comme un rouleau de la Torah, dans lequel le parchemin doit être rayé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

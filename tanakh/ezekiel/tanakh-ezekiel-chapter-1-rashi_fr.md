@@ -114,4 +114,4 @@ ILS AVAIENT L'APPARENCE D'UN HUMAIN. On est surpris [par cette affirmation], car
 <b>Et j'entendis une voix qui parlait</b> Et que disait-elle ?
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

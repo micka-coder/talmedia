@@ -48,7 +48,7 @@
 <b>Alors un homme prophétisait</b> Celui qui a dit cela n'a pas dit cela. C'est-à-dire que ceux qui ont relaté l'incident de Michée n'ont pas relaté l'incident concernant Urie. Jusqu'ici, ce sont les paroles des justes. Or les méchants qui étaient là se sont levés et ont dit : " Un homme prophétisait aussi, etc. ". De même qu'Urie a été tué, de même Jérémie sera tué. C'est ainsi qu'il est expliqué dans les Sifrei (Num. 11:7).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Au début du règne</b> Ce chapitre ci-dessous a précédé de quatre ans le chapitre précédent.
 
@@ -98,4 +98,4 @@
 <b>Alors un homme prophétisait</b> Celui qui a dit cela n'a pas dit cela. C'est-à-dire que ceux qui ont relaté l'incident de Michée n'ont pas relaté l'incident concernant Urie. Jusqu'ici, ce sont les paroles des justes. Or les méchants qui étaient là se sont levés et ont dit : " Un homme prophétisait aussi, etc. ". De même qu'Urie a été tué, de même Jérémie sera tué. C'est ainsi qu'il est expliqué dans les Sifrei (Num. 11:7).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

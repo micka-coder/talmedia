@@ -48,4 +48,4 @@ Le <i>baraita</i> poursuit : <b>Le principe est le suivant : Tout ce qui a le go
 <b>Mar Zutra a dit : Une personne ne doit pas tapisser</b> le bord <b>d'une marmite avec de la farine grillée, de peur que</b> une partie de la farine <b>n'ait pas été correctement grillée et qu'elle vienne</b> à l'état de <b>levure</b> dans la marmite. <b>Rav Yosef a dit : Une personne ne doit pas ébouillanter</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

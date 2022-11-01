@@ -87,4 +87,4 @@
 <b>et [il sera] béni pour toujours</b> C'est-à-dire que Ton serviteur sera béni pour toujours.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

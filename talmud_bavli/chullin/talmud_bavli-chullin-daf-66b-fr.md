@@ -36,4 +36,4 @@ La Guemara répond : Cette déduction n'est pas fondée. Le terme <b>"dans les e
 La Guemara demande : Comment ce verset peut-il être l'exemple d'une généralisation, d'un détail et d'une généralisation ? <b>Ce sont deux généralisations qui sont adjacentes l'une à l'autre.</b> Les deux occurrences du terme "dans les eaux" précèdent le détail, de sorte que le verset est en fait une généralisation, une généralisation et un détail. <b>Ravina a dit : Comme on dit en Occident,</b> Eretz Yisrael : <b>Chaque fois que vous trouvez deux généralisations juxtaposées l'une à l'autre,</b> suivies d'un détail spécifique,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

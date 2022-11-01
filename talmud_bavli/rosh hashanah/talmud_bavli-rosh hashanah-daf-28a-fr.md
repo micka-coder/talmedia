@@ -54,4 +54,4 @@ La Gemara explique : <b>Quelle est la raison</b> de cette distinction ? <b>Un ho
 La Gemara demande : N'est-il pas <b>évident que ceci est</b> identique à <b>cette</b> qui a été énoncée plus haut, à savoir que celui qui a été contraint de manger de la <i>matza</i> accomplit la mitsva même s'il n'avait aucune intention de le faire ? Il devrait en être de même dans le cas du <i>shofar</i>, celui qui a entendu le souffle d'un <i>shofar</i> s'acquitte de son obligation même s'il n'avait pas l'intention de le faire. La Guemara répond : <b>Au cas où vous diriez</b> qu'il y a une différence entre les deux cas, <b>là, le Miséricordieux dit : Manger la <i>matza</i>, et il l'a effectivement mangée</b>, accomplissant ainsi la mitsva.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

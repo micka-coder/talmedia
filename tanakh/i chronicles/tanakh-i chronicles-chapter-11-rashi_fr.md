@@ -84,4 +84,4 @@
 <b>Et les puissants guerriers</b> mais pas comme ceux d'en haut.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

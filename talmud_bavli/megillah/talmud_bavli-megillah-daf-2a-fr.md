@@ -72,4 +72,4 @@ La Guemara commente : <b>Ceci est également enseigné</b> dans une <i>baraita</
 La Guemara ajoute : <b>Rav Ashi</b> pose <b>une difficulté</b> basée sur une contradiction apparente entre l'avis de <b>Rabbi Yehuda</b> dans la <i>baraita</i> susmentionnée et une décision citée dans une mishna au nom de <b>Rabbi Yehuda,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

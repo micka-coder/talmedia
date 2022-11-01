@@ -39,4 +39,4 @@ La Guemara relate qu'il y avait <b>une certaine</b> personne <b>qui descendait</
 La Guemara cherche à clarifier le midrash : <b>Qu'est-ce que</b> est la signification de : <b>Et si c'est ton souhait de dire,</b> qui indique qu'il est possible de saper la première source ? Pourquoi une deuxième source est-elle nécessaire ? La Guemara répond : <b>Et si tu dis</b> qu'au lieu de faire dériver l'expiation du taureau de l'expiation du bouc émissaire, <b>faisons-la dériver</b> du bouc qui est offert à l'intérieur, dont l'expiation est</b> réalisée <b>par l'aspersion</b> de son <b>sang</b> dans le sanctuaire le plus intérieur ; c'est pourquoi il a été enseigné dans la <i>baraita</i> que <b>il est dit : Et expie, et le taureau n'a pas encore été égorgé.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

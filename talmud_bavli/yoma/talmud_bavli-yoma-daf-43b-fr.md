@@ -54,4 +54,4 @@ La mishna commente certains des contrastes entre le service et les protocoles su
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Le verset dit : <b>"Et il n'y aura pas d'homme dans la Tente de la Rencontre</b> lorsqu'il entrera pour faire l'expiation dans le Sanctuaire, jusqu'à ce qu'il en sorte.</b> Le verset interdit à quiconque de se trouver à l'intérieur de la Tente de la Rencontre pendant la combustion de l'encens.
 
 >Crédit : édition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

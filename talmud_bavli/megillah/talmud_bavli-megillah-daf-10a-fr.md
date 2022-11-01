@@ -33,4 +33,4 @@ La Guemara <b>souleve une contradiction</b> issue d'une <i>baraita</i> différen
 La Gemara demande : <b>Les ont-elles consacrées ?</b> Si leur caractère sacré demeurait, pourquoi était-il nécessaire de les consacrer ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

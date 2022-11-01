@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> comment <b>les rabbins</b> expliquent-ils leur dé
 <b>Rav Pappa bar Shmuel a soulevé une contradiction devant Rav Yosef :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

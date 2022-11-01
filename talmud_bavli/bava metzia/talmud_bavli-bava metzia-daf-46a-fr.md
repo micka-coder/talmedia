@@ -30,4 +30,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve d'une mishna (<i
 <b>Rav Yehuda a dit : Voici</b> ce que la mishna <b>dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

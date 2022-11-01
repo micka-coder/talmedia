@@ -57,4 +57,4 @@ La Guemara interprete homiletiquement que <b>jusqu'a ce que Ton peuple traverse<
 La Guemara revient pour expliquer ce que nous avons appris dans la mishna : <b>Et les sages disent:</b> Le temps de la recitation du <i>Shema</i> du soir est <b>jusqu'a minuit.</b> La Guemara demande : <b>Selon l'avis de qui</b> <b>ils se tiennent</b> pour expliquer le verset : "Quand tu te couches" ? <b>Si</b> ils expliquent ce verset <b>conformement</b> a l'opinion de <b>Rabbi Eliezer,</b> qui dit que "quand tu te couches" est le moment ou les gens ont l'habitude de s'endormir, alors <b>Les sages disent aussi</b> que le temps de la recitation du <i>Shema</i> s'etend, <b>conformement</b> a l'avis du <b>Rabbi Eliezer,</b> jusqu'a la fin de la premiere veille.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

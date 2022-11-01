@@ -26,5 +26,5 @@ Si l'une [des brebis] avait mis bas et l'autre n'avait jamais mis bas auparavant
 ### michna 9
 En ce qui concerne [un animal] qui est né par césarienne et le premier né qui est venu après lui : Rabbi Tarfon dit : les deux vont au pâturage jusqu'à ce qu'ils soient tachés et sont mangés avec leurs taches par les propriétaires. Mais Rabbi Akiva dit : aucun des deux n'est un premier né ; le premier parce qu'il n'a pas ouvert le ventre de sa mère, et le second, parce qu'un autre l'a précédé.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

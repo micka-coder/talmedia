@@ -72,4 +72,4 @@ La Guemara suggère une autre façon pour les cinq de s'assurer qu'ils ont tous 
 <b>Il n'est pas possible</b> de faire cela,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

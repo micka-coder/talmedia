@@ -21,4 +21,4 @@ Nous avons appris dans la mishna : <b>La mesure</b> qui détermine la responsabi
 <strong>MISHNA:</strong> <b>Rabbi Yehuda dit : Celui qui piège un oiseau dans un placard</b> ou une cage, <b>et</b> celui qui piège <b>un cerf dans une maison est responsable. Les sages disent :</b> On est responsable pour avoir piégé <b>un oiseau dans un placard</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Si une fosse appartient à deux associés et que l'un d'eux y passe et ne la cou
 ### michna 7
 Le bœuf et tous les autres animaux sont soumis aux mêmes lois concernant la chute dans une fosse, la mise à l'écart du mont Sinaï, la double restitution, la restitution des biens perdus, le déchargement, la muselière, les diverses espèces et le sabbat. Il en va de même pour les animaux sauvages et les oiseaux. Si tel est le cas, pourquoi est-il écrit "un bœuf ou un âne" ? Mais l'Écriture parle des conditions qui prévalent.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

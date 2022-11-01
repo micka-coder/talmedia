@@ -54,4 +54,4 @@ La Guemara demande : Selon l'avis de Rabbi Yoḥanan et de Reish Lakish, pourquo
 La Gemara répond : Tout <b>comme</b> il assume <b>son statut permis</b>, <b>ainsi</b> il assume <b>son statut interdit</b>, <b>comme le dit Shmuel :</b> Même <b>un grain de blé</b> donné comme <i>teruma</i> <b>exempte le</b> tas</b> entier de grains de l'obligation de <i>teruma</i>. Puisque toute quantité de <i>teruma</i> donnée rend l'ensemble du tas de produits permis, toute quantité de produits non traités rend également l'ensemble du mélange interdit. <b>Et ceci est également enseigné</b> dans un <i>baraita</i> : <b>Par rapport à quelle</b> situation <b>les Sages ont-ils <b>dit</b> que <b>toute quantité</b> de <b>produit non coupé rend</b> un mélange <b>interdit ? </b> C'est en ce qui concerne le produit non traité qui se mélange <b>avec son</b> propre <b>type,</b> mais en ce qui concerne le produit non traité qui se mélange <b>avec un autre type,</b> le mélange n'est interdit que <b>dans</b> un cas où le produit non traité <b>impose une saveur</b> à celui-ci.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

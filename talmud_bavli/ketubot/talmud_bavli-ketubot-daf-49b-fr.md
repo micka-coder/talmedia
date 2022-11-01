@@ -39,4 +39,4 @@ La Gemara répond : L'ordonnance est nécessaire <b>de peur que l'on dise</b> qu
 <b>Un dilemme a été soulevé devant</b> les savants : Est-ce que <b>la <i>halakha</i> est conforme</b> à l'avis de Rabbi Ile'a, <b>ou la <i>halakha</i> n'est pas conforme à son</b> avis ? La Guemara répond : <b>Venez</b> et <b>écoutez, alors que Rabbi Ḥanina et Rabbi Yonatan se tenaient</b> ensemble, et <b>un certain homme s'est approché, s'est penché et a embrassé Rabbi Yonatan sur son pied. Rabbi Ḥanina dit à</b> Rabbi Yonatan : <b>Qu'est-ce que c'est ?</b> Pourquoi te doit-il une telle marque de gratitude ? <b>Il lui répondit : Il a écrit</b> un document déclarant qu'il donnait <b>ses biens à ses fils,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

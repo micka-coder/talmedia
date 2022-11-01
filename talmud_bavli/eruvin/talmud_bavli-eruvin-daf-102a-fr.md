@@ -60,4 +60,4 @@ En ce qui concerne <b>un dais nuptial,</b> un rideau suspendu au-dessus d'un lit
 Et même <b>lorsqu'elle a moins d'un palier</b> de largeur <b>dans les trois</b> paliers <b>de</b> son <b>sommet, nous avons dit</b> cette indulgence <b>uniquement lorsque</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

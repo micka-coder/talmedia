@@ -63,4 +63,4 @@ La Guemara ajoute : <b>Et ainsi, il est raisonnable</b> de distinguer de cette m
 Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>de Rava : </b> Si <b>elle a effectué la <i>alitza</i> en utilisant une chaussure dont les coutures ont été ouvertes, qui</b> couvre encore <b>la majeure partie du pied ; </b> ou si elle a exécuté <i>ḥalitza</i> <b>avec une sandale</b> dont la semelle <b>était</b> partiellement <b>ouverte qui</b> tenait encore <b>la majeure partie du pied;</b> ou si elle a exécuté <i>ḥalitza</i> <b>avec une sandale</b> faite <b>de liège [<i>sha'am</i>], ou de fibres</b> d'un arbre ; ou <b>avec un pied prothétique d'un amputé;</b> ou <b>avec une chaussure en feutre [<i>muk</i>];</b> ou <b>avec une couverture de jambe</b> qu'un amputé fabrique pour ses pieds comme une couverture dans laquelle il peut mettre les moignons de ses jambes, qui n'est pas une véritable chaussure ; ou <b>avec une <i>anpileya</b> en cuir ; et</b> de même, une femme <b>qui accomplit la <i>ḥalitza</i></b> avec son <i>yavam</i> lorsqu'il est un <b>homme adulte,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Grâce,</b> si c'était du <b>safran</b> qui poussait dan
 <b>Rabbi Yehoshua</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

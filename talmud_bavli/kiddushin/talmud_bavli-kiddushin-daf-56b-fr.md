@@ -48,4 +48,4 @@ La Gemara demande : <b>Et</b> selon <b>les <i>tanna'im</i> qui exposent cette</b
 La Gemara répond : Ils le dérivent <b>de</b> la formulation : <b>"Sa chair</b> ne peut être mangée [<i>velo ye'akhel <b>et besaro</b></i><b>". </b> Le verset aurait pu être formulé : <i>Velo ye'akhel besaro</i>, ce qui signifie déjà : Et sa chair ne sera pas mangée. L'ajout du mot "<i>et</i>" enseigne que l'interdiction s'applique également à <b>ce qui est secondaire à la chair,</b> c'est-à-dire la peau. La Guemara demande : <b>Et l'autre</b> <i>tanna</i>, qui dérive l'interdiction de profiter de la peau du verset : "Mais le propriétaire du bœuf sera clair", que lui apprend le mot supplémentaire "<i>et</i>" ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

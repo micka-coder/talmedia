@@ -42,4 +42,4 @@ La Gemara demande : <b>Et</b> pourquoi <b>Rabbi Ya'akov</b> n'a-t-il pas pu arri
 La Guemara note : <b>Et Rabbi Yoḥanan</b> aurait pu <b>vous dire,</b> en réponse à Rav Ashi, qu'il n'en est rien car les <i>halakhot</i> sont formulées différemment dans les <i>mishnayot</i> respectives. <b>Voici,</b> dans la mishna relative aux fardeaux, <b>où il est enseigné : On</b> peut <b>ne pas faire de toit avec eux, il est <i>ab initio</i></b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

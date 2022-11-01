@@ -14,5 +14,5 @@ S'il a placé sa main ou son pied ou des feuilles de légumes de manière à per
 ### michna 5
 Celui qui détourne une source dans une cuve à vin ou dans des bassins, l'eau est invalide pour les zavim et les metzoraim. Et aussi pour la préparation de l'eau du hatat [cendre de la vache rousses]. Car elle [l'eau] n'a pas été rempli dans un récipient.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

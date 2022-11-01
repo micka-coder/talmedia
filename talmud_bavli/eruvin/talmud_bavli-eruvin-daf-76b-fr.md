@@ -45,4 +45,4 @@ Rav Naḥman <b>lui a dit : Ce n'est pas nécessaire.</b> Les Sages <b>compriren
 <strong>GEMARA:</strong> La Gemara demande : Si ce mur <b>n'a pas quatre</b> coudées de largeur, <b>qu'est-ce que</b> la <i>halakha</i> ? <b>Rav a répondu :</b> Dans ce cas, <b>l'air de deux domaines le contrôle.</b> Puisque le mur n'est pas assez large pour être considéré comme un domaine à part entière, le haut du mur est considéré comme appartenant aux deux cours et est alors interdit aux deux. En conséquence, <b>On ne peut déplacer</b> rien <b>sur</b> le sommet du mur, <b>même</b> jusqu'à <b>une largeur de cheveux.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

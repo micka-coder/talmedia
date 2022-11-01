@@ -54,4 +54,4 @@ La Gemara répond : En fait, <b>tout cela</b> est conforme à l'opinion de <b>Ra
 La Guemara examine maintenant <b>la question elle-même</b> citée dans la discussion précédente. <b>Rav a dit : Une ruelle ne peut</b> devenir <b>permise</b> pour porter <b>à travers un poteau latéral et</b> une <b>poutre transversale,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

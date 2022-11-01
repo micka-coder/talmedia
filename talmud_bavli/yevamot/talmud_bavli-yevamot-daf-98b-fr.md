@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle est</b> la raison de la décision de la mishna sel
 Le <i>baraita</i> poursuit : Si <b>certains d'entre eux sont prêtres et d'autres ne le sont pas,</b> les <b>prêtres accomplissent <i>ḥalitza</i>,</b> et <b>ceux qui ne sont pas prêtres accomplissent le mariage lévirat,</b> car il est interdit à un prêtre d'épouser une femme qui a subi <i>ḥalitza</i>. Si <b>certains d'entre eux sont des prêtres et que certains sont des demi <b>frères maternels</b>, à la fois <b>ceux-ci et ceux-là accomplissent <i>ḥalitza</i> et non le mariage lévirat.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -68,4 +68,4 @@
 <b>ne seront pas jugés coupables</b> Ils ne regretteront pas de dire : "Nous sommes coupables, parce que nous nous sommes abrités en Toi".Repontiront en vieux français, se repentiront : ils se repentent.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

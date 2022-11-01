@@ -36,4 +36,4 @@ La Guemara répond : <b>Voilà,</b> Rabbi Akiva n'emploie pas une véritable inf
 La Gemara demande : <b>Mais n'a-t-il pas été dit à propos</b> de ce différend que <b>Rav Naḥman dit</b> que <b>Rabba bar Avuh dit :</b> Le <b>dispute</b> concerne un cas <b>où</b> il est devenu interdit d'utiliser les animaux comme offrandes parce qu'une personne <b>se livrait à la bestialité</b> avec eux <b>et plus tard ils sont tombés enceintes.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

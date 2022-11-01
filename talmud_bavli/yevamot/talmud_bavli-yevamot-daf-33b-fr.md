@@ -39,4 +39,4 @@ La Gemara commente : <b>Cela aussi est logique du fait que la dernière clause e
 <b>Cependant,</b> ceci peut être dérivé d'un point différent <b>que</b> la mishna <b>enseigne : On sépare</b> ces femmes de leurs maris <b>pendant trois mois,</b> car <b>peut-être qu'elles</b> sont devenues <b>grossesses.</b> De là, on peut déduire : <b>Si</b> il s'avère au bout de trois mois qu'elles <b>ne sont pas enceintes, il leur est permis</b> de retourner auprès de leurs maris. <b>Et si</b> elles avaient agi <b>intentionnellement, cela serait-il permis ? Au contraire,</b> doit-on <b>ne pas conclure d'ici</b> que la mishna fait référence à un cas où <b>elles ont été échangées</b> par inadvertance ? La Gemara résume : En effet, <b>concluez d'ici</b> que c'est le cas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@ La Gemara demande : <b>Qu'est-ce qui est considéré comme un discours malveilla
 <b>Rabba dit : Toute déclaration qui est dite en présence de son maître,</b> c'est-à-dire si le sujet de la déclaration était là, <b>n'a pas</b> d'interdiction <b>du fait de la parole malveillante.</b> Abaye <b>lui dit : D'autant plus</b> qu'il s'agit d'une parole proscrite, puisqu'elle est à la fois <b>impudence et parole malveillante.</b> Rabba <b>dit à</b> Abaye : <b>Je suis d'accord avec</b> l'opinion de <b>Rabbi Yosei, car Rabbi Yosei dit : De tous mes jours, je n'ai jamais dit quelque chose puis je me suis retourné</b> pour voir si la personne dont je parlais se tenait derrière moi pour écouter, car je le dirais même à la personne concernée. Il <b>dit,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

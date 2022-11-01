@@ -36,4 +36,4 @@ La Gemara répond : <b>Si tu veux, dis</b> que le converti <b>a enseigné</b> la
 La Guemara reprend la discussion de la dispute entre Rav Aḥa bar Ya'akov et Rav Sheshet. <b>Venez</b> et <b>entendez</b> une autre preuve : <b>Un converti dont la naissance était en sainteté mais dont la conception n'était pas en sainteté a une parenté maternelle,</b> c'est-à-dire que sa relation avec les proches de sa mère est reconnue. <b>Cependant, il n'a pas de parenté paternelle. Comment cela ? </b> Si <b>il a épousé sa demi <b>sœur maternelle</b>, née avant lui et convertie, <b>il doit divorcer</b> d'elle. Bien que par la loi de la Torah, ils soient considérés comme non apparentés, les Sages ont rendu interdit leur mariage, de peur qu'il n'épouse une demi-sœur maternelle née après lui et qui lui est interdite. Si elle est sa demi-sœur <b>paternelle</b>, <b>il peut la maintenir</b> comme épouse. S'il a épousé la demi-sœur <b>maternelle</b> de son <b>père, il doit divorcer d'elle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

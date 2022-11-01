@@ -24,4 +24,4 @@ La Gemara rétorque : <b>Si</b> c'est <b>en raison de ce</b> verset, ce <b>n'est
 <b>Ravina de Parzakya a dit à Rav Ashi : Mais il a omis</b> le cas <b>de l'entre-deux.</b> Rabbi Eliezer aurait pu ajouter qu'un nazirite est responsable non seulement du pépin et de la peau d'un raisin mais aussi des substances qui se trouvent entre eux, comme le verset : " Du noyau à la peau du raisin " (Nombres 6, 4), en vient à inclure tout ce qui se trouve entre les deux (voir 34b). <b>Au contraire, Rav Pappa dit :</b> En fait, Rabbi Eliezer <b>n'a rien enseigné</b> à propos de <b>cinq</b> séries de coups de fouet, mais a simplement déclaré qu'il est fouetté pour toutes ces actions, sans en énumérer le nombre précis. Par conséquent, cette source ne présente pas de difficulté pour Abaye. La Gemara demande : <b>Mais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

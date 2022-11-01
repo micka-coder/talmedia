@@ -24,7 +24,7 @@ Si quelqu'un <b>trouve parmi ses documents</b> un document qui lui a été remis
 § La Gemara aborde ce que la mishna déclare : <b>Et</b> en ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouvé <b>doit le rendre</b> à son propriétaire présumé. La Gemara raconte : Il y avait <b>un certain acte de divorce qui a été trouvé</b> dans <b>le tribunal de Rav Huna, dans lequel il était écrit</b> que l'acte de divorce a été écrit <b>dans la ville de Sheviri, qui est</b> située <b>sur la rivière Rakhis. Rav Huna a dit</b> à ce sujet :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Conclure du</b> fait que cette suspicion n'est pas prise en compte que la <i>halakha</i> <b>de Shmuel est acceptée. Comme le dit Shmuel :</b> Dans le cas de <b>celui qui vend un billet à ordre à un autre, et</b> le vendeur <b>permet ensuite</b> la remise de la dette du débiteur, <b>elle est remise,</b> puisque le débiteur avait essentiellement une obligation non transférable envers le seul créancier, <b>et même</b> l'<b>héritier du créancier peut remettre</b> la dette. Par conséquent, si l'épouse s'est livrée à la tromperie mentionnée ci-dessus, elle était dans son droit, puisqu'elle est en mesure de remettre la dette du contrat de mariage.
 
@@ -50,4 +50,4 @@ Si quelqu'un <b>trouve parmi ses documents</b> un document qui lui a été remis
 § La Gemara aborde ce que la mishna déclare : <b>Et</b> en ce qui concerne <b>tout acte de justice,</b> celui qui l'a trouvé <b>doit le rendre</b> à son propriétaire présumé. La Gemara raconte : Il y avait <b>un certain acte de divorce qui a été trouvé</b> dans <b>le tribunal de Rav Huna, dans lequel il était écrit</b> que l'acte de divorce a été écrit <b>dans la ville de Sheviri, qui est</b> située <b>sur la rivière Rakhis. Rav Huna a dit</b> à ce sujet :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

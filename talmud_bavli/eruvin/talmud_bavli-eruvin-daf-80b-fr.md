@@ -57,4 +57,4 @@ Et Rav Yehuda <b>incidemment nous enseigne que</b> la nourriture pour <b>deux re
 <strong>MISHNA :</strong> <b>On</b> peut <b>joindre</b> les cours <b>et fusionner</b> les ruelles <b>avec tous</b> les types de nourriture, <b>sauf l'eau et le sel,</b> car ils ne sont pas considérés comme des aliments. C'est <b>la déclaration de Rabbi Eliezer. Rabbi Yehoshua dit</b> qu'une limitation différente s'applique : Un <b>pain</b> entier peut être utilisé pour <b>un <i>eiruv</i>.</b> En ce qui concerne <b>un produit cuit</b> même de la taille <b>d'une <i>se'a</i>, s'il</b> est constitué de <b>pièces, on</b> ne peut <b>pas joindre</b> les cours <b>avec lui. </b> Par contre, en ce qui concerne <b>un pain,</b> même de la taille de <b>un <i>issar</i>, s'il est entier, on</b> peut <b>joindre</b> des cours <b>avec lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

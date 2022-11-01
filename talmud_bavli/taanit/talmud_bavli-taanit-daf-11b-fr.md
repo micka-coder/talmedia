@@ -27,4 +27,4 @@ Mar Ukva <b>alla poser</b> ces questions dans la <b>salle d'étude. On lui répo
 <b>Rav Ḥisda a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

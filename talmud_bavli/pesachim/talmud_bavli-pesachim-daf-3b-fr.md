@@ -42,4 +42,4 @@ La Guemara relate un autre incident à la gloire de celui qui veille à s'absten
 La Guemara continue de citer des exemples de langage propre : <b>Yoḥanan d'Ḥakuk se rendit dans les villages. Lorsqu'il arriva, ils lui dirent :</b> La récolte de <b>blé</b> s'est-elle bien développée ? </b> Réticent à dire que la récolte de blé ne s'est pas bien développée, <b>il leur répondit :</b> La récolte d'<b>orge</b> s'est <b>bien développée,</b> les laissant tirer leur propre conclusion. <b>Ils lui ont dit,</b> en se moquant : <b>Sors et informe les chevaux et les ânes</b> de l'orge, <b>comme il est écrit : "L'orge et le foin pour les chevaux et les coursiers"</b> (I Rois 5:8). La Gemara demande : <b>Que pouvait-il dire</b> pour mieux exprimer la mauvaise nouvelle par euphémisme ? La Guemara répond : Il aurait pu dire : <b>La récolte de blé</b> de l'année dernière <b>s'est bien développée. Alternativement,</b> il aurait pu dire que cette année' la récolte de <b>lentilles,</b> qui est aussi de la nourriture pour les gens, <b>s'est bien développée.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

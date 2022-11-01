@@ -17,5 +17,5 @@ S'il a vu une émission aussi abondante que trois, qui a duré aussi longtemps [
 ### michna 6
 S'il a vu une émission pendant la journée et une autre au crépuscule, ou une au crépuscule et l'autre le lendemain : S'il sait qu'une partie de l'émission s'est produite pendant le jour et une partie le lendemain, il est certain en ce qui concerne un sacrifice et une impureté. Mais s'il  y a un doute qu'une partie [de l'émission] ait eu lieu le jour et une partie le lendemain, il est certain en ce qui concerne l'impureté, mais en cas de doute en ce qui concerne le sacrifice. S'il avait vu des émissions deux jours distincts au crépuscule, il est dans le doute tant en ce qui concerne l'impureté qu'en ce qui concerne un sacrifice. S'il n'a vu qu'une seule émission au crépuscule, il a un doute quant à son impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

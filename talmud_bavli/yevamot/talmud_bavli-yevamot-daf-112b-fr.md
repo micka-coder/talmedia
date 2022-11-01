@@ -9,4 +9,4 @@ La Gemara demande : <b>Mais si elle n'a pas d'enfants, quelle</b> est la <i>hala
 <b>Par contre, apprenez-en</b> qu'il n'y a pas de différence</b> entre <b>quand elle a des enfants et quand elle n'en a pas.</b> Dans tous les cas, le tribunal <b>l'oblige</b> à accomplir la <i>ḥalitza</i>, <b>conformément</b> à l'opinion de <b>Rav,</b> car on ne peut pas supposer que la femme a prévu d'éviter le lévirat, à moins qu'elle ne le dise explicitement. La Gemara conclut : En effet, <b>apprenez-en</b> que la <i>halakha</i> suit l'avis de Rav.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

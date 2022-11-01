@@ -72,4 +72,4 @@ La Gemara demande : <b>Et s'ils ont procédé et l'ont jugé</b> d'abord comme u
 <b>Rava dit : J'ai trouvé les Sages de l'école du Rav qui étaient assis et disaient</b> pour expliquer cela : Conformément à l'avis de <b>qui</b> <b>ceci ? C'est</b> conformément à l'avis de <b>Rabbi Shimon HaTimni, qui dit</b> que <b>de même qu'un poing est unique</b> en ce <b>qu'il est soumis à l'assemblée</b> de juges pour évaluer sa capacité à blesser <b>et aux témoins</b> pour attester que c'est ce poing qui a été utilisé pour frapper, de même, un jugement peut être rendu pour tout objet soumis à l'assemblée des juges pour apprécier sa capacité à blesser et aux témoins pour attester qu'il s'agit de l'objet utilisé pour frapper.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

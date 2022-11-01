@@ -72,4 +72,4 @@ La Guemara cite <b>une autre version : Rabbi Abba a dit</b> que <b>Shmuel a dit<
 <b>Rava</b> a nuance cela, et <b>a dit :</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

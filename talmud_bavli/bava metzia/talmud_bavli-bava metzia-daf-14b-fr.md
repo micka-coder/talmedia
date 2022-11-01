@@ -54,7 +54,7 @@ La Gemara demande : <b>Quelles sont les circonstances ? Si l'on dit</b> que le c
 <b>Rabba bar Rav Huna a dit :</b> Il s'agit d'un cas <b>où</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il peut se retirer</b> de la transaction et n'est pas tenu de payer le terrain. <b>Une fois qu'il a pris possession</b> de la terre, <b>il ne peut pas se retirer, car</b> Reuven, le vendeur, peut <b>lui dire :</b> L'achat de la terre était comme l'achat d'un <b>sac ficelé</b> dont on ne connaît pas le contenu et qui pourrait ne rien valoir. Puisque <b>vous étiez conscient</b> de cela <b>et l'avez accepté</b>, comme vous l'avez acheté sans garantie, vous ne pouvez pas retirer votre achat. <b>À partir de quand est-ce</b> qu'il a pris <b>possession ?</b> C'est <b>à partir du moment où il parcourt les frontières</b> du champ pour les inspecter.
 
@@ -110,4 +110,4 @@ La Gemara demande : <b>Quelles sont les circonstances ? Si l'on dit</b> que le c
 <b>Rabba bar Rav Huna a dit :</b> Il s'agit d'un cas <b>où</b> .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

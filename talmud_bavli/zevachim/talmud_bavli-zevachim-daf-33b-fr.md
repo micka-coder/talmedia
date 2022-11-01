@@ -24,4 +24,4 @@ La Guemara commente : <b>C'est enseigné</b> dans une <i>baraita</i> <b>conforme
 <b>Le verset dit : "Tout objet consacré, elle ne le touchera pas, et au Temple, elle ne viendra pas"</b> (Lévitique 12:4). Le verset <b>juxtapose</b> la question relative à la nourriture <b>sacrificielle</b> <b>à</b> la question de l'entrée dans le <b>Temple</b> en étant rituellement impur. <b>Tout comme</b> entrer dans le <b>Temple</b> est <b>une affaire</b> qui entraîne une punition <b>qui implique</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

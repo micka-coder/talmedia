@@ -33,4 +33,4 @@ La Guemara demande en outre : <b>Mais il y a</b> cette <i>halakha</i> concernant
 La Guemara poursuit en demandant . <b>Mais il y a</b> la <i>halakha</i> suivante : <b>Quelle quantité d'eau doit-on mettre dans</b> un récipient qui contient de l'urine, avant de pouvoir prier à proximité ? <b>Toute quantité</b> est suffisante. <b>Rabbi Zakkai a dit : Un quart</b> -<i>log</i>. La Guemara répond à nouveau que Rabbi Elazar <b>ne s'occupe pas</b> des <i>halakhot</i> qui font l'objet <b>d'un litige.</b> La Guemara propose un autre exemple : <b>Mais il y a</b> le cas d'un <b>bain rituel,</b> car il est enseigné que l'on peut immerger des récipients extrêmement petits dans un quart de<i>log</i> d'eau de pluie dans le sol. La Gemara répond : Sa liste <b>exclut ce</b> cas, <b>car les Sages ont annulé</b> cette <i>halakha</i> en statuant qu'on doit utiliser un bain rituel standard de quarante <i>se'a</i> même pour des récipients extrêmement petits.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

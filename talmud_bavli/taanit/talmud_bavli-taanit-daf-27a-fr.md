@@ -36,4 +36,4 @@ La Gemara répond : <b>Rav Ḥama bar Gurya</b> aurait pu <b>vous dire</b> que l
 <b>Les Sages ont enseigné :</b> Seuls quatre <b>veilles sacerdotales sont montées de l'</b> <b>exil babylonien,</b> tandis que les vingt autres sont restées en Babylonie. <b>Et ce sont</b> les montres qui sont revenus : Les descendants de <b>Jedaiah, Harim, Pashhur, et Immer. Les prophètes parmi</b> ceux qui sont revenus <b>arosent</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

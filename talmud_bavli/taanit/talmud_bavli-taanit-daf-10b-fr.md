@@ -36,7 +36,7 @@ La Guemara explique encore : <b>Et faites entrer le soleil dans la ville,</b> ce
 De même, <b>Rav Yehuda a dit</b> que <b>Rabbi Ḥiyya a dit : Celui qui marche le long de la route</b> ne doit <b>pas manger plus</b> chaque jour <b>que</b> ce qu'il mangerait normalement chaque jour <b>dans une année de famine.</b> La Gemara demande : <b>Quelle est la raison</b> de cela ? <b>Ici</b> en Babylonie, <b>on a interprété</b> que la raison est <b>du à</b> ses <b>infestations.</b> Comme l'effort du voyage peut endommager des intestins pleins, il est préférable de manger moins que la quantité normale. <b>En Occident,</b> Eretz Yisrael, on <b>dit</b> que la raison est <b>due à la nourriture,</b> c'est-à-dire que si l'on mange trop, sa nourriture risque de ne pas durer tout le voyage, et il faut donc rationner ses repas. La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux avis ? La Guemara répond : La différence pratique <b>entre eux</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et pour</b> les <b>fêtes commémoratives qui sont écrites dans <i>Megillat Ta'anit</i>,</b> qui contient une liste de dates auxquelles les Sages ont interdit le jeûne.
 
@@ -74,4 +74,4 @@ La Guemara explique encore : <b>Et faites entrer le soleil dans la ville,</b> ce
 De même, <b>Rav Yehuda a dit</b> que <b>Rabbi Ḥiyya a dit : Celui qui marche le long de la route</b> ne doit <b>pas manger plus</b> chaque jour <b>que</b> ce qu'il mangerait normalement chaque jour <b>dans une année de famine.</b> La Gemara demande : <b>Quelle est la raison</b> de cela ? <b>Ici</b> en Babylonie, <b>on a interprété</b> que la raison est <b>du à</b> ses <b>infestations.</b> Comme l'effort du voyage peut endommager des intestins pleins, il est préférable de manger moins que la quantité normale. <b>En Occident,</b> Eretz Yisrael, on <b>dit</b> que la raison est <b>due à la nourriture,</b> c'est-à-dire que si l'on mange trop, sa nourriture risque de ne pas durer tout le voyage, et il faut donc rationner ses repas. La Guemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces deux avis ? La Guemara répond : La différence pratique <b>entre eux</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

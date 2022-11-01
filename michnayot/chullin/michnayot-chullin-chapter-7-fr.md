@@ -17,5 +17,5 @@ Un nerf sciatique qui a été cuit avec d'autres nerfs [autorisés] : Si on peut
 ### michna 6
 Cela s'applique aux animaux propres mais pas aux animaux impurs. Rabbi Judah dit : même aux animaux impurs. Rabbi Juda dit : le nerf sciatique n'était-il pas interdit du temps des fils de Jacob, et à cette époque les animaux impurs leur étaient encore permis ? Ils répondirent : cette loi a été ordonnée au Sinaï, mais elle a été écrite à sa place.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

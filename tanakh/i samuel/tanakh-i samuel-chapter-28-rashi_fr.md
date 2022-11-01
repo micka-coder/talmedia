@@ -67,4 +67,4 @@
 <b>Un veau gras.</b> Un veau gras.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

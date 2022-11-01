@@ -51,4 +51,4 @@ La Guemara poursuit sa discussion sur le fleuve qui, à l'avenir, sortira du Sai
 La Guemara cite d'autres <i>midrashim</i> au sujet du fleuve qui coulera du Saint des Saints. <b>Rabbi Pineḥas dit au nom de Rav Huna de Tzippori : La source qui sort de l'intérieur du Saint des Saints</b> est <b>au début</b> très étroite <b>et ressemble aux antennes des sauterelles' en largeur. <b>Une fois qu'elle atteint l'ouverture du Sanctuaire, elle devient</b> aussi épaisse <b>que</b> le <b>fil de</b> la <b>chaîne ; une fois qu'elle atteint le Hall d'entrée</b> du Sanctuaire, <b>elle devient</b> aussi épaisse <b>que</b> le <b>fil de</b> la <b>toile,</b> qui est plus large que le fil de chaîne. <b>Une fois qu'il atteint l'ouverture de</b> la <b>cour du Temple, il devient comme l'embouchure d'une petite cruche. C'est ce que nous avons appris</b> dans une mishna : <b>Rav Eliezer ben Ya'akov dit : L'eau,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

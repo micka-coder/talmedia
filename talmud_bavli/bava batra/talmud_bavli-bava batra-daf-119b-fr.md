@@ -39,4 +39,4 @@ Qu'ils sont justes</b> se voit au fait <b>qu'ils</b> ne se sont pas précipités
 La Gemara demande : <b>C'est le cas ? Mais le Rav Ḥisda ne dit-il pas : </b> Si une femme <b>se marie</b> alors qu'elle a <b>moins de vingt</b> ans <b>elle est en mesure de <b>faire des enfants jusqu'à</b> l'âge de <b>soixante ans ; </b> si elle se marie lorsqu'elle a <b>vingt</b> ans <b>âgés</b> ou plus, elle peut <b>donner naissance jusqu'à</b> l'âge de <b>quarante ans;</b> si elle se marie lorsqu'elle a <b>quarante</b> ans <b>âgés</b> ou plus, elle ne peut <b>plus du tout</b> donner naissance</b>. Si tel est le cas, comment les filles de Zelophehad ont-elles pu attendre l'âge de quarante ans pour se marier ? <b>Au contraire, comme ce sont des femmes justes, un miracle a été accompli pour elles, comme</b> celui fait pour <b>Jochebed. Comme il est écrit : "Un homme de la maison de Lévi alla prendre pour femme une fille de Lévi"</b> (Exode 2:1).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

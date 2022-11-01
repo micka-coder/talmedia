@@ -50,4 +50,4 @@
 <b>lorsque les exilés furent remontés</b> Heb. הֵעָלוֹת, expression [passive].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

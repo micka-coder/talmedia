@@ -75,4 +75,4 @@ La Guemara remet maintenant en question la <i>baraita</i> elle-même : Comment l
 La Gemara rejette cette idée : <b>Non,</b> le cas de s'asseoir <b>au-dessus d'elles</b> est <b>similaire</b> à celui de s'asseoir <b>entre elles</b> de la manière suivante : <b>De même que</b> le cas de s'asseoir <b>entre eux</b> est un cas <b>où elle les touche, de même,</b> le cas de s'asseoir <b>au-dessus d'eux</b> est un cas <b>où elle les touche. </b> En conséquence, on n'est obligé que si l'oiseau touche le nid par le haut ; <b>mais</b> s'il est assis entre deux <b>branches d'arbre</b> sans toucher les œufs ou les oisillons, on est <b>exempté</b> de le renvoyer. La Guemara objecte : <b>Si c'est le cas, au lieu d'enseigner</b> dans <b>la dernière clause :</b> S'il <b>était en vol stationnaire, même</b> si <b>ses ailes touchent le nid,</b> on est <b>exempté</b> de le renvoyer,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

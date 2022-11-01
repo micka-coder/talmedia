@@ -99,5 +99,5 @@
 <b>Et c'est ainsi que nous sommes apparus à leurs yeux.</b> Nous les avons entendus <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> se dire les uns aux autres : "Il y a des fourmis dans la vigne comme des gens". 
 <b>Le géant.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Qui font du soleil un collier par leur hauteur.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

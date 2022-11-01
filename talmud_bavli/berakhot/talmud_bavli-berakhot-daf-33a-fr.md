@@ -111,4 +111,4 @@ Ayant clarifie la question de savoir si celui qui a recite <i>havdala</i> pendan
 <b>Rav Hisda a demande au Rav Sheshet</b> a propos de ces benedictions : Si <b>on a commis une erreur</b> en <i>havdala</i> a la fois <b>dans ceci et dans cela, quelle est</b> la decision ? Rav Sheshet lui <b>repondit : Celui qui a commis une erreur dans ceci,</b> la priere de <i>Amida</i>, <b>et cela,</b> sur la coupe de vin, <b>revient au debut</b> a la fois de la priere de <i>Amida</i> et de la <i>havdala</i> sur la coupe de vin.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

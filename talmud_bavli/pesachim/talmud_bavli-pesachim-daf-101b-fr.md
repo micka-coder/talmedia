@@ -30,4 +30,4 @@ La Guemara déduit de la <i>baraita</i> : <b>D'après</b> le fait <b>qu'il est e
 <b>Rav Naḥman bar Yitzḥak a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

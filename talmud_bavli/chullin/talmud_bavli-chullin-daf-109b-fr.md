@@ -48,4 +48,4 @@ En entendant cela, <b>Rav Naḥman dit à</b> ses <b>cuisiniers : Faites rôtir 
 La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans la <i>baraita</i> citée plus haut : Un pis <b>que l'on a cuit</b> dans son lait est autorisé ? Cela indique que <b>Après coup, oui,</b> il est permis, mais on ne peut <b>pas</b> le faire rôtir <b><i>ab initio</i></b> sans le déchirer. La Guemara répond : <b>Il en est de même</b> du rôti <b><i>ab initio</i>,</b> c'est-à-dire qu'il est permis, <b>et</b> le <i>tanna</i> de la <i>baraita</i> utilise ce langage <b>puisqu'il veut enseigner</b> dans <b>cette dernière clause : Un estomac</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

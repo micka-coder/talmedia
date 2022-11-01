@@ -88,7 +88,7 @@
 <b>Inciter.</b> Inciter.</sup>15</sup><i class="footnote">Alternativement, "envoyer", en punition des péchés d'Achaz.-Ralbag</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La vingt-septième année de Yorovom, etc.</b> Est-il possible de l'affirmer ? Uzziyoh<sup>1</sup><i class="footnote">Azaryoh et Uzziyohu ne désignent-ils pas la même personne. Voir ci-dessous les versets 13 et 32.</i> et Yorovom ne règnent-ils pas simultanément, comme cela a été expliqué juste avant ? Quel est donc le sens du verset : " La vingt-septième année de Yorovom... Azaryoh... devint roi " ? Que [depuis cette année-là] il a régné sur une royauté pestiférée, [c'est-à-dire] qu'il a été frappé de <i>tzora'as</i> la vingt-septième année de son règne.
 
@@ -178,4 +178,4 @@
 <b>Inciter.</b> Inciter.</sup>15</sup><i class="footnote">Alternativement, "envoyer", en punition des péchés d'Achaz.-Ralbag</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

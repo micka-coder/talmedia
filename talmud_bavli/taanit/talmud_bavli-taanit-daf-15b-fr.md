@@ -45,4 +45,4 @@ Pourquoi, alors, les dirigeants de la communauté, ses membres les plus importan
 § La mishna enseigne : <b>Chaque membre</b> de la communauté <b>dépose</b> des cendres <b>sur sa tête.</b> La Gemara demande : <b>Que le <i>Nasi</i> et le <i>Nasi</i></b> adjoint prennent également des cendres <b>eux-mêmes et les placent sur leurs</b> propres <b>têtes. Qu'est-ce qui est différent</b> à leur égard, <b>que quelqu'un d'autre prenne</b> les cendres <b>et les place</b> sur leurs têtes ? <b>Rabbi Abba de Césarée a dit :</b> Ceci est fait intentionnellement, car <b>quelqu'un qui s'humilie,</b> dans ce cas en plaçant des cendres sur sa propre tête, <b>n'est pas semblable</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

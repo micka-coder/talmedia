@@ -51,4 +51,4 @@ Rava <b>lui dit</b> que la réponse peut être tirée <b>de ce que le Miséricor
 <b>Et vous avez un homme qui,</b> lorsque <b>une mouche tombe dans</b> son <b>bol de service, il aspire</b> la mouche <b>et mange</b> la nourriture. <b>C'est la conduite d'un homme mauvais, qui voit sa femme sortir</b> dans la rue <b>avec la tête découverte, et tourner sur la place du marché</b> de façon impudique,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

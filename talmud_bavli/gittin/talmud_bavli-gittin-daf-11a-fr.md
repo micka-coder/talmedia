@@ -42,4 +42,4 @@ La Gemara demande : <b>Si c'est le cas,</b> il devrait pouvoir percevoir <b>des 
 <b>Reish Lakish souleva un dilemme devant Rabbi Yoḥanan :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

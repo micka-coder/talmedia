@@ -30,4 +30,4 @@ La Guemara demande : <b>N'a-t-on pas enseigné</b> dans une <i>baraïta</i> : Ut
 <b>Rav Yehuda a dit</b> que <b>Rav a dit : Un lit que l'on a désigné pour</b> placer <b>l'argent</b> dessus <b>ne peut pas être déplacé</b> le Chabbat car il est mis de côté. Il est interdit même s'il n'y a plus d'argent dessus. <b>Rav Naḥman bar Yitzḥak soulève une objection à</b> Rav Yehuda à partir de notre mishna : <b>On peut déplacer une nouvelle</b> <b>lampe à huile</b> le Chabbat <b>mais pas</b> une <b>ancienne</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara explique : <b>Si donc,</b> que la manière optimale d'accomplir la mi
 La Gemara commente : <b>Cela marche bien si l'on considère</b> qu'en ce qui concerne une matière qui <b>a quitté</b> sa catégorie <b>pour enseigner une nouvelle matière,</b> le principe suivant s'applique : Cette matière elle-même <b>n'apprend pas</b> <i>halakhot</i> <b>de sa catégorie générale</b> jusqu'à ce que la Torah la ramène explicitement à cette catégorie,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

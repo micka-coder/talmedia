@@ -30,4 +30,4 @@ Plusieurs solutions possibles ont été proposées pour résoudre la contradicti
 <b>Reish Lakish a soulevé une objection à</b> l'opinion de <b>Rabbi Yoḥanan</b> à partir du verset suivant, qui décrit un cas où deux personnes se sont battues et au cours de leur lutte, elles ont blessé une femme enceinte, provoquant une fausse couche : <b>"Et pourtant aucun mal ne s'ensuit, il sera puni</b> comme le lui impose le mari de la femme" (Exode 21:22).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

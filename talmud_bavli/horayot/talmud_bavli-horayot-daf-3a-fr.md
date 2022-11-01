@@ -66,4 +66,4 @@ La Guemara clarifie : <b>Aussi, si</b> c'est <b>ainsi</b> que Rabbi Chimon souti
 La Guemara développe : <b>Selon</b> l'avis <b>de celui qui a dit</b> que seul le <b>court apporte</b> l'offrande, <b>ne soulevez pas le dilemme, car ces</b> juges qui ont émis la décision initiale sur la base de laquelle la minorité a effectué une transgression <b>ne sont</b> plus en vie. <b>Au contraire, quand faut-il soulever le dilemme ? </b> Le soulever <b>selon</b> l'avis <b>de celui qui a dit</b> que la <b>congrégation apporte</b> l'offrande. <b>Qu'est-ce que</b> la <i>halakha</i> ? La Guemara développe : La <b>congrégation existe,</b> car ensemble les deux minorités constituent une majorité de la congrégation qui a accompli la transgression.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

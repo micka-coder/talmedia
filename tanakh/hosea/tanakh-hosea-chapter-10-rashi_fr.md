@@ -70,4 +70,4 @@
 <b>A l'aube, le roi d'Israël s'est tu</b> Heb. נִדְמֹה נִדְמָה. Il a sombré dans un profond sommeil comme si c'était la nuit ; c'est-à-dire qu'il n'a plus de force. Pourquoi tout cela ? Car quand Israël était jeune, dépourvu de tout bien, je l'aimais.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

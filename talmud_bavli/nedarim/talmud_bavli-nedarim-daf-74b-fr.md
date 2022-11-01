@@ -27,4 +27,4 @@ Le <i>baraita</i> ajoute un commentaire : <b>Ben Azzai a déclaré</b> sa réact
 Puisque cette <i>baraita</i> a été citée à l'appui de l'inter-prétation de Rabbi Ami, la Guemara demande : De <b>quelle</b> manière
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

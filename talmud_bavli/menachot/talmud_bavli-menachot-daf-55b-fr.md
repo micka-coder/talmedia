@@ -60,4 +60,4 @@ La Guemara explique : Il pourrait <b>entrer dans votre esprit de dire</b> que <b
 La Gemara demande : <b>Et d'où tirons-nous</b> que l'obligation de <b>placer les mains</b> sur la tête de l'animal <b>lui-même</b> s'applique aux chèvres offertes par Nahshon et les autres princes ? La Guemara répond : <b>Comme il est enseigné</b> dans un <i>baraita</i> : Le verset stipule à propos de l'offrande pour le péché d'un roi : <b>"Il posera sa main sur la tête du bouc,</b> et l'égorgera dans le lieu où l'on égorge l'holocauste devant l'Eternel ; c'est un sacrifice pour le péché" (Lévitique 4:24). Le verset aurait pu dire : Sur sa tête. La raison pour laquelle il ajoute "du bouc" est <b>pour inclure</b> le <b>bouclier</b> apporté comme offrande pour le péché par <b>Nahshon dans</b> l'exigence de <b>placer les mains</b> sur la tête d'une offrande. C'est <b>la déclaration de Rabbi Yehuda. Rabbi Shimon dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

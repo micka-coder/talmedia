@@ -54,4 +54,4 @@ La Guemara explique : C'est <b>comme ce</b> cas <b>où Rav Yitzḥak bar Yosef d
 Rabbi Yitzḥak Nappaḥa <b>dit à</b> Rabbi Abba : <b>A propos de cette</b> question, <b>je tiens comme le <i>halakha</i></b> dit <b>par le Maître,</b> c'est-à-dire toi-même. <b>Comme Rabbi Abba dit</b> que <b>Rav Adda bar Ahava a dit</b> que <b>Rav dit :</b> Si <b>quelqu'un dit à un autre,</b> c'est-à-dire si un débiteur dit à son créancier : <b>Je t'ai remboursé en présence d'untel et d'untel,</b> il est <b>obligé qu'untel et untel viennent</b> au tribunal <b>et témoignent</b> qu'ils ont été témoins du remboursement. Rabbi Abba <b>dit à</b> Rabbi Yitzḥak Nappaḥa : <b>Mais le Rav Giddel ne dit-il pas</b> que le <b>Rav dit</b> que la <b><i>halakha</i></b> est <b>conforme à la déclaration de Rabban Shimon ben Gamliel,</b> qu'il n'est pas nécessaire qu'un plaideur vérifie toutes ses prétentions déclarées si son dossier est suffisamment solide sans ces prétentions ? <b>Et</b> de plus, <b>même Rabbi</b> Yehuda HaNasi <b>n'a pas</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

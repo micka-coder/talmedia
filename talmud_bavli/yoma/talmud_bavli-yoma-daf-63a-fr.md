@@ -54,4 +54,4 @@ La Guemara continue à discuter le cas d'un agneau pascal qui a été abattu en 
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> basée sur les versets : <b>"Tout homme de la maison d'Israël qui égorgera un taureau, un agneau ou une chèvre dans le camp, ou qui l'égorgera hors du camp, et qui ne l'aura pas apporté à l'entrée de la Tente de la Rencontre pour le présenter en offrande à l'Eternel</b> devant le tabernacle de l'Eternel, le sang sera imputé à cet homme ; il a versé du sang ; et cet homme sera retranché du milieu de son peuple" (Lévitique 17:3""4).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

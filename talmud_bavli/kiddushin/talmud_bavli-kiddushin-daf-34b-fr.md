@@ -39,4 +39,4 @@ La Gemara demande : <b>Cela marche bien selon celui qui dit</b> comme principe q
 La Gemara demande : <b>Mais</b> pourquoi ne pas <b>dériver</b> l'inverse <b>de l'étude de la Torah :</b> De même que les femmes sont exemptées de l'étude de la Torah, elles devraient aussi être exemptées de toutes les mitzvot positives qui ne sont pas limitées dans le temps. La Gemara répond : On ne peut pas déduire une exemption pour les femmes de leur exemption de l'étude de la Torah, <b>parce que l'étude de la Torah et la procréation sont deux versets qui ne font qu'un,</b> puisque dans les deux cas les femmes sont exemptées, malgré le fait qu'il s'agisse de mitzvot non limitées dans le temps. <b>Et deux versets qui ne font qu'un n'enseignent pas</b> un précédent.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

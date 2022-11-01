@@ -30,4 +30,4 @@ La Gemara relate un autre incident concernant l'établissement des repas et la r
 <b>Il lui dit :</b> Cela marche <b>bien d'agir ainsi</b> dans <b>la maison de l'Exilarque, car il y a une incertitude</b> quant à savoir si <b>il nous apportera</b> une autre coupe de vin à boire, <b>ou s'il ne nous apportera pas</b> une autre coupe. Comme nous sommes dépendants de l'hôte et que nous ne pouvons pas prévoir à l'avance si nous allons boire plus de vin, chaque coupe nécessite sa propre bénédiction. <b>Ici,</b> cependant, <b>la coupe repose devant nous et notre attention est sur elle,</b> c'est-à-dire que nous avons l'intention de boire ce vin après la Grâce après le Repas. Quel besoin y a-t-il de réciter une autre bénédiction ? <b>Il lui dit : J'ai agi conformément à l'avis</b> des <b>élèves du Rav, alors que Rav Beruna et Rav Ḥananel, les élèves du Rav, étaient assis</b> ensemble <b>au cours d'un repas,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

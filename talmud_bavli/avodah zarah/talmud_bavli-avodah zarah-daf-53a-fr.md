@@ -48,4 +48,4 @@ La Gemara répond : C'est <b>différent ici, car</b> le Gentil <b>vendait</b> le
 § <b>Les Sages ont enseigné :</b> Si un Gentil <b>emprunte</b> de l'argent <b>contre</b> un objet de culte idolique, en l'utilisant comme garantie, <b>ou</b> par rapport à un autre cas <b>où un éboulement est tombé dessus, ou</b> un cas <b>où des voleurs l'ont volé, ou</b> un cas <b>où les propriétaires l'ont abandonné et sont partis à l'étranger,</b> la <i>halakha</i> suivante s'applique :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

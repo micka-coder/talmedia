@@ -39,4 +39,4 @@ La Guemara s'interroge sur la langue du message codé. <b>D'où peut-on</b> déd
 <b>Rabbi Yehuda dit :</b> Le tribunal <b>peut intercaler</b> l'année pour cause d'impureté rituelle. <b>Rabbi Yehuda dit :</b> Il y eut <b>un incident impliquant Ezéchias, roi de Judée, qui intercala l'année en raison d'une impureté rituelle</b> (II Chroniques 30:2). <b>Et</b> après avoir agi ainsi, il a <b>demandé de la compassion pour lui-même, comme il est écrit : "Car une multitude du peuple, même beaucoup d'Ephraïm et de Manassé, d'Issacar et de Zabulon, ne s'étaient pas purifiés,</b>".
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

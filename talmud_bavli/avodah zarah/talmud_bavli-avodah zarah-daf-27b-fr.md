@@ -36,4 +36,4 @@ La Gemara demande : <b>Et qu'aurait</b> ben Dama <b>dit ? </b> Quel verset avait
 § La Gemara examine diverses circonstances dans lesquelles il est permis de recevoir un traitement de la part d'un Gentil. <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>toute blessure pour laquelle Chabbat est profané, on ne peut pas être traité par</b> des gentils. <b>Et il y a</b> ceux <b>qui disent</b> que <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>toute blessure</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

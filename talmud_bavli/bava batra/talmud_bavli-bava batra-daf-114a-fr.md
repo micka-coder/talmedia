@@ -12,4 +12,4 @@
 <b>Rav Ashi a dit : J'ai énoncé cette <i>halakha</i> devant Rav Kahana</b> et je lui ai demandé : <b>Et selon</b> l'avis de <b>Rav Yosef, est-ce que ça marche bien ? Mais</b> même selon son avis, il y aurait <b>une inquiétude</b> que <b>peut-être qu'il reviendra sur</b> sa décision, car Rav Yosef considère qu'on peut revenir sur une transaction tant que les deux parties traitent encore de cette question. <b>Au contraire, qu'avez-vous à dire ?</b> Que selon Rav Yosef, la décision de Rav Yehuda s'applique <b>lorsqu'ils se sont retirés</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

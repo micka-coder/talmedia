@@ -45,4 +45,4 @@ Quelle est la raison pour laquelle la femme du premier frère n'est pas éligibl
 Cependant, <b>Rabbi Shimon dit : Qu'il entre en lévirat</b> avec <b>celui qu'il souhaite et qu'il effectue <i>ḥalitza</i> avec le second.</b> Rabbi Shimon n'accepte pas l'interprétation homilétique interdisant une femme soumise à deux lévirats. La Guemara explique son opinion : Rabbi Shimon ne lui <b>pas</b> permettre de <b>prendre les deux en lévirat.</b> Pourquoi pas ? <b>Peut-être que le <b>lien de lévirat</b> est substantiel,</b> et que combiné au lien de lévirat avec le second frère, la femme pourrait être considérée comme étant déjà mariée au second frère, <b>et</b> alors <b>ces</b> deux femmes <b>seraient deux <i>yevamot</i> qui viennent</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

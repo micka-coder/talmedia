@@ -45,4 +45,4 @@ Les sages lui <b>dirent :</b> Il y eut <b>un incident au marché des marchands d
 <b>Rava dit : Dans la dernière clause</b> de la mishna <b>nous sommes arrivés</b> à une question différente, c'est-à-dire que la dernière section de la mishna n'est pas conçue pour contrer la déclaration de Rabbi Meir en ce qui concerne le domaine public. Elle fait plutôt référence <b>aux</b> <b>portes d'un jardin</b> d'une superficie supérieure à deux <i>beit se'a</i>, dont le statut juridique est celui d'un <i>karmelit</i>. Par conséquent, la mishna <b>dit ce qui suit : Et de même,</b> on ne peut <b>pas se tenir dans le domaine privé et ouvrir</b> une porte <b>dans un <i>karmelit</i>;</b> on ne peut pas non plus se tenir <b>dans un <i>karmelit</i> et ouvrir</b> une porte <b>dans le domaine privé,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

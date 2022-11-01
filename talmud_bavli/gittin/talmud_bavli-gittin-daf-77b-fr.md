@@ -60,4 +60,4 @@ La Gemara note : <b>Et nous avons dit</b> que c'est la <i>halakha</i> <b>seuleme
 <b>Et nous avons dit</b> que c'est la <i>halakha</i> <b>seulement</b> dans un cas où le lieu sur lequel est tombé l'acte de divorce <b>n'a pas</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

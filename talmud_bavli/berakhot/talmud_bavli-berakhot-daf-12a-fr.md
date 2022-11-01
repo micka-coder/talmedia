@@ -84,4 +84,4 @@ La Guemara repond : <b>Est-il ecrit : Devant Mon nom ? Devant Mon nom, est-il ec
 La Gemara relate : <b>Shmuel dit a Hiyya bar Rav : Fils de Torah, viens et je te raconterai une grande parole que ton pere a dite. Ton pere a dit ce qui suit : Quand on s'incline, on s'incline quand</b> il dit : <b>Bienheureux, et quand il se redresse, il se redresse quand il dit</b> le <b>nom de Dieu.</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

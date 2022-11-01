@@ -42,4 +42,4 @@ La Guemara cite une <i>baraita</i> soutenant cette compréhension. <b>Et ceci a 
 La Guemara interroge la fin de la <i>baraïta</i> : Si <b>ses restes</b> sont <b>uniques,</b> il est <b>inapte ? N'avez-vous pas dit</b> dans la première clause du <i>baraita</i> que si <b>ses restes</b> sont <b>un</b>, il est <b>inapte ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

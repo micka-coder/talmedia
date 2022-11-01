@@ -30,4 +30,4 @@ Le <i>baraita</i> poursuit : <b>Et lorsque la maturation du grain</b> est <b>une
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i> 2:5) : Le tribunal <b>ne fait pas d'intercalation de l'année</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

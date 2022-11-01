@@ -33,4 +33,4 @@ La Guemara fournit la source de l'opinion de Rabbi Yehuda : <b>Comme il est ense
 <b>Au contraire, quelles sont les circonstances</b> dans lesquelles <b>il est obligé de</b> fournir <b>son</b> offrande, selon l'avis des rabbins ? <b>Par exemple, s'il a transféré</b> l'animal <b>en sa</b> possession. <b>Mais</b> dans ce cas, <b>puisqu'il le lui a transféré, il lui appartient,</b> ce qui signifie qu'elle a effectivement séparé l'offrande de ses propres biens. La mishna ne peut pas faire référence à cette situation, car l'animal ne revient pas à un état non sacré dans un cas de ce genre. De toute évidence, la mishna est en accord avec l'opinion de Rabbi Yehuda.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

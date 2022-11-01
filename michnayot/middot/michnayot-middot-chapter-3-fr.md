@@ -23,5 +23,5 @@ La porte du porche avait une hauteur de quarante coudées et une largeur de ving
 ### michna 8
 Des poteaux en bois de cèdre s'étendaient du mur du Sanctuaire au mur du Porche pour l'empêcher de se déformer. Il y avait des chaînes d'or fixées dans les poutres du toit du Porche par lesquelles les initiés sacerdotaux avaient l'habitude de monter et de voir les couronnes, comme il est dit : "Et les couronnes seront pour Helem et pour Toviyah et pour Yedaya et pour Hen le fils de Zephaniah comme un mémorial dans le Temple du Seigneur" (Zacharie 6:14). Une vigne en or se tenait à la porte du Sanctuaire, dressée sur des perches, et quiconque offrait une feuille, un raisin ou une grappe avait l'habitude de l'apporter et de la suspendre là. Rabbi Eliezer bar Zadok a dit : en une occasion, trois cents prêtres ont été chargés [de la nettoyer].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

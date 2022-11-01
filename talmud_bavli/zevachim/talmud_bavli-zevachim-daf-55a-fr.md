@@ -60,4 +60,4 @@ Cette répétition sert à <b>rendre convenable toutes les directions</b> de la 
 <b>Rabbi Eliezer dit :</b> La répétition du <b>verset est énoncée uniquement pour rendre convenable</b> l'abattage dans le <b>nord. Comme</b> on <b>pourrait</b> avoir pensé : <b>Et cela ne pourrait-il pas</b> être déduit par <b>inférence logique ? Tout comme</b> en ce qui concerne les <b>offrandes de moindre sainteté, dont</b> l'abattage est <b>rendu convenable dans n'importe quelle direction,</b> néanmoins <b>leur place n'est pas rendue convenable pour</b> l'abattage des <b>offrandes de l'ordre le plus sacré, </b> en ce qui concerne les <b>offrandes de l'ordre le plus sacré, dont</b> l'abattage est <b>rendu apte uniquement au nord, n'est-il pas logique que leur lieu ne soit pas rendu apte à</b> l'abattage des <b>offrandes de moindre sainteté ? </b> Par conséquent, <b>le verset dit : "Tente de la Rencontre"</b> pour enseigner que les offrandes de moindre sainteté peuvent être abattues dans le nord.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

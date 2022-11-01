@@ -36,4 +36,4 @@ A l'inverse, <b>selon</b> l'opinion de <b>Beit Shammai, il a un remède,</b> car
 <strong>GEMARA:</strong> <b>Rav Adda bar Ahava a dit : C'est-à-dire</b> que <b>Rabbi Shimon soutient</b> que <b>un nazirite qui s'est rasé</b> en se basant <b>sur des offrandes de paix volontaires a rempli</b> son obligation. Une offrande de paix qui n'a pas été sacrifiée pour elle-même ne compte pas dans l'accomplissement de son obligation mais est considérée comme une offrande volontaire. Il ressort clairement de la mishna que Rabbi Shimon soutient que le rasage basé sur n'importe quelle offrande valide, même un sacrifice de paix de ce type, est efficace. <b>Quelle est la raison</b> pour cela ? C'est <b>comme le dit le verset : "Et le mettre sur le feu qui est sous le sacrifice de paix"</b> (Nombres 6:18), <b>et il n'est pas écrit : Sur son sacrifice de paix.</b> Cela indique qu'il remplit son obligation avec tout type de sacrifice de paix.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

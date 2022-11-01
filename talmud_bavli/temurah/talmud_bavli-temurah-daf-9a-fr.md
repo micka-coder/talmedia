@@ -63,4 +63,4 @@ La Guemara commente : Il <b>est enseigné</b> dans une <i>baraita</i> <b>conform
 <b>Rabbi Avin soulève un dilemme : Selon la déclaration de celui qui dit</b> que <b>on ne peut pas effectuer une substitution</b> une fois <b>et ensuite effectuer une substitution à nouveau,</b> si on <b>désignait</b> un animal comme <b>un sacrifice de culpabilité avec lequel on doit expier et qu'on effectuait une substitution pour lui,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

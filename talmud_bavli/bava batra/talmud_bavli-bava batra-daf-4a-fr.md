@@ -51,4 +51,4 @@ Mais <b>dit la dernière clause</b> de la mishna : <b>Mais</b> en ce qui concern
 <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

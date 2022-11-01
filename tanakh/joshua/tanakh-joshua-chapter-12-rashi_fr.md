@@ -50,4 +50,4 @@
 <b>La région de Dor. Les provinces de Dor.</b>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

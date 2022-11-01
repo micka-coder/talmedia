@@ -51,4 +51,4 @@ En raison de toutes ces questions, la Guemara réinterprète le cas du Rav Ḥan
 La Guemara demande concernant l'opinion de Rabbi Yehuda HaNasi : <b>Et Rabbi</b> Yehuda HaNasi en général <b>accepte-t-il</b> le concept de <b><i>muktze</i> ? Mais Rabbi Shimon, fils</b> de <b>Rabbi</b> Yehuda HaNasi, n'a-t-il pas <b>demandé à Rabbi</b> Yehuda HaNasi : <b>Des dattes non mûres</b> que l'on place dans un panier <b>pour qu'elles mûrissent</b> jusqu'à ce qu'elles soient comestibles, <b>quelle est</b> la <i>halakha</i> <b>selon Rabbi Shimon</b> ben Yoḥai ? Sont-ils considérés comme <i>muktze</i> ou non ? <b>Il lui a dit</b> en réponse : <b>Il n'y a pas</b> de reconnaissance de la <i>halakha</i> de <b><i>muktze</i> selon Rabbi Shimon,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

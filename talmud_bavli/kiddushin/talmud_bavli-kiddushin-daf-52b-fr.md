@@ -51,4 +51,4 @@ En entendant cela, <b>Rabbi Yehuda se mit en colère contre</b> ses élèves. <b
 <b>Rabbi Yoḥanan dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

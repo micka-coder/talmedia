@@ -54,4 +54,4 @@ La Guemara demande : <b>Et qu'est-ce qui est différent</b> à propos des <b>ail
 <b>Rabbi Abba bar Rav Adda a dit</b> que <b>Rabbi Yitzḥak a dit</b> comme suit : <b>En une occasion</b> ils devaient circoncire un bébé le Chabbat, et <b>ils ont oublié et n'ont pas apporté un scalpel</b> avec lequel le circoncire <b>la veille du Chabbat, et ils l'ont apporté le Chabbat par les toits et par les cours,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

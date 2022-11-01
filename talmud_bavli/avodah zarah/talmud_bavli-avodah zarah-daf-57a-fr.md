@@ -42,4 +42,4 @@ Cette <i>halakha</i> est <b>à l'exclusion de ce</b> que <b>Rav Naḥman</b> dit
 <b>Rabba a soulevé une objection à Rav Naḥman</b> à partir de la <i>baraita</i> précitée : En ce qui concerne <b>celui qui achète aux Gentils des esclaves circoncis mais non immergés</b> dans un bain rituel, <b>et aussi</b> en ce qui concerne <b>les fils des <b>servantes</b> Gentilles qui</b> ont grandi dans une maison juive et <b>ont été circoncis mais n'ont pas été immergés</b> dans un bain rituel, leur conversion n'est pas valide et elles ont le statut légal des Gentils. <b>Leurs crachats et les objets sur lesquels ils marchent,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

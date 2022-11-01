@@ -45,4 +45,4 @@ La Gemara demande : <b>Et s'ils ne discutaient pas du même sujet, d'où sait-el
 La Guemara revient sur la déclaration de Shmuel. <b>Et de même, en ce qui concerne le divorce :</b> Si un mari <b>donne</b> à sa femme <b>son acte de divorce et lui dit : <b>Tu es par la présente renvoyée,</b> ou : <b>Vous êtes par la présente divorcée,</b> ou : <b>Tu es par la présente autorisée</b> à épouser <b>n'importe quel homme,</b> alors <b>elle est divorcée.</b> La Gemara commente : Il <b>est évident</b> que si un mari <b>livre un acte de divorce et dit à sa femme : Tu es par la présente une femme libre,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

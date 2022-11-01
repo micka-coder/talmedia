@@ -27,4 +27,4 @@ La Guemara demande : <b>Quand</b> le prêtre brûle-t-il la poignée ? <b>Si</b>
 <b>Rav Yehuda, fils de Rabbi Shimon ben Pazi, dit que</b> le prêtre n'asperge pas l'huile comme un rite défini mais stipule que si l'homme n'est pas lépreux, il l'asperge d'une manière analogue à d'autres articles que l'on <b>brûle pour le plaisir du bois,</b> c'est-à-dire comme combustible pour l'autel et non comme un rite sacrificiel. <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit :</b> Le verset dit : "Aucune offrande de farine que tu apporteras à l'Eternel ne sera faite avec du levain, car tu ne feras pas de levain, ni de miel, de fumée de cette offrande comme offrande consumée par le feu à l'Eternel. Comme offrande de prémices, tu pourras les apporter à l'Éternel ; mais elles ne monteront pas en odeur agréable sur l'autel" (Lévitique 2:11-12). Ce verset indique que <b>vous ne pouvez pas offrir</b> du levain et du miel <b>comme arôme agréable,</b> une offrande. <b>Mais vous pouvez offrir</b> du levain et du miel et d'autres substances.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,7 +42,7 @@ La Guemara rejette cette conclusion, et présente une explication alternative de
 <b>Et le Rav Naḥman suit sa</b> ligne standard de <b>raisonnement, car le Rav Naḥman dit :</b> Si l'on <b>voyait une <i>sela</i></b> pièce...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>où</b> l'objet est <b>extrêmement rouillé,</b> indiquant qu'il a été laissé là pendant longtemps.
 
@@ -86,4 +86,4 @@ La Guemara rejette cette conclusion, et présente une explication alternative de
 <b>Et le Rav Naḥman suit sa</b> ligne standard de <b>raisonnement, puisque le Rav Naḥman dit :</b> Si l'on <b>voyait une <i>sela</i></b> pièce...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

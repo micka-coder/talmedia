@@ -75,4 +75,4 @@ La Gemara, ci-dessus, a cité un verset concernant l'enterrement du roi Ezéchia
 <b>Rabbi Natan et les rabbins sont en désaccord</b> en ce qui concerne cette yeshiva : <b>L'un d'eux dit : </b> Ils y ont étudié pendant <b>trois</b> jours.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

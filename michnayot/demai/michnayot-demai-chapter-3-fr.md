@@ -17,5 +17,5 @@ Celui qui donne [un produit] à une aubergiste [pour le préparer à la nourritu
 ### michna 6
 Celui qui donne [des produits] à sa belle-mère [pour qu'elle les prépare], il doit donner la dîme de ce qu'il lui donne et de ce qu'il lui reprend, car elle est soupçonnée de changer les [aliments] qui se sont gâtés. Rabbi Juda dit : elle désire le bien-être de sa fille et a honte [de servir des aliments avariés] à son gendre. Rabbi Juda est d'accord [avec les autres sages] que si l'on donne à sa belle-mère un produit de la septième année, elle n'est pas soupçonnée de le changer et de donner à sa fille un produit de la septième année.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

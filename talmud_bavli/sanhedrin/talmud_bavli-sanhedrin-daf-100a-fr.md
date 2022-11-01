@@ -54,4 +54,4 @@ Dans un domaine connexe, <b>il est enseigné</b> dans une <i>baraita</i> que <b>
 <b>Rabbi Yehoshua dit</b> à Rabbi Meir : <b>Et est-il possible de dire que</b> si <b>une personne donne sa poignée à un indigent dans ce monde, le Saint, Béni soit-Il, lui donne Sa poignée dans le Monde-à-Venir ? Mais n'est-il pas écrit : "Et distribua le ciel avec l'étendue"</b> (Isaïe 40:12) ? Il demanda comment on peut recevoir une récompense aussi généreuse. Rabbi Meir lui répondit : <b>Et vous ne le dites pas ? Lequel</b> des <b>attributs de Dieu est le plus grand ? </b> Est-ce que <b>l'attribut de la récompense est plus grand ou</b> est-ce que <b>l'attribut de la punition</b> est plus grand ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

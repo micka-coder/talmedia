@@ -45,4 +45,4 @@ La Gemara demande : <b>Qu'est-ce que</b> Pinehas a <b>vu</b> qui l'a poussé à 
 Il est écrit à propos de Pinehas : <b>"Il se leva du milieu de l'assemblée et il prit une lance dans sa main"</b> (Nombres 25:7). <b>D'ici,</b> où il est écrit qu'il ne prit la lance qu'après s'être levé de l'assemblée, on déduit <b>qu'on n'entre pas dans la salle d'étude avec une arme.</b> L'assemblée dans ce contexte fait référence au siège du Sanhédrin. Pinehas <b>enleva la lame de</b> la lance <b>et la plaça dans son vêtement [<i>be'unkalo</i>]</b> et tint le manche de la lance comme une canne, <b>et il fut</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

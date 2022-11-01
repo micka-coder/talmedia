@@ -18,4 +18,4 @@ La Gemara demande : <b>Mais</b> ce raisonnement est difficile, car la mishna <b>
 § La Gemara considère maintenant une mishna différente. <b>Venez</b> et <b>entendez</b> ce qui a été enseigné dans la mishna (61a) : Celui qui vend sa maison sans indiquer explicitement ce qui est inclus dans la vente n'a <b>pas</b> vendu <b>le toit</b> avec la maison <b>quand il a un parapet de dix coudées de haut,</b> car un tel toit est considéré comme une entité séparée et n'est pas inclus dans la vente de la maison.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

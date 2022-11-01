@@ -57,4 +57,4 @@ Afin de déterminer la mesure de la coudée de Dieu, la Guemara cite un verset q
 <b>Et Rav Ḥisda</b> a encore <b>dit : Mari bar Mar a interprété homilétiquement : Quel est</b> le sens de ce <b>qui est écrit :</b> "L'Eternel m'a montré, <b>et voici que deux paniers de figues étaient posés devant le temple de l'Eternel,</b> après que Nabuchodonosor, roi de Babylone, eut emmené captifs de Jérusalem Jeconiah, fils de Jehoïakim, roi de Juda, et les princes de Juda avec les artisans et les forgerons, et les eut conduits à Babylone. <b>Un panier [<i>dud</i>] contenait de très bonnes figues, comme les figues</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

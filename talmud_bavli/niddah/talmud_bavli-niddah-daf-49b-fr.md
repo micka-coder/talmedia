@@ -54,4 +54,4 @@ La Gemara explique : <b>Et</b> les deux ajouts <b>sont nécessaires. Car, si</b>
 <strong>GEMARA:</strong> La Gemara demande : <b>Qu'est-ce qui est ajouté</b> par cette affirmation, à savoir que certaines personnes sont aptes à témoigner mais pas à statuer ? <b>Rabbi Yoḥanan dit :</b> Cela sert <b>à ajouter celui qui est aveugle d'un de ses yeux. Et</b> conformément à l'avis de <b>qui</b> cet arrêt ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

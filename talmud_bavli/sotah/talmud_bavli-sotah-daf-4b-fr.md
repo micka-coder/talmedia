@@ -54,4 +54,4 @@ Cette interprétation <b>pose une difficulté</b> aux Sages de <b>l'école de Ra
 <b>Au contraire, Rabbi Yoḥanan dit :</b>
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Et le premier <i>tanna</i> de</b> la <i>baraita</i>, que 
 La Gemara répond : <b>En fait, il dérive</b> l'analogie verbale de "sous" et "sous", et donc il exclut un <i>tereifa</i> et des sortes diverses de la dîme animale. <b>Mais</b> en ce qui concerne un animal <b>né par césarienne</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rabbi Akiva dit : <b>"Sa mère"</b> fait référence à <b>sa mère, littéralem
 <b>Par rapport à quel</b> principe <b>Rabbi Eliézer et Rabbi Akiva <b>sont-ils en désaccord ? Rabbi Eliezer tient</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

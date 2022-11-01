@@ -55,4 +55,4 @@
 <b>Ein Hakorei.</b> "La source qui s'est matérialisée par le cri de celui qui a appelé Hachem."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

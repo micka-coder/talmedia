@@ -30,4 +30,4 @@ Et la Gemara demande : <b>Qu'est-ce que</b> sont ces <b>transgresseurs ?</b> La 
 Dans ce contexte, <b>Rava a dit : Celui qui viole</b> un décret <b>des Sages, il est permis de l'appeler transgresseur.</b> Transgresseur n'est pas un terme limité à celui qui viole une interdiction sévère de la Torah. La Guemara demande : <b>Selon l'avis de qui</b> Rabba a-t-il fait cette déclaration ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

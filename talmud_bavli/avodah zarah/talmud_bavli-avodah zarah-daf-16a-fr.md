@@ -48,4 +48,4 @@ Rav Ḥanan bar Rava ajoute : C'est la déclaration de Rav, <b>mais je dis</b> q
 La Gemara soulève une objection à la déclaration du Rav. <b>Nous avons appris</b> dans la mishna : <b>On ne peut pas vendre des ours, ou des lions, ou tout objet qui peut causer un préjudice au public, à</b> des gentils. La Gemara analyse la mishna : <b>La raison pour laquelle</b> ces bêtes ne peuvent être vendues aux Gentils est qu'elles <b>peuvent causer un préjudice au public.</b> On peut en déduire qu'une autre bête, qui <b>ne cause pas de préjudice au public, est autorisée</b> à être vendue aux Gentils. <b>Rabba bar Ulla dit</b> en réponse : Cette mishna ne pose pas de problème à Rav, car il considère qu'elle fait référence <b>à un lion endommagé,</b> qui n'est pas apte au travail ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

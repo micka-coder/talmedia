@@ -39,4 +39,4 @@ La Guemara note : <b>Et il est nécessaire</b> d'énoncer leur désaccord par ra
 § La mishna enseigne que Rabbi Chimon juge que celui qui égorge la génisse rouge de purification est exempt de punition pour l'interdiction de : Lui-même et sa progéniture, car cet acte d'abattage ne rend pas l'animal propre à la consommation. La Gemara demande : <b>Et</b> l'abattage de <b>la</b> génisse rouge de purification</b> est-il considéré comme un acte d'<b>abattage impropre</b> à la consommation ? <b>Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon dit :</b> Une <b>génisse rouge,</b> même si elle a été abattue et qu'il est donc interdit d'en tirer un bénéfice, <b>est susceptible d'être soumise à l'impureté rituelle des aliments, puisqu'elle a eu un temps où elle était apte</b> à la consommation ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

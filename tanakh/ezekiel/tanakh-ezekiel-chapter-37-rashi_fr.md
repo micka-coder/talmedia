@@ -67,4 +67,4 @@
 <b>A mon serviteur, à Jacob</b> Comme je l'ai donné à Jacob, sans limites.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

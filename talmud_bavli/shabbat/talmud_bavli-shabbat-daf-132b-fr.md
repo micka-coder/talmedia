@@ -48,4 +48,4 @@ Rav Safra a soulevé une difficulté : <b>Cela marche bien</b> si l'on se réfè
 La Guemara souligne que <b>ce désaccord</b> entre <b>Rava et Rav Safra</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

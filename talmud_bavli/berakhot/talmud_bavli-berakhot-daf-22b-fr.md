@@ -57,4 +57,4 @@ La Gemara cite une autre <i>halakha</i> : <b>Un homme qui priait et</b> plus tar
 La Guemara note : <b>Disons</b> que <b>ils ne sont pas d'accord sur ce point :</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

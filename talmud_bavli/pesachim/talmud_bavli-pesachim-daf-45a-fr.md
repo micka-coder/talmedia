@@ -51,4 +51,4 @@ La Guemara commente : Il <b>a été enseigné</b> dans une <i>baraita</i> <b>con
 <b>Et</b> il <b>a été enseigné</b> dans une <i>baraita</i> différente <b>conforme à la dernière version</b> de la déclaration de Rav Yehuda' : En ce qui concerne la <b>pâte qui se trouve dans les fissures d'un </b> bol à pétrir, à un endroit où elle sert à renforcer</b> le bol,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

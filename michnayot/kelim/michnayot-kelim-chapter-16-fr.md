@@ -23,5 +23,5 @@ Le sac à excréments d'un taureau et son museau, une étagère à abeilles et u
 ### michna 8
 Le fourreau d'une épée, d'un couteau ou d'un poignard, l'étui d'une paire de ciseaux, d'une paire de ciseaux ou d'un rasoir, l'étui à maquillage et la boîte à maquillage, l'étui à stylet, l'étui à compas, l'étui à tablette, l'étui à planchette, le carquois et l'étui à javelot, tout cela est susceptible d'être impur. L'étui d'une double flûte est susceptible d'être impur si l'instrument est introduit par le haut, mais s'il est introduit par le côté, il est propre. Un étui pour flûtes Rabbi Judah dit qu'il est propre parce que celles-ci sont introduites par le côté. La housse d'une massue, d'un arc ou d'une lance est propre. Telle est la règle générale : ce qui sert d'étui est susceptible d'être impur, mais ce qui est simplement une couverture est pur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara clarifie sa suggestion : <b>Quoi, ce n'est pas</b> le cas que ces Sag
 <strong>MISHNA :</strong> <b>Beit Shammai disent : </b> Une femme est <b>obligée</b> de s'examiner avec <b>deux linges,</b> une fois avant et une fois après <b>chaque acte sexuel</b> auquel elle se livre durant la nuit, et elle doit les inspecter pour le sang le matin suivant, <b>ou</b> elle doit <b>se livrer à des rapports sexuels à la lumière d'une lampe</b> et inspecter les linges avant et après chaque acte sexuel. <b>Beit Hillel disent : </b> Elle n'est pas tenue de s'examiner entre chaque acte sexuel. Au contraire, il est <b>suffisant</b> qu'elle s'examine <b>avec deux linges tout au long de la nuit,</b> une fois avant le premier acte sexuel et une fois après le dernier acte sexuel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

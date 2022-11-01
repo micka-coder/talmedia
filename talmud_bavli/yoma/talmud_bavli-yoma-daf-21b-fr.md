@@ -42,4 +42,4 @@ Si un vent d'ouest faisait tendre la fumée <b>vers l'est,</b> c'était une indi
 La Gemara répond : Ceci n'est <b>pas difficile : Cette</b> opinion selon laquelle un vent d'est est bon <b>est pour nous,</b> en Babylonie. La Babylonie est une terre dont l'eau est abondante, et un vent d'est sec ne nuira pas du tout à la récolte. <b>Cette</b> opinion selon laquelle un vent d'est est nuisible <b>est pour eux,</b> en Eretz Yisrael. C'est une terre où l'eau est rare, et le vent d'est sec assèchera la terre et ruinera les récoltes.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

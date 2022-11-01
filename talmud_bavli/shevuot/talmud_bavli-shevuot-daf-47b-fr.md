@@ -39,4 +39,4 @@ Dans le cas de <b>deux prêteurs, et un seul emprunteur, et deux</b> billets à 
 <b>Rav Huna bar Yehuda soulève une objection</b> d'une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

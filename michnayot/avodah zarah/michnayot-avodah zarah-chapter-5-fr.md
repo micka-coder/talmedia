@@ -35,5 +35,5 @@ Si un non-juif a recouvert de poix un pressoir à vin en pierre, il peut être r
 ### michna 12
 Si [un Juif] achète des ustensiles de cuisine à un non-Juif, il doit immerger ceux qui sont habituellement utilisés avec des liquides froids ; il doit plonger dans l'eau bouillante ceux qui sont habituellement utilisés avec des liquides chauds ; il doit chauffer à blanc dans le feu ceux qui sont habituellement chauffés à blanc dans le feu. Une broche et un gril doivent être chauffés à blanc, mais un couteau peut être poli et est alors rituellement propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

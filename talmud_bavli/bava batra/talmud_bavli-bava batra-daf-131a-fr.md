@@ -39,4 +39,4 @@ Abaye <b>lui dit :</b> L'affirmation selon laquelle la mishna est conforme à l'
 <b>Rav Naḥumi, et certains disent</b> c'était <b>Rav Ḥananya bar Minyumi, a dit à Abaye :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

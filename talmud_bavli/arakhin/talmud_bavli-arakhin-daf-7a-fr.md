@@ -63,4 +63,4 @@ La Guemara demande : Est-il vrai que le fœtus meurt toujours en premier lorsque
 § <b>Rav Naḥman dit</b> que <b>Shmuel dit :</b> Dans le cas d'une <b>femme qui s'est assise sur la chaise de travail</b> dans les affres du travail, <b>et qui est morte le Chabbat, on apporte un couteau, et on déchire</b> son abdomen, et on enlève le fœtus,</b> car il pourrait être encore vivant, et il serait possible de lui sauver la vie. La Gemara demande : Mais n'est-il pas <b>évident</b> que cela est permis ? Après tout, <b>Qu'est-ce que</b> la personne qui se coupe l'abdomen <b>fait ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Ce verset assimile ces deux libérations, indiquant que <b>lorsque vous</b> ête
 <b>Rava a dit : Même</b> si <b>vous dites</b> que la mishna a été enseignée conformément à l'opinion des <b>Rabbins,</b> qui ne sont pas d'accord avec Rabbi Yehuda HaNasi et soutiennent que l'observance de l'année sabbatique, même à l'heure actuelle, est mandatée par la loi de la Torah, on peut comprendre l'indulgence de la mishna. La raison de l'indulgence en ce qui concerne l'irrigation est que seules les <b>catégories primaires de travail ont été interdites par le Miséricordieux,</b> c'est-à-dire par la loi de la Torah,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

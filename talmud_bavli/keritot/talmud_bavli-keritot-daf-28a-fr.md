@@ -96,4 +96,4 @@ De même, la mention du <b>père précède</b> celle de <b>la mère</b> presque 
 <b>Le deuxième cri</b> était : <b>Ouvrir</b> les <b>portes, et laisser entrer Yoḥanan ben Nedavai, l'étudiant de Pinkai, et remplir son ventre de</b> viande d'<b>offrandes</b> consacrées au <b>Ciel,</b> car il est digne de manger des offrandes. <b>On dit de ben Nedavai qu'il mangerait quatre <i>se'a</i> de colombes</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

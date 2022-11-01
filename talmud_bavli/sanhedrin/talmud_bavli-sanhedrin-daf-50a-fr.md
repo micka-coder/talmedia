@@ -75,4 +75,4 @@ La Gemara soulève une objection : <b>Au contraire,</b> la décapitation par l'<
 La Guemara répond : En réponse à cette objection, <b>vous</b> devez <b>répondre : Mais la sévérité de quelle</b> transgression est plus grande : La sévérité</b> de la transgression <b>du subvertisseur, ou la sévérité</b> de la transgression <b>du subverti ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

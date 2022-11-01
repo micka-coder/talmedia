@@ -48,4 +48,4 @@ La mishna relate la dispute entre les <i>tanna'im</i>. <b>Rabbi Eliezer a dit : 
 <b>Rabbi Yehoshua lui a répondu : Non,</b> cette déduction <i>a fortiori</i> n'est pas correcte, car <b>si tu disais à propos d'une offrande pour le péché</b> pour <b>laquelle on a changé sa désignation</b> et qu'on l'a sacrifiée <b>en vue d'un holocauste</b> qu'il y a responsabilité pour mauvais usage, cela est raisonnable, <b>parce qu'il a changé sa désignation pour un objet pour lequel il y a</b> responsabilité pour <b>mauvais usage. Diriez-vous dans</b> le cas d'un <b>holocauste</b> pour lequel on a changé sa désignation</b> et qu'on l'a sacrifié <b>en vue d'un sacrifice pour le péché</b> qu'il y a responsabilité pour mauvais usage, <b>puisque</b> dans ce cas <b>il a changé sa désignation pour un objet pour lequel il n'y a pas</b> de responsabilité pour son <b>mauvais usage ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

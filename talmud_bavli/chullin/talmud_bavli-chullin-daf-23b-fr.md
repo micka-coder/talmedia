@@ -39,4 +39,4 @@ La Gemara objecte : <b>En fin de compte, cet homme</b> qui apporte l'offrande de
 La Gemara demande : <b>Et que</b> l'on déduise que la <b>génisse rouge</b> est <b>apte à la rupture du cou au moyen d'une déduction <i>a fortiori</i></b> : <b>Si une génisse</b> dont le cou est brisé, <b>qui n'est pas rendue apte à l'abattage, est rendue apte à briser le cou,</b> alors en ce qui concerne une <b>génisse rouge, qui est rendue apte à l'abattage, n'est-il pas logique qu'elle soit rendue apte à briser le cou ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

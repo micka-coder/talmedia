@@ -26,5 +26,5 @@ Avant le omer, on peut récolter [le grain] dans les champs irrigués de la vall
 ### michna 9
 On peut faucher à cause des jeunes arbres ou pour faire une maison pour les personnes en deuil ou pour ne pas interrompre le bet hamidrash. On ne peut pas les lier en bottes mais on peut les laisser en petits tas. La mitsva du omer est qu'il doit être apporté du grain sur pied. Si l'on ne peut pas en trouver, on peut le prendre dans les gerbes. La mitvah est qu'il doit être apporté du grain humide (frais). S'il n'y en a pas, il peut le faire avec du grain sec. La mitsva est qu'il doit être moissonné la nuit. Si elle a été récoltée de jour, elle est valide. Et cela prévaut sur le Chabbat.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

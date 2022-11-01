@@ -27,4 +27,4 @@ Dans le cas où <b>quelqu'un a laissé</b> le récipient <b>couvert et est reven
 <b>Et Rabbi Yehoshua ben Levi dit : Quelle est la raison</b> pour laquelle on ne craint pas qu'une personne rituellement impure ait exposé les eaux et les ait rendues impures ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

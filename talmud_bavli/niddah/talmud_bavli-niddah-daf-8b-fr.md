@@ -63,4 +63,4 @@ La Guemara demande : Pourquoi Rabbi Meïr appelle cela une simple <b>allusion à
 <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir d'une <i>baraita</i> : Si une femme a éprouvé des <b>douleurs d'accouchement</b> pendant <b>deux</b> jours, au cours desquels elle a vu un écoulement de sang, <b>et que le troisième</b> jour <b>elle a fait une fausse couche d'air ou de tout ce qui n'est pas un fœtus viable</b>, <b>cette</b> femme <b>accouche comme une <i>zava</i>,</b> et le sang est traité comme le sang d'une <i>zava</i> à tous égards. La Guemara explique cette contradiction : <b>Et si l'on dit</b> que faire une fausse couche d'un fœtus non viable <b>est</b> considéré comme <b>une naissance correcte,</b> cela pose problème,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

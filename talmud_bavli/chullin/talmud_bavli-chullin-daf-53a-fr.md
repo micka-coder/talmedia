@@ -48,4 +48,4 @@ La Gemara répond : <b>On peut dire ceci, et on peut dire cela.</b> Par conséqu
 La Gemara explique : <b>Tout le monde</b> s'accorde à dire que dans un cas où il est <b>incertain</b> qu'un prédateur soit <b>entré</b> dans l'enclos ou le poulailler et <b>incertain</b> qu'il <b>ne soit pas entré, je dirai</b> qu'il <b>n'est pas entré. </b> En outre, si l'on sait qu'un animal est entré mais qu'il est <b>incertain</b> qu'il s'agisse d'un <b>chien</b> et <b>incertain</b> qu'il s'agisse d'un <b>chat, je dirai</b> qu'il s'agissait d'un <b>chien,</b> ce qui ne peut rendre un animal <i>tereifa</i> par griffure. Et même si un prédateur <b>entrait,</b> mais qu'il <b>était tranquille et s'asseyait parmi</b> les animaux, <b>je dirai qu'il a fait la paix</b> avec eux, comme s'il était apprivoisé, et qu'il ne les a pas griffés. Et s'il <b>décapitait l'un d'eux,</b> je dirai que sa <b>colère s'est apaisée</b> par la suite, et qu'il n'a pas griffé d'autres animaux. Et si <b>il rugissait et qu'ils gloussaient,</b> je dirai que <b>ils sont</b> seulement <b>effrayants</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

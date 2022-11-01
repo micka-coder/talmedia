@@ -69,4 +69,4 @@ La Gemara clarifie cette question : <b>Venez</b> et <b>entendez</b> une preuve, 
 <strong>MISHNA:</strong> <b>On ne mentionne pas</b> les versets de <b>Rémotion, Royauté, et <i>Shofar</i></b> qui ont pour thème <b>la punition.</b> Lors de la récitation des dix versets, <b>on commence par</b> des versets de la <b>Torah et on termine par</b> des versets des <b>Prophètes. Rabbi Yosei dit : S'il a conclu avec</b> un verset de <b>la Torah, il a rempli</b> son obligation.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

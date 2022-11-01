@@ -27,4 +27,4 @@ La Guemara demande : <b>A l'égard de quelle <i>halakha</i></b> y a-t-il une dif
 <b>Rava dit à Rav Naḥman : Mais il y a mis fin.</b> Celui qui le lui a légué a mis fin à son héritage par avance en déclarant qu'après le décès du premier, le bien sera donné au second. La Gemara répond : <b>Il pensait</b> que l'héritage <b>a une fin ; mais le Miséricordieux déclare</b> qu'il <b>n'a pas de fin.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

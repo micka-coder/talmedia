@@ -72,4 +72,4 @@ La Guemara exprime sa surprise : <b>Mais Shmuel</b> a-t-il réellement <b>dit ce
 La Gemara répond : <b>Abaye a enseigné</b> la déclaration de Shmuel <b>comme ceci : Rav Yehuda dit</b> que <b>Shmuel dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

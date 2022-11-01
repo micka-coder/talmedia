@@ -42,4 +42,4 @@ De même, ce qui était à l'origine appelé <b><i>petora</i></b> a été appel�
 <b>Rava bar Yosef a dit : Moi aussi</b> je vais <b>parler</b> des changements de sens des termes dans cette génération. La ville qui à l'époque biblique s'appelait <b>Babylone</b> s'est appelée <b>Bursif</b> dans les générations suivantes, et <b>Bursif</b> s'est appelée <b>Babylone</b> dans les générations suivantes. La Gemara demande : <b>Qu'est-ce qui est</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

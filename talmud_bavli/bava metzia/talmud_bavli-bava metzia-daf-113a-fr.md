@@ -36,7 +36,7 @@ La Gemara réfute l'affirmation ci-dessus : <b>Si</b> l'argument pour comprendre
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre <i>baraita</i> qui contredit Shmuel : <b>De l'implication de ce</b> qui <b>est énoncé : "Tu te tiendras dehors", ne sais-je pas que : "Et l'homme à qui tu prêteras fera sortir dehors"</b> (Deutéronome 24, 11) ? <b>Pourquoi</b> faut-il plutôt que <b>le verset énonce</b> la phrase inclusive <b>"Et l'homme</b> à qui tu prêteras fera sortir dehors" ? Cela sert <b>à inclure l'agent du tribunal.</b> La Gemara commente : <b>Quoi, n'est-ce pas</b> que <b>l'agent du tribunal</b> a le même statut <b>que le débiteur</b> lui-même, indiquant que tout comme le débiteur peut entrer dans sa propre maison à tout moment, l'agent du tribunal peut agir de même ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>mais</b> lorsque <b>le moment de son obligation</b> de payer <b>arrive, il s'applique et se souvient</b> de tous les détails, afin de ne pas violer l'interdiction de retarder le paiement du salaire de l'ouvrier.
 
@@ -74,4 +74,4 @@ La Gemara réfute l'affirmation ci-dessus : <b>Si</b> l'argument pour comprendre
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre <i>baraita</i> qui contredit Shmuel : <b>De l'implication de ce</b> qui <b>est énoncé : "Tu te tiendras dehors", ne sais-je pas que : "Et l'homme à qui tu prêteras fera sortir dehors"</b> (Deutéronome 24, 11) ? <b>Pourquoi</b> faut-il plutôt que <b>le verset énonce</b> la phrase inclusive <b>"Et l'homme</b> à qui tu prêteras fera sortir dehors" ? Cela sert <b>à inclure l'agent du tribunal.</b> La Gemara commente : <b>Quoi, n'est-ce pas</b> que <b>l'agent du tribunal</b> a le même statut <b>que le débiteur</b> lui-même, indiquant que tout comme le débiteur peut entrer dans sa propre maison à tout moment, l'agent du tribunal peut agir de même ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara demande : <b>Si</b> donc, <b>comme là,</b> le matin, <b>l'encens</b>
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> qu'il est écrit : <b>"Et sa libation sera d'un quart de<i>hin</i></b> pour l'unique agneau, dans l'aire sacrée elle sera versée comme offrande de boisson forte à l'Eternel" (Nombres 28:7). Les Sages comprennent ce verset comme faisant référence à l'offrande quotidienne de l'après-midi ; par conséquent, <b>on déduira</b> la manière et l'ordre <b>de</b> l'offrande quotidienne du <b>matin</b> <b>de</b> la manière et l'ordre <b>de</b> l'offrande quotidienne de l'<b>après-midi</b>. Tout comme les libations sont requises pour l'offrande quotidienne de l'après-midi, elles le sont aussi pour l'offrande quotidienne du matin.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

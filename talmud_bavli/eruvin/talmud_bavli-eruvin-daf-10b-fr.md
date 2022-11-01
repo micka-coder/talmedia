@@ -60,4 +60,4 @@ Rav Dimi répond : <b>Au contraire, que</b> voulez-vous dire, que <b>nous ne som
 La Guemara revient à la mishna : <b>Si</b> l'entrée de la ruelle <b>a</b> une ouverture sous la <b>forme d'une porte,</b> alors, <b>même si elle est plus large que dix</b> coudées, <b>on n'a pas besoin de diminuer</b> sa largeur. La Gemara commente : <b>Nous trouvons</b> qu'une ouverture sous la <b>forme d'une porte est efficace</b> pour permettre le portage dans une ruelle <b>en tenant compte</b> de sa largeur,</b> c'est-à-dire lorsque son entrée a plus de dix coudées de large, <b>et</b> qu'une <b>corniche est efficace en tenant compte</b> de sa hauteur,</b> c'est-à-dire lorsqu'elle a plus de vingt coudées de haut.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

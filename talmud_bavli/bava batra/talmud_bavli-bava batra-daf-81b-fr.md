@@ -24,4 +24,4 @@ La Guemara demande : <b>Et</b> la récitation n'est <b>pas</b> indispensable ? <
 La Guemara répond : Le cas est <b>où il les rend</b> exempts de l'obligation de récitation, <b>conformément</b> à l'avis de <b>Rabbi Yosei bar Ḥanina, qui dit : </b> Si l'on a <b>récolté</b> les fruits <b>et qu'on les a envoyés en possession d'un agent, et</b> l'<b>agent est décédé en chemin,</b> le propriétaire ou toute autre personne <b>apporte</b> les premiers fruits <b>mais ne récite pas</b> le passage de remerciements. <b>Quelle en est la raison ? Comme il est écrit : Tu prendras et tu apporteras.</b> La Gemara cite le verset suivant avec une légère variation : "Tu prendras les premiers de tous les fruits du sol que tu apporteras de ton pays que l'Éternel, ton Dieu, te donne" (Deutéronome 26, 2).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

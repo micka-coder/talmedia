@@ -15,4 +15,4 @@ La Gemara relate : Il y avait <b>un certain <i>cèdre</i> qui est tombé dans un
 § Il y avait <b>un certain tonneau de vin</b> dont le bouchon avait été enlevé</b> et le vin se répandait. <b>Un Gentil est arrivé, a bondi,</b> et a <b>placé sa main sur</b> le trou pour empêcher le vin de couler. <b>Rav Pappa a dit : Tout vin qui est adjacent</b> au <b>bouchon</b> est <b>interdit,</b> car il a été touché par le Gentil,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

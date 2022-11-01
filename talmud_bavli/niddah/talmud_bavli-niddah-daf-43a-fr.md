@@ -60,4 +60,4 @@ La Guemara explique les deux côtés du dilemme : Même <b>si l'on dit</b> qu'en
 <b>Rava soulève</b> encore un autre <b>dilemme :</b> En ce qui concerne <b>une gentille <i>zava</i>,</b> qui n'est pas impure selon la loi de la Torah, bien que selon la loi rabbinique elle soit considérée comme une <i>zava</i> à tous égards, <b>dont l'urine a été déracinée</b> lorsqu'elle était gentille,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

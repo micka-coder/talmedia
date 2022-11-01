@@ -69,4 +69,4 @@ Et il apparaît qu'une hyène mâle est distincte d'une hyène femelle, <b>comme
 La Guemara analyse la <i>baraita</i> : <b>Le Maître dit</b> ci-dessus : En plus de la liste des animaux qui sont considérés comme prévenus, <b>Rabbi Meir dit : Aussi la hyène.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -96,4 +96,4 @@
 <b>Selon l'alliance de Dieu, le Dieu de leurs ancêtres</b> Selon tout ce qui est écrit là : "le Dieu de leurs ancêtres". C'est pourquoi il est écrit ici : "le Dieu de leurs ancêtres", qu'il a édicté pour leurs ancêtres dans le désert. Et toutes les alliances qui s'y trouvent concernent l'idolâtrie, comme il est écrit (Deut. 29:16f.) : "Et tu as vu leurs abominations et leurs dépravations, etc.... se détourner aujourd'hui du Seigneur". C'est pourquoi Josias a "supprimé toutes les abominations, etc".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

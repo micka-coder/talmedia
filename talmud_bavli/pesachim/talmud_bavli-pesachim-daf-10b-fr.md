@@ -60,4 +60,4 @@ Si <b>il n'a pas cherché le quatorze, il doit chercher pendant la fête</b> de 
 La Guemara soulève une difficulté : <b>Et Rabbi Yéhouda émet-il un décret de peur que l'on ne vienne manger</b> du levain dans l'enlèvement duquel il est engagé ? <b>Mais n'avons-nous pas appris</b> dans une mishna : <b>Une fois que l'offrande <i>omer</i></b> <b>a été sacrifiée,</b> les gens sortaient et trouvaient les marchés de Jérusalem remplis de farine et de grains grillés,</b> tous issus de la nouvelle récolte. Ces céréales ont sans doute été récoltées et transformées alors que l'interdiction de la Torah de manger de la nouvelle récolte était encore en vigueur.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

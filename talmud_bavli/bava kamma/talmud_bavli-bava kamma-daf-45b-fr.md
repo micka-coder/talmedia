@@ -60,4 +60,4 @@ Les Sages <b>ont dit : Selon l'avis de qui</b> la déclaration de Rav est-elle f
 Les Sages ont <b>dit : En fait,</b> la déclaration de Rav est <b>conforme</b> à l'opinion de <b>Rabbi Yehuda, et il ne tient pas</b> conformément à l'opinion <b>de Rav Adda bar Ahava</b> que l'élément inoffensif du bœuf demeure. <b>Et c'est ce qu'il dit : On trouve un élément</b> à la fois <b>d'innocuité et d'un statut de prévenu</b> dans le même bœuf spécifiquement <b>dans un cas comme celui-ci,</b> où un bœuf est prévenu par rapport à une corne mais pas par rapport à l'autre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

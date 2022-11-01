@@ -63,4 +63,4 @@ La Guemara demande : <b>Et partout où</b> on <b>s'écarte</b> de l'interdit, es
 <b>Et les sages disent : On</b> peut <b>laisser</b> le sang de l'animal, <b>à condition de ne pas infliger une tare à</b> l'animal premier-né. Dans ce cas, Rabbi Yehouda émet un décret à l'égard d'un animal premier-né, malgré le fait que son utilisation soit généralement interdite et que les gens s'éloignent des objets consacrés. La Guemara répond : <b>Il y a,</b> dans le cas d'un animal premier-né, <b>puisqu'une personne est agitée</b> et anxieuse.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

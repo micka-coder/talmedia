@@ -48,4 +48,4 @@ La Gemara demande : <b>Et pour le mariage, étaient-ils concernés ? N'est-il pa
 <b>Certains disent</b> que <b>lorsque</b> la fiancée admet qu'elle a eu des rapports sexuels avec elle, tout le monde est d'accord pour qu'on jette</b> l'enfant <b>après lui. </b> Au contraire, leur différend <b>s'énonçait comme suit :</b> Dans le cas d'une <b>femme fiancée qui est tombée enceinte,</b> si son fiancé nie avoir eu des rapports avec elle, <b>Rav a dit</b> que <b>la progéniture est un <i>mamzer</i>, et Shmuel a dit</b> que <b>la progéniture est un enfant dont on ne connaît pas l'identité du père. Rava dit : La déclaration de Rav tient la route</b> dans un cas <b>où</b> la femme <b>ne fait pas l'objet d'une rumeur</b> pour avoir eu des rapports <b>avec lui et elle fait l'objet d'une rumeur</b> pour avoir eu des rapports <b>avec d'autres.</b> Par conséquent, on suppose que l'enfant est un <i>mamzer</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

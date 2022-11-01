@@ -36,4 +36,4 @@ La Gemara répond : <b>C'est plutôt</b> ce que dit le <i>baraita</i> <b>d'aille
 La Gemara demande : Si le <i>baraita</i> fait référence à un cas où <b>il lui a donné</b> un paiement <b>et par la suite a eu des rapports sexuels avec elle,</b> alors <b>quand il a eu des rapports sexuels avec elle,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

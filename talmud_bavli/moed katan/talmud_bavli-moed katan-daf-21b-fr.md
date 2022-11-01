@@ -60,4 +60,4 @@ La Guemara demande : <b>Là aussi,</b> dans le cas d'autres parents après trent
 <b>Un dilemme a été soulevé devant</b> les savants :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

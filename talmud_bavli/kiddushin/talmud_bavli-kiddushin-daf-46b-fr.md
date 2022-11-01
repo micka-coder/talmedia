@@ -42,4 +42,4 @@ Quelle est la source à partir de laquelle on extrapole qu'il s'agit d'un <i>ter
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

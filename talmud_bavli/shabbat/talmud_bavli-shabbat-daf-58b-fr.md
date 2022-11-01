@@ -42,4 +42,4 @@ La Guemara demande : <b>Quelle que soit la façon</b> <b>dont vous</b> regardez 
 <b>Au contraire, Rava dit :</b> Il faut l'expliquer différemment :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

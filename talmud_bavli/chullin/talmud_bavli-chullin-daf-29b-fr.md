@@ -48,4 +48,4 @@ Rabbi Zeira développe : <b>Et si vous dites</b> que l'<b>abattage halakhique es
 <b>Abaye a dit à</b> Rav Yosef : <b>N'a-t-on pas dit à propos de cette</b> <i>halakha</i> que <b>Rabba bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit : Ceci est la déclaration de Rabbi Elazar, fils de Rabbi Shimon,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara objecte : <b>Mais</b> la <i>halakha</i> qu'une émission séminale ann
 § La Guemara a mentionné précédemment que si un <i>zav</i> fait l'expérience d'une émission séminale tout en comptant sept jours purs vers sa pureté, l'émission séminale annule le jour où il en fait l'expérience. Dans le même ordre d'idées, <b>Rami bar Ḥama soulève un dilemme :</b> Dans le cas d'une femme qui <b>émet du sperme</b> après avoir eu des rapports sexuels avec son mari, <b>qu'elle est</b> la <i>halakha</i> <b>comment</b> si <b>elle annule</b> son décompte <b>en ce qui concerne la <i>ziva</i> ? </b> Rami bar Ḥama développe : En général, une femme qui rejette du sperme est impure, mais la raison de cette <i>halakha</i> est incertaine. Est-ce parce que <b>elle était</b> considérée comme celle qui <b>voyait</b> le sperme, c'est-à-dire que l'émission de sperme elle-même la rend impure tout comme un homme qui connaît une émission séminale ? <b>Et</b> si oui, cette femme <b>négocie</b> son compte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

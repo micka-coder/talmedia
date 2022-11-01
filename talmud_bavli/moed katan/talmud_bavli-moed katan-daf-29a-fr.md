@@ -18,4 +18,4 @@
 A propos du même verset, <b>Rav Ḥiyya bar Ashi a dit</b> que <b>Rav a dit : Les savants de la Torah n'ont pas de repos, même dans le Monde-à-Venir,</b> car même là, ils restent en mouvement et en ascension constante, <b>comme il est dit : "Ils vont de force en force, chacun d'eux apparaà®t devant Dieu à Sion."</b> Même lorsqu'ils sont dans le Monde-à-Venir, ils continuent à aller de force en force, jusqu'à ce que la rédemption finale arrive à la fin des temps et que Dieu apparaà®t à Sion.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

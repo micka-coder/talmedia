@@ -50,7 +50,7 @@
 <b>En effet, la colère d'Hachem était, etc.</b> Par conséquent, Tzidkiyohu s'est rebellé contre le roi de Bavel. Le Saint, Béni soit-Il, lui donna le désir de se rebeller contre lui afin qu'il soit exilé.<sup>15</sup><i class="footnote">Dieu incita Tzidkiyohu à se rebeller afin d'exiler les Bnei Israël d'Eretz Israël.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -102,4 +102,4 @@
 <b>En effet, la colère d'Hachem était, etc.</b> Par conséquent, Tzidkiyohu s'est rebellé contre le roi de Bavel. Le Saint, Béni soit-Il, lui donna le désir de se rebeller contre lui afin qu'il soit exilé.<sup>15</sup><i class="footnote">Dieu incita Tzidkiyohu à se rebeller afin d'exiler les Bnei Israël d'Eretz Israël.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ Le <i>baraita</i> enseigne également : Si <b>le propriétaire désespérait</b>
 La Gemara demande : <b>Quelle est</b> la différence <b>entre</b> l'avis de Rabbi Eliézer ben Ya'akov et l'avis de Rabbi Aḥai ? Rabbi Aḥai aussi doit avoir voulu dire seulement les juifs pauvres et non les gentils pauvres, à qui on ne donne pas la dîme.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

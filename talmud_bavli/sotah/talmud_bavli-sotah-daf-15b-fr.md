@@ -51,4 +51,4 @@ Par conséquent, <b>le verset dit :</b> "La poussière qui est <b>sur le sol du 
 <b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> : Le verset dit : <b>"Et de la poussière qui est</b> sur le sol du Tabernacle" ; le fait que le verset ne dise pas explicitement de prendre la poussière du sol du Tabernacle <b>enseigne que</b> le prêtre <b>doit préparer</b> la poussière <b>de l'extérieur et l'apporter dans</b> le Sanctuaire. Quand le verset dit : "La poussière qui est <b>sur le sol du Tabernacle", Isi ben Yehuda dit</b> que cette phrase sert <b>à inclure le sol du</b> Tabernacle lorsqu'il se trouvait dans...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

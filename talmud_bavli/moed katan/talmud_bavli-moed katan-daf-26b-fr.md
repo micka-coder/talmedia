@@ -75,4 +75,4 @@ La Guemara raconte que <b>quelque chose</b> de désagréable <b>arrivait à Rava
 <b>Les Sages ont enseigné</b> une <i>baraita</i> : Si <b>quelqu'un qui allait de lieu en lieu</b> apprenait le décès d'un proche parent, de sorte qu'il devait désormais observer les rites de deuil,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

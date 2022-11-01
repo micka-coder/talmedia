@@ -36,4 +36,4 @@ La Guemara relate que <b>Rabbi Ḥanina,</b> un prêtre, <b>avait l'habitude</b>
 <strong>MISHNA :</strong> <b>Le fils premier-né</b> <b>prend une part double</b>, c'est-à-dire deux fois la part prise par les autres fils, <b>lorsque</b> il hérite des <b>biens du père, mais il ne prend pas deux fois</b> la part <b>lorsque</b> il hérite des <b>biens de la mère. Et il ne prend pas non plus</b> deux fois la portion <b>dans</b> toute <b>augmentation</b> de la valeur du bien après le décès du père, <b>ni</b> il ne prend deux fois la portion <b>dans</b> les biens <b>duits</b> au père, <b>comme</b> il le fait <b>dans</b> les biens que le père <b>possédait.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

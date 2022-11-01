@@ -115,4 +115,4 @@
 <b>et les supports de la Maison et les poutres</b> Et il me montra les supports et les poutres. Et nos rabbins de mémoire bénie ont dit (Bava Kamma 67a) : Le site צַלְעוֹתהַבַּיִת fait référence à מַלְטַסִים. Et le עֻבִּים fait référence à מְרִישּׁוֹת. Maintenant, que sont מְרִישּׁוֹת ? Ce sont des poutres. Et que sont les מַלְטַסִים ? Ce sont des planches de cèdre placées au sommet des murs, sur lesquelles sont posées les extrémités des poutres.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

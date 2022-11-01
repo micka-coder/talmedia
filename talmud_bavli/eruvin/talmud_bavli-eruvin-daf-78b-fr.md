@@ -57,4 +57,4 @@ Il est écrit dans la mishna : Si le fossé est <b>rempli de terre</b> ou de cai
 Et on peut déduire de la mishna : <b>S'il a annulé</b> le foin ou les cailloux, <b>oui,</b> la maison est annulée et considérée comme scellée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

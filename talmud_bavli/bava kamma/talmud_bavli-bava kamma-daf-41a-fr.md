@@ -72,4 +72,4 @@ Les Sages ont <b>dit</b> en réponse : <b>Cette affirmation</b> s'applique <b>lo
 <b>Mar Zutra s'oppose à cela : Dis</b> que <b>cette déclaration</b> s'applique.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

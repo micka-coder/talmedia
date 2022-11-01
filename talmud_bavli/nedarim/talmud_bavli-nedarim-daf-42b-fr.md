@@ -24,4 +24,4 @@ Nous avons appris dans la mishna : <b>Et pendant l'année sabbatique, il ne peut
 <strong>MISHNA :</strong> Dans le cas de <b>quelqu'un pour qui le bénéfice d'un autre est interdit par vœu,</b> cette autre personne <b>ne peut ni prêter</b> un objet <b>à elle ni emprunter</b> un objet <b>de lui.</b> De même, <b>elle ne peut ni prêter</b> de l'argent <b>à elle ni emprunter</b> de l'argent <b>de lui. Et il ne peut ni vendre</b> un objet <b>à lui ni acheter</b> un objet <b>de lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

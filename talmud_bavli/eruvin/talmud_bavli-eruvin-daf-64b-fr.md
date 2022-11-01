@@ -63,4 +63,4 @@ Un Sage <b>a enseigné :</b> Si les pains sont <b>entiers, on</b> peut <b>passer
 <b>Rav Sheshet a dit au nom de Rabbi Elazar ben Azarya :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

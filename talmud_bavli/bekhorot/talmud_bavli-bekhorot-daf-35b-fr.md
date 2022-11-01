@@ -48,4 +48,4 @@ La Gemara demande : <b>Si tel est le cas,</b> que tous les membres du foyer éta
 § <b>Rav Pappa a dit à Abaye : Selon Rabbi Meir, qui dit que</b> un prêtre <b>qui est suspect sur la question</b> de causer une tare ne peut <b>ni statuer ni témoigner</b> dans les affaires impliquant cette question même pour le compte d'un autre, <b>et</b> en outre <b>Rabbi Meir dit</b> que <b>celui qui est suspecté de</b> transgresser <b>une question,</b> c'est-à-dire, qui est connu pour avoir commis une transgression, <b>est soupçonné de</b> transgresser <b>toute la Torah,</b> il devrait s'ensuivre que les <b>prêtres</b> ne devraient <b>également</b> pas être autorisés à <b>administrer un jugement</b> du tout. <b>Mais n'est-il pas écrit</b> en ce qui concerne les prêtres : <b>"Et selon leur parole, toute controverse et tout coup seront"</b> (Deutéronome 21.5) ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

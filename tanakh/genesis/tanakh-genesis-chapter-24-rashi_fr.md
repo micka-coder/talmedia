@@ -205,5 +205,5 @@
 <b>Dans la tente de sa mère, Sarah.</b> [Signification :] il l'a amenée dans la tente et, voici, elle est sa mère Sarah. C'est-à-dire qu'elle est devenue l'image de sa mère Sarah. En effet, tant que Sarah était en vie, une bougie brûlait du vendredi au vendredi, une bénédiction était constamment dans la pâte, et un nuage planait sur la tente. Lorsqu'elle mourut, [ces choses] cessèrent et lorsque Rivkah arriva, elles revinrent. 
 <b>Pour la perte de sa mère.</b> C'est ainsi que va le monde. Tant que sa mère est vivante, il est attaché à elle et lorsqu'elle meurt, il est consolé par sa femme.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

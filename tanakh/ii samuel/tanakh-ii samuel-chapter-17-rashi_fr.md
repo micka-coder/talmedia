@@ -83,7 +83,7 @@
 <b>Et le fromage de vache.</b> [Le Yonathan traduit :] "Et le fromage fait de lait".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -168,4 +168,4 @@
 <b>Et le fromage de vache.</b> [Le Yonathan traduit :] "Et le fromage fait de lait".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

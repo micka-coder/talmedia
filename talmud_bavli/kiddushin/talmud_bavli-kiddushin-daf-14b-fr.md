@@ -45,4 +45,4 @@ La Gemara demande : <b>Et l'autre,</b> le premier <i>tanna</i>, d'où dérive-t-
 La Gemara demande : <b>Quel est le raisonnement du premier <i>tanna</i>, qui dit</b> que celui qui <b>s'affiche n'est pas percé</b> d'une alène ? La Guemara répond : Il dérive ceci <b>du</b> fait que <b>en ce qui concerne celui qui est vendu par le tribunal, le Miséricordieux exclut</b> un certain cas par le verset : <b>"Et son maître lui percera l'oreille avec une alène"</b> (Exode 21:6), qui enseigne : <b>Son oreille,</b> de cet esclave, <b>et non l'oreille</b> d'un esclave qui <b>se vend lui-même.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

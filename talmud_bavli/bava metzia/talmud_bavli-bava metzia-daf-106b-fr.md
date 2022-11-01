@@ -54,7 +54,7 @@ La Gemara commente : <b>Et Rav Ashi concède en ce qui concerne les raisins qui 
 La Gemara <b>souleve une objection</b> à ce sujet à partir d'une <i>baraïta</i> : la <b>collecte de Purim est</b> uniquement <b>pour</b> la fête de <b>Purim</b>, <b>mais on ne scrute pas la question</b> en limitant l'allocation pour les pauvres aux coûts exacts du repas et pas plus. <b>Et</b> il n'est <b>pas permis à un pauvre d'y acheter</b> même <b>une lanière pour sa sandale, à moins qu'il n'ait stipulé en présence des gens de la ville</b> qu'il peut faire ce qu'il veut de l'argent qu'il reçoit. C'est <b>la déclaration de Rabbi Ya'akov, qui l'a dit</b> <b>au nom de Rabbi Meir. Rabban Shimon ben Gamliel</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>J'étais digne.</b> La Gemara conclut : En effet, ceci est <b>difficile.</b>
 
@@ -110,4 +110,4 @@ La Gemara commente : <b>Et Rav Ashi concède en ce qui concerne les raisins qui 
 La Gemara <b>souleve une objection</b> à ce sujet à partir d'une <i>baraïta</i> : la <b>collecte de Purim est</b> uniquement <b>pour</b> la fête de <b>Purim</b>, <b>mais on ne scrute pas la question</b> en limitant l'allocation pour les pauvres aux coûts exacts du repas et pas plus. <b>Et</b> il n'est <b>pas permis à un pauvre d'y acheter</b> même <b>une lanière pour sa sandale, à moins qu'il n'ait stipulé en présence des gens de la ville</b> qu'il peut faire ce qu'il veut de l'argent qu'il reçoit. C'est <b>la déclaration de Rabbi Ya'akov, qui l'a dit</b> <b>au nom de Rabbi Meir. Rabban Shimon ben Gamliel</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

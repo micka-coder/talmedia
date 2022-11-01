@@ -90,4 +90,4 @@ Sur ce meme sujet, <b>Rabbi Hama, fils de Rabbi Hanina, a dit : Quiconque recite
 <b>Rabbi Hama, fils de Rabbi Hanina, a egalement dit : Pourquoi ont-ils</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

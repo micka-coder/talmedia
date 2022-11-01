@@ -42,4 +42,4 @@ Pour clarifier si l'opinion de Rabbi Yitzḥak est valable ou non, <b>venez</b> 
 <b>Venez</b> et <b>entendez</b> une autre preuve de cela à partir de ce que nous avons appris : <b>On peut étendre un tapis sur une ruche le Chabbat au soleil en raison</b> de la nécessité de la protéger <b>du soleil, et sous la pluie en raison</b> de la nécessité de la protéger <b>de la pluie, à condition de ne pas avoir l'intention de piéger</b> les abeilles en les couvrant. Quoi qu'il en soit, il est apparemment permis de déplacer un tapis pour le bien de la ruche, même si la ruche elle-même ne peut être déplacée le Chabbat. La Guemara rejette cette idée : <b>De quoi s'agit-il ici ?</b> D'un cas <b>où il y a du miel</b> dans la ruche. Il lui est permis de la couvrir pour le bien du miel. <b>Rav Ukva de Meishan a dit à Rav Ashi : Accordé,</b> on peut dire cela <b>en été,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

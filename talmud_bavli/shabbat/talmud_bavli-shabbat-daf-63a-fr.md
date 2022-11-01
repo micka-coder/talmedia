@@ -84,4 +84,4 @@ La Guemara poursuit en faisant l'éloge de ceux qui accomplissent les mitzvot : 
 <b>Rav Kahana a dit</b> que <b>Rabbi Shimon ben Lakish a dit, et certains disent que Rav Asi a dit</b> que <b>Reish Lakish a dit, et certains disent que Rabbi Abba a dit</b> que <b>Rabbi Shimon ben Lakish a dit : Celui qui élève un chien méchant à l'intérieur de sa maison empêche la bonté de</b> entrer <b>dans sa maison,</b> puisque les pauvres hésiteront à entrer dans sa maison. Comme il y est fait allusion dans le verset : <b>"A celui qui est affligé [<i>lamas</i>],</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

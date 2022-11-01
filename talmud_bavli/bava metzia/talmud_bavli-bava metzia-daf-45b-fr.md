@@ -36,4 +36,4 @@ La Gemara conteste : <b>Accordé, si tu dis</b> qu'il s'agit d'une acquisition e
 La Guemara <b>souleve une objection</b> à l'opinion de Rav Pappa à partir d'une <i>baraita</i> : Quelqu'un <b>se tenait sur l'aire de battage et n'avait pas d'argent en main,</b> et voulait désacraliser son produit de deuxième tite sans payer un cinquième supplémentaire. La <i>halakha</i> est que celui qui désacralise son propre produit doit ajouter un cinquième à sa valeur. Cet homme veut se livrer à un artifice comme s'il vendait le produit à un autre, ce qui lui permet de le désacraliser sans ajouter un cinquième. A cette fin, <b>il dit à un autre : Ce produit t'est donné par la présente comme un don,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

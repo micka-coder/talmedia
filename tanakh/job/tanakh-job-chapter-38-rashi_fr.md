@@ -132,4 +132,4 @@
 <b>Ils errent par manque de nourriture</b> car leurs propres pères les haïssent, et le Saint, béni soit-il, leur prépare des moucherons, qui sont créés à partir de leurs excréments, et ils entrent dans leurs bouches.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

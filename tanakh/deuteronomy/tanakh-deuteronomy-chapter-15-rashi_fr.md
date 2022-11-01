@@ -92,5 +92,5 @@
 ### passuk 23
 <b>Seulement, ne mange pas son sang.</b> Afin que vous ne disiez pas que, comme l'animal entier est autorisé par exemption d'une catégorie généralement interdite - puisqu'il est sacré, mais peut être abattu en dehors du sanctuaire sans rachat et mangé - alors peut-être même son sang est-il autorisé. La Torah enseigne donc "Ne mangez pas son sang". 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

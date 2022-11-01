@@ -21,4 +21,4 @@ La Guemara rejette cette suggestion : <b>Non, tout le monde est d'avis</b> que l
 § <b>Rava dit</b> que <b>Rav Naḥman dit : Une protestation</b> peut être déposée <b>en présence de deux</b> témoins,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

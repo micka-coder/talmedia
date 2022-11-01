@@ -87,4 +87,4 @@
 <b>mais vous n'avez aucune part</b> Qu'avez-vous dans la construction de la muraille de cette ville, car vous n'y avez aucune part. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

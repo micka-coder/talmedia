@@ -57,4 +57,4 @@ On peut l'expliquer : <b>Peut-être</b> la mishna est <b>conforme</b> à l'expli
 <b>Au contraire,</b> dérivez cette <i>halakha</i> <b>de</b> la clause suivante dans <b>cette</b> mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -55,4 +55,4 @@
 <b>Je verrai Ta face avec la justice</b> dans le futur (Milieu Ps. 17:13), ou <b>Je verrai Ta face avec la justice</b> Détache mon jugement de devant Toi et saisis les actions justes que j'ai accomplies, et par elles je verrai Ta face. Dans d'autres éditions, c'est une interprétation : <b>Je serai satisfait de Ton image au réveil</b> Je serai satisfait de la vision de Ton image lorsque les morts se réveilleront de leur sommeil. Dans de nombreuses éditions, ce qui suit apparaît à cet endroit : Une autre explication : Je serai satisfait de la vision de Ton visage quand les morts se réveilleront de leur sommeil, car ils sont à l'image de Ton image, car ainsi il est dit (dans Gen. 9:6) : "Car à l'image de Dieu, il a fait l'homme."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

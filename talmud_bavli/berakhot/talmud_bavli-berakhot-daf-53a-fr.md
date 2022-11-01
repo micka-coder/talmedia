@@ -102,4 +102,4 @@ De meme, <b>Rabbi Hiyya bar Abba a dit</b> que <b>Rabbi Yohanan a dit : Celui qu
 Dans le meme ordre d'idees, la Guemara cite ce qui suit : <b>Les Sages ont enseigne</b> dans une <i>baraita</i> : <b>Quelqu'un qui se promenait sur le marche des idolatres et sentait volontairement</b> l'encens qui y flottait, <b>il est pecheur,</b> car il ne devrait pas avoir l'intention de le sentir.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

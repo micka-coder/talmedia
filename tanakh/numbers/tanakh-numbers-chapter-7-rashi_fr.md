@@ -220,5 +220,5 @@
 <b>Etant parlé.</b> Comme étant parlé à Lui-même. C'est faire preuve de respect envers Celui d'en haut que de parler ainsi. Il se parlait à Lui-même, et Moshé l'écoutait. 
 <b>Il lui a parlé.</b> Cela exclut Aharon des communications. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

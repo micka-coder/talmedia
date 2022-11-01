@@ -69,4 +69,4 @@ En ce qui concerne le verset : <b>Et le Seigneur mettra à nu leurs parties secr
 Au sujet des péchés de Jérusalem et de l'abondance qui existait avant sa destruction, <b>Rav Yehuda dit</b> que <b>Rav a dit : Les habitants de Jérusalem étaient des gens arrogants.</b> Ils couchaient leur comportement grossier dans des euphémismes. <b>Une personne disait à une autre : De quoi as-tu dîné aujourd'hui ? Du pain bien pétri ou du pain qui n'est pas bien pétri ? Du vin blanc ou</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

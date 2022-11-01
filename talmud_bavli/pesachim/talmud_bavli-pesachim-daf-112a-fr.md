@@ -42,4 +42,4 @@ Rabbi Akiva <b>s'adressa à lui :</b> Si c'est le cas, je vais te dire quelques 
 Rabbi Akiva dit encore à Rabbi Shimon ben Yoḥai : <b>Ne cuisine pas dans une marmite dans laquelle ton collègue a cuit</b> sa nourriture. La Guemara demande : <b>Quel est</b> le sens de <b>cette</b> déclaration ? La Guemara explique : Rabbi Akiva fait référence au fait d'épouser <b>une femme divorcée du vivant de son</b> ancien <b>mari. Comme l'a dit le Maître :</b> Si <b>un homme divorcé épouse une femme divorcée, il y a quatre esprits dans le lit</b> pendant l'intimité. Chacun pense à son conjoint actuel et à son ancien conjoint, ce qui frise l'illégitimité. <b>Et si vous le souhaitez, dites</b> plutôt que ce conseil vaut <b>même en ce qui concerne</b> le fait d'épouser <b>une veuve, car</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

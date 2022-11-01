@@ -54,4 +54,4 @@ La Guemara cherche à préciser : Cela indique que <b>la raison</b> pour laquell
 La Gemara ajoute : <b>Et tous deux ont appris</b> leurs principes de nullité <b>uniquement à partir</b> du terme : <b>"Patte avant cuite", comme il est écrit</b> en ce qui concerne le bélier du nazirite : <b>"Et le prêtre prendra la patte antérieure cuite</b> du bélier" (Nombres 6:19). <b>Et il est enseigné</b> dans une <i>baraita</i> : Le verset indique : <b>"cuit"</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

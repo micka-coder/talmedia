@@ -51,4 +51,4 @@ En ce qui concerne le terme : <b>"Une offrande de repas", Rabbi Yehuda dit : D'o
 La <i>baraita</i> continue : <b>Rabbi Shimon a dit à</b> Rabbi Yehuda :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

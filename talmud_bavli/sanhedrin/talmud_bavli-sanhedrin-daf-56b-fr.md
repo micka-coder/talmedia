@@ -78,4 +78,4 @@ La Gemara conteste : <b>Si</b> la <b><i>tanna</i> de l'école de Menashe interpr
 La Guemara répond : <b>En fait, il n'interprète pas</b> le verset <b>"et</b> le Seigneur Dieu <b>a ordonné" homilétiquement,</b> mais en ce qui concerne <b>ces</b> mitzvot de sa liste, <b>chacune et chacune</b> d'entre elles <b>est écrite séparément</b> dans la Torah. Les interdictions de <b>l'adoration des idoles et des relations sexuelles interdites</b> sont énoncées,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

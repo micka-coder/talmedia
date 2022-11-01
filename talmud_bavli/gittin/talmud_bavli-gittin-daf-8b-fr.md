@@ -33,4 +33,4 @@ Après avoir entendu l'objection de Rava, <b>Abaye dit alors</b> le contraire : 
 <b>Comme nous l'avons appris</b> dans une mishna (<i>Pe'a</i> 3:8) : <b>Quelqu'un qui écrit,</b> c'est-à-dire qui donne par le biais d'un document, <b>l'ensemble de ses biens à son esclave,</b> l'esclave <b>a été émancipé,</b> mais s'il <b>réserve</b> pour lui-même ne serait-ce qu'une <b>quantité de terre,</b> alors il <b>n'a pas été émancipé,</b> car peut-être a-t-il réservé l'esclave pour lui-même également. <b>Rabbi Shimon dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara conteste : <b>Mais inquiétons-nous</b> que <b>peut-être que ce juif 
 § La mishna enseigne que <b>même dans un lieu</b> à propos duquel</b> les Sages ont <b>dit</b> qu'il est permis à un Juif <b>de louer</b> une maison à un Gentil, ils n'ont pas dit qu'on pouvait la louer pour l'utiliser comme résidence. La Gemara fait remarquer : <b>Par déduction,</b> cela signifie <b>qu'il existe un endroit où l'on ne peut louer</b> aucune maison à un Gentil.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

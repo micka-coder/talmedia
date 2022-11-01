@@ -74,4 +74,4 @@
 <b>Ce ne sont que les habitations des injustes</b> Tel est leur destin.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

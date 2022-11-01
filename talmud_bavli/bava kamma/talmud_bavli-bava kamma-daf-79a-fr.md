@@ -45,4 +45,4 @@ Rav Yeimar demande : Comment cette clause de la mishna peut-elle se référer à
 La Gemara demande : Lorsque le <i>baraita</i> parle de location, il fait référence à la <b>location de quel</b> type de propriété ? <b>Si nous disons</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

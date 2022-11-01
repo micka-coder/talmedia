@@ -69,4 +69,4 @@ La Guemara résout la contradiction apparente entre les <i>baraitot</i> : <b>Cet
 <b>Rav Pappa s'oppose fermement à cela : Si</b> c'est <b>ainsi,</b> si <b>quelqu'un jette sa cape</b> dans la décharge, diriez-vous <b>aussi</b> qu'il est <b>interdit</b> de la déplacer parce qu'elle est mise de côté ? La cape n'est-elle pas encore apte à être utilisée, et son statut ne dépend pas de son intention ? <b>Au contraire, le Rav Pappa a dit :</b> Rav Mari bar Raḥel, avait estimé . 
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Toutefois, <b>une personne</b> ne peut <b>se tenir dans un domaine privé et uri
 <strong>GEMARA:</strong> <b>Rav Ḥinnana bar Shelamiya enseignerait</b> cette mishna <b>à Ḥiyya bar Rav avant Rav</b> comme suit : <b>Une personne</b> ne peut <b>pas se tenir dans un domaine privé et déplacer</b> des objets qui sont <b>dans un domaine public.</b> Rav <b>lui dit :</b> Avez-vous <b>abandonné</b> l'opinion majoritaire des <b>rabbébés et suivi</b> l'opinion dissidente solitaire de <b>Rabbi Meir,</b> qui est rigoureux à cet égard ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

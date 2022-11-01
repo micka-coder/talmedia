@@ -45,7 +45,7 @@ La Gemara demande : <b>N'est-ce pas</b> évident ? </b> La veuve ne vend pas ses
 La Gemara répond : En vérité, <b>il n'était pas nécessaire</b> pour Rav Yossef de le mentionner en ce qui concerne la <b>veuve,</b> car il est clair que la garantie de propriété repose sur les orphelins. <b>Là où</b> il <b>était nécessaire</b> qu'il mentionne cette <i>halakha</i>, c'était à l'égard du <b>court. De peur que vous ne disiez :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Rava dit</b> que <b>Rav Naḥman</b> a dit : La <i>halakha</i> à l'égard du <b>agent</b> est <b>comme</b> la <i>halakha</i> relative aux <b>juges. Rav Shmuel bar Bisna</b> a dit que <b>Rav Naḥman a dit :</b> La <i>halakha</i> relative au mandataire est <b>comme</b> la <i>halakha</i> relative à <b>une veuve.</b>
 
@@ -92,7 +92,7 @@ La Gemara demande : <b>N'est-ce pas</b> évident ? </b> La veuve ne vend pas ses
 La Gemara répond : En vérité, <b>il n'était pas nécessaire</b> pour Rav Yossef de le mentionner en ce qui concerne la <b>veuve,</b> car il est clair que la garantie de propriété repose sur les orphelins. <b>Là où</b> il <b>était nécessaire</b> qu'il mentionne cette <i>halakha</i>, c'était à l'égard du <b>court. De peur que vous ne disiez :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Rava dit</b> que <b>Rav Naḥman</b> a dit : La <i>halakha</i> à l'égard du <b>agent</b> est <b>comme</b> la <i>halakha</i> relative aux <b>juges. Rav Shmuel bar Bisna</b> a dit que <b>Rav Naḥman a dit :</b> La <i>halakha</i> relative au mandataire est <b>comme</b> la <i>halakha</i> relative à <b>une veuve.</b>
 
@@ -139,4 +139,4 @@ La Gemara demande : <b>N'est-ce pas</b> évident ? </b> La veuve ne vend pas ses
 La Gemara répond : En vérité, <b>il n'était pas nécessaire</b> pour Rav Yossef de le mentionner en ce qui concerne la <b>veuve,</b> car il est clair que la garantie de propriété repose sur les orphelins. <b>Là où</b> il <b>était nécessaire</b> qu'il mentionne cette <i>halakha</i>, c'était à l'égard du <b>court. De peur que vous ne disiez :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

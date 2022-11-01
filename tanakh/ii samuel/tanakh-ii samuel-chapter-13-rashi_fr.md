@@ -94,7 +94,7 @@
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Avshalom avait une jolie soeur.</b> C'était la fille de sa mère.
 
@@ -190,4 +190,4 @@
 <b>Parce qu'il a été consolé au sujet d'Amnon.</b> Il a accepté [des] paroles de consolation.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

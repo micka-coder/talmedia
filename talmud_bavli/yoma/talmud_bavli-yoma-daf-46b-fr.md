@@ -30,4 +30,4 @@ Dans un cas <b>où il a fait descendre</b> les charbons <b>au sol et y a éteint
 La Guemara demande : <b>Mais</b> si oui, en ce qui concerne <b>cette</b> décision <b>que Rav Naḥman a dit</b> que <b>Rabba bar Avuh a dit : Celui qui descend un charbon de sur l'autel et l'éteint est responsable, selon l'avis de qui</b> sa décision ? Il semblerait qu'elle ne soit <b>ni conforme</b> à l'avis de <b>Abaye, ni conforme</b> à l'avis de <b>Rava.</b> La Gemara explique : On peut même dire que sa décision est conforme à l'avis de Rava en faisant la distinction suivante : <b>Il y a,</b> dans la décision de Rav Naḥman, le charbon <b>n'a pas été retiré pour accomplir sa mitzva;</b> il est donc toujours considéré comme faisant partie du feu de l'autel et l'interdiction s'applique. Alors que, <b>ici,</b> dans la dispute entre Abaye et Rava, il s'agit d'un cas de charbon qui <b>a été retiré pour accomplir sa mitzva,</b> et il est donc associé à sa mitzva et n'est plus considéré comme le feu de l'autel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

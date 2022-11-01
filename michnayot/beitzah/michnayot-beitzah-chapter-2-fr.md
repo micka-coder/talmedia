@@ -29,5 +29,5 @@ Un moulin à poivre est susceptible d'être impur parce qu'il est composé de tr
 ### michna 10
 Une charrette d'enfant est susceptible de l'impureté des midras, et on peut la manipuler le Chabbat, et on ne la traîne que sur des nattes. Rabbi Juda dit : aucun récipient ne peut être traîné sur [le sol] sauf un chariot car il ne fait que presser [la terre] vers le bas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

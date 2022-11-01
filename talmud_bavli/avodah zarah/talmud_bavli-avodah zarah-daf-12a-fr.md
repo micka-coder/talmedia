@@ -36,4 +36,4 @@ La Guemara commente : <b>Et</b> il est <b>nécessaire</b> que la <i>baraita</i> 
 <b>Et</b> en outre, <b>si</b> le <i>baraita</i> avait <b>enseigné</b> uniquement le cas des <b>pièces de monnaie,</b> on aurait pu penser que la raison de cette décision rigoureuse est <b>que</b> la perte est purement <b>financière. Mais</b> dans le cas de l'<b>épine, qui</b> lui cause une <b>douleur,</b> on pourrait <b>dire</b> qu'il n'est <b>pas</b> interdit de l'enlever. <b>Et</b> enfin, <b>si</b> le <i>baraita</i> avait <b>enseigné</b> uniquement <b>ces deux</b> cas, on aurait pu penser qu'ils sont interdits <b>parce qu'il n'y a pas de danger</b> si l'action n'est pas effectuée sur place. <b>Mais</b> dans le cas du <b>ressort, où il y a</b> un élément de <b>danger, que s'il ne boit pas il</b> pourrait <b>mourir,</b> on pourrait <b>dire</b> que c'est <b>non</b> interdit. Il est donc <b>nécessaire</b> d'énoncer chaque exemple.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

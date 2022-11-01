@@ -74,4 +74,4 @@
 <b>C'est au cours de la troisième année d'Asa, roi de Yeudah, que Bashah, fils d'Achiyoh, devint roi.</b> La troisième année d'Asa est comptée pour Nodov et Bashah.</sup>5</sup><i class="footnote">L'année où Basha tua Nodov se situe au cours de la troisième année du règne d'Asa [ci-dessus v. 28], et elle est comptée pour les deux rois. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

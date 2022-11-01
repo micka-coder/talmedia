@@ -48,4 +48,4 @@ La Gemara relate : <b>Ameimar a donné de l'argent</b> à un vendeur de mottes d
 § La mishna enseigne que <b>On peut fixer</b> un prix <b>avec lui pour du fumier</b> à <b>n'importe lequel</b> des <b>jours de l'année,</b> et que Rabbi Yosei ne l'a autorisé que s'il avait déjà un tas de fumier dans son fumier, alors que les rabbins l'ont autorisé dans tous les cas. La Guemara demande : La déclaration des <b>Rabbis est</b> identique à celle du <b>premier <i>tanna</i>,</b> alors quelle est la raison de la répéter ? <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara illustre ce point. C'est <b>comme cet</b> incident, <b>Comme Abaye a 
 <b>Rabbi Yitzḥak a dit : L'inclinaison d'une personne le dépasse chaque jour, comme il est dit : "Seulement</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

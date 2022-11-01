@@ -63,5 +63,5 @@
 <b>Toutes les entrailles.</b> [C'est-à-dire] toutes les ouvertures [du corps].
 <b>Selon la parole de Sarah.</b> [Signification] selon les paroles de Sarah.
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

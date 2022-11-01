@@ -72,4 +72,4 @@ La Gemara demande : <b>Quelles sont les circonstances</b> dans lesquelles on est
 La Guemara répond : <b>En fait,</b> la mishna enseigne la responsabilité de quelqu'un dans un cas <b>où il a déclaré</b> les eaux usées <b>sans propriétaire, et</b> même s'il les a déclarées sans propriétaire, cela <b>n'est pas similaire</b> à la catégorie primaire de <b>Pit. Qu'est-ce qui</b> est remarquable <b>en ce qui concerne</b> la catégorie primaire de <b>Fosse ?</b> Elle est remarquable <b>en ce que</b> la fosse a été creusée dans le domaine public <b>sans autorisation. Direz-vous</b> la même chose <b>en ce qui concerne ces</b> cas <b>où</b> les eaux usées ont été canalisées dans le domaine public <b>avec permission ?</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

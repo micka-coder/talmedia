@@ -39,4 +39,4 @@ La Gemara demande : Est-il possible de conclure <b>par déduction</b> de la déc
 <b>N'est-il pas enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Pesaḥim</i> 3:1) à propos de circonstances similaires : Dans <b>un endroit où</b> les gens <b>ont l'habitude de rendre l'argent des fiançailles</b> lorsque le fiancé ou la fiancée meurt, <b>ils le rendent</b> ; dans <b>un endroit où</b> les gens <b>ont l'habitude de ne pas le rendre</b>, <b>ils ne le rendent pas</b>. <b>Et Rav Yosef bar Abba dit</b> que <b>Mar Ukva dit</b> que <b>Shmuel dit : Ils ont enseigné</b> ceci <b>seulement</b> en ce qui concerne <b>lorsque</b> la femme <b>mort,</b> auquel cas on suit la coutume locale. <b>Mais si</b> l'homme <b>dépasse,</b> tous s'accordent à dire que <b>ils ne rendent pas</b> l'argent. <b>Quelle est la raison</b> de cette décision ? Puisque <b>elle peut dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

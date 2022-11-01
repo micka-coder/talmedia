@@ -67,7 +67,7 @@
 <b>Maintenant si je purifie, leur sang je ne purifierai pas</b> - Même si je les purifie des autres péchés de leurs mains, et des maux qu'ils m'ont faits, je ne les purifierai pas du sang des enfants de Juda. Quand cela se produira-t-il ? Au moment où le Saint, béni soit-Il, habitera en Sion.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -136,4 +136,4 @@
 <b>Maintenant si je purifie, leur sang je ne purifierai pas</b> - Même si je les purifie des autres péchés de leurs mains, et des maux qu'ils m'ont faits, je ne les purifierai pas du sang des enfants de Juda. Quand cela se produira-t-il ? Au moment où le Saint, béni soit-Il, habitera en Sion.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara demande : <b>Quelle est la différence pratique</b> entre les deux le
 <b>On a appris</b> dans une mishna <b>là</b> (<i>Pe'a</i> 1:1) : <b>Voici</b> les mitzvot <b>qui n'ont pas de mesure:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara conteste : <b>Mais il est enseigné</b> explicitement <b>ci-dessous,</
 <b>Si il lui a donné un acte de divorce mais</b> par la suite, il l'a <b>remariée, et</b> elle l'a par la suite <b>refusé et épousé un autre</b> homme, <b>et ensuite elle a été veuve ou divorcée</b> de son second mari, <b>il lui est permis de revenir vers lui. </b> Puisqu'elle l'a quitté la dernière fois par le biais d'un refus, ce refus annule l'acte de divorce qu'il lui a donné auparavant, et son statut est celui d'une fille mineure qui a refusé son mari, qui n'est pas interdite à son premier mari après un second mariage. Cependant, si l'ordre était différent, et <b>si elle l'a refusé et qu'il</b> par la suite <b>se remarie avec elle, et</b> cette fois-ci <b>il lui a donné un acte de divorce et elle a épousé un autre</b> homme, <b>et elle était veuve ou divorcée, il lui est interdit de revenir vers lui,</b> comme toute femme divorcée qui a épousé un autre homme.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

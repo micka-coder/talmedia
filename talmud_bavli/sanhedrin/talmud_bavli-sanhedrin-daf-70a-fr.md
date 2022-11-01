@@ -66,4 +66,4 @@ La Guemara continue à analyser le passage relatif à Noé. Le verset dit : <b>"
 <b>Comme il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Meir dit : L'arbre dont Adam, le premier</b> homme, <b>s'est débarrassé était une vigne,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

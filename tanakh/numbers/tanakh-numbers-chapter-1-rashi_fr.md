@@ -122,5 +122,5 @@
 ### passuk 53
 <b>Afin qu'il n'y ait pas de colère.</b> Si vous accomplissez Mes commandements, il n'y aura pas de colère, mais si ce n'est pas le cas - si des étrangers entrent dans ce service qui est le leur - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>il y aura de la colère, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme on le trouve dans l'épisode de Korach, ". ... car la colère était apparue..." [17:11] 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

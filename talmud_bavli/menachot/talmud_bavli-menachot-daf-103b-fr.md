@@ -66,7 +66,7 @@ Rabbi Beivai <b>s'est tu</b> et n'a pas répondu. <b>Rabbi Zerika lui dit : Quel
 <b>"Et tu craindras nuit et jour" ; ceci</b> fait référence à celui <b>qui achète du grain</b> d'une <b>veille de Chabbat à une autre</b> parce qu'il n'a pas les ressources nécessaires pour subvenir à ses besoins plus loin. <b>"Et tu n'auras pas l'assurance de ta vie" ; ceci</b> fait référence à celui <b>qui compte sur le boulanger [<i>hapalter</i>]</b> pour lui donner du pain car il n'a pas de grain à lui.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara cite un autre commentaire concernant la décision de la mishna selon laquelle le vœu d'apporter une offrande de repas d'orge prend effet : <b>Ze'eiri a dit :</b> Les Sages <b>ont enseigné</b> que la première partie de la déclaration d'un individu est acceptée <b>uniquement lorsqu'il a dit</b> dans son vœu : <b>Offre de repas [<i>minḥa</i>],</b> mais pas dans la construction hébraïque où il est rattaché au terme : D'orge [<i>minḥat se'orim</i>]. <b>Mais</b> s'il n'a <b>pas dit</b> le mot <b>offrande de repas</b> indépendamment, mais a soit dit <i>minḥat se'orim</i>, soit dit : Il m'incombe d'apporter de l'orge, le vœu ne <b>pas</b> prend effet, et il n'apporte pas d'offrande de repas.
 
@@ -134,7 +134,7 @@ Rabbi Beivai <b>s'est tu</b> et n'a pas répondu. <b>Rabbi Zerika lui dit : Quel
 <b>"Et tu craindras nuit et jour" ; ceci</b> fait référence à celui <b>qui achète du grain</b> d'une <b>veille de Chabbat à une autre</b> parce qu'il n'a pas les ressources nécessaires pour subvenir à ses besoins plus loin. <b>"Et tu n'auras pas l'assurance de ta vie" ; ceci</b> fait référence à celui <b>qui compte sur le boulanger [<i>hapalter</i>]</b> pour lui donner du pain car il n'a pas de grain à lui.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Guemara cite un autre commentaire concernant la décision de la mishna selon laquelle le vœu d'apporter une offrande de repas d'orge prend effet : <b>Ze'eiri a dit :</b> Les Sages <b>ont enseigné</b> que la première partie de la déclaration d'un individu est acceptée <b>uniquement lorsqu'il a dit</b> dans son vœu : <b>Offre de repas [<i>minḥa</i>],</b> mais pas dans la construction hébraïque où il est rattaché au terme : D'orge [<i>minḥat se'orim</i>]. <b>Mais</b> s'il n'a <b>pas dit</b> le mot <b>offrande de repas</b> indépendamment, mais a soit dit <i>minḥat se'orim</i>, soit dit : Il m'incombe d'apporter de l'orge, le vœu ne <b>pas</b> prend effet, et il n'apporte pas d'offrande de repas.
 
@@ -202,4 +202,4 @@ Rabbi Beivai <b>s'est tu</b> et n'a pas répondu. <b>Rabbi Zerika lui dit : Quel
 <b>"Et tu craindras nuit et jour" ; ceci</b> fait référence à celui <b>qui achète du grain</b> d'une <b>veille de Chabbat à une autre</b> parce qu'il n'a pas les ressources nécessaires pour subvenir à ses besoins plus loin. <b>"Et tu n'auras pas l'assurance de ta vie" ; ceci</b> fait référence à celui <b>qui compte sur le boulanger [<i>hapalter</i>]</b> pour lui donner du pain car il n'a pas de grain à lui.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

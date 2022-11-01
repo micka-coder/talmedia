@@ -51,4 +51,4 @@ Et quelles restrictions s'appliquent à la consommation des animaux premiers-né
 <b>Et de quel</b> type d'animal <b>on a affaire ? Si nous disons</b> que la <i>baraita</i> se réfère spécifiquement <b>à un animal souillé</b>, <b>ne nous enseigne-t-elle pas</b> la <i>halakha</i> d'une offrande de premier-né comme <b>similaire</b> à la <i>halakha</i> d'une <b>offrande de paix ?</b> Les offrandes de paix sont la propriété de leurs propriétaires même lorsqu'elles sont sans souillure. <b>Au contraire, ne fait-on pas</b> référence même <b>à un animal premier-né sans tache</b> ? <b>Et</b> le <i>baraita</i> enseigne que cet animal est la propriété de son propriétaire. <b>Apprenez-en</b> que <b>le prêtre a</b> le droit d'<b>acquisition sur</b> une offrande de premier-né non taché lorsque le Temple est debout.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

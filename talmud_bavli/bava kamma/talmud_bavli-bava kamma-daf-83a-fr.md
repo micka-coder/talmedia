@@ -33,4 +33,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne le <b>vol, </b> leur portée n'
 La Guemara demande : S'il y a de nombreux pigeonniers le long du chemin, <b>laissons</b> la <i>tanna</i> <b>dériver</b> l'interdiction de poser des pièges à pigeons <b>en raison des pigeonniers eux-mêmes.</b> Puisque la mishna enseigne qu'il est interdit de piéger des pigeons à moins de quatre <i>mil</i> de pigeonniers appartenant à des particuliers, il devrait être sans importance qu'il y ait une ville à cent <i>mil</i>. La Gemara répond : <b>Si tu veux, dis</b> que la <i>baraita</i> traite des pigeonniers <b>qui</b> appartiennent <b>à un Gentil,</b> et que l'interdiction de piéger les pigeons des pigeonniers privés ne s'applique qu'aux oiseaux appartenant à des Juifs. <b>Ou si vous le souhaitez, dites</b> que le <i>baraita</i> traite <b>des</b> colombiers abandonnés <b>qui</b> sont <b>sans propriétaire. Ou si vous le souhaitez, dites</b> qu'il fait référence à des pigeonniers <b>qui lui appartiennent,</b> c'est-à-dire qu'ils appartiennent au même individu qui pose le piège à pigeons.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

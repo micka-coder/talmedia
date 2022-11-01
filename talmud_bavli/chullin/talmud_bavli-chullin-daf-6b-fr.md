@@ -21,4 +21,4 @@ La Guemara en déduit : <b>Maintenant</b> qu'on soupçonne la femme du <i>am ha'
 Rabbi Yehuda HaNasi <b>interpréta ce verset pour eux : "Et il brisa en morceaux le serpent de cuivre que Moïse avait fait ; car jusqu'à ces jours-là, les enfants d'Israël lui brûlaient de l'encens ; et il fut appelé Nehushtan"</b> (II Rois 18:4). Est-il <b>possible</b> qu'ils y aient brûlé de l'encens et que <b>Asa,</b> un roi juste, soit <b>arrivé et ne l'ait pas éradiqué,</b> et que <b>Jehoshaphat,</b> un roi juste, soit <b>arrivé et ne l'ait pas éradiqué,</b> et qu'il soit resté jusqu'à l'époque d'Ezéchias ? <b>Mais Asa et Josaphat n'ont-ils pas éradiqué tous</b> les objets de <b>d'adoration d'idoles dans le monde ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

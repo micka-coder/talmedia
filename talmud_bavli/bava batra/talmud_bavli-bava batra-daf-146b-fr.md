@@ -21,4 +21,4 @@ La Gemara demande : <b>Et quelle est la raison</b> pour laquelle <b>Rav Naḥman
 La Guemara demande : <b>Qui</b> est le <i>tanna</i> qui a <b>enseigné ce que les Sages ont enseigné</b> (<i>Tosefta</i>, <i>Ketubot</i> 4:15) : Si quelqu'un <b>était malade et alité, et</b> les personnes présentes lui <b>disaient : A qui</b> seront donnés <b>vos biens</b> ? <b>Et il leur répondit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@
 <b>Faire savoir aux nations</b> qu'elles sont des humains et non des divinités, que leur puissance doit régner.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La mishna explique : <b>Pour ce qui est de sa jeunesse, que dit-on</b> d'un éru
 <b>Bar Kappara a enseigné : Une personne doit toujours enseigner à son fils un métier propre et facile.</b> La Gemara demande : <b>Quel est</b> un tel métier ? <b>Rav Yehuda dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

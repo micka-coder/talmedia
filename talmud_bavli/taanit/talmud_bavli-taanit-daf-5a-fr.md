@@ -42,4 +42,4 @@ La Gemara demande : <b>Et existe-t-il</b> un tel endroit comme <b>Jérusalem d'e
 <b>Et Rav Naḥman dit à Rabbi Yitzḥak : Quel est</b> le sens de ce <b>qui est écrit : "Car mon peuple a commis deux maux"</b> (Jérémie 2:13) ? <b>Y avait-il</b> seulement <b>deux maux</b> qu'ils ont commis ? Les <b>vingt-quatre</b> violations énumérées dans le livre d'Ezéchiel étaient-elles donc <b>abandonnées,</b> c'est-à-dire pardonnées ? Rabbi Yitzḥak <b>a dit à</b> Rav Naḥman que <b>Rabbi Yoḥanan a dit ce qui suit :</b> Ils ont violé <b>une</b> transgression <b>qui est</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

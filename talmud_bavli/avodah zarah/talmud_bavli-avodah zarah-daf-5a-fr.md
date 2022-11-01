@@ -66,4 +66,4 @@ La Gemara demande : <b>Et</b> selon <b>la première <i>tanna</i> également, n'e
 La Guemara explique que Moïse qualifie le peuple juif d' <b>ingrédients, car il est écrit</b> que le peuple juif parlait de manière désobligeante de la manne : <b>"Et notre âme a horreur</b>".
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

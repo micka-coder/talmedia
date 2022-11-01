@@ -39,4 +39,4 @@ La Gemara répond : <b>Même</b> si <b>on dit</b> que la décision est conforme 
 La mishna poursuit sa discussion. Le verset dit : <b>"Et il arrivera, lorsque les officiers auront fini de parler au peuple, que des capitaines de légions seront désignés à la tête du peuple"</b> (Deutéronome 20:9). La mishna ajoute : <b>Aussi bien qu'à l'arrière du peuple.</b> Les officiers <b>posent des gardes [<i>zekifin</i>] devant eux, et d'autres</b> gardes <b>derrière eux, et</b> ils ont des <b>barres de fer [<i>kashilin</i>] dans leurs mains. Et</b> en ce qui concerne <b>ceux qui tentent de faire demi-tour</b> et de fuir la guerre, le garde <b>a le droit de battre [<i>lekape'aḥ</i>] ses jambes</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

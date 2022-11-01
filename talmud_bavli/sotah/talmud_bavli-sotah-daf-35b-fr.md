@@ -39,4 +39,4 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Yehuda,</b> qui soutient que la T
 <b>Selon l'avis de qui</b> est <b>ce qui est enseigné</b> dans un <i>baraita</i> : Le verset dit : "Lorsque tu vas combattre tes ennemis, et que le Seigneur ton Dieu les livre entre tes mains, <b>et que tu les fais prisonniers"</b> (Deutéronome 21 : 10), ce qui implique qu'il n'y a pas d'obligation de les détruire, <b>pour inclure</b> non seulement les gentils qui ne sont pas cananéens, mais même les <b>cananéens qui vivent <b>en dehors d'Eretz</b> Yisraël, <b>car, s'ils se repentent, ils sont acceptés</b> et autorisés à vivre en Eretz Yisraël.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

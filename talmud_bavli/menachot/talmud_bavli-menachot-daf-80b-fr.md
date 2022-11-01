@@ -42,4 +42,4 @@ Lévi interpelle : <b>Et qu'il apporte</b> un autre <b>animal avec des pains et 
 <b>Levi dit à Rabbi</b> Yehuda HaNasi : <b>Et qu'il apporte</b> un autre <b>animal avec des pains et qu'il dise : Si cet</b> animal <b>qui existe est le substitut,</b> alors que <b>ceci</b> soit <b>l'offrande de remerciement et ceux-ci ses pains. Et si cet</b> animal <b>qui subsiste est l'offrande de remerciement,</b> alors <b>ceux-ci</b> seront <b>ses pains et ceci sera le reste de l'offrande de remerciement,</b> qui ne nécessite pas de pains. Rabbi Yehuda HaNasi <b>lui a dit : Il me semble qu'il n'a pas de cerveau dans son crâne.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Si c'est le cas, alors l'offrande pour le péché d'un na
 La mishna indique que <b>Rabban Gamliel dit : De même que</b> ses actions étaient les actions d'un animal, de même, son offrande est une nourriture animale. <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabban Gamliel dit aux Sages : Scribes, permettez-moi, et je l'expliquerai comme un type de couronne décorative [<i>ḥomer</i>],</b> c'est-à-dire une allégorie.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

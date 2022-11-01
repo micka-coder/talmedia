@@ -9,4 +9,4 @@ La Guemara répond : <b>Venez</b> et <b>entendez</b> une réponse à cette quest
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>On ne doit pas rompre le pain</b> et réciter une bénédiction <b>pour les invités à moins qu'il ne mange avec eux,</b> afin qu'il soit obligé de réciter une bénédiction pour lui-même. <b>Mais il peut rompre</b> le pain <b>pour ses enfants et pour</b> les autres <b>membres de son foyer</b> et réciter la bénédiction, <b>afin de les éduquer à</b> accomplir <b>les mitzvot,</b> afin qu'ils sachent réciter une bénédiction. <b>Et en ce qui concerne le <i>hallel</i> et le Rouleau</b> d'Esther, la <i>halakha</i> est que <b>même s'il</b> a déjà <b>accompli</b> son obligation, <b>il peut</b> encore <b>se décharger</b> de l'obligation des autres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

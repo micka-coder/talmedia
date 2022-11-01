@@ -42,4 +42,4 @@ La Guemara répond que les circonstances sont <b>comme il est enseigné</b> dans
 <b>Et</b> la Gemara <b>souleve une contradiction : Imma Shalom,</b> la femme de Rabbi Eliezer ben Hyrcanus, <b>a été interrogée : Pour quelle</b> raison
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -99,4 +99,4 @@
 <b>Tout ce qui est mort de lui-même ou blessé mortellement, etc.</b> Puisqu'il était permis de pincer le cou de l'oiseau en offrande pour le péché, ce qui [équivaut] à un animal mort de lui-même ou blessé mortellement [puisque ce n'est pas la méthode normale d'abattage], il devait les mettre en garde concernant [la consommation] d'autres créatures mortes d'elles-mêmes ou blessées mortellement. Ainsi, nos Sages expliquent.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

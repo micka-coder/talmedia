@@ -59,4 +59,4 @@
 <b>dans le cimetière</b> mais pas dans la grotte avec les rois.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

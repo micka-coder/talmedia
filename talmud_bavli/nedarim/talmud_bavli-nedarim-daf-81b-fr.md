@@ -30,4 +30,4 @@ La Guemara demande : <b>Qui</b> est le <i>tanna</i> qui a <b>enseigné ce qui es
 <b>Rava a soulevé un dilemme devant Rav Naḥman :</b> Si une femme a fait le vœu que les <b>rapports sexuels</b> avec son mari lui soient interdits, alors, <b>selon les rabbins, s'agit-il</b> d'un vœu d' <b>affliction ou</b> entre-t-il dans la catégorie des <b>matières qui</b> affectent négativement la relation <b>entre lui et elle ? </b> Rav Naḥman <b>lui a dit : Tu as appris</b> la réponse à cette question dans une mishna (90b) : <b>Et</b> si une femme dit : <b>Je suis éloignée des Juifs,</b> c'est-à-dire que le bénéfice de mon engagement dans un rapport sexuel est interdit à tous les Juifs,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

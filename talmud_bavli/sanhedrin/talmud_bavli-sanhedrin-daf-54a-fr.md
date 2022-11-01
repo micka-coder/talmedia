@@ -93,4 +93,4 @@ La mishna enseigne à propos de <b>celui qui a des rapports sexuels avec sa bell
 La phrase <b>"ils seront mis à mort"</b> fait référence à une exécution <b>par lapidation. Dites-vous</b> qu'ils sont exécutés <b>par lapidation, ou est-ce plutôt par l'un de tous les</b> autres types de peine de <b>mort</b> qui sont énoncés dans la Torah ? Il est dit ici : "Leur sang sera sur eux", et il est dit à propos d'un nécromancien et d'un sorcier : "Leur sang sera sur eux"</b> (Lévitique 20:27). <b>De même que là</b> le verset indique qu'un nécromancien et un sorcier sont exécutés <b>par lapidation, de même ici,</b> ils sont exécutés <b>par lapidation.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

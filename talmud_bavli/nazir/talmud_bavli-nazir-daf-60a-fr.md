@@ -30,4 +30,4 @@ Pour les <b>deuxième et troisième copeaux</b>, il n'a <b>pas besoin</b> d'appo
 <b>Et</b> la <b>une</b> offrande pour le péché qu'il apporte lors de son troisième rasage est <b>pour son impureté incertaine.</b> S'il était lépreux, les offrandes qu'il a apportées la fois précédente étaient destinées à la purification de sa lèpre, et non de sa naziréité. Cela signifie que, s'il était impur, il est toujours tenu d'apporter un sacrifice pour le péché pour son impureté en tant que nazirite. De plus, les holocaustes d'animaux qu'il apporte pour ses deuxième et troisième rasions sont pour sa naziréité de pureté. Pour son <b>quatrième rasage, il apporte une offrande de pureté et stipule</b> comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

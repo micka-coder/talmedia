@@ -42,4 +42,4 @@ Il a été enseigné dans une <i>baraïta</i> citée plus haut que la <b>mesure 
 <b>Abaye dit à</b> Rav Yosef : <b>Peut-être le Maître parle-t-il</b> de <b>la surface de l'arrangement</b> de bois ? Puisque les angles occupaient une coudée de chaque côté et qu'il y avait une coudée supplémentaire de chaque côté pour que les prêtres puissent marcher, il ne restait qu'une coudée pour l'arrangement du bois. Rav Yosef <b>dit à</b> Abaye : <b>Le Maître,</b> c'est-à-dire Abaye, <b>qui est un grand homme, sait ce que je</b> veux dire <b>dire.</b> Rav Yosef <b>a lu,</b> c'est-à-dire appliqué, le verset suivant <b>à ceux</b> qui se moquaient de lui :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

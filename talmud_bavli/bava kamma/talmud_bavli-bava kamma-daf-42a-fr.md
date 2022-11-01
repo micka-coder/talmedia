@@ -45,4 +45,4 @@ Rava a ensuite rétracté cette explication de l'avis de Rabbi Yosei HaGelili. <
 § <b>Il est enseigné</b> dans <b>un autre</b> <i>baraita</i> à propos du verset <b>"Le propriétaire du bœuf sera clair"</b> que <b>Rabbi Akiva dit : </b> Cette affirmation enseigne que si un bœuf inoffensif tue un esclave cananéen, son propriétaire sera <b>clair</b> de payer une <b>indemnité pour l'esclave,</b> contrairement au cas d'un bœuf averti qui a tué un esclave cananéen, où le propriétaire du bœuf est responsable.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara rejette cette affirmation : Ceci n'est pas une preuve ; <b>même</b> 
 La Guemara demande : <b>Mais</b> est-ce que le repentir <b>n'expie pas</b> une mitzva négative</b> à part entière ? La Guemara <b>souleve une contradiction</b> provenant d'une source distincte : Il a été enseigné que <b>ce sont des transgressions mineures</b> : <b>Une mitzva positive</b> <b>et une mitzva négative</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

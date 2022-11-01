@@ -8,5 +8,5 @@ S'ils étaient tous deux en train de fermer ou d'ouvrir [une porte], [la personn
 ### michna 3
 Si le zav et la personne pure se sont assis ensemble dans un grand bateau : (qu'est-ce qui est considéré comme un grand bateau ? Rabbi Juda a dit : un bateau qui ne vacille pas sous le poids d'un homme), ou s'ils se sont assis sur une planche, un banc, un cadre de lit ou une poutre, lorsque ceux-ci étaient solidement fixés ; ou s'ils ont tous deux grimpé sur un arbre fort, une branche solide, une échelle tyrienne ou une échelle égyptienne fixée par un clou ; ou s'ils se sont assis sur un pont, un chevron ou une porte, lorsque ceux-ci étaient fixés avec de l'argile, même si ce n'est qu'à une extrémité, ils restent purs. Si celui qui est pur a frappé celui qui est impur, il reste pur. Mais si celui qui est impur a frappé celui qui est pur, il est impur, car si celui qui est pur s'était retiré, celui qui est impur serait tombé.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

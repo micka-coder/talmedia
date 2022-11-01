@@ -66,4 +66,4 @@ La Guemara cite la source de l'opinion de Rabbi Yehuda HaNasi. <b>Comme il est e
 <b>Ils ont dit cette</b> déclaration <b>devant Rabbi Yirmeya</b> en Eretz Yisrael, sur quoi <b>il a dit :</b> Est-ce que <b>un grand homme comme Rav Yosef dirait une telle chose,</b> que l'aspersion de l'huile rend le reste de l'huile <i>piggul</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara explique : Il <b>était nécessaire</b> que Reish Lakish affirme que 
 <b>Rabbi Yehoshua lui dit</b> en réponse : Le verset <b>déclare :</b> "Si le péché qu'il a commis lui est connu, il apportera pour son offrande un bouc, un mâle sans défaut" (Lévitique 4:23). Cette expression est dérivée de la phrase : <b>"Dans lequel il a péché"</b> qu'il n'est pas responsable <b>jusqu'à ce qu'il soit connu</b> spécifiquement <b>avec quel élément</b> il a péché.</b> La Gemara demande : <b>Et</b> quant à <b>Rabbi Eliezer, que fait-il de cette</b> phrase : <b>"Qui</b> il a péché" ? La Gemara répond : <b>Il l'exige</b> pour la <i>halakha</i> que seul celui qui est conscient de son action est responsable, car cette phrase <b>exclut celui qui agit sans s'en rendre compte</b> et commet une transgression par inadvertance.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

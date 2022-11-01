@@ -48,4 +48,4 @@ La Guemara revient sur l'histoire de Ketia. <b>Une voix divine émergea et dit :
 La Gemara raconte : <b>Antoninus s'occupait de Rabbi</b> Yehuda HaNasi, et de même le roi perse <b>Adrakan s'occupait de Rav. Quand Antoninus mourut, Rabbi</b> Yehuda HaNasi <b>a dit : Le baluchon est séparé. A la mort d'Adrakan, Rav</b> de même <b>a dit : </b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

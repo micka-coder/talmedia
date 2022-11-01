@@ -15,4 +15,4 @@ La Gemara demande : <b>Et</b> est-ce que <b>Beit Hillel soutient</b> que <b>si</
 La Gemara répond : <b>Ils ont énoncé</b> leur avis <b>conformément au raisonnement de Beit Shammai : Selon notre</b> avis, <b>même</b> si la vache <b>ne se lève pas, elle n'est pas non plus nazirite,</b> puisque la nazirite ne prend effet que si elle a fait vœu que les produits de la vigne lui soient interdits. Cependant, <b>selon votre</b> raisonnement</b> que vous dites qu'il est nazirite, concédez-nous en tout cas que l'intention de cet homme est basée sur</b> le fait <b>que</b> la vache <b>était couchée, et qu'elle s'est levée,</b> donc la naziréité ne doit pas prendre effet. <b>Et le Beit Shammai</b> soutient : <b>L'intention de cet homme n'est-elle pas basée sur</b> le fait qu'il <b>l'ait fait se tenir debout de sa propre main, et il ne l'a pas fait se tenir debout ?</b> Puisque sa condition n'a pas été remplie, la naziréité ne prend pas effet.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

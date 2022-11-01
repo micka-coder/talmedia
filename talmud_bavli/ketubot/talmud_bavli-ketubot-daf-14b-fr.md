@@ -39,7 +39,7 @@ La Guemara explique : La contradiction entre les <i>baraitot</i> n'est <b>pas di
 <strong>GEMARA:</strong> <b>Rava dit à Rav Naḥman : Conformément à l'avis de qui</b> est-ce <b>que Rabbi Yoḥanan ben Nuri a énoncé</b> son avis ? <b>Si</b> c'est <b>conformément</b> à l'avis de <b>Rabban Gamliel, même dans</b> un cas où <b>la majorité</b> des gens <b>sont</b> également de <b>lignée défectueuse, il la juge</b> <b>apte</b> à se marier à la prêtrise. <b>Si</b> c'est <b>conformément</b> à l'avis de <b>Rabbi Yehoshua, même dans</b> un cas où <b>la majorité</b> des personnes <b>sont</b> de <b>lignée non fautive, il la juge</b> <b>inapte</b> à se marier dans la prêtrise. Rav Naḥman <b>a dit à</b> Rava que <b>ceci</b> est ce que <b>Rav Yehuda a dit</b> que <b>Rav a dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>J'ai entendu</b> qu'en ce qui concerne la veuve de <b>toute</b> famille <b>qui n'a aucune de ces</b> incertitudes associées, <b>une</b> permet à <b>elle d'épouser</b> des membres de <b>la prêtrise.</b> La seule incertitude où cette décision s'applique est dans le cas d'un statut <i>ḥalal</i> incertain.
 
@@ -80,4 +80,4 @@ La Guemara explique : La contradiction entre les <i>baraitot</i> n'est <b>pas di
 <strong>GEMARA:</strong> <b>Rava dit à Rav Naḥman : Conformément à l'avis de qui</b> est-ce <b>que Rabbi Yoḥanan ben Nuri a énoncé</b> son avis ? <b>Si</b> c'est <b>conformément</b> à l'avis de <b>Rabban Gamliel, même dans</b> un cas où <b>la majorité</b> des gens <b>sont</b> également de <b>lignée défectueuse, il la juge</b> <b>apte</b> à se marier à la prêtrise. <b>Si</b> c'est <b>conformément</b> à l'avis de <b>Rabbi Yehoshua, même dans</b> un cas où <b>la majorité</b> des personnes <b>sont</b> de <b>lignée non fautive, il la juge</b> <b>inapte</b> à se marier dans la prêtrise. Rav Naḥman <b>a dit à</b> Rava que <b>ceci</b> est ce que <b>Rav Yehuda a dit</b> que <b>Rav a dit:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

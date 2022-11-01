@@ -45,4 +45,4 @@ A propos du décorticage des grains le Chabbat, la Gemara demande : <b>Comment p
 La Guemara demande en outre : <b>Comment</b> peut-on <b>souffler</b> sur le grain, pour le vanner d'une manière permise le Chabbat ? <b>Rav Adda bar Ahava dit</b> que <b>Rav a dit : On souffle</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

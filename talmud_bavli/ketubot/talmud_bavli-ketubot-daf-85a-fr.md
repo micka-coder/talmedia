@@ -54,4 +54,4 @@ La Gemara commente : <b>Et</b> cette <i>halakha</i> de Rava n'est <b>pas</b> acc
 La preuve de ceci est <b>que Rav Asi a dit</b> que <b>Rabbi Yoḥanan a dit :</b> En ce qui concerne <b>un document selon lequel on a emprunté</b> de l'argent <b>sur la base de celui-ci et</b> ensuite <b>remboursé</b> la dette, <b>il ne peut plus emprunter de l'argent sur la base de celui-ci. </b> Ceci est <b>parce que son privilège a déjà été effacé.</b> Une fois la dette remboursée, le privilège résultant du prêt n'est plus en vigueur. Les témoins n'ont pas signé le document au moment du second prêt, donc le privilège ne sera pas en vigueur, et le prêt aura le statut d'un par accord oral. La Gemara en déduit : <b>La raison</b> pour laquelle il ne peut pas réutiliser le document est <b>parce que son privilège a été abandonné,</b> de sorte que le document n'est plus exact ; <b>mais quant</b> au fait qu'il a l'<b>apparence</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

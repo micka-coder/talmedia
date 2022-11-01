@@ -24,4 +24,4 @@ La Gemara demande : <b>Et d'où dites-vous</b> que la pureté du <i>teruma</i> e
 <b>Rava dit : Veux-tu dire</b> que l'on peut citer une preuve à partir du <i>halakha</i> des objets rendus impurs par la <b>traînée</b> que l'état de pureté du <i>teruma</i> est l'impureté vis-à-vis de la nourriture sacrificielle ? Aucune preuve ne peut être citée à partir de là, car le décret selon lequel le statut halakhique des vêtements des prêtres qui prennent part au <i>teruma</i> est comme celui des articles rendus impurs par la <b>tradition</b> pour ceux qui mangent la nourriture sacrificielle <b>est différent,</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

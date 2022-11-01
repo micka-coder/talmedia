@@ -18,7 +18,7 @@ La Gemara demande : <b>En définitive, une fois qu'il a mâché</b> le <i>teruma
 <b>Rav Pappa a dit :</b> Il fait référence à un cas <b>où un autre a inséré des liquides de <i>teruma</i> dans sa bouche.</b> Dès que le liquide entre dans sa bouche, il est gâché. Par conséquent, l'acquisition et sa jouissance sont simultanées. <b>Rav Ashi a dit :</b> Il fait référence <b>à un non-prêtre qui a participé à son propre <i>teruma</i>,</b> par exemple, si le non-prêtre a hérité du <i>teruma</i> d'un prêtre, ou a acquis la propriété d'un prêtre. Dans ce cas, il n'a pas volé le <i>teruma</i> et il n'y a pas de paiement pour celui-ci, mais il est susceptible de recevoir la peine de mort pour avoir mangé du <i>teruma</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 la <b>punition</b> des <b>quatre peines de mort</b> <b>n'a pas été abolie.</b> Comment cela ? <b>Quelqu'un qui était susceptible</b> d'être exécuté par <b>pierre, soit tombe du toit, soit une bête le piétine.</b> Cela ressemble à la lapidation, qui consiste à être poussé d'un endroit élevé puis lapidé. <b>Et celui qui était susceptible</b> d'être exécuté par <b>brûlure, soit il tombe dans une conflagration, soit un serpent le mord,</b> ce qui crée une sensation de brûlure. <b>Et celui qui était susceptible</b> d'être exécuté par <b>décapitation</b> est <b>soit remis à la <b>monarchie</b> au pouvoir pour être exécuté par l'épée, <b>soit des bandits l'attaquent</b> et le tuent. Et celui qui était susceptible</b> d'être exécuté par <b>strangulation se noie dans une rivière, ou meurt de diphtérie [<i>serunki</i>]. Il faut plutôt inverser</b> l'ordre de l'énoncé précédent : <b>Un lion et des voleurs</b> sont des cas de préjudice <b>de la main du Ciel,</b> tandis que <b>le froid et la chaleur</b> sont des cas de préjudice <b>de la main de l'homme.</b>
 
@@ -38,4 +38,4 @@ La Gemara demande : <b>En définitive, une fois qu'il a mâché</b> le <i>teruma
 <b>Rav Pappa a dit :</b> Il fait référence à un cas <b>où un autre a inséré des liquides de <i>teruma</i> dans sa bouche.</b> Dès que le liquide entre dans sa bouche, il est gâché. Par conséquent, l'acquisition et sa jouissance sont simultanées. <b>Rav Ashi a dit :</b> Il fait référence <b>à un non-prêtre qui a participé à son propre <i>teruma</i>,</b> par exemple, si le non-prêtre a hérité du <i>teruma</i> d'un prêtre, ou a acquis la propriété d'un prêtre. Dans ce cas, il n'a pas volé le <i>teruma</i> et il n'y a pas de paiement pour celui-ci, mais il est susceptible de recevoir la peine de mort pour avoir mangé du <i>teruma</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

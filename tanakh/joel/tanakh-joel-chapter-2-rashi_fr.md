@@ -84,7 +84,7 @@
 <b>shall roar</b> Heb. וְהֵשִׁיקוּ, une expression de faire du bruit lorsque le ruisseau descend du pressoir dans la cuve (הַיֶקֶב), qui est la fosse avant le pressoir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Faire retentir un shophar</b> pour leur annoncer qu'ils doivent se repentir avant que le malheur ne les atteigne.
 <b>Le jour du Seigneur</b> - que nous avons mentionné plus haut.
@@ -170,4 +170,4 @@
 <b>shall roar</b> Heb. וְהֵשִׁיקוּ, une expression de faire du bruit lorsque le ruisseau descend du pressoir dans la cuve (הַיֶקֶב), qui est la fosse avant le pressoir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

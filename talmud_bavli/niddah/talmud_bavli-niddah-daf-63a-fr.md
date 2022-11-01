@@ -51,4 +51,4 @@ Au sujet de l'urine utilisée pour enlever une tache de sang, <b>Rabbi Yoḥanan
 La mishna inclut le cas où <b>elle sécrète</b> une décharge comme l'une des sensations physiques. La Guemara comprend que cela fait référence à une décharge continue de sang, et demande donc : <b>Mais</b> pendant les menstruations <b>elle évacue</b> continuellement du sang ; comment cela peut-il être un signal du début des menstruations ? <b>Ulla, fils de Rav Ilai, a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ A quel type de femme esclave [cela fait-il référence] ? A celle qui est à moi
 ### michna 6
 Dans le cas de toutes les relations interdites, si l'un des partenaires était un adulte et l'autre un mineur, le mineur est exempté ; si l'un est éveillé et l'autre endormi, celui qui est endormi est exempté ; si l'un est par inadvertance et l'autre intentionnel, le premier est passible d'une hatat, le second d'un karet.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara demande : <b>Et</b> comment <b>les rabbins</b> répondraient-ils à la
 La Guemara conclut : <b>Rav Yehuda dit</b> que <b>Shmuel dit : </b> La <b><i>hala-kha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Yosei.</b> La Gemara relate un incident soutenant cette décision : Il y avait <b>un certain jardin qui était fertilisé avec des excréments qui</b> provenaient d'un animal utilisé dans le culte des <b>idoles. Rav Amram envoya</b> une requête <b>à Rav Yosef,</b> demandant quelle est la <i>halakha</i> dans un tel cas. Rav Yosef lui <b>répondit</b> que <b>ceci</b> est ce que <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> La <b><i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabbi Yosei;</b> le produit du jardin est donc autorisé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

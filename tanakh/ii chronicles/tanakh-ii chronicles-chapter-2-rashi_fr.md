@@ -55,4 +55,4 @@
 <b>Et il fit d'eux soixante-dix mille, etc.</b> La raison pour laquelle il les mentionne à nouveau et mentionne le nombre est qu'il a interrompu le sujet ; il devait donc le répéter à nouveau maintenant. Et il ne s'est pas arrêté avant d'avoir terminé tout le [récit de la] construction, et il dit immédiatement (3:1) : " Et Salomon commença à construire, etc. ". Or, même avec un seul verset, il est d'usage d'interrompre le sujet et [ensuite] de reprendre [à nouveau] l'énoncé précédent, par exemple (Nombres 16, 6) : "Fais ceci : prends-toi, etc." Et le lendemain, il est dit (ibid. 16f.) : "Et Moïse dit à Korah : Toi et toute ta bande, etc.", et il répète et dit : "et que chacun prenne son encensoir et se place, etc." Comme il s'interrompt avec de nombreux versets, il fallait le réécrire, et combien plus ici.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

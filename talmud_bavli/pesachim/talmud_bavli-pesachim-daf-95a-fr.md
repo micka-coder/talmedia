@@ -45,4 +45,4 @@ La Gemara demande plus loin : <b>Qu'exclut-il par son détail ?</b> Il exclut le
 La Guemara continue à demander : <b>À travers la généralisation : On n'y cassera pas un os,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

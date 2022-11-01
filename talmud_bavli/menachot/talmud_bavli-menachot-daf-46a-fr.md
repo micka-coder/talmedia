@@ -51,4 +51,4 @@ La Gemara répond : L'<b>offrande de remerciement est différente, car le Misér
 § <b>Rabbi Yirmeya dit : Si vous dites</b> que <b>l'agitation établit un lien</b> entre les pains et les moutons, alors dans un cas où <b>les pains ont été perdus</b> après l'agitation,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

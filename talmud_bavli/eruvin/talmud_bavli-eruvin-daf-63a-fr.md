@@ -78,4 +78,4 @@ Quelle a été sa punition ? <b>Comme il est écrit</b> que Dieu avait dit à Mo
 A propos de cette même question, <b>Rabbi Levi a dit : Celui qui répond à une parole en présence de son maître descendra dans le monde souterrain sans enfant, comme il est dit : " Et Josué bin Nun, le ministre de Moïse depuis sa jeunesse, répondit et dit : Mon seigneur Moïse, enferme-les"</b> (Nombres 11:28). Puisqu'il a parlé à son maître à contretemps, il a été puni en restant sans enfant.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

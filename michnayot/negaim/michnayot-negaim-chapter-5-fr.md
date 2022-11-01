@@ -14,5 +14,5 @@ Tout doute dans les negaim au début est considéré comme propre avant que l'im
 ### michna 5
 "Mais après que l'impureté ait été établie, un doute est considéré comme impur". Comment cela ? Si deux hommes se présentent à un prêtre, l'un ayant une tache lumineuse de la taille d'un haricot fendu et l'autre en ayant une de la taille d'une sela et qu'à la fin de la semaine, chacune était de la taille d'une sela et un peu plus, les deux sont impurs ; et même si les deux reviennent à la taille d'une sela, les deux sont impurs, et le restent jusqu'à ce qu'ils reviennent à la taille d'un haricot fendu. C'est ce qu'ils voulaient dire quand ils ont dit : "mais après que l'impureté ait été établie, un doute est considéré comme impur."
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

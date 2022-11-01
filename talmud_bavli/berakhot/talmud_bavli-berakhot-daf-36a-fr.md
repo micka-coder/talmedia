@@ -72,4 +72,4 @@ Avant de traiter le probleme pose par Ravina a Mar bar Rav Ashi, la Guemara rele
 La Gemara repond : Ceci n'est <b>pas difficile ; les Beit Shammai ne savent pas</b> si le caprier est un buisson vegetal ou un arbre, <b>et ici,</b> concernant les diverses sortes, <b>ils agissent avec rigueur et ici,</b> concernant <i>orla</i>, <b>ils agissent avec rigueur. Quoi qu'il en soit, selon Beit Shammai</b> la capre a le statut de <b>incertain <i>orla</i>,</b> et <b>on a appris</b> le consensus <i>halakha</i> dans une mishna : <b>La <i>orla</i> incertaine en Eretz Yisrael est interdite a la consommation, et en Syrie elle est permise,</b> et nous ne sommes pas concernes par son statut incertain. <b>En dehors d'Eretz</b> Yisrael, le Gentil proprietaire d'un champ <b>peut descendre</b> dans son champ.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

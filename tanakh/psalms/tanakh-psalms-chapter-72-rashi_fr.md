@@ -76,4 +76,4 @@
 <b>Les prières de David...sont accomplies</b> Héb.  כלו-. Nos sages ont expliqué que  כָּלוּ  signifie  כָּל אֵלוּ, toutes ces prières sont celles de David fils de Jessé, pour inclure le livre entier sur le nom de David, même ce que les fils de Koré et les dix anciens ont dit parce qu'il était connu comme (II Sam. 23:1) "le doux chanteur d'Israël".  כָּלוּ  peut également être interprété comme "ont été achevés". La construction de  כָּלוּ  est comme (Job 24 : 24) : "Ils sont enlevés (רֹמוּ) en une seconde" ; (Jer. 2:12), "Cieux, soyez étonnés (שֹׁמוּ)." S'il en est ainsi, ce psaume n'a pas été écrit à sa place, et il n'y a pas d'ordre chronologique dans le Livre. Le sujet indique qu'il a dit cela dans sa vieillesse, lorsqu'il a intronisé Salomon.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

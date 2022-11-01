@@ -111,5 +111,5 @@
 ### passuk 34
 <b>Fuit de leur tumulte.</b> A cause de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le bruit de la terre qui les engloutit.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

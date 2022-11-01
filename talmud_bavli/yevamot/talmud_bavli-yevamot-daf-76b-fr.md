@@ -51,4 +51,4 @@ Doeg réplique : Si oui, dis qu'il est interdit à seulement <b>un homme égypti
 <b>Immédiatement : "Et le roi dit : Demande-toi à qui appartient ce garçon"</b> (I Samuel 17:56). La Gemara commente : <b>Ici,</b> dans le verset précédent, Saül <b>l'appelle jeune [<i>na'ar</i>],</b> et <b>ici il l'appelle garçon [<i>elem</i>].</b> Ce changement de formulation laisse entrevoir la discussion suivante . Saül <b>dit à</b> Doeg <b>comme suit :</b> La <b><i>halakha</i> t'est cachée [<i>nitalma</i>],</b> et tu ignores la loi. <b>Allez vous renseigner</b> sur la question <b>dans la salle d'étude. Il</b> se rendit à la salle d'étude et <b>demanda. On lui répondit :</b> Le <i>halakha</i> est : <b>Un homme ammonite</b> est interdit, <b>mais pas une femme ammonite ; un homme moabite</b> est interdit, <b>mais pas une femme moabite.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

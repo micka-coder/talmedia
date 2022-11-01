@@ -42,4 +42,4 @@ La Gemara demande : <b>Mais est-ce que</b> la terre de <b>Hébron</b> est en fai
 Le verset dit : <b>"Et ils revinrent après avoir exploré le pays</b> au bout de quarante jours.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

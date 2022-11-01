@@ -66,4 +66,4 @@ Rabba <b>lui dit : La plante du pied ne peut</b> monter <b>sur eux.</b> Une pers
 Rav Yosef a continué à demander : Et que se passe-t-il s'il y avait des échelons de <b>paille d'un</b> côté <b>et</b> des échelons de <b>paille de l'autre</b> côté, <b>et une</b> <b>échelle</b> étroite de moins de quatre brins de paille <b>au milieu,</b> et que leur largeur combinée soit de quatre brins de paille ? <b>Quel est</b> le <i>halakha</i> dans ce cas ? Rabba <b>lui a dit : La plante du pied peut</b> monter <b>sur eux,</b> et l'échelle semble avoir une largeur de quatre handbreths. Par conséquent, elle sert à diminuer la hauteur du mur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

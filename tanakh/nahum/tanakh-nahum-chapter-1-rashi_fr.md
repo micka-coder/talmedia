@@ -61,4 +61,4 @@
 <b>car tu es devenu sans valeur</b> à Mes yeux.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -9,4 +9,4 @@
 <strong>GEMARA:</strong> En ce qui concerne le terme <i>durkati</i>, la Gemara explique que cela signifie <b>génération tronquée [<i>dor katua</i>].</b> Comme l'enseigne <b>Rabbi Ḥiyya : De même que le levain est bon pour la pâte, de même le sang est bon pour une femme.</b> De même, il a été <b>enseigné au nom de Rabbi Meir : Toute femme dont le sang est abondant, ses enfants sont abondants.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

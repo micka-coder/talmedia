@@ -51,4 +51,4 @@ Levi <b>lui a dit : C'était</b> dans <b>le local</b> de <b>Rabbi Yehuda ben Bet
 <strong>MISHNA :</strong> Le lait coagulé dans <b>l'estomac</b> de l'animal <b>d'un Gentil et d'une</b> carcasse d'animal non abattu est interdit.</b> En ce qui concerne <b>celui qui a fait cailler le lait en</b> utilisant <b>la peau de l'estomac d'un animal casher</b> comme coagulant pour faire du fromage, qui peut alors avoir le goût de la viande cuite dans le lait,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

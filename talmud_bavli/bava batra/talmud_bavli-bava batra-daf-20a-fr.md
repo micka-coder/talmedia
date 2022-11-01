@@ -42,4 +42,4 @@ Le <i>baraita</i> enseigne : <b>Le sel</b> réduit les dimensions d'une fenêtre
 La Gemara conteste : Malgré cela, <b>puisque</b> ce sel <b>est dommageable pour le mur, il l'enlèvera</b> de là. La Guemara répond : Ceci fait référence à un cas <b>où il repose sur un tesson</b> de faïence, et par conséquent il n'endommage pas le mur. La Guemara déclare : S'il repose sur de la faïence, <b>laissons</b> le <b>tesson lui-même servir de barrière</b> contre la propagation de l'impureté. Pourquoi, alors, le sel est-il mentionné ?
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -41,5 +41,5 @@ Si un arbre s'étend dans le champ d'un autre, il pourra le couper jusqu'à ce q
 ### michna 14
 Si un arbre s'étend dans le domaine public, il faut en couper suffisamment pour permettre le passage d'un chameau et de son cavalier. Rabbi Judah dit :  "Un chameau chargé de lin ou de fagots de branches." Rabbi Shimon dit :  "Chaque arbre [doit être coupé] selon la mesure du fil à plomb, à cause de son impureté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

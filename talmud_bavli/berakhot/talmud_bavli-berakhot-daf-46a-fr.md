@@ -42,4 +42,4 @@ En ce qui concerne la question de la benediction : Qui est bon et fait le bien, 
 <b>Rav Yitzhak bar Shmuel bar Marta a dit</b> une autre preuve <b>au nom du Rav : Sachez</b> que la benediction : <b>Qui est bon et fait le bien, n'est pas</b> exigee <b>par la loi de la Torah,</b> car celui qui la recite <b>commence</b> a la reciter <b>avec : Beni, mais ne termine pas de le reciter avec : Beni.</b> Telle est la formule dans toutes les benedictions comparables, <b>comme cela a ete enseigne</b> dans une <i>baraita</i> : <b>Toutes les benedictions,</b> on <b>commence</b> a les reciter avec : Beni, et on termine</b> de les reciter avec : Beni, sauf pour les benedictions sur les fruits, les benedictions sur les mitzvot, une benediction juxtaposee a une autre</b> benediction, <b>et la benediction finale apres <i>Shema</i>. Il y a parmi ces</b> benedictions <b>celles que</b> celui qui la recite <b>commence</b> a reciter <b>avec : Bienheureux, mais ne termine pas de la reciter par : Bienheureux;</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

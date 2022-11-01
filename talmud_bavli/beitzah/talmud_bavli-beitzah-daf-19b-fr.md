@@ -48,4 +48,4 @@ La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> d'énoncer cette <i>ha
 Cet enseignement est <b>similaire</b> à la question <b>que Rabbi Shimon ben Lakish a posée à Rabbi Yoḥanan:</b> En ce qui concerne <b>quelqu'un qui</b> fait un vœu et <b>dit : </b> Il m'incombe <b>sur moi</b> d'apporter <b>une offrande de remerciements, et je</b> m'acquitterai également <b>de mon obligation d'apporter <b>une offrande de paix de la Fête</b> avec elle;</b> ou s'il dit : <b>Je suis un nazirite,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@ La Gemara demande : <b>Quel est</b> le but de la déclaration : <b>Et il</b> dit
 <b>Rabbi Elazar a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

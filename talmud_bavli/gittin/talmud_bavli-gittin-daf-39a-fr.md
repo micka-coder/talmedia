@@ -60,4 +60,4 @@ La Gemara conteste : <b>Si c'est le cas,</b> alors dans le cas d'une <b>personne
 <b>Rabbi Ya'akov bar Idi dit</b> que <b>Rabbi Yehoshua ben Levi dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Abba Shaul</b> en ce qui concerne un converti qui est mort et a laissé des esclaves. <b>Rabbi Zeira dit à Rabbi Ya'akov bar Idi :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

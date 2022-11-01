@@ -24,4 +24,4 @@
 <b>Rava dit plutôt :</b> L'interprétation initiale doit être rejetée. <b>Quel est le sens</b> de la phrase : <b>Toute la journée?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

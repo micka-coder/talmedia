@@ -26,5 +26,5 @@ Tous imposent les mains sur l'offrande, sauf un sourd-muet, un imbécile, un min
 ### michna 9
 L'imposition des mains est [à certains égards] plus stricte que l'onction et l'onction est [à d'autres égards] plus stricte que l'imposition des mains. Car on peut faire l'onction au nom de tous les autres, mais on ne peut pas faire l'imposition des mains au nom de tous les autres. L'ondoiement est plus strict, car l'ondoiement a lieu pour les offrandes de l'individu et pour les offrandes de la communauté, pour les animaux vivants et pour les animaux abattus, pour les choses qui ont la vie et pour les choses qui n'ont pas la vie ; mais il n'en est pas ainsi pour l'imposition des mains.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

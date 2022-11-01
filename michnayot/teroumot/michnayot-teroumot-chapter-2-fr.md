@@ -17,5 +17,5 @@ On doit donner la teroumah d'un petit oignon entier, et non de la moitié d'un g
 ### michna 6
 Ils peuvent donner la teroumah des olives [à utiliser] pour l'huile pour ceux qui doivent être conservés, mais pas des olives à conserver pour les olives [à utiliser] pour l'huile. [On peut donner du vin non bouilli pour du vin bouilli, mais pas du vin bouilli pour du vin non bouilli. Telle est la règle générale : si deux choses sont des kilayim (espèces mélangées), il ne faut pas donner la teroumah de l'une pour l'autre, même si l'une est supérieure et l'autre inférieure. Mais s'il ne s'agit pas de kilayim, on peut donner de la térouma de la chose supérieure pour celle qui est inférieure, mais pas de la chose inférieure pour celle qui est supérieure. Si l'on donne de la teroumah provenant de l'inférieur pour ce qui est supérieur, sa teroumah est de la teroumah, à l'exception des zunin donnés pour le blé, puisque ceux-ci (zunin) ne sont pas des aliments. Les concombres et les melons sont d'une seule sorte. Rabbi Judah dit : deux sortes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

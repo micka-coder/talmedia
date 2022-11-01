@@ -20,5 +20,5 @@ Si quelqu'un a ses produits dans une autre ville, et que les habitants de cette 
 ### michna 7
 Si quelqu'un a invité des gens chez lui, ils ne peuvent pas emporter de portions, à moins qu'il [l'hôte] ne leur ait attribué des portions la veille de Yom Tov. On ne peut pas donner à boire puis abattre des animaux sauvages, mais on peut donner à boire et abattre des animaux domestiques. Les animaux domestiques sont ceux qui passent la nuit en ville. Les animaux de pâturage sont ceux qui passent la nuit dans les pâturages.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

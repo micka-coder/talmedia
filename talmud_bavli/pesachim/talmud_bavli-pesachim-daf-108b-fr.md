@@ -24,4 +24,4 @@ La <i>baraita</i> a déclaré que <b>Rabbi Yehuda dit</b> la tasse dans laquelle
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Tous sont obligés dans ces quatre coupes, y compris les hommes, les femmes et les enfants. Rabbi Yehuda a dit : Quel bénéfice les enfants retirent-ils du vin ?</b> Ils n'en profitent pas. <b>Au contraire, on leur distribue</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

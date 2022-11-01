@@ -123,4 +123,4 @@
 <b>Laissez-moi être inclus.</b> Laissez-moi me joindre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

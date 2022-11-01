@@ -69,4 +69,4 @@ La Guemara explique : <b>Venez</b> et <b>entendez, comme il est enseigné</b> da
 La Gemara demande : <b>Et quelle est la</b> <b>différence</b> pratique qui découle de ce dilemme ? La Gemara répond : Il y a une différence dans un cas <b>où celui qui a balayé la ruelle <b>dit l'avoir balayée</b> mais ne l'a pas examinée</b>. <b>Si l'on dit</b> que les objets qui étaient présents dans la ruelle avant qu'elle ne soit balayée restent purs parce que <b>le statut présumé</b> d'une ruelle balayée est qu'elle a été <b>examinée,</b> dans <b>cette</b> affaire, l'homme a explicitement dit qu'il <b>n'a pas examiné</b> la ruelle, donc elle n'a pas ce statut présumé. En revanche, <b>si vous dites</b> que les objets restent purs parce que <b>l'état présumé de</b> la ruelle est qu'elle a été complètement <b>balayée,</b> dans <b>cette</b> affaire aussi elle a été <b>balayée,</b> et donc les objets qui étaient présents auparavant restent purs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

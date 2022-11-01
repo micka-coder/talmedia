@@ -27,4 +27,4 @@ Et puisque la Gemara a mentionné la descente de Jacob en Égypte, la Gemara cit
 Nous avons appris dans la mishna que tous les types d'<b>épices</b> s'associent les uns aux autres pour constituer la mesure <b>équivalente</b> à celle qui est utilisée <b>pour assaisonner un <b>œuf facilement</b> cuit. La</b> Gemara <b>souleve une contradiction</b> de ce que nous avons appris ailleurs : <b>Les épices,</b> qui sont interdites en raison de <b>deux ou trois</b> <b>interdictions différentes,</b> par exemple, l'un est interdit en raison de <i>orla</i>, et l'autre en raison de l'interdiction des produits non mités, et ils étaient tous <b>d'une seule espèce</b> (<i>Tosafot</i>), <b>ou</b> s'ils étaient <b>de trois</b> <b>espèces différentes, sont interdits, et ils se joignent les uns aux autres</b> pour constituer une mesure complète. <b>Et Ḥizkiya a dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Et</b> comment les rabbins,</b> c'est-à-dire Rabbi Tarfo
 <b>Et</b> comment <b>Rabbi Eliezer</b> répond-il à cette affirmation ? N'est-il <b>pas</b> le cas que <b>même si</b> la Torah <b>écrit : " Par leurs familles, par les maisons de leurs pères "</b> néanmoins, le terme <b>" des siens " vient l'exclure ? Ici aussi, bien qu'il soit écrit : "La femme et ses enfants seront à son maître"</b> (Exode 21, 4), d'où il découle que l'enfant d'une servante cananéenne est comme elle, néanmoins, le terme <b>"de son" vient et l'exclut. Et</b> comment <b>les rabbins,</b> Rabbi Tarfon, répondent-ils à cette affirmation ? Ils disent : <b>Toute progéniture dans le ventre d'une servante cananéenne est considérée comme la progéniture dans le ventre d'un animal.</b> Par conséquent, ses enfants n'héritent pas du statut du père, même si son lignage est vicié.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

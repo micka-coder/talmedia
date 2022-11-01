@@ -8,4 +8,4 @@
 <b>De tous ses descendants.</b> Cela renvoie à "de son peuple", c'est-à-dire à toute la descendance de son peuple. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

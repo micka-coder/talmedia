@@ -15,4 +15,4 @@ La Guemara demande : <b>Mais en ce qui concerne</b> le cas <b>de Rabbi Yosei, fi
 La Gemara répond : <b>Là,</b> les acheteurs ont <b>causé leur propre perte. Puisque</b> ils savaient <b>qu'il y a un mari, ils n'auraient pas dû acheter</b> un bien <b>à une femme vivant sous</b> l'autorité de <b>son mari,</b> le soustrayant au mari et à ses héritiers.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara explique qu'il était nécessaire de préciser que la déclaration de
 <b>Mais ici,</b> dans le cas de celui qui évalue un ustensile, <b>où il n'y a pas</b> de possibilité <b>d'erreur,</b> on peut argumenter que <b>une personne sait certainement qu'il n'y a pas d'évaluation pour un ustensile, et qu'elle</b> a donc <b>intentionné et dit</b> sa déclaration <b>dans un but d'évaluation,</b> c'est-à-dire qu'elle voulait faire le vœu de donner la valeur de l'ustensile. Par conséquent, la Guemara <b>nous apprend</b> que la déclaration du Rav est conforme à l'opinion de Rabbi Meir uniquement, et non à celle des Rabbins. Les rabbins soutiennent qu'une personne émet une déclaration de consécration pour rien, même dans un tel cas, et donc sa déclaration est prise à la valeur nominale.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Rav Ḥanan bar Rava <b>lui a dit : Mais plusieurs fois j'ai dit devant Rav</b> 
 <b>Et s'il s'agissait d'un long voyage</b> à Jérusalem, <b>ils peuvent prendre avec eux des subsistances,</b> bien qu'il soit ordinairement interdit de les porter le jour du Shabbat, <b>puisque pour</b> une distance de <b>marche d'une nuit et d'un jour,</b> les témoins <b>peuvent profaner le Shabbat et sortir pour</b> donner des <b>témoignages</b> pour déterminer le début du <b>mois. </b> Ceci est <b>comme il est dit : "Ce sont les Fêtes du Seigneur,</b> des rassemblements sacrés, <b>que tu annonceras en leurs saisons"</b> (Lévitique 23:4). Ceci enseigne que, dans tous les cas, les Fêtes doivent être fixées à leurs moments appropriés, même si cela implique la transgression d'interdictions de la Torah.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

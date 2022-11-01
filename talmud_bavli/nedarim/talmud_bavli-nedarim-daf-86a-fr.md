@@ -15,4 +15,4 @@
 <b>Rav Ashi s'oppose à cette</b> comparaison : <b>Les cas sont-ils</b> <b>comparables ? Là,</b> dans le cas d'un champ, il y a un délai <b>fixe</b> de dix ans. Mais dans le cas d'une <b>femme, y a-t-il un délai fixe</b>, pour qu'elle puisse savoir à l'avance quand elle sera divorcée et libérée de la juridiction de son mari ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

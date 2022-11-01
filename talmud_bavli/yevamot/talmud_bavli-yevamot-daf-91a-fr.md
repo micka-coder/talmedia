@@ -60,4 +60,4 @@ La Guemara réfute cette suggestion : <b>En fait,</b> la <i>baraita</i> <b>est</
 <b>Rav Ashi dit</b> qu'il n'y a aucune difficulté ici, car la déclaration de Rabbi Shimon doit être expliquée différemment. En effet, Rabbi Chimon <b>a enseigné</b> sa décision <b>en ce qui concerne</b> l'<b>interdiction</b> concernée, et non la question d'un acte de divorce, <b>et voici ce qu'il a dit : </b> Si <b>le tribunal a agi</b> conformément à <b>leurs propres <b>instructions,</b> c'est <b>comme si</b> il s'agissait d'un <b>acte volontaire</b> <b>d'un homme avec une femme, et elle est</b> donc <b>interdite à son mari</b> comme une femme qui a intentionnellement engagé des relations avec un autre homme. Cependant, si elle s'est mariée <b>sur la base</b> de témoignages de <b>témoins,</b> ils l'ont considéré <b>comme si</b> c'était <b>un acte involontaire</b> <b>d'un homme avec une femme, et elle n'est pas interdite à son mari.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

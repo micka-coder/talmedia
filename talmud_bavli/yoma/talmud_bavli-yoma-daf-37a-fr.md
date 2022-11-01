@@ -51,4 +51,4 @@ La mishna poursuit à propos de ben Katin : <b>Il a aussi fabriqué une machine 
 La mishna continue : <b>Le roi Munbaz</b> apporterait les fonds nécessaires pour <b>faire les poignées de tous les</b> <b>ustensiles de Yom Kippour</b> en or. La Guemara demande : S'il voulait donner de l'argent pour embellir le Temple, <b>il aurait dû faire</b> les vases <b>eux-mêmes en or,</b> pas seulement les poignées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

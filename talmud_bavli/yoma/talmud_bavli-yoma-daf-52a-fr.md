@@ -30,4 +30,4 @@ La Gemara explique le dilemme. Doit-on lire : <b>Et</b> Salomon <b>prépara une 
 La Guemara s'étonne de cette explication : <b>Et est-ce que</b> Yosef de Hutzal était vraiment <b>incertain</b> de la façon de ponctuer ce verset ? <b>Mais n'était-il pas enseigné</b> dans une <i>baraita</i> que <b>Isi ben Yehuda dit :</b> Il y a <b>cinq versets dans la Torah dont</b> le sens <b>ne peut être décidé,</b> c'est-à-dire qu'il n'est pas clair d'après le texte comment les versets doivent être lus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

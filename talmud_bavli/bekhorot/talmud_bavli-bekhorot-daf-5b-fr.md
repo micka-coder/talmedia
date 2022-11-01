@@ -87,4 +87,4 @@ La Guemara répond que <b>il exige</b> cette phrase <b>pour ce qui est enseigné
 <b>Et encore je peux dire</b> que l'expression "premier-né d'un âne" indique simplement que les <b>ânes premiers-nés</b> seuls sont rachetés <b>au moyen d'un agneau,</b> tandis que les <b>chevaux et chameaux premiers-nés</b> sont rachetés <b>au moyen de n'importe quel</b> autre <b>élément.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

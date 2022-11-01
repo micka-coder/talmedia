@@ -86,7 +86,7 @@
 <b>Et ses jours</b> Les jours de sa floraison ne seront pas prolongés, car il a été promis à Israël (Jér. 29:10) : "Quand soixante-dix ans de Babylone seront passés, je me souviendrai de toi". Et ce souvenir se fera par l'intermédiaire de Cyrus, roi de Perse, qui prendra le royaume de Babylone après Darius le Mède, car tous deux, la Médie et la Perse, se sont unis sur elle, [c'est-à-dire sur Babylone,] et ont stipulé entre eux : si les rois sont de nous, les gouverneurs sont de vous.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La dure prophétie de Babylone</b> La prophétie du châtiment qui [tombera] sur Babylone.
 
@@ -174,4 +174,4 @@
 <b>Et ses jours</b> Les jours de sa floraison ne seront pas prolongés, car il a été promis à Israël (Jér. 29:10) : "Quand soixante-dix ans de Babylone seront passés, je me souviendrai de toi". Et ce souvenir se fera par l'intermédiaire de Cyrus, roi de Perse, qui prendra le royaume de Babylone après Darius le Mède, car tous deux, la Médie et la Perse, se sont unis sur elle, [c'est-à-dire sur Babylone,] et ont stipulé entre eux : si les rois sont de nous, les gouverneurs sont de vous.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

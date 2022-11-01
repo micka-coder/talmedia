@@ -72,4 +72,4 @@ La Gemara rejette cette affirmation : Il existe des <b>additionnelles</b> descri
 La Gemara déclare : Que <b>une matière dérivée via une juxtaposition enseigne ensuite</b> sa <i>halakha</i> <b>via une inférence <i>a fortiori</i></b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

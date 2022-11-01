@@ -39,4 +39,4 @@ Nous avons appris dans la mishna : <b>Si,</b> en raison de la largeur du canyon 
 <b>Et</b> en outre, <b>même</b> un <b>esclave</b> gentil et <b>même</b> un <b>serviteur gentil,</b> dont les témoignages sont généralement considérés comme peu fiables, <b>sont dignes de confiance pour dire : La limite du Shabbat</b> s'étendait <b>jusqu'ici ; car les Sages n'ont pas énoncé la question,</b> les lois des limites du Shabbat, <b>pour être rigoureuses, mais</b> plutôt <b>pour être indulgentes.</b> L'interdiction de marcher plus de deux mille coudées est d'origine rabbinique et est donc interprétée avec indulgence.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

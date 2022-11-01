@@ -69,4 +69,4 @@ La <i>baraita</i> continue : <b>Depuis</b> le temps <b>où il y a eu une augment
 § La mishna enseignait que <b>à partir</b> du moment <b>où Yosei ben Yo'ezer est mort</b> les grappes ont cessé. La Guemara pose une question : <b>Quel est</b> le sens des <b>grappes [<i>eshkolot</i>] ? Rav Yehuda répond</b> que <b>Shmuel dit :</b> Cela signifie <b>un homme qui contient tous les [<i>ish shehakol bo</i>]</b> éléments de la Torah et des mitzvot. La mishna enseigne en outre que <b>Yoḥanan le Grand Prêtre a retiré la déclaration de la dîme.</b> La Gemara pose une question : <b>Quelle est la raison</b> pour laquelle il a fait cela ? <b>Rabbi Yosei, fils de Rabbi Ḥanina, dit : Parce qu'ils n'ont pas donné</b> la dîme <b>de la manière appropriée</b> comme le stipule la Torah. De quelle manière ? <b>Comme le Miséricordieux déclare</b> dans la Torah <b>qu'ils devaient donner</b> la première dîme <b>aux Lévites,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

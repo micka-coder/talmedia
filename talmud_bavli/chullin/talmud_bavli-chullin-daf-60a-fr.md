@@ -39,4 +39,4 @@ Ils ont raisonné ainsi : <b>Si le Saint, Béni soit-Il, souhaite</b> le <b>mél
 En ce qui concerne la description ci-dessus, <b>Ravina soulève un dilemme :</b> Si l'on <b>greffe deux</b> espèces de <b>graminées l'une sur l'autre,</b> comme on le fait pour les arbres,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

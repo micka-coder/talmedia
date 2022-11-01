@@ -48,4 +48,4 @@ La Gemara suggère : <b>Et qu'il leur dise : Gardez</b> la <b>mitzva,</b> c'est-
 La Guemara suggère : <b>Et qu'il leur dise : Gardez 613 mitzvot.</b> La Gemara répond : <b>Et selon votre raisonnement, qu'il</b> dise simplement : </b> Prêtez le serment <b>selon ma compréhension. Pourquoi ai-je</b> besoin qu'il dise : <b>Selon la compréhension de l'Omniprésent ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

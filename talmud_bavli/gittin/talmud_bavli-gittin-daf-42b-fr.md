@@ -54,4 +54,4 @@ La Gemara rejette cette idée : <b>Comment</b> ces cas peuvent-ils <b>être comp
 La Gemara explique : <b>Soulevez le dilemme selon</b> l'avis de <b>Rabbi Meir,</b> qui soutient que l'on peut transférer la propriété d'une entité qui n'est pas encore venue au monde, et <b>soulevez le dilemme selon</b> l'avis de <b>les rabbins,</b> qui soutient que l'on ne peut pas. <b>Soulevez le dilemme selon</b> l'avis du <b>Rabbi Meir,</b> car <b>Rabbi Meir déclare</b> que <b>une personne peut transférer la propriété</b> d'une <b>entité qui n'est pas encore venue au monde uniquement</b> dans un cas <b>comme le produit</b> d'un <b>palme dattier, </b> car il s'agit d'une entité <b>dont c'est la manière de venir,</b> et comme on peut être assuré que les dattes poussent, on peut les vendre même avant. <b>Cependant, ici, qui dira que</b> l'esclave <b>sera encorné ? Et</b> même <b>si vous dites qu'il sera encorné, d'où</b> savez-vous <b>que</b> le propriétaire du bœuf qui l'a encorné <b>paye</b> la peine ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

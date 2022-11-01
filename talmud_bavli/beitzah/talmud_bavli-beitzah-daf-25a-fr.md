@@ -51,4 +51,4 @@ La Gemara rejette cet argument : <b>Non,</b> la mishna peut être comprise comme
 <b>Mais Rabbi Ḥiyya n'a-t-il pas enseigné : De l'endroit même où</b> l'animal <b>est abattu ? Au contraire,</b> la Guemara rejette l'explication précédente et dit que <b>Rami bar Abba</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara demande : <b>Mais est-ce que ce</b> verset : <b>"Qu'ils amènent leur
 <b>Immédiatement, les nations du monde</b> se <b>rassembleront</b> <b>et viendront se mêler</b> les unes aux autres, <b>comme il est dit : "Toutes les nations sont rassemblées</b> et que les peuples soient assemblés". <b>Le Saint, Béni soit-Il,</b> leur <b>dira : N'entrez pas devant Moi en étant mêlés ; laissez plutôt entrer chaque nation</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

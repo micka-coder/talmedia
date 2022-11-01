@@ -39,4 +39,4 @@ En ce qui concerne <b>la question de rendre les graines susceptibles</b> d'impur
 <b>Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

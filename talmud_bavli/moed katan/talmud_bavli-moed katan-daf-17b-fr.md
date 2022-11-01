@@ -57,4 +57,4 @@ La Guemara répond : <b>Mais n'a-t-on pas dit à propos de cette</b> <i>baraita<
 <b>Ulla a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehouda en ce qui concerne le deuil, mais la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yosei en ce qui concerne les</b> jours intermédiaires de la <b>Fête. Shmuel a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

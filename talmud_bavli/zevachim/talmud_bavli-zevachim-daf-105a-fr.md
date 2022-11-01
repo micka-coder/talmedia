@@ -48,4 +48,4 @@ La Gemara clarifie : <b>Ne soulevez pas le dilemme</b> dans un cas <b>où</b> la
 <b>Après que</b> Abba bar Shmuel <b>a soulevé le dilemme, il l'a ensuite résolu :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

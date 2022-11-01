@@ -27,7 +27,7 @@ La Gemara demande : <b>Toutes les revendications</b> où un serment est requis <
 <b>Au contraire,</b> la Gemara suggère une explication alternative de la dispute tannaïtique. <b>Ici,</b> Rabbi Eliezer ben Ya'akov et les rabbins <b>sont en désaccord par rapport</b> à la déclaration de <b>Rabba, comme Rabba a dit : Pourquoi la Torah a-t-elle dit que</b> celui qui <b>fait un aveu partiel</b> en réponse à <b>la créance</b> est tenu de <b>prêter serment ?</b> C'est parce qu'il y a une <b>présomption</b> qu'une <b>personne</b> ne serait pas <b>insolente en présence de son créancier</b> au point de nier sa dette. Vraisemblablement, <b>cet emprunteur</b> qui a fait un aveu partiel <b>aurait aimé nier la totalité</b> du prêt, <b>et</b> le fait <b>qu'il n'a pas nié</b> la totalité du prêt <b>est dû</b> au fait <b>qu'une personne</b> ne serait <b>pas</b> si <b>insolente</b> en présence de son créancier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara répond : La raison pour laquelle le <i>tanna</i> a cité spécifiquement un cas où chacun est situé dans une terre différente est <b>que</b> la situation <b>standard</b> en ce qui concerne les déplacements entre la <b>Judée et</b> la <b>Galilée équivaut à une période de crise,</b> car la guerre était monnaie courante, et il y avait une bande de territoire samaritain entre la Judée et la Galilée.
 
@@ -56,4 +56,4 @@ La Gemara demande : <b>Toutes les revendications</b> où un serment est requis <
 <b>Au contraire,</b> la Gemara suggère une explication alternative de la dispute tannaïtique. <b>Ici,</b> Rabbi Eliezer ben Ya'akov et les rabbins <b>sont en désaccord par rapport</b> à la déclaration de <b>Rabba, comme Rabba a dit : Pourquoi la Torah a-t-elle dit que</b> celui qui <b>fait un aveu partiel</b> en réponse à <b>la créance</b> est tenu de <b>prêter serment ?</b> C'est parce qu'il y a une <b>présomption</b> qu'une <b>personne</b> ne serait pas <b>insolente en présence de son créancier</b> au point de nier sa dette. Vraisemblablement, <b>cet emprunteur</b> qui a fait un aveu partiel <b>aurait aimé nier la totalité</b> du prêt, <b>et</b> le fait <b>qu'il n'a pas nié</b> la totalité du prêt <b>est dû</b> au fait <b>qu'une personne</b> ne serait <b>pas</b> si <b>insolente</b> en présence de son créancier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

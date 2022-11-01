@@ -42,4 +42,4 @@ Quant au libellé de la signature, si un témoin a signé : <b>Untel, témoin,</
 <b>Rav Abba dit</b> que <b>Rav dit :</b> Il s'agit d'un cas <b>où il y a de l'espace</b> sur le papier <b>sous</b> le premier acte de divorce, de sorte qu'il est clair que rien n'a été découpé. La Gemara demande : <b>Et peut-être a-t-il coupé la date de ce dernier</b> acte de divorce, le faisant ressembler à une continuation du premier, qui n'a en fait jamais été terminé ? La Guemara répond : <b>Comme Rabbi Abba dit</b> que <b>Rav dit</b> que c'est un cas <b>où il y a un espace en dessous</b> du premier acte de divorce,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

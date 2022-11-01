@@ -57,4 +57,4 @@ La Gemara explique plus loin : <b>Quel est le raisonnement</b> derrière l'opini
 La Gemara demande : <b>Et Rava, quelle est la raison</b> pour laquelle <b>il ne tire pas</b> une analogie verbale <b>d'une génisse dont le cou est brisé ?</b> La Gemara répond : Rava aurait pu <b>vous dire :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

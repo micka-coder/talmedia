@@ -57,4 +57,4 @@ A propos de cette <i>halakha</i>, <b>Rava dit : Ils ont enseigné</b> cette <i>h
 <b>Abaye soulève une objection à</b> Rava basée sur la même <i>baraita</i> citée précédemment : <b>Quel</b> est le sens quand <b>le verset dit : "Si</b> il apporte <b>un agneau'</b> Il vient <b>inclure le substitut d'un agneau pascal après Pessah, qui est offert en sacrifice de paix.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -88,5 +88,5 @@
 ### passuk 26
 <b>Parce que, comme si un homme se lève, etc.</b> Selon l'interprétation simple, voici son sens : " Car elle a été contrainte, il l'a maîtrisée, semblable à un homme qui se lève contre son prochain de façon meurtrière. Nos Sages expliquent, ici, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> 'Cela semble enseigner, mais apprend par la suite, etc.'. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

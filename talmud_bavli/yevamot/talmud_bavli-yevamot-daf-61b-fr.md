@@ -54,4 +54,4 @@ Le <i>baraita</i> cité plus haut mentionne que <b>Rabbi Elazar dit :</b> Dans l
 § La mishna indique que <b>Beit Shammai disent</b> que l'on accomplit la mitzva d'être fécond et de se multiplier lorsqu'on a <b>deux mâles.</b> La Gemara demande : <b>Quelle est la raison de Beit Shammai?</b> La Gemara répond : <b>Nous apprenons</b> ceci <b>de Moïse comme il est écrit : "Les fils de Moïse, Gershom et Eliezer"</b> (I Chroniques 23:15). Puisque Moïse n'a pas eu d'autres enfants, deux fils doivent être suffisants pour accomplir la mitsva. <b>Et</b> la raison de <b>Beit Hillel</b> est que <b>nous apprenons de la création du monde,</b> puisque l'humanité a été créée mâle et femelle. La Gemara demande : <b>Et Beit Shammai, qu'ils apprennent de la création du monde</b> également. La Gemara répond que Beit Shammai pourrait vous dire : <b>Nous ne déduisons pas</b> un cas où il est <b>possible</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Nous avons appris dans la mishna, parmi les responsables de l'exécution des cat
 Nous avons appris dans la mishna, parmi les personnes responsables d'effectuer des catégories primaires de travail : <b>Et celui qui égorge</b> un animal le jour du Shabbat. La Gemara demande : Comme il n'y avait pas d'abattage nécessaire à la construction du Tabernacle, <b>celui qui abat</b> un animal, <b>à cause de quel</b> travail interdit est-il <b>responsable ? Rav a dit :</b> Il est responsable <b>en raison de la teinture,</b> car au cours de l'abattage, la peau est teintée de sang. <b>Et Shmuel a dit : </b> Il est responsable <b>pour avoir pris une vie.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

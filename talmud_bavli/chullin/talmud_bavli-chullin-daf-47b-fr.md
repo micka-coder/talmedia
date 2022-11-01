@@ -48,4 +48,4 @@ La Guemara relate que <b>Rabbi Ḥananya tomba malade. Rabbi Natan et tous les �
 <b>Rav Naḥman dit : Si le poumon</b> a été partiellement <b>atrophié</b> et qu'il ne reste qu'une partie de la chair, <b>mais que sa membrane</b> <b>existe encore,</b> l'animal est <b>cacher.</b> La Guemara note : <b>Cela est également enseigné</b> dans une <i>baraita</i> : <b>Si le poumon était atrophié, mais que sa membrane</b> <b>existe encore, même</b> si l'espace libéré par le poumon atrophié peut <b>contenir un quart de</b><i>log</i> de liquide, l'animal est <b>cacher.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

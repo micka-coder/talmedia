@@ -20,4 +20,4 @@
 <b>À cause de moi, les justes te couronneront</b> À cause de moi, les justes te couronneront et rendront grâce à ton nom, car tu soutiens ceux qui te craignent.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

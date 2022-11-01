@@ -81,4 +81,4 @@ La Gemara demande : <b>Quelle est la</b> <b>différence pratique entre</b> ces d
 La Guemara relate que <b>ils ont envoyé de là-bas,</b> Eretz Yisrael, une communication selon laquelle tous ces cas cités ci-dessus, dans lesquels le tribunal perçoit le paiement d'une dette sur les biens des orphelins mineurs, font référence à des situations <b>où le tribunal a <b>excommuniqué</b> le père <b>et il est décédé pendant</b> l'<b>excommunication. Et la <i>halakha</i> est conforme</b> à l'opinion de <b>Rav Huna, fils de Rav Yehoshua.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

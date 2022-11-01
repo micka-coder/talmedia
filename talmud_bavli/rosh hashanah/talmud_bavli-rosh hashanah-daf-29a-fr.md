@@ -54,4 +54,4 @@ Poursuivant la discussion sur l'exécution d'une obligation pour le compte d'aut
 <b>Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

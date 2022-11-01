@@ -11,5 +11,5 @@ Il y avait six chambres dans la cour, trois au nord et trois au sud. Au nord se 
 ### michna 4
 Au sud se trouvaient la chambre de bois, la chambre de l'exil et la chambre des pierres taillées. La chambre de bois : Rabbi Eliezer ben Jacob dit : J'ai oublié à quoi elle servait. Abba Shaul dit : C'était la chambre du grand prêtre, et elle était derrière les deux autres, et un seul toit couvrait les trois. Dans la chambre de l'exil, il y avait une citerne fixe, surmontée d'une roue, d'où l'on tirait de l'eau pour toute la cour. Dans la chambre en pierre de taille, le grand Sanhédrin d'Israël siégeait et jugeait le sacerdoce. Un prêtre en qui l'on trouvait une disqualification mettait des vêtements noirs, s'enveloppait de noir et s'en allait. Celui en qui on ne trouvait aucune disqualification mettait des vêtements blancs, s'enveloppait de blanc et entrait et servait avec ses frères prêtres. Ils avaient l'habitude de faire une fête parce qu'aucune tare n'avait été trouvée dans la semence du prêtre Aaron, et ils avaient l'habitude de dire : Béni soit l'Omniprésent, béni soit-il, car aucune tare n'a été trouvée dans la semence d'Aaron. Béni soit Celui qui a choisi Aaron et ses fils pour se tenir debout afin d'exercer le ministère devant le Seigneur dans le Saint des Saints.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

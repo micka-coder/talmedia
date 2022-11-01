@@ -36,4 +36,4 @@ La Gemara demande : Dans le cas de <b>Samuel, qu'est-ce</b> qu'il craignait ? <b
 L'ange de la mort lui <b>dit : Je t'ai dit</b> d'amener <b>Miriam,</b> la <b>raiseuse</b> de <b>cheveux de femmes.</b> Son agent <b>lui a dit : Si oui, ramène-la</b> à la vie. <b>Il lui dit : Puisque tu</b> l'as déjà <b>amenée, qu'elle soit comptée</b> dans le nombre des personnes décédées. Apparemment, cette femme est morte involontairement. Rav Beivai a demandé à l'agent : <b>Mais</b> comme son heure de mourir n'était pas encore arrivée, <b>comment avez-vous pu</b> la tuer ? </b> L'agent a répondu qu'il en avait eu l'occasion, car <b>elle tenait une pelle dans sa main et</b> avec elle elle <b>allumait</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

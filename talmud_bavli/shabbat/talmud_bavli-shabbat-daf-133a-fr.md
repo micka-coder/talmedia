@@ -60,4 +60,4 @@ La Guemara commente : <b>Et</b> les deux déclarations selon lesquelles la <i>ha
 <b>Et</b> le Chabbat <b>on ne peut pas faire une poche</b> pour la placer sur la circoncision comme pansement <b><i>ab initio</i>, mais il peut envelopper un chiffon par-dessus</b> comme pansement. <b>S'il n'a pas préparé</b> le pansement <b>la veille de Chabbat</b> en l'apportant à l'endroit où la circoncision a été pratiquée, <b>il enveloppe</b> le pansement <b>sur son doigt et l'apporte</b> le Chabbat, <b>même depuis une autre cour.</b> Si les Sages ont permis qu'on l'apporte, ils ont exigé qu'on l'accomplisse de manière inhabituelle, en le portant à la manière d'un vêtement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

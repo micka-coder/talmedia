@@ -45,4 +45,4 @@ La mishna poursuit : Si <b>le sommet</b> du <i>lulav</i> <b>a été sectionné</
 La Guemara demande : <b>Et un <b>lulav</b> <i>fendu</b> <b>est-il apte ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Un <i>lulav</i></b> qui est <b>plié</b> au sommet,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

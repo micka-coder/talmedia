@@ -18,4 +18,4 @@ La Guemara demande également : En effet, il y a une amplification dans la Torah
 La Guemara demande : <b>Et selon</b> l'avis de <b>Rava, qui a dit</b> que la différence pratique <b>entre</b> les deux avis concerne le tissu <b>trois par trois</b> mètres <b>dans les autres vêtements, que Rabbi Chimon ben Elazar est d'avis</b> qu'ils peuvent devenir rituellement impurs, alors que le <b><i>tanna</i> de l'école de Rabbi Yishmael n'est pas de</b> l'avis qu'ils peuvent devenir rituellement impurs, dans le cas d'un tissu qui fait <b>trois par trois</b> pouces <b>dans d'autres vêtements,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

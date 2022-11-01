@@ -42,4 +42,4 @@ La différence est que <b>une sourde-muette dès le départ, de même qu'elle es
 <b>Si l'</b> homme halakhiquement <b>compétent, mari de la</b> femme halakhiquement <b>compétente, meurt, que doit faire le</b> homme <b>sourd-muet,</b> qui est <b>le mari de la femme sourde-muette ? Il peut consommer le</b> mariage lévirat, <b>mais il ne peut jamais la divorcer,</b> car un sourd-muet n'est pas halakhiquement compétent pour divorcer d'une femme à laquelle il est marié par la loi de la Torah. <b>Quoi, ne fait-on pas</b> référence à <b>un sourd-muet dès le départ ? Et il est enseigné : Oui, il peut consommer le mariage lévirien,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Rav Ashi <b>lui dit : La Torah a-t-elle été donnée</b> de manière fragmentai
 <b>Rabbi Yoḥanan dit : Et tous deux,</b> c'est-à-dire les rabbins ainsi que Rabbi Yehouda et Rabbi Elazar, <b>dérivent</b> leurs opinions <b>d'un seul verset : "Sois seulement inébranlable en ne mangeant pas le sang, car le sang est la vie;</b>".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

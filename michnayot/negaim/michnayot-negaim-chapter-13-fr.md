@@ -35,5 +35,5 @@ Si une metzora est entrée dans une maison, tous les récipients qui s'y trouven
 ### michna 12
 S'il entre dans une synagogue, on doit lui faire une cloison de dix poignets de haut et de quatre coudées de large. Il doit entrer le premier et sortir le dernier. Tout récipient qui offre une protection par un couvercle bien ajusté dans la tente d'un cadavre offre une protection par un couvercle bien ajusté dans la maison de celui qui est affligé d'un néga, et tout ce qui offre une protection lorsqu'il est couvert dans la tente d'un cadavre offre une protection lorsqu'il est couvert dans la maison de celui qui est affligé d'un néga, les paroles de Rabbi Meir. Rabbi Yose dit : tout récipient qui offre une protection en ayant une couverture bien ajustée dans la tente d'un cadavre offre une protection lorsqu'il est couvert dans la maison d'une personne atteinte d'une néga ; et tout ce qui offre une protection lorsqu'il est couvert dans la tente d'un cadavre reste pur même lorsqu'il est découvert dans une maison lépreuse.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

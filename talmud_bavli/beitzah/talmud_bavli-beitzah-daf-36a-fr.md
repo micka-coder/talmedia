@@ -66,4 +66,4 @@ La Guemara rejette cet argument. <b>Et</b> comment pouvez-vous <b>comprendre</b>
 Au contraire, <b>en fait, toute</b> la <i>baraïta</i> est en accord avec <b>Rabbi Yehouda, et avec quel</b> cas <b>nous traitons ici ? </b> Avec une ruche <b>qui a des fenêtres,</b> c'est-à-dire de petites ouvertures, en plus de l'ouverture principale sur le dessus, de sorte que certaines des fenêtres restent découvertes et couvrir la ruche ne piège pas inévitablement les abeilles. <b>Et</b> dans la <i>baraita</i> <b>vous</b> devez <b>ne pas dire, selon Rabbi Yehuda : Pourvu qu'il n'ait pas l'intention de piéger</b> les abeilles, ce qui impliquerait que le facteur déterminant est l'intention de celui qui les couvre,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -68,4 +68,4 @@
 <b>Ils battent des mains sur eux</b> Ceux qui ont connu [lui] il y a longtemps et qui voient maintenant sa ruine.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

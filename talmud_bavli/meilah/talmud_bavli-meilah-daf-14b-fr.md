@@ -27,4 +27,4 @@ La Gemara soulève une objection à ce raisonnement à partir de ce que <b>nous 
 <b>Rav Pappa a dit</b> que <b>si la mishna faisait référence <b>aux rondins</b> que les trésoriers du Temple ont acquis pour être utilisés dans la construction <b>à partir de ce</b> point, </b> alors <b>en effet</b> ils ne devraient pas être consacrés jusqu'à ce qu'ils soient fixés dans la structure. <b>Mais lorsque nous avons appris dans la mishna</b> que l'on est responsable de la mauvaise utilisation du bois, la <i>tanna</i> se référait <b>aux bûches</b> acquises pour être utilisées <b>le jour même</b>.</b> Puisqu'elles sont destinées à être utilisées immédiatement, il n'y a aucune inquiétude que l'on puisse s'asseoir dessus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

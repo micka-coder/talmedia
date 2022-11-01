@@ -21,4 +21,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> <b>ce que Rav Huna bar Ḥiyya a
 <b>C'est plutôt difficile, comme cela est enseigné</b> dans une <i>baraita</i> à propos de la coutume de renverser les lits dans la maison d'un endeuillé : En ce qui concerne <b>un <i>dargash</i></b> dans sa maison, l'endeuillé <b>ne le renverse pas, mais</b> il se contente de le <b>déposer</b> sur le côté. <b>Et si vous dites</b> qu'un <i>dargash</i> <b>est un lit de fortune, n'est-il pas enseigné</b> dans une <i>baraita</i> : Un pleureur <b>qui</b> est tenu de <b>renverser son lit</b> est tenu de <b>renverser non seulement son propre lit, mais</b> de <b>renverser tous les lits qu'il a à l'intérieur de sa maison,</b> même ceux qui ne servent pas à dormir. Pourquoi, alors, n'est-il pas tenu de renverser le <i>dargash</i> ? La Guemara rejette cette affirmation : <b>Ceci</b> n'est <b>pas difficile;</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

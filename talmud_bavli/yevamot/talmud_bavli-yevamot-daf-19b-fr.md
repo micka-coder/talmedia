@@ -39,4 +39,4 @@ Plus loin dans le <i>baraita</i>, il est enseigné : Si le troisième frère <b>
 <b>Au contraire,</b> la question était la suivante : Rabbi Shimon a donné une explication si convaincante de son opinion qu'elle soulève la question : <b>Quelle est la raison de l'opinion des Rabbins'</b> ? La Guemara répond que <b>le verset stipule :</b> "Son beau-frère la...<b>prendra chez lui pour en faire sa femme et consommera le mariage lévirien [<i>veyibbema</i>]"</b> (Deutéronome 25:5). Cela signifie que <b>le premier lien lévirien est toujours sur elle.</b> Même après qu'elle ait été prise comme épouse par le second frère, son statut antérieur d'épouse de son premier mari défunt est toujours en vigueur. La Gemara conteste cette affirmation : <b>Mais</b> qu'en est-il de <b>ce que nous apprenons</b> dans une mishna (38a) : Si <b>il a pris</b> sa <i>yevama</i> <b>en mariage</b> comme sa femme, <b>alors son</b> statut juridique est <b>celui de sa femme dans tous les sens ; et Rabbi Yosei bar Ḥanina a dit :</b> Ceci <b>enseigne</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

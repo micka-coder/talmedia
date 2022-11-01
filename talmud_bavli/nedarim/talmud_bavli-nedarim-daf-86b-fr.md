@@ -15,4 +15,4 @@ La Gemara demande : <b>Si oui, pourquoi ai-je</b> besoin de la raison énoncée 
 <strong>GEMARA :</strong> En ce qui concerne la décision de la mishna selon laquelle si la femme d'un homme a fait un vœu, mais qu'il a pensé que c'était sa fille qui avait fait le vœu et qu'il a annulé le vœu, il doit annuler le vœu une seconde fois, la Gemara demande : <b>Est-ce à dire que</b> la phrase "Mais si son mari <b>l'a désavouée [<i>otah</i>]"</b> (Nombres 30:9) <b>est précise ?</b> En d'autres termes, l'utilisation du mot elle, <i>otah</i>, indique-t-elle qu'un homme peut annuler un vœu uniquement pour la femme spécifique qui l'a fait ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

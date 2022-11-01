@@ -66,7 +66,7 @@
 <b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereshit 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -134,4 +134,4 @@
 <b>S'intensifiant de plus en plus. </b> Très vexant, <i>contrarios</i>, en ancien français., comme dans, "qui se rebellera [יַמְרֶה] contre ton ordre,"<sup>13</sup><i class="footnote">Yehoshua 1:18. </i> [et comme dans,] "Tu as été contraire [מַמְרִים],"<sup>14</sup><i class="footnote">Devorim 9:24. </i> [et comme dans,] "et ils étaient une source d'amertume spirituelle [מֹרַת רוּח]."<sup>15</sup><i class="footnote">Bereshit 26:38. </i> D'autres interprètent מוֹרֶה מְאֹד comme "très bas", une expression de, "Il jeta [יָרָה] dans la mer."<sup>16</sup><i class="footnote">Shemos 15:4.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

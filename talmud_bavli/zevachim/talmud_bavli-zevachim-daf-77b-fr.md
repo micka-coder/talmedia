@@ -30,4 +30,4 @@ La Guemara demande : <b>Et les rabbins,</b> comment répondent-ils à cette affi
 <strong>MISHNA:</strong> Dans le cas du <b>sang</b> d'une offrande propre au sacrifice <b>qui a été mélangé à de l'eau, si</b> le mélange <b>a l'apparence du sang</b> il est <b>convenable</b> pour l'aspersion sur l'autel, même si la majorité du mélange est de l'eau. Si le sang <b>était mélangé avec</b> du <b>vin rouge, on considère</b> le vin <b>comme si c'était de l'eau.</b> Si cette quantité d'eau laissait au mélange l'apparence du sang, il est apte à être présenté. Et de même si le sang <b>a été mélangé au sang</b> d'un <b>animal domestiqué non sacré ou au sang</b> d'un <b>animal non domestiqué non sacré, on considère</b> le sang non sacré <b>comme si c'était de l'eau.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

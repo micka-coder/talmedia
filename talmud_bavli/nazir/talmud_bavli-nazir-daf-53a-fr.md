@@ -27,4 +27,4 @@ La Guemara s'interroge sur la décision de <i>halakha</i> dans ce cas. <b>Mainte
 § Dans sa liste des sources d'impureté pour lesquelles un nazirite doit se raser, la mishna enseigne : <b>Et un demi-<i>kav</i> d'os.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

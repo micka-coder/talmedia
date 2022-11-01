@@ -18,4 +18,4 @@
 Lorsqu'ils arrivèrent au sujet de la mishna, Sumakhos <b>leur dit : Rabbi Meir m'a enseigné comme ceci : Un nazirite se rase pour</b> devenir impur de <b>ces</b> sources suivantes d'impureté <b>rituelle : Pour</b> l'impureté communiquée par <b>un cadavre et pour</b> l'impureté communiquée par <b>un corpus d'olives provenant d'un cadavre. Rabbi Yehuda se mit en colère et dit à</b> ses disciples : <b>Ne vous ai-je pas dit ainsi : Ne laissez pas entrer ici les élèves de Rabbi Meir car ils sont vexatoires ?</b> Il expliqua son agacement. La clause : Pour un cadavre, n'est pas nécessaire, car, si un nazirite <b>doit se raser pour</b> l'impureté communiquée par <b>un corpuscule d'olive d'un cadavre,</b> n'est-ce pas <b>à plus forte raison</b> qu'il doit se raser <b>pour</b> l'impureté communiquée par un <b>corpse entier ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

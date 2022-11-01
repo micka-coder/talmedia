@@ -120,7 +120,7 @@
 <b>Elle s'assiéra sur le sol</b> [Cela dénote au sens figuré qu'ils seront réduits] d'une station élevée à une station basse. (Lam. 2 : 10) "...s'assiéra sur le sol et se taira", le 9 Av.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Extrait de Jérusalem...</b> Toute cette section est expliquée dans le Tractate Chagigah (14a) : Isaïe a maudit Israël [c'est-à-dire qu'il a prophétisé des tribulations pour eux] avec dix-huit malédictions, mais il n'était pas satisfait jusqu'à ce qu'il dise (verset 5) : " La jeunesse se comportera de manière hautaine contre le vieux, et le bas contre l'honorable. "
 
@@ -242,4 +242,4 @@
 <b>Elle s'assiéra sur le sol</b> [Cela dénote au sens figuré qu'ils seront réduits] d'une station élevée à une station basse. (Lam. 2 : 10) "...s'assiéra sur le sol et se taira", le 9 Av.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

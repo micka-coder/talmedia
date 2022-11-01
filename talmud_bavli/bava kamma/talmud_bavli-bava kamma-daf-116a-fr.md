@@ -39,4 +39,4 @@ A propos de cet épisode, <b>Rav Aḥa de Difti dit à Ravina : Pourquoi</b> ét
 Le Rav <b>souleva une objection à</b> la décision de Rabbi Yehuda HaNasi à partir d'une <i>baraita</i> : Dans un cas de <b>qui engage un ouvrier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara cite une preuve pour Rabbi Yoḥanan : Il est clair qu'il s'agit de l
 Le <i>baraita</i> continue : <b>Et dans</b> le cas d'un <b>holocauste, même</b> s'il ne reste qu'une <b>demi-bulle d'olive de chair et une demi-bulle d'olive de graisse, il asperge le sang, parce que dans</b> le cas d'un <b>holocauste, il est entièrement consommé,</b> c'est-à-dire que la chair et la graisse étant toutes deux brûlées sur l'autel, il y a en fait une olive-bulle de l'offrande qui est désignée pour être brûlée sur l'autel. <b>Et en ce qui concerne l'offrande de repas, même si elle</b> reste <b>entièrement intacte, il ne fera pas d'aspersion.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

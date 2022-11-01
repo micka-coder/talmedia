@@ -125,4 +125,4 @@
 Jusqu'à ce point, il a répété de nombreuses prophéties, et vous dites : Les paroles de Job sont terminées ? Au contraire, Job dit ceci : "Si je ne l'ai pas fait, que les paroles de Job soient terminées, et qu'il n'ait aucun prétexte pour dire devant Toi (Deut. 26:13) : "J'ai débarrassé ce qui est saint." J'ai vu cela dans la Pesikta de la portion עשר תעשר (ibid. 14), expliquée de cette manière à partir de ces versets .
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

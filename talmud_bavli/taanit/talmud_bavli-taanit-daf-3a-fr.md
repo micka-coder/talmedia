@@ -42,4 +42,4 @@ La Guemara pose une autre question : <b>Et, en outre, ce qui est enseigné</b> d
 La Gemara explique : <b>Et la rosée, d'où déduit-on</b> <b>qu'elle n'est pas retenue ? Comme il est écrit : " Et Elie le Tishbite, qui était parmi les colons de Galaad, dit à Achab : Aussi vrai que le Seigneur, le Dieu d'Israël, est vivant, devant qui je me tiens, il n'y aura ni rosée ni pluie en ces années que selon ma parole"</b> (IÂ Rois 17:1), <b>et il est écrit : Â "Va, montre-toi devant Achab, et je ferai tomber la pluie sur le pays" (IÂ Rois 18:1). Dieu a déclaré qu'Il rétablira la pluie, <b>alors qu'Il n'a pas dit</b> à Elie qu'Il rétablira la <b>pluie. Quelle en est la raison ? Parce que</b> la rosée
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

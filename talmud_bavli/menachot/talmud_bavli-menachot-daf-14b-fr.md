@@ -66,7 +66,7 @@ La Gemara explique cette preuve : <b>Pourquoi ai-je</b> besoin de la mishna <b>p
 La Guemara demande : <b>Et</b> dans le cas où les pains deviennent impurs <b>avant</b> l'<b>éclaboussure</b> du sang, <b>par rapport à quel</b> principe <b>sont-ils en désaccord ? Rav Pappa a dit : Ils sont en désaccord en ce qui concerne</b> la <b>plaque frontale</b> du Grand Prêtre, c'est-à-dire si elle <b>effectue l'acceptation</b> uniquement pour l'impureté des objets sacrifiés sur l'autel, ou même <b>pour</b> l'impureté des objets qui seraient normalement <b>consommés</b> par les prêtres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 et pourtant Rabbi Yosei a dit que le reste <b>est rendu <i>piggul</i>;</b> alors <b>ici, où il a l'intention</b> de participer à la cuisse droite le lendemain, qui fait partie <b>de</b> l'<b>offrande elle-même,</b> n'est-il pas <b>d'autant plus</b> que les deux cuisses doivent devenir <i>piggul</i> ?
 
@@ -134,4 +134,4 @@ La Gemara explique cette preuve : <b>Pourquoi ai-je</b> besoin de la mishna <b>p
 La Guemara demande : <b>Et</b> dans le cas où les pains deviennent impurs <b>avant</b> l'<b>éclaboussure</b> du sang, <b>par rapport à quel</b> principe <b>sont-ils en désaccord ? Rav Pappa a dit : Ils sont en désaccord en ce qui concerne</b> la <b>plaque frontale</b> du Grand Prêtre, c'est-à-dire si elle <b>effectue l'acceptation</b> uniquement pour l'impureté des objets sacrifiés sur l'autel, ou même <b>pour</b> l'impureté des objets qui seraient normalement <b>consommés</b> par les prêtres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

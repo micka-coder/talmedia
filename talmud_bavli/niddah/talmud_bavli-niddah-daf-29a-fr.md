@@ -75,4 +75,4 @@ La Gemara soulève une difficulté : <b>Si tous</b> les animaux <b>qui donnent n
 § <b>Lorsque Ravin vint</b> d'Eretz Yisrael en Babylonie, <b>il dit : Rabbi Yosei, fils de Rabbi Ḥanina, soulève une objection</b> à l'opinion de Rabbi Yehoshua ben Levi à partir du <i>halakha</i> de <b>une femme oublieuse ; mais je ne sais pas quelle est cette objection.</b> La Guemara demande : Cette <i>halakha</i> d'une femme oublieuse, qui constitue la base de l'objection, <b>qu'est-ce que c'est ?</b> La Gemara explique : <b>Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

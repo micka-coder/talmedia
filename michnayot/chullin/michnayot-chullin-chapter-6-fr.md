@@ -20,5 +20,5 @@ Le sang qui a jailli et celui qui est sur le couteau doivent aussi être couvert
 ### michna 7
 Avec quoi peut-on couvrir [le sang] et avec quoi ne peut-on pas le couvrir ? On peut le couvrir avec du fumier fin, du sable fin, de la chaux, de l'argile blanche, une brique ou un bouchon en terre cuite [d'un tonneau] qui ont été réduits en poudre. Mais on ne pourra pas le couvrir de fumier grossier ou de sable grossier, ou d'une brique ou d'un bouchon de terre [d'un tonneau] qui n'ont pas été réduits en poudre. On ne peut pas non plus le recouvrir d'un récipient. Rabban Shimon ben Gamaliel a énoncé une règle générale : on peut le recouvrir de n'importe quoi dans lequel des plantes pousseraient, mais on ne peut pas le recouvrir de n'importe quoi dans lequel des plantes ne pousseraient pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

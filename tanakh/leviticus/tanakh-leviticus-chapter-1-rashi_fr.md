@@ -94,5 +94,5 @@
 <b>Par ses ailes,</b> [Le mot <i>notzoh</i> ici] signifie plumes réelles. Y a-t-il quelqu'un qui sent l'odeur de plumes brûlées qui ne soit pas dégoûté ? Pourquoi le verset dit-il "il l'offrira" ? Afin que l'autel soit rassasié et orné du sacrifice d'un pauvre. 
 <b>Ne le divisant pas complètement,</b> il ne le déchire pas complètement en deux morceaux, mais le déchire le long de son dos. "Un parfum agréable" est dit d'un oiseau [sacrifice], et "un parfum agréable" est dit d'un animal [sacrifice], pour vous informer que, que l'on fasse plus ou que l'on fasse moins - tant que l'on dirige son cœur vers le Ciel. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

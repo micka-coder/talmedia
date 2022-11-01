@@ -78,5 +78,5 @@
 <b>Ce que j'ai pris de la main de l'Emorite.</b> De la main d'Eisov qui a agi comme s'il était un Emorite. Autre explication [pour désigner Eisov comme אֱמֹרִי] : parce qu'il piégeait son père avec אִמְרֵי פִיו -les mots de sa bouche.
 <b>Avec mon épée et avec mon arc.</b> Une référence à sa sagesse et à ses prières. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

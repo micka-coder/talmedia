@@ -48,4 +48,4 @@ Le <i>baraita</i> poursuit : <b>Et combien doit-on laisser pendre</b> au-delà d
 <b>Rav Huna, fils de Rav Yehoshua, dit</b> que cette <i>baraita</i> discutant du brin de doigt fait référence <b>aux deux coudées</b> mentionnées dans un contexte différent, <b>comme nous l'avons appris</b> dans une mishna (<i>Kelim</i> 17:9) : <b>Il y avait deux</b> tiges pour mesurer les <b>cubits</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

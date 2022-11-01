@@ -30,4 +30,4 @@ Rav Yosef a répondu : Ce n'est <b>pas difficile. Cette</b> <i>baraïta</i>, qui
 De même, si deux personnes achètent un terrain auprès d'un vendeur, le <b>premier acheteur peut témoigner pour</b> le bénéfice du <b>second acheteur</b> si quelqu'un d'autre prétendait que le terrain était le sien, <b>mais c'est</b> le <i>halakha</i> seulement <b>si</b> le second acheteur <b>a d'autres terrains</b> qu'il a achetés auprès du même vendeur, soit concomitamment, soit postérieurement à l'achat par le premier acheteur du terrain en question. Un créancier du vendeur peut recouvrer une dette sur le terrain que le vendeur a vendu le plus récemment. Par conséquent, si le deuxième acheteur n'a acheté que le terrain en question au vendeur, le premier acheteur est biaisé dans son témoignage, car la propriété du terrain par le deuxième acheteur empêche le créancier de recouvrer une dette sur le terrain du premier acheteur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

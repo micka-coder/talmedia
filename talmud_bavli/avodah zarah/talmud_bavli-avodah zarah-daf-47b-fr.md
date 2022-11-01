@@ -54,4 +54,4 @@ La Guemara répond : Rabbi Ami n'expliquait pas à quel moment une pierre plâtr
 La Guemara explique la décision de Rabbi Ami : <b>De peur que l'on dise</b> que <b>puisqu'on a plâtré ou cimenté à l'intérieur de la pierre elle-même, elle est équivalente à une pierre que l'on a initialement taillée pour le culte des idoles, et</b> par conséquent la pierre <b>entière</b> est <b>interdite,</b> Rabbi Ami <b>nous enseigne</b> que la pierre peut devenir permise par le retrait de la couche supplémentaire de plâtre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

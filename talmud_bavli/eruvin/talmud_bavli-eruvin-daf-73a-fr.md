@@ -54,4 +54,4 @@ Rav Ḥisda <b>lui a dit : Tu as</b> déjà <b>appris cela</b> dans la <i>barait
 <strong>MISHNA :</strong> Si <b>cinq cours s'ouvrent les unes sur les autres et</b> également <b>s'ouvrent sur une ruelle,</b> les distinctions suivantes s'appliquent : Si les résidents de la cour ont <b>établi un <i>eirouv</i> dans les cours et n'ont pas fusionné les</b> cours qui s'ouvrent sur la <b>allée, il leur est permis</b> de porter <b>dans les cours et il leur est interdit</b> de porter <b>dans la ruelle.</b> Le <i>eirouv</i> qu'ils ont établi ne peut pas également servir à fusionner les cours qui s'ouvrent sur la ruelle.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

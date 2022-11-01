@@ -26,5 +26,5 @@ Un morceau de pâte qui avait une impureté de premier degré, puis d'autres s'y
 ### michna 9
 Des pains sanctifiés dans les creux desquels il y avait de l'eau sanctifiée, si l'un d'entre eux a contracté l'impureté d'un sheretz, ils deviennent tous impurs. Dans le cas des pains de teroumah, l'impureté est transmise à deux pains tandis qu'un [troisième] est invalidé. S'il y avait un liquide qui coulait entre eux, même dans le cas de la teroumah, ils [les pains] deviennent tous impurs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

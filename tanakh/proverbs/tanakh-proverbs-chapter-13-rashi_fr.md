@@ -92,4 +92,4 @@
 <b>souffrir de manque</b> Il ne leur semble pas qu'ils soient satisfaits).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

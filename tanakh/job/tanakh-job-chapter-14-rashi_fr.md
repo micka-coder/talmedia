@@ -69,4 +69,4 @@
 <b>Mais sa chair lui fait mal</b> Un ver est aussi douloureux pour les morts qu'une aiguille dans la chair des vivants.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

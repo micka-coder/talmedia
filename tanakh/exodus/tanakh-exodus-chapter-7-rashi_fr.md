@@ -86,5 +86,5 @@
 ### passuk 29
 <b>Sur toi et sur ton peuple.</b> Ils entreraient dans leurs intestins et croasseraient.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

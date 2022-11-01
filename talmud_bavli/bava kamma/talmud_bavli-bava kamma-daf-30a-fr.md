@@ -84,4 +84,4 @@ La Gemara répond : <b>Non,</b> c'est <b>parce que</b> il l'a mis là avec la <b
 <b>Rav Ashi a dit</b> une explication alternative de la mishna selon Rabbi Yehuda :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

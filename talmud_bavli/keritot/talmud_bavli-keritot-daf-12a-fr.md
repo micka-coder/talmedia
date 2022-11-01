@@ -39,4 +39,4 @@ Le <i>baraita</i> continue : <b>Et les rabbins,</b> dont l'avis est cité dans l
 La Guemara demande : <b>Quel</b> type d'impureté <b>nous avons affaire ? Si nous disons</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

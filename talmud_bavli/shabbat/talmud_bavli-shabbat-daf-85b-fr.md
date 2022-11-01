@@ -15,4 +15,4 @@ Plutôt, le raisonnement du Rav doit être : Il s'agit d'un <b>décret de peur q
 La Gemara demande : <b>N'y a-t-il pas</b> des graines <b>entre</b> les cercles, qui se mêlent aux espèces qui sont dans les cercles ? <b>L'école de Rabbi Yannai dit</b> en réponse à cela : Cela fait référence à un cas <b>où l'on laisse</b> l'espace <b>entre</b> eux <b>stérilisé</b> et où l'on ne plante pas à cet endroit. <b>Rav Ashi a dit :</b> Il peut remplir tout le lit de graines, et délimiter les différents types de graines de la manière suivante . <b>Si</b> les cercles <b>étaient plantés dans le sens de la longueur, il plante</b> les graines entre les deux <b>dans le sens de la largeur;</b> et si les cercles étaient plantés <b>dans le sens de la largeur, il plante</b> les graines entre les deux <b>dans le sens de la longueur. Ravina soulève une objection à</b> l'avis de <b>Rav Ashi:</b> Nous avons appris que <b>l'espace de travail</b> <b>d'un légume</b> d'une espèce, lorsqu'il est planté avec <b>un légume</b> d'une espèce différente, est de <b>six coudées. Et on les voit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

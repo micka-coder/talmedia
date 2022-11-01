@@ -9,4 +9,4 @@ Rav Shimi bar Ashi lui <b>dit : </b> Quant au cas des oiseaux, il s'agit d'une e
 <b>Le Miséricordieux</b> déclare ainsi <b>que les oiseaux sont attribués et désignés pour leur offrande <b>soit par l'acquisition du propriétaire,</b> en désignant chaque oiseau pour une offrande particulière lors de leur achat, <b>soit par l'action du prêtre.</b> En ce qui concerne la décision de Rabban Shimon ben Gamliel, elle ne présente pas non plus de difficulté, car il s'agit d'un cas particulier également. <b>Ici aussi,</b> lorsqu'on sépare ces animaux particuliers pour ses offrandes de naziréat,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

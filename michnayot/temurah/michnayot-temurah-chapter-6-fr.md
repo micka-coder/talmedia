@@ -14,5 +14,5 @@ S'il lui a donné de l'argent [à une prostituée], cela est permis [pour l'aute
 ### michna 5
 En ce qui concerne les animaux disqualifiés pour l'autel, leur progéniture est autorisée pour l'autel. La progéniture d'un terefah : Rabbi Elazar dit qu'il ne peut pas être offert sur l'autel. Mais les sages disent qu'elle peut être offerte. Rabbi Hanina ben Antigonus dit : un animal rituellement pur qui a allaité d'une terefah est disqualifié pour l'autel. Tout animal consacré qui est devenu terefah ne peut pas être consacré, car nous ne pouvons pas racheter des [animaux] consacrés afin de les donner à manger aux chiens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

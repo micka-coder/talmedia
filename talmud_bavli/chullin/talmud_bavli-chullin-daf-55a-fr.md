@@ -30,4 +30,4 @@ La Guemara répond : <b>La même chose est vraie</b> de l'animal, et <b>même l'
 § La mishna déclare : Si <b>les reins ont été enlevés</b> l'animal reste cachère. <b>Rakhish bar Pappa a dit au nom de Rav :</b> Si un animal a été <b>malade dans</b> même <b>un seul rein,</b> l'animal est <b>un <i>tereifa</i>. En Occident, </b> Eretz Yisrael, <b>on dit : Et ceci</b> ne s'applique que dans un cas <b>où la maladie a atteint</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

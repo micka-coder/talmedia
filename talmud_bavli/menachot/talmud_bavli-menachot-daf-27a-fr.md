@@ -93,4 +93,4 @@ La mishna enseigne en outre : En ce qui concerne les <b>sept aspersions</b> du s
 En ce qui concerne les aspersions <b>du taureau du</b> <b>prêtre oint,</b> c'est-à-dire, le Grand Prêtre, <b>et du taureau pour un péché communautaire involontaire, et</b> celles <b>des boucs du culte idolâtre,</b> qui sont aspergées sur le Rideau et sur l'autel d'or, la raison pour laquelle chacune empêche l'accomplissement de la mitzva avec les autres est <b>comme il est enseigné</b> dans une <i>baraita</i> : Le verset dit à propos du taureau pour un péché communautaire involontaire : <b>"Il fera ainsi avec le taureau ; comme il a fait avec le taureau</b> du sacrifice pour le péché" du prêtre oint (Lévitique 4:20). <b>Pourquoi</b> le verset doit-il préciser</b> que le taureau offert pour un péché communautaire involontaire est sacrifié de la même manière que le taureau du prêtre oint, alors que la Torah a déjà explicitement spécifié la manière dont le service doit se dérouler ? La raison pour laquelle elle le précise est pour <b>répéter</b> le commandement <b>des aspersions,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

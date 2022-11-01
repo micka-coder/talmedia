@@ -48,4 +48,4 @@ La Gemara répond : <b>En fait,</b> cette <i>baraita</i> est conforme à l'avis 
 § La Guemara poursuit son analyse. <b>Le Maître,</b> Rabbi Shimon ben Yehuda citant Rabbi Shimon, <b>dit</b> ci-dessus : Si une grenade <b>parmi</b> les <b>dix mille</b> est tombée <b>dans</b> un groupe de <b>trois</b> grenades, <b>et</b> une <b>de</b> ces <b>trois</b> grenades est tombée <b>dans un endroit différent,</b> le mélange est <b>permis.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

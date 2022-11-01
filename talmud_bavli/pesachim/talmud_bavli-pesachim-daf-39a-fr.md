@@ -51,4 +51,4 @@ La Gemara pose une question similaire : Peut-être puis-je <b>dire</b> qu'on peu
 La Guemara explique : <b>Quel est le sens du terme <b>planté, que Rav a dit ?</b> Cela signifie que ces plantes peuvent <b>être correctement plantées.</b> En d'autres termes, elles peuvent être plantées ensemble à condition qu'il y ait un espace approprié entre elles, de sorte qu'il n'y ait pas de violation de l'interdiction de planter diverses sortes de graines. La Gemara demande : S'il souhaite nous informer sur le fait de les planter <b>correctement, nous</b> avons déjà <b>appris</b> ceci dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

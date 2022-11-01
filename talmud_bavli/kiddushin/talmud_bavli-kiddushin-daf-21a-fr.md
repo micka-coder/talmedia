@@ -63,4 +63,4 @@ La Gemara demande : <b>Où a été</b> cet avis <b>de Rav Naḥman bar Yitzḥak
 La Gemara demande : Il est <b>explicitement écrit à propos d'un esclave hébreu vendu à un Gentil : "Soit son oncle, soit le fils de son oncle peut le racheter"</b> (Lévitique 25:49). Si tel est le cas, il n'est pas nécessaire de dériver l'option du rachat par un parent d'une expression inclusive dans un verset différent.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

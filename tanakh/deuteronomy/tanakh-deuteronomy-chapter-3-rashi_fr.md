@@ -94,5 +94,5 @@
 ### passuk 29
 <b>Nous vivions dans la vallée [face à Beis Peor].</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Et vous vous êtes attachés à l'idolâtrie, mais néanmoins, "Et maintenant Israël, écoute les statuts", et tout vous est pardonné. Mais moi, je n'ai pas eu le privilège d'être pardonné. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

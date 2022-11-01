@@ -30,4 +30,4 @@ La Guemara analyse la clause finale de la <i>baraita</i> : <b>Ils ont dit au nom
 <b>Et si</b> il s'agit d'une femme <b>qui ne s'occupe pas</b> de manipuler des objets rituellement <b>purs</b>, <b>Chmouel ne <b>saye-t-il pas</b> que dans <b>tous les cas</b> où un examen n'a lieu que <b>pour</b> le but d'avoir des rapports sexuels avec <b>son mari,</b> et non pour manipuler des objets purs, elle n'est <b>pas tenue</b> d'effectuer <b>un examen ? Comme Rabbi Zeira a dit</b> que <b>Rabbi Abba bar Yirmeya dit</b> que <b>Shmuel dit : Une femme qui n'a pas</b> un <b>cycle menstruel fixe est interdite de rapports sexuels jusqu'à ce qu'elle s'examine</b>, <b>et nous avons interprété cette</b> déclaration comme faisant référence aux cas <b>où elle est engagée dans</b> la manipulation d'objets rituellement <b>purs</b>. La Guemara répond : <b>Celui qui enseigne ceci n'enseigne pas cela,</b> c'est-à-dire que la décision de Shmuel fait en fait référence à une femme engagée dans la manipulation d'objets purs, et les deux décisions ont été citées en son nom par des Sages différents.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara relate que <b>Maryon, fils de Ravin, et Mar, fils de Rav Aḥa, fils d
 La Guemara explique : <b>Mais</b> Mar, fils du Rav Aḥa, <b>soutient : Une personne importante est différente.</b> Même si à proprement parler une chose est permise, une personne importante doit être plus rigoureuse avec elle-même, afin que les gens apprennent à ne pas prendre la <i>halakha</i> à la légère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

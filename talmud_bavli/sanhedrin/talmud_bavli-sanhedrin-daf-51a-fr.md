@@ -90,4 +90,4 @@ En ce qui concerne <b>tout acte d'adultère <b>dont la</b> peine <b>est plus</b>
 <b>Rabbi Yirmeya s'oppose à cette</b> explication : <b>Est-ce que</b> le <i>baraita</i> <b>enseigne</b> les mots <b>plus</b> et <b>moins ?</b> Ces mots, centraux dans cette interprétation, ne sont pas du tout mentionnés. <b>Au contraire, Rabbi Yirmeya dit</b> une interprétation alternative :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

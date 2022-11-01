@@ -27,4 +27,4 @@ Une fois que <b>on les a consacrés</b> en les plaçant <b>dans</b> le <b>vase d
 <b>Et</b> en ce qui concerne <b>toute chose</b> <b>qui n'a pas de facteurs de permission,</b> par ex, la poignée et l'encens, car ils rendent d'autres articles permis alors qu'aucun autre article n'est nécessaire pour les rendre permis, <b>une fois qu'on les a sanctifiés</b> dans le <b>vase de service approprié, on est susceptible</b> de recevoir du <i>karet</i> <b>pour</b> en avoir mangé, en raison</b> de la violation de l'interdiction du <b>notar</i>, et</b> de l'interdiction d'y prendre part alors qu'on est <b>rituellement impur ; mais il n'y a pas</b> de responsabilité pour <b><i>piggul</i> dans</b> ces cas.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

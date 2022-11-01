@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle est</b> la <i>halakha</i> quant à savoir si <b>un
 La mishna poursuit : <b>Rabbi Meir a dit :</b> Mon opinion peut être prouvée via <b>une <i>a fortiori</i></b> déduction. <b>Et de même que</b> en ce qui concerne <b>la carcasse d'un animal, qui transmet l'impureté</b> à une personne <b>en la touchant</b> <b>et en la portant</b>, <b>son abattage</b> purifie néanmoins sa <i>térifa</i> de son impureté,</b> en ce qui concerne <b>la carcasse d'un oiseau, </b> qui possède une impureté moins grave, <b>car elle ne transmet pas l'impureté en la touchant</b> <b>et en la portant</b> mais seulement lorsqu'elle est dans la gorge, <b>n'est-il pas logique que son abattage purifie sa <i>tereifa</i> de son impureté ? </b> Et une fois établi que l'abattage purifie un oiseau qui est un <i>tereifa</i>, on peut en déduire : <b>De même que nous avons constaté à propos</b> de l'abattage d'un oiseau qu'il permet sa consommation</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

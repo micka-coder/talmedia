@@ -24,4 +24,4 @@ La Gemara raconte : Il y avait <b>un certain document qui portait les signatures
 <b>Au contraire, Rav Naḥman dit</b> que <b>Rabba bar Avuh a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

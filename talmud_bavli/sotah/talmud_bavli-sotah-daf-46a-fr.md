@@ -69,4 +69,4 @@ La Gemara pose une question : <b>Et</b> puisqu'il a énoncé une mesure fixe, <b
 La mishna a enseigné : <b>Et ils le descendent vers un ruisseau</b> qui est <b><i>eitan</i>. <i>Eitan</i></b> dans ce contexte signifie <b>comme</b> le mot l'indique généralement,</b> énergique. <b>Les Sages ont enseigné : D'où</b> provient-il <b>que <i>eitan</i> est énergique ? </b> C'est <b>comme</b> il <b>est dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ A propos de la fille de Nakdimon ben Guryon, la Guemara relate ce qu'elle devint
 L'incident enregistré implique que Nakdimon a perdu toute sa richesse après avoir échoué à l'utiliser pour des actes de bonté. La Gemara demande : <b>Et Nakdimon ben Guryon n'a-t-il pas fait la charité ? N'est-il pas enseigné</b> dans une <i>baraita</i> : <b>On a dit à propos de Nakdimon ben Guryon</b> que <b>lorsqu'il sortait de chez lui</b> pour se rendre <b>à la salle d'étude,</b> il y avait des <b>vêtements en laine fine</b> ses préposés <b>s'y rendaient</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

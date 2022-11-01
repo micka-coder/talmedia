@@ -15,4 +15,4 @@ La Gemara demande : <b>Et qu'ils acquièrent</b> les branches de myrte <b>avec</
 La Gemara demande : <b>Et que</b> les marchands <b>acquièrent</b> une branche de myrte <b>avec un changement de nom</b> qu'elle a subi, <b>car initialement elle était</b> appelée <b>branche de myrte, et maintenant</b> qu'elle est désignée pour être utilisée dans l'accomplissement de la mitzva,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

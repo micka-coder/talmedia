@@ -67,7 +67,7 @@
 <b>Et les vit.</b> Il vit que ni en eux ni dans leur descendance il n'y aurait de sève de bonne action.<sup>23</sup><i class="footnote">Voir Shemos 2:12 et Rachi à cet endroit.</i><sup>24</sup><i class="footnote">Certains disent qu'Elisée vit que leurs cheveux étaient coupés à la manière des païens. Il pensait qu'ils étaient dégénérés et dépravés et prévoyait qu'ils ne reviendraient jamais aux voies de la Torah. Voir Masehet Sotah 46b. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Dans un vent puissant.</b> Dans un vent de tempête. <sup>1</sup><i class="footnote">Voir Yechezkeil 1:4, où un "רוּחַ סְעָרָה" fait partie de la vision du מַעֲשֶׂה מֶרְכָּבָה qui est décrit par Yechezkeil.</i>
 
@@ -136,4 +136,4 @@
 <b>Et les vit.</b> Il vit que ni en eux ni dans leur descendance il n'y aurait de sève de bonne action.<sup>23</sup><i class="footnote">Voir Shemos 2:12 et Rachi à cet endroit.</i><sup>24</sup><i class="footnote">Certains disent qu'Elisée vit que leurs cheveux étaient coupés à la manière des païens. Il pensait qu'ils étaient dégénérés et dépravés et prévoyait qu'ils ne reviendraient jamais aux voies de la Torah. Voir Masehet Sotah 46b. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

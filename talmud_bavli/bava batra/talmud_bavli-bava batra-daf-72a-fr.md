@@ -12,4 +12,4 @@ La Guemara clarifie : <b>À qui appartient l'opinion exprimée dans la <i>barait
 <b>Et</b> l'avis de <b>Rabbi Shimon</b> est <b>conforme</b> à l'avis <b>de qui ? Si</b> elle est <b>conforme</b> à l'avis <b>de Rabbi Akiva, ne dit-il pas</b> que <b>celui qui vend, vend généreusement, et à plus forte raison celui qui consacre</b> le fait généreusement ? <b>Au contraire,</b> il est <b>évident</b> que son avis est <b>conforme</b> à l'avis <b>des rabbins,</b> qui ne sont pas d'accord avec Rabbi Akiva et disent que celui qui vend, vend avec parcimonie. <b>Et Rabbi Shimon</b> n'est pas d'accord avec les rabbins dans la mesure où <b>il</b> lui-même <b>soutient</b> que <b>tout comme celui qui vend, vend avec parcimonie, celui qui consacre consacre aussi avec parcimonie et conserve pour lui la terre</b> autour des arbres.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -69,4 +69,4 @@ Si le propriétaire d'un bœuf <b>le confie à un dépositaire impayé, ou à un
 <strong>GEMARA :</strong> <b>Les Sages ont enseigné :</b> En ce qui concerne <b>un bœuf qui a tué</b> une personne, si son propriétaire <b>l'a vendu avant son verdict,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

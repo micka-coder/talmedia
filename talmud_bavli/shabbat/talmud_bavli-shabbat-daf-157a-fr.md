@@ -39,4 +39,4 @@ Nous avons appris dans la mishna : <b>Et on peut demander</b> à un Sage <b>de</
 La mishna relate : Ils <b>scellèrent une fenêtre à l'aide d'un récipient en terre cuite et attachèrent un tesson de terre cuite avec une</b> <b>longue herbe de roseau. Rav Yehuda dit</b> que <b>Rav a dit</b> en explication : <b>Il y avait une petite ruelle [<i>heilketei</i>] entre deux maisons, et il y avait une impureté rituelle</b> communiquée par un cadavre <b>là</b> dans la ruelle,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

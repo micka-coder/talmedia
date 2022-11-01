@@ -129,7 +129,7 @@
 <b>Et je placerai mon trône</b> Mon siège (מָצוֹר).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Israël n'a-t-il pas de fils ?</b> Le 'beth' est faible [sans 'dagesh'], et le 'heh' est voyellé avec un 'hataph-pattah', qui est une expression d'étonnement [interrogative].
 <b>Malcam</b> La divinité des enfants d'Ammon est nommée Malcam, comme il est indiqué : "Et à Milcom, l'abomination des enfants d'Ammon" (II Rois 23, 13), expression de מֶלֶךְ, un roi.
@@ -260,4 +260,4 @@
 <b>Et je placerai mon trône</b> Mon siège (מָצוֹר).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

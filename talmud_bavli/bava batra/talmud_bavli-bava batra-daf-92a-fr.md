@@ -18,4 +18,4 @@ La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> de discuter du cas <b>
 La Guemara clarifie : <b>Quelles sont les circonstances</b> du cas discuté ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

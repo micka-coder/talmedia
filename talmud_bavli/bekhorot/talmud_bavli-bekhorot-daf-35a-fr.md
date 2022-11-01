@@ -66,4 +66,4 @@ Et le cas des <b>prêtres-bergers</b> est celui où les bergers se trouvent dans
 La Guemara cite l'autre explication de la mishna : <b>Et</b> l'autre <b>un</b> des deux <i>amora'im</i> <b>dit :</b> Le cas des <b>bergers israélites</b> est celui où les bergers <b>sont des prêtres</b> au service d'un israélite. La mishna enseigne que ces bergers <b>sont jugés crédibles</b> pour témoigner que les taches sur l'offrande du premier-né de leur employeur n'ont pas été causées intentionnellement, car ils ne sont pas soupçonnés d'avoir menti pour obtenir sa viande.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

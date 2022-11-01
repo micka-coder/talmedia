@@ -9,4 +9,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne le <b>meurtrier lui-même, d'o�
 La Gemara relate une autre histoire : <b>Une certaine femme enceinte sentait</b> de la nourriture et avait envie d'en manger à Yom Kippour. Les personnes concernées <b>se sont présentées devant Rabbi Ḥanina</b> pour demander comment procéder. <b>Il leur a répondu : Chuchotez-lui</b> qu'aujourd'hui c'est Yom Kippour. Ils lui chuchotèrent, mais <b>elle n'accepta pas le chuchotement</b> et continua à avoir envie de la nourriture. Rabbi Ḥanina <b>lut</b> ce verset <b>sur</b> le bébé :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

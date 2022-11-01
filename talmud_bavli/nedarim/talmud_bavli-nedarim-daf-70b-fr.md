@@ -27,4 +27,4 @@ La Guemara revient sur la question : <b>En tout cas,</b> le fait que la mishna e
 Alternativement, <b>si vous le souhaitez, dites</b> que la mishna qui commence : <b>Une femme adulte,</b> est <b>en fait</b> la source de cette <i>halakha</i>. La mishna répète ici la <i>halakha</i> incidemment, <b>puisqu'elle a besoin de citer la première clause : Dans cette</b> affaire, le pouvoir du père est renforcé par rapport au pouvoir du mari, donc la mishna <b>cite</b> également la <b>dernière clause</b>, en écrivant : <b>Dans cette</b> autre matière, le pouvoir du mari est renforcé par rapport au pouvoir du père.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

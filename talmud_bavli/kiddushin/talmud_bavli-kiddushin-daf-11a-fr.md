@@ -30,4 +30,4 @@ Rabbi Zeira <b>dit à</b> Abaye : <b>Je n'ai pas dit</b> que cette <i>halakha</i
 La Guemara discute de <b>la</b> question <b>même. Rav Yehuda dit</b> que <b>Rav Asi dit : Toute</b> somme d'argent mentionnée dans la Torah est une monnaie tyrienne, et</b> toute somme d'argent fixée <b>par la loi rabbinique</b> est mesurée par une <b>monnaie provinciale.</b> La Gemara demande : <b>Et est-ce</b> un <b>principe établi</b> que toute mention d'argent dans la Torah fait référence à une pièce d'argent valant au moins un dinar ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

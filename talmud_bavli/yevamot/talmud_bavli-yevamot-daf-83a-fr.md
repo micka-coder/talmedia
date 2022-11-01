@@ -27,4 +27,4 @@ Les <i>tanna'im</i> sont en désaccord sur la question : <b>Quelle est la durée
 Quelle est cette <i>halakha</i> de <b>proscription ? Comme nous l'avons appris</b> dans une mishna (<i>Kilayim</i> 7:4) : si <b>quelqu'un fait en sorte que sa vigne éclipse le grain d'un autre, il l'a proscrit</b>, le rendant interdit comme culture vivrière dans une vigne, <b>et il en porte</b> la <b>responsabilité financière,</b> c'est-à-dire qu'il doit indemniser l'autre individu pour la perte du produit rendu interdit. C'est la déclaration de Rabbi Meir. Rabbi Yosei et Rabbi Shimon disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Gemara explique pourquoi la femme ne l'acquiert pas non plus. <b>L'un de ceux
 <b>Un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

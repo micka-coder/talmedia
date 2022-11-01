@@ -60,4 +60,4 @@ La Gemara demande : <b>Et en ce qui concerne les dommages et intérêts, Rabbi A
 <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Si un agresseur <b>a frappé la femme et que sa progéniture est sortie</b> suite à une fausse couche, <b>il donne</b> une compensation pour le <b>dommage et la douleur à la femme et une compensation pour</b> la progéniture fausse au mari. </b> Si <b>le mari n'est pas</b> vivant, <b>il donne</b> l'indemnisation pour la progéniture <b>à ses héritiers.</b> Si <b>la femme n'est pas</b> vivante, <b>il donne</b> le paiement qui lui est dû <b>à ses héritiers.</b> Si <b>elle était</b> une <b>servante cananéenne et</b> alors <b>elle a été émancipée,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -65,5 +65,5 @@ Pinchas le fils d'Elazar, le fils d'Aharon le Cohen. <i data-commentator="Siftei
 ### passuk 18
 <b>Parce qu'ils t'ont contrarié, etc, dans l'affaire de Pe'or.</b> Puisqu'ils ont abandonné leurs filles à la promiscuité <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>afin de te faire t'égarer après Pe'or. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour autant, Il n'a pas ordonné la destruction de Moav, A cause de Rus [Ruth], qui était destiné à émaner d'eux, comme nous l'affirmons dans Bava Kama. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

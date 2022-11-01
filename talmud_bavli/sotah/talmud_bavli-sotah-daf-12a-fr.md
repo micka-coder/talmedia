@@ -69,4 +69,4 @@ Le verset continue : <b>"Et la barbouilla de bitume et de poix"</b> (Exode 2:3).
 Le verset poursuit : <b>"Elle y mit l'enfant, et le coucha dans les saules [<i>bassuf</i> ]"</b> (Exode 2:3). <b>Rabbi Elazar dit :</b> Cela signifie qu'elle le plaça <b>dans la mer de Souf,</b> c'est-à-dire la mer Rouge. <b>Rabbi Shmuel bar Naḥmani dit :</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

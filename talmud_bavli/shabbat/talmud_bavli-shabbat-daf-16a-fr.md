@@ -12,4 +12,4 @@ La Guemara répond : <b>La</b> totalité de l'<b>impureté des récipients en ve
 La Guemara demande plus loin : <b>Leurs récipients plats</b> <b>doivent en tout état de cause devenir impurs.</b> Puisque l'impureté des <b>récipients plats en métal relève de la loi de la Torah,</b> n'est-il donc pas approprié de décréter cette impureté sur les récipients plats en verre par décret rabbinique ? La Guemara répond : <b>Les Sages ont fait une distinction en ce qui concerne</b> les récipients en verre, <b>afin d'éviter que les <i>teruma</i> brûlés et les objets consacrés ne viennent</b> en contact avec <b>eux.</b> Par cette distinction entre les récipients en verre et les récipients en métal, chacun comprendra que l'impureté des récipients en verre ne relève pas de la loi de la Torah. Ils n'en viendront pas à brûler les <i>teruma</i> et les objets consacrés qui sont entrés en contact avec des récipients en verre impurs ; au contraire, leur statut juridique restera en suspens.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

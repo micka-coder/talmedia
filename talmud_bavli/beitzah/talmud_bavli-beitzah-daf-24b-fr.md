@@ -30,4 +30,4 @@ La Guemara répond par une contre-question : <b>Et selon votre raisonnement, le 
 <b>Et si aucune de ces espèces n'est</b> encore <b>attachée</b> au sol, alors si le cadeau a été apporté de <b>dans la limite,</b> c'est-à-dire la distance que l'on peut parcourir lors d'une Fête, <b>il est permis,</b> car aucun travail interdit n'a été accompli.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

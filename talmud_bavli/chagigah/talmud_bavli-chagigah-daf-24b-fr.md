@@ -42,4 +42,4 @@ Mais une fois que <b>les</b> périodes du <b>pressoir à vin et du pressoir à o
 En ce qui concerne les <b>jarres de vin et les cruches d'huile</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

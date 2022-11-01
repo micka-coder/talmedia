@@ -96,4 +96,4 @@ Ezechias poursuit : <b>J'ai recu une tradition de la maison du pere de mon pere,
 En ce qui concerne le fait qu'il ne faut pas desesperer de la misericorde de Dieu, la Guemara cite qu' <b>il a egalement ete dit</b> que <b>Rabbi Yohanan et Rabbi Eliezer ont tous deux dit : Meme si une epee tranchante repose sur le cou d'une personne, elle ne doit pas s'empecher de</b> prier pour la <b>mercie, comme il est dit</b> dans les paroles de Job : <b>"Quand il me tuerait, je me confierais en lui"</b> (Job 13:15). Même si Dieu est sur le point de lui oter la vie, il prie quand même pour la misericorde de Dieu.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

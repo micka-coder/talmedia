@@ -81,4 +81,4 @@ La Gemara répond : <b>Ce n'est pas difficile. Cette</b> <i>baraïta</i>, qui st
 <b>Rav Ḥisda a dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

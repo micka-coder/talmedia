@@ -66,4 +66,4 @@ La Guemara explique la preuve : <b>Et si vous dites</b> que <b>après</b> sa <b>
 § La mishna déclare : <b>Si les maris</b> des <i>sota</i> femmes <b>sont morts avant</b> que leurs femmes <b>buvent</b> l'eau amère, <b>Beit Shammai</b> disent : Elles perçoivent le paiement de leur contrat de mariage et ne boivent pas l'eau amère. Et Beit Hillel disent : Soit ils boivent l'eau amère, soit ils ne perçoivent pas le paiement de leurs contrats de mariage. La Gemara demande : <b>A propos de quoi Beit Shammai et Beit Hillel sont-ils <b>en désaccord ?</b> La Gemara répond : <b>Beit Shammai soutiennent</b> qu'un billet à ordre <b>qui se présente pour être encaissé est considéré</b> comme <b>comme s'il était déjà <b>encaissé,</b> et puisque la femme possède le contrat de mariage, le paiement du contrat de mariage est considéré comme s'il était déjà en sa possession. La charge de la preuve incombant à la demanderesse, elle ne perd pas ses droits sur l'argent à moins que les héritiers ne prouvent qu'elle a commis un adultère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

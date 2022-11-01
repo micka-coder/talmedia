@@ -82,4 +82,4 @@
 <b>et m'asseoir à la tête</b> s'ils étaient allongés à un banquet, je m'allongerais à la tête des convives.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

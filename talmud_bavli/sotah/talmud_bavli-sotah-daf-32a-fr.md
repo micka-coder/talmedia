@@ -9,4 +9,4 @@
 La Guemara pose une question sur ces deux interprétations de la mishna : <b>Et pourquoi ai-je</b> besoin de <b>deux</b> cas dans la mishna pour enseigner au <i>halakha</i> que l'on suit l'opinion majoritaire de <b>ceux qui sont disqualifiés pour</b> porter <b>témoignage</b> ? La Guemara explique : Il faut, <b>pour ne pas dire</b> que <b>quand on suit l'opinion majoritaire</b> dans le cas de témoins invalides, c'est <b>pour être rigoureux</b> afin de forcer la femme à boire l'eau amère, ex, si un témoin a dit qu'elle a commis l'adultère et deux ont dit qu'elle ne l'a pas fait, <b>mais pour être indulgent</b> et l'absoudre d'avoir à boire l'eau nous ne <b>suivons pas</b> l'opinion de la majorité, et elle boirait toujours l'eau même s'il y a un témoin qui dit qu'elle n'a pas commis l'adultère, donc la mishna <b>nous enseigne</b> qu'il n'y a pas de différence à cet égard, et l'opinion de la majorité est suivie dans tous les cas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

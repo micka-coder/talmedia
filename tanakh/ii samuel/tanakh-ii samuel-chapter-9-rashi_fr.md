@@ -27,7 +27,7 @@
 <b>Ceux qui habitaient dans la maison de Tsivoh.</b> Ses enfants et ses esclaves.</sup></sup><i class="footnote">Mentionnés au verset 10.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -56,4 +56,4 @@
 <b>Ceux qui habitaient dans la maison de Tsivoh.</b> Ses enfants et ses esclaves.</sup></sup><i class="footnote">Mentionnés au verset 10.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

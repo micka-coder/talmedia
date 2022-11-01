@@ -26,5 +26,5 @@ Si une cuve de pétrissage était en pente vers le bas et qu'il y avait de la p�
 ### michna 9
 Si un bâton est entièrement recouvert d'un liquide impur, dès qu'il a touché l'eau [du] mikvé, il devient propre, ce sont les paroles de Rabbi Joshua. Mais les sages disent : seulement quand il est entièrement immergé. Un écoulement d'un récipient à l'autre ou une pente d'humidité goutte à goutte ne sert de lien ni pour l'impureté ni pour la pureté. Une mare d'eau sert de lien à la fois pour l'impureté et la propreté.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

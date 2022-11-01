@@ -60,4 +60,4 @@ Rava explique les deux côtés de la question : <b>Disons-nous</b> que <b>c'est 
 <b>Et si l'on dit que depuis</b> le sang a été <b>amené dehors,</b> il a été <b>amené dehors,</b> on peut soulever un autre dilemme : si le Grand Prêtre <b>s'est aspergé de son sang sur le</b> Sanctuaire <b>Couverture</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Gemara rejette cette conclusion : <b>Non ; en fait,</b> Beit Shammai <b>a agi
 La Guemara commente : <b>Et de même, il est raisonnable</b> que ce soit le cas, <b>comme</b> la mishna <b>l'enseigne</b> dans <b>la dernière clause : </b> En ce qui concerne <b>tous les différends</b> concernant les <i>halakhot</i> de <b>pureté et d'impureté rituelles, lorsque ceux,</b> Beit Hillel, jugent un article <b>rituellement pur et ceux,</b> Beit Shammai, le jugent <b>rituellement impur, ils ne se sont pas abstenus de manipuler des objets rituellement purs</b> <b>chacun avec l'autre. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

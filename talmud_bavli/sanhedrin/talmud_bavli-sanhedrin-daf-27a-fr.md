@@ -63,4 +63,4 @@ La Gemara répond : <b>Là, c'est différent, car</b> le <b><i>tanna</i> nous a 
 La Gemara répond que cela a été établi par un certain incident, <b>car cet</b> incident s'est produit au cours duquel <b>un homme nommé <b>bar Ḥama a tué une personne. L'Exilarque dit à Rav Abba bar Ya'akov : Va enquêter sur ce</b> cas, et <b>s'il l'a certainement tué</b>, <b>qu'on lui crève les yeux.</b> Par la suite, <b>deux témoins sont venus</b> et ont <b>testé qu'il l'a certainement tué</b>. Bar Ḥama est alors <b>allé</b> et <b>a amené deux</b> autres <b>témoins,</b> qui <b>ont témoigné au sujet d'un de ces</b> premiers témoins. <b>L'un d'eux a dit : Il a volé, en ma présence, un <i>kav</i> d'orge ; et un autre a dit : Il a volé, en ma présence,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

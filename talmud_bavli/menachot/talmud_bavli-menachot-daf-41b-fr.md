@@ -51,4 +51,4 @@ La Guemara demande : <b>Est-ce à dire que</b> les franges rituelles <b>ont</b> 
 <b>Quoi,</b> cela ne signifie-t-il <b>pas</b> que les franges rituelles <b>n'ont aucune</b> <b>mesure requise du tout ? </b> La Gemara répond : <b>Non,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

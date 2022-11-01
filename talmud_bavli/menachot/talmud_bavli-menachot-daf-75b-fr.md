@@ -33,4 +33,4 @@ La Guemara conteste cette affirmation : <b>Si oui, ce qui est enseigné sur</b> 
 La Gemara demande : En ce qui concerne la bénédiction récitée sur le plat cuisiné dont les morceaux ont un volume inférieur à une brique d'olive, <b>quelle</b> conclusion halakhique <b>a-t-on</b> tiré <b>à son sujet ? Rav Sheshet répond : Même</b> en mangeant des <b>pièces</b> de pain <b>qui n'ont pas</b> le volume d'une <b>bouteille d'olive,</b> on récite la bénédiction de : Qui fait sortir le pain de la terre. <b>Rava a dit : Et</b> ceci <b>est</b> limité à un cas <b>où</b> les miettes ont encore <b>l'apparence [<i>torita</i>] du pain,</b> et qu'elles ne se sont pas dissoutes complètement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

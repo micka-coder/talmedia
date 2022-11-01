@@ -39,4 +39,4 @@ La Guemara demande : <b>Et aussi</b> selon <b>Rabbi Shimon, n'est-il pas écrit 
 La Guemara demande : <b>Qu'est-ce que</b> le vin qui est consommé pour une mitzva ? Est-ce le vin du <b><i>kiddush</i> et du <i>havdala</i> ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

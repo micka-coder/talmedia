@@ -60,4 +60,4 @@ La Gemara demande : <b>Mais</b> pourquoi ne pas <b>laisser divorcer</b> parce qu
 La Gemara rejette cette idée : On ne peut pas résoudre le dilemme à partir d'ici puisqu'il est possible de dire que <b>Ici nous avons affaire</b> à une femme qui se trouve <b>au bord de la rivière, car</b> l'acte de divorce <b>s'expose à être détruit dès le départ,</b> puisque s'il ne reste pas dans sa main, il tombera dans la rivière. Dans un tel cas, tout le monde s'accorde à dire que l'espace aérien des quatre coudées n'acquiert pas l'objet.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara objecte : <b>Mais il est enseigné</b> dans le <i>baraita</i> que le b
 La Gemara objecte qu'il existe une autre version de la <i>baraita</i> selon laquelle cette interprétation n'est pas possible : <b>Mais Rav Naḥman ne dit-il pas</b> qu'un certain <b><i>tanna</i> a enseigné</b> la <i>baraïta</i> avec une formulation différente, affirmant que celui qui a creusé la fosse <b>est mort</b> de l'impact du bœuf <b>et</b> le bœuf l'a en effet <b>enterré</b> dans le sol au fond de la fosse ? Dans ce scénario, il serait impossible d'amener celui qui a creusé la fosse devant le tribunal pour être jugé. La Guemara répond : <b>Là,</b> selon cette deuxième version, il est question d'un cas <b>où les juges se sont assis à l'ouverture de la fosse et ont jugé responsable</b> celui qui a creusé la fosse pour payer le dommage avant qu'il ne meure.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

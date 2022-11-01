@@ -21,4 +21,4 @@ La Gemara raconte : <b>Rav Yehuda a institué dans</b> le cas d'un <b>acte de di
 <b>Au contraire, Rava a dit</b> qu'il doit dire : <b>Chacun de vous</b> peut <b>l'écrire</b>, <b>chacun de vous deux</b> peut <b>signer</b>, <b>chacun de vous</b> peut <b>le remettre</b>. Cependant, il ne doit pas dire : Chacun de vous, afin que l'acte de divorce ne soit pas invalidé si l'un d'entre vous omet de le faire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

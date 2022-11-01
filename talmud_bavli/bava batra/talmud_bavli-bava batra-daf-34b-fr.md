@@ -9,4 +9,4 @@ Le tribunal a saisi le bateau. Celui qui a demandé au tribunal de le saisir <b>
 Il y a un incident où deux personnes se disputent la propriété d'un bien. <b>Celui-ci</b> <b>dit :</b> Il <b>appartenait à mes ancêtres</b> et je l'ai hérité d'eux, <b>et celui-là</b> <b>dit :</b> Il <b>appartenait à mes ancêtres</b> et je l'ai hérité d'eux. Il n'y avait ni preuve ni présomption de propriété pour l'un ou l'autre des plaideurs. <b>Rav Naḥman a dit : Celui qui est le plus fort l'emporte.</b> La Gemara demande : <b>Et</b> en <b>quelle manière</b> ce cas est <b>différent</b> du cas où deux personnes produisent <b>deux actes</b> de vente ou de donation pour le même champ <b>qui sont émis le même jour,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

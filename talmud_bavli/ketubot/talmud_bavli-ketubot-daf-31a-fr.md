@@ -27,7 +27,7 @@ La Guemara émule la réponse précédente : <b>Ne dites pas</b> qu'il l'a soule
 La Gemara demande : C'est un cas où il s'est <b>arrêté. Dans quel</b> but s'est-il arrêté ? <b>Si</b> il s'est arrêté afin <b>d'ajuster le fardeau sur son <b>épaule,</b> cela <b>est</b> la <b>manière typique</b> de procéder et ne serait pas considéré comme une interruption dans le processus d'exécution de l'objet. <b>Au contraire,</b> il doit s'agir <b>dans</b> le cas de celui qui s'est <b>arrêté pour se reposer,</b> et lorsqu'il reprend son mouvement, il initie une action distincte. La Gemara en déduit : <b>Mais</b> s'il s'est arrêté afin <b>de</b> ajuster le fardeau sur son <b>épaule, quelle</b> est la <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et</b> au même moment <b>il a déchiré la soie d'un autre [<i>shira'in</i>].</b> La question est de savoir si la responsabilité de recevoir la peine de mort l'exempte de la responsabilité de paiement encourue précisément au même moment.
 
@@ -56,4 +56,4 @@ La Guemara émule la réponse précédente : <b>Ne dites pas</b> qu'il l'a soule
 La Gemara demande : C'est un cas où il s'est <b>arrêté. Dans quel</b> but s'est-il arrêté ? <b>Si</b> il s'est arrêté afin <b>d'ajuster le fardeau sur son <b>épaule,</b> cela <b>est</b> la <b>manière typique</b> de procéder et ne serait pas considéré comme une interruption dans le processus d'exécution de l'objet. <b>Au contraire,</b> il doit s'agir <b>dans</b> le cas de celui qui s'est <b>arrêté pour se reposer,</b> et lorsqu'il reprend son mouvement, il initie une action distincte. La Gemara en déduit : <b>Mais</b> s'il s'est arrêté afin <b>de</b> ajuster le fardeau sur son <b>épaule, quelle</b> est la <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

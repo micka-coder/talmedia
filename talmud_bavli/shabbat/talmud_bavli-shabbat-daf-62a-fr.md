@@ -63,4 +63,4 @@ Cette <i>baraita</i> cite l'avis de Rabbi Eliezer, qui permet, même <i>ab initi
 La Gemara répond : Ceci n'est <b>pas difficile.</b> Lorsque Rabbi Eliezer a fait <b>cette</b> déclaration, c'était <b>lorsqu'il s'adressait</b> à la déclaration <b>de Rabbi Meir.</b> Lorsque Rabbi Eliezer a fait <b>cette</b> déclaration, c'était <b>lorsqu'il s'adressait</b> à la déclaration <b>des sages.</b> A préciser : <b>Lorsqu'il abordait</b> la déclaration de <b>Rabbi Meir,</b> qui <b>disait</b> que <b>elle est susceptible d'apporter un sacrifice pour le péché, il lui a dit</b> qu'elle est <b>exemptée</b> d'apporter le sacrifice. <b>Quand il abordait</b> la déclaration des <b>sages, qui disaient</b> qu'elle est <b>exemptée mais</b> que c'est <b>interdit</b> <i>ab initio</i><b>, il a dit</b> que c'est <b>permis</b> même <b><i>ab initio</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

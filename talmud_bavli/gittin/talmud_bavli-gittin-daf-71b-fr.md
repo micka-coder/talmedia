@@ -51,4 +51,4 @@ La Gemara conteste : <b>Si oui,</b> l'expression : <b>Jusqu'à ce qu'il dise</b>
 <b>Et Rabbi Yosei concède-t-il dans</b> le cas de <b>ceux qui disent : Dis</b> à un autre de l'écrire ? <b>Mais n'avons-nous pas appris</b> dans une mishna (87b) : Si un acte de divorce a <b>l'écriture d'un scribe,</b> et que le scribe identifie son écriture, <b>et</b> un <b>témoin</b> vérifie sa signature, il est <b>valide</b> comme si deux témoins témoignaient pour ratifier leurs signatures. <b>Et Rabbi Yirmeya dit : Nous avons appris</b> dans la mishna que c'est la <i>halakha</i> en ce qui concerne <b>la signature du scribe</b> et non l'écriture du scribe. <b>Et Rav Ḥisda a dit : De qui</b> l'opinion est exprimée dans la <b>mishna ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

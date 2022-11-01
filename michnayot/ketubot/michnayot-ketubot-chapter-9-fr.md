@@ -26,5 +26,5 @@ Une femme qui porte atteinte à sa kethubah n'est pas payée, sauf par un sermen
 ### michna 9
 Si elle a produit un get sans ketubah, elle recueille sa kethubah. Si elle a produit sa ketubah sans get, et qu'elle dit : "Mon get a été perdu", et qu'il dit : "Mon reçu a été perdu", et aussi un créancier qui a produit un document de dette qui n'était pas accompagné d'un prosbul, ceux-ci ne sont pas remboursés. Rabbi Shimon ben Gamaliel dit : depuis le temps du danger, une femme recueille sa ketubah sans get et un créancier recueille [sa dette] sans prosbul. Une femme qui a produit] deux lettres de divorce et deux ketuboth perçoit deux kethuboth. Deux ketuboth et un get ou une kethubah et deux gittin, ou une kethubah, un get et [la preuve du décès de son mari", elle perçoit une seule kethubah, car un homme qui divorce de sa femme et se remarie avec elle contracte son second mariage à la condition de la première kethubah. Un mineur que son père lui avait donné en mariage, la kétouba de sa femme est valable, puisque c'est à cette condition qu'il l'a gardée comme épouse. Un converti qui s'est converti avec sa femme, la kethubah reste valide, puisque c'est à cette condition qu'il l'a gardée comme épouse.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Gemara objecte : <b>Dit</b> plutôt qu'en ce qui concerne les <b>pigeons, pui
 <b>Rava dit : Venez</b> et <b>entendez</b> la preuve à partir du <i>baraita</i> où il est enseigné que le verset : "De colombes ou de jeunes pigeons", sert à <b>exclure</b> les oiseaux au <b>début du jaunissement</b> du plumage de leur cou <b>qui sont impropres comme ceci,</b> les colombes, <b>et comme cela,</b> les pigeons. <b>Accordé, si vous dites</b> qu'un oiseau à ce stade <b>est une entité</b> en soi, cela fonctionne <b>bien,</b> puisque le verset sert à garantir qu'un oiseau à ce stade de développement ne sera jamais sacrifié. <b>Mais si vous dites</b> que c'est <b>un cas d'incertitude, était-il</b> <b>nécessaire</b> pour que <b>le verset exclue</b> un cas d'<b>incertitude ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara rejette l'affirmation selon laquelle la décision de la mishna est ba
 La Guemara répond : <b>C'est différent là,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

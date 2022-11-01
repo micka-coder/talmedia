@@ -96,7 +96,7 @@
 <b>Voici que je les rassemblerai</b> avec miséricorde de là où je les ai chassés par ma colère.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -194,4 +194,4 @@
 <b>Voici que je les rassemblerai</b> avec miséricorde de là où je les ai chassés par ma colère.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara demande : Mais si c'est le cas, <b>disons</b> que l'offrande de <b><i
 La Guemara demande : <b>Si c'est le cas, c'est</b> la même chose que les <b>offrandes de paix</b> énumérées précédemment, et c'est encore redondant. La Guemara répond : La <i>baraïta</i> <b>enseigne</b> la <i>halakha</i> en ce qui concerne les <b>offrandes de paix apportées à la place d'un agneau pascal, et elle</b> également <b>enseigne</b> la <i>halakha</i> en ce qui concerne les <b>offrandes de paix apportées indépendamment.</b> La raison de cette répétition est que <b>il pourrait vous venir à l'esprit de dire : Puisque</b> les offrandes de paix <b>sont apportées à la place d'un agneau pascal,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

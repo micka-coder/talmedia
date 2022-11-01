@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais Rabbi Elazar se tient-il en accord avec</b> l'avis 
 <b>Et Rabbi Akiva soutient : Les Samaritains sont de vrais convertis, et les prêtres qui se sont assimilés parmi eux étaient des prêtres aptes, comme il est dit : "Et leur fit du milieu d'eux-mêmes des prêtres des hauts lieux"</b> (II Rois 17, 32). <b>Et Rabba bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> "D'entre eux" signifie <b>des élus,</b> l'échelon supérieur <b>du</b> peuple juif. Et pour quelle</b> raison <b>les Sages leur ont-ils <b>interdit</b> d'entrer dans la congrégation s'il n'y a pas de problème par rapport à leur conversion ou par rapport aux Juifs qui se sont assimilés parmi eux ? C'est <b>parce que</b> ils n'agissaient pas conformément à la <i>halakha</i>, car <b>ils accomplissaient le lévirat avec des femmes fiancées.</b> Ils n'accomplissaient la mitsva du lévirat qu'avec celle qui était veuve suite à des fiançailles,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

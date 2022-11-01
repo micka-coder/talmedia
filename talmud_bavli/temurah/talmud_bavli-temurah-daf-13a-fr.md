@@ -51,4 +51,4 @@ La Gemara demande : <b>Et</b> selon l'avis des rabbins, les objets consacrés à
 <b>Rabbi Shimon dit</b> en guise d'explication : L'animal <b>tithe était</b> inclus <b>dans</b> la <b>catégorie</b> de toutes les offrandes, <b>et pourquoi a-t-il</b> été distingué <b>dehors ?</b> C'est <b>pour vous dire : De même que</b> l'animal <b>tithe</b> est <b>une offrande individuelle, et une offrande</b> sacrifiée sur l'<b>autel, et</b> c'est <b>un objet qui ne vient</b> que <b>comme une obligation,</b> pas comme une offrande de cadeau, <b>et</b> c'est <b>un objet qui n'est pas</b> apporté <b>en association, </b> mais seulement par un individu, <b>ainsi, toutes</b> les offrandes qui rendent leurs substituts sacrés doivent être <b>une offrande individuelle, et une offrande</b> sacrifiée sur l'<b>autel, et</b> ce doit être <b>un objet qui vient</b> seulement <b>comme une obligation,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

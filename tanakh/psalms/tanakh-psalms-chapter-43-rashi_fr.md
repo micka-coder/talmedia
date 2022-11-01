@@ -14,4 +14,4 @@
 <b>et je Te remercierai avec une lyre</b> car Tu m'as sorti de mon exil.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

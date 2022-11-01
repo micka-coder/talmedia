@@ -63,7 +63,7 @@
 <b>Et il y aura une route</b> au milieu des eaux pour le reste de son peuple.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Et un rameau sortira de la tige de Jessé</b> Et si vous dites : 'Voici des consolations pour Ezéchias et son peuple, pour qu'ils ne tombent pas entre ses mains. Et maintenant, qu'en sera-t-il de l'exilé qui a été exilé à Halah et à Habor, leur espoir est-il perdu ?' Il n'est pas perdu ! Finalement, le roi messie viendra les racheter.
 <b>Une pousse</b> [Ceci est symbolique du] sceptre royal.
@@ -128,4 +128,4 @@
 <b>Et il y aura une route</b> au milieu des eaux pour le reste de son peuple.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

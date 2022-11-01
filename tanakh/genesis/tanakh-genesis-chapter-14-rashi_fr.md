@@ -94,5 +94,5 @@
 ### passuk 24
 <b>Les jeunes gens.</b> [Signification :] mes serviteurs qui sont partis avec moi. En outre, "Aneir, Eshkol, et Mamrei, etc. Bien que ce soient mes serviteurs qui aient pris part à la guerre ", comme il est dit : " Lui et ses <i>serviteurs</i> les ont battus ", et, Aneir et ses amis sont [seulement] restés avec les provisions pour les garder, néanmoins, ils auront leur part. De lui [Avram], David a tiré une leçon lorsqu'il a dit : " Comme la part de celui qui participe à la bataille et comme la part de celui qui reste avec les provisions - ils partageront ensemble. " Il est donc dit : "Il en était ainsi depuis ce jour [et il en était ainsi] depuis des temps antérieurs et il [David] en a fait une ordonnance et une loi." On ne dit pas <i>et sur,</i> car la loi avait déjà été donnée à l'époque d'Avram. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

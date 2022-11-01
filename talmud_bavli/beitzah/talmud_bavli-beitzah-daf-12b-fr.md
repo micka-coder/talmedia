@@ -57,4 +57,4 @@ Abaye soulève une difficulté contre l'opinion de Rava sous un angle différent
 La Guemara réfute ce défi : Ceci n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ Il était courant de dater les documents en fonction des années du règne du ro
 <b>Le Maître a dit,</b> citant la <i>baraïta</i> : Si <b>un roi est monté</b> sur le trône <b>le vingt-neuf d'Adar, une fois le premier de Nisan arrivé, une année est comptée pour son</b> règne. La Gemara commente : <b>Ceci</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

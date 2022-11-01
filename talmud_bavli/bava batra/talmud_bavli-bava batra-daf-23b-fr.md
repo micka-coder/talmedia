@@ -24,4 +24,4 @@ La Guemara demande : <b>Si oui, dites la dernière clause</b> de la mishna : S'i
 La Guemara suggère également : <b>Venez</b> et <b>entendez</b> la mishna : Dans un cas où il <b>a été trouvé entre deux pigeonniers,</b> s'il était <b>proche de celui-ci,</b> il appartient <b>au</b> propriétaire de ce pigeonnier ; s'il était <b>proche de celui-là,</b> il appartient <b>au</b> propriétaire de ce pigeonnier. La Guemara commente : <b>Et</b> c'est la <i>halakha</i> <b>même si l'un d'eux est plus grand</b> en nombre d'oiseaux <b>que l'autre.</b> Apparemment, on statue en fonction de la proximité et non de la majorité. La Gemara explique : <b>De quoi s'agit-il ici ?</b> Nous avons affaire à une situation <b>où les deux</b> pigeonniers <b>sont égaux</b> en taille. La Guemara demande : <b>Mais</b> même dans ce cas, pourquoi devrait-on suivre le pigeonnier le plus proche ? <b>Suivons la majorité du monde,</b> car il existe de nombreux autres pigeonniers en plus de ceux-ci, et le nombre de colombes qu'ils contiennent est plus important. La Guemara répond : <b>De quoi s'agit-il ici ?</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

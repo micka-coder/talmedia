@@ -21,4 +21,4 @@ Ceci est <b>comme il est enseigné</b> dans un <i>baraita</i> : <b>Initialement,
 Le <i>baraita</i> continue : <b>Mais</b> les Sages ont plus tard <b>révisé</b> cette <i>halakha</i> et <b>dit</b> les <i>halakhot</i> suivantes dont le mnémonique est <b><i>dalet</i>, <i>beit</i>, <i>dalet</i>,</b> qui signifie fouler [<i>dorkhin</i>], récolter [<i>botzrin</i>], et fouler [<i>dorkhin</i>] : On <b>ne doit pas fouler</b> le raisin <b>dans le pressoir</b> avec <b>le Gentil.</b> La Gemara commente : Ceci est <b>du à</b> la décision <b>du Rav Huna</b> selon laquelle à partir du moment où il coule, le vin peut être rendu vin utilisé pour une libation. Le Gentil touche généralement le vin qui coule en foulant les raisins, ce qui rend le vin interdit. Par conséquent, si un Juif reçoit un paiement pour avoir foulé le raisin avec le Gentil, il profite d'un objet dont il est interdit de tirer un bénéfice.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

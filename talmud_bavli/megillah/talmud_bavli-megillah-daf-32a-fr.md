@@ -51,4 +51,4 @@ La Guemara demande à nouveau : <b>Peut-il te venir à l'esprit de dire</b> qu'i
 § La mishna déclare : Le verset <b>"Et Moïse déclara aux enfants d'Israël les saisons déterminées de l'Eternel"</b> (Lévitique 23:44) indique qu'une partie de <b>la mitzva</b> des Fêtes est <b>qu'ils doivent lire</b> la portion qui s'y rapporte, <b>chacune à son</b> moment déterminé. Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Moïse a édicté pour le peuple juif qu'il devait faire</b> des <b>enquêtes halakhiques et exposer l'affaire du jour. </b> Ils devaient s'occuper des <b>halakhot</i> de Pessah sur Pessah,</b> des <b>halakhot</i> de <i>Shavuot</i> sur <i>Shavuot</i>, et</b> des <b><i>halakhot</i> de <i>Sukkot</i> sur <i>Sukkot</i>.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

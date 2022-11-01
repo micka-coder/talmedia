@@ -26,5 +26,5 @@ Les femmes, les esclaves et les mineurs sont exemptés du [commandement] de la s
 ### michna 9
 Pendant les sept jours [de la fête], un homme doit faire de la souccah sa résidence permanente et de sa maison sa résidence temporaire. S'il pleut, quand peut-on être autorisé à la quitter ? Lorsque la bouillie se gâte. Ils ont fait une parabole. A quoi cela peut-il être comparé ? A un esclave qui vient remplir la coupe de son maître, et celui-ci lui verse une cruche sur le visage.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

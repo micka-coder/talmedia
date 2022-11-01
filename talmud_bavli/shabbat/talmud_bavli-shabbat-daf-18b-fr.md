@@ -24,4 +24,4 @@ Le texte complet de la <i>baraita</i> est : <b>Beit Shammai dit : On ne peut ven
 <b>Les Sages ont enseigné</b> un principe similaire dans une <i>baraita</i> à propos d'une autre dispute tannaïtique. <b>Beit Shammai disent : Une personne ne peut vendre son levain à un Gentil</b> la veille de Pessah <b>à moins qu'elle ne sache que</b> le levain <b>sera achevé avant Pessah. Et Beit Hillel dit : Tant qu'il est permis</b> au Juif de <b>manger</b> du levain, <b>il est</b> également <b>permis pour lui de le vendre</b> à un Gentil. Le Juif cesse d'être responsable du levain vendu à un Gentil à partir du moment où il est vendu. <b>Et Rabbi Yehuda dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

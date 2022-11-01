@@ -15,4 +15,4 @@ La Gemara demande : <b>D'où proviennent ces matières</b> que minuit détermine
 <b>Rav Kahana soulève une objection.</b> Il a été enseigné dans la mishna : <b>Chaque jour</b> les prêtres <b>enlevaient les cendres de l'autel au chant du coq ou adjacent à celui-ci, que ce soit avant ou après, et à Yom Kippour à partir de minuit, et aux Fêtes</b> à partir de la fin de <b>la première veille.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

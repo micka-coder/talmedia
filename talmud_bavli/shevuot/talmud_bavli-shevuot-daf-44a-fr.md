@@ -18,4 +18,4 @@ La Gemara demande : Si c'est le cas, <b>doit-on dire</b> que l'opinion <b>de Rab
 <b>Et ils sont en désaccord en ce qui concerne</b> le statut halakhique de <b>celui qui sauvegarde un objet perdu</b> qu'il a trouvé mais n'a pas encore rendu. <b>Comme il a été dit :</b> En ce qui concerne <b>celui qui sauvegarde un objet perdu, Rabba dit</b> que son statut halakhique est <b>comme</b> celui d'un <b>bailli non payé,</b> qui est exempté de payer la restitution en cas de perte ou de vol de l'objet,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

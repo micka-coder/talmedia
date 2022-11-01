@@ -63,4 +63,4 @@ La Guemara explique que cette affirmation est effectivement valable, et qu'il fa
 Par conséquent, <b>le verset dit : "Du bétail", pour exclure un animal qui a copulé avec une personne et un animal qui a fait l'objet de bestialité</b> de l'éligibilité comme offrandes. La Gemara demande : <b>Mais</b> pourquoi cette dérivation est-elle nécessaire ? Cette <i>halakha</i> venait d'être <b>inférée par</b> une <i>a fortiori</i> <b>déduction</b>, par Rabbi Shimon. La Guemara explique qu'en fait la <i>halakha</i> d'un animal qui a copulé avec une personne et d'un animal qui a fait l'objet de bestialité <b>ne peut pas être inférée</b> par <i>a fortiori</i> inférence selon les rabbins qui ne sont pas d'accord avec Rabbi Shimon.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

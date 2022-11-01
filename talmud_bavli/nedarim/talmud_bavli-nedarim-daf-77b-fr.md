@@ -27,4 +27,4 @@ La Guemara soulève une difficulté avec cette décision : Un juge peut-il disso
 <b>Comme il est enseigné</b> dans une <i>baraita</i> : Le verset <b>"C'est la chose</b> que le Seigneur a ordonnée" (Nombres 30:2) indique que l'annulation du mari, qui est le sujet des versets suivants, doit se faire spécifiquement de cette manière. Les Sages ont conclu que <b>une autorité halakhique dissout</b> un vœu, <b>mais un mari ne le dissout pas</b>. <b>Comme,</b> on <b>pourrait</b> avoir pensé : <b>Et de même qu'une autorité halakhique, qui ne peut annuler</b> les vœux, les <b>dissout néanmoins</b>, de même en ce qui concerne <b>un mari, qui peut annuler</b> les vœux, <b>n'est-il pas logique qu'il devrait</b> également les <b>dissoudre</b> ? Par conséquent, <b>le verset dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

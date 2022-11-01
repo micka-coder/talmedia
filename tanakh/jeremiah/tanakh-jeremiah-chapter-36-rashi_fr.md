@@ -73,7 +73,7 @@
 <b>Beaucoup de mots comme ceux-là</b> Au début, il y avait trois acrostiches alphabétiques : (Lam. ch. 1) " Ô combien... est resté ", (2) " Comment... a apporté l'obscurité ", (4) " Comment est devenu obscur... ". Et il y ajouta (3) "Je suis l'homme", dans lequel chaque lettre est triplée.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -148,4 +148,4 @@
 <b>Beaucoup de mots comme ceux-là</b> Au début, il y avait trois acrostiches alphabétiques : (Lam. ch. 1) " Ô combien... est resté ", (2) " Comment... a apporté l'obscurité ", (4) " Comment est devenu obscur... ". Et il y ajouta (3) "Je suis l'homme", dans lequel chaque lettre est triplée.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

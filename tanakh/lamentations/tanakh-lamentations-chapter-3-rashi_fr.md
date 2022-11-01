@@ -194,4 +194,4 @@
 <b>[Fais d'eux] des fous.</b> תַּאֲלָתְךָ est] une expression de [folie,<sup>44</sup><i class="footnote">Alternativement, une expression de souffrance, c'est-à-dire 'tourne Ta souffrance, pour ainsi dire, vers eux [nos ennemis]'. Chaque fois que les Bnei Israël souffrent, Dieu souffre, pour ainsi dire, avec eux. Ou תאלתך est l'expression d'une malédiction [אלה], c'est-à-dire : 'fais tomber sur eux les malédictions [écrites dans la Torah]'. </i> comme dans], "les princes de Tzo'an sont devenus insensés נוֹאֲלוּ."<sup>45</sup><i class="footnote">Yeshayahuu 19:13. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

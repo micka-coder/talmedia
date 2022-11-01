@@ -17,5 +17,5 @@ Le violeur, le séducteur et l'aliéné ne disqualifient pas [une femme de mange
 ### michna 6
 Un grand prêtre disqualifie parfois [la mère de sa mère] de la possibilité de manger de la teroumah. Comment cela se passe-t-il ? Si la fille d'un prêtre a été mariée à un Israélite et qu'elle a eu une fille de lui, et que cette fille est allée se marier à un prêtre et a eu un fils de lui, ce fils est apte à être un grand prêtre, à se tenir debout et à servir à l'autel. Il permet à sa mère de manger de la teroumah mais disqualifie la mère de sa mère. Et elle peut dire : "Qu'il n'y ait pas comme mon petit-fils le grand prêtre qui m'a disqualifié de manger de la teroumah".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

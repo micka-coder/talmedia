@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais</b> qu'en est-il de <b>la mishna, qui enseigne :</b>
 La Guemara répond : La mishna <b>enseigne</b> seulement cette <b>une</b> déclaration, et elle doit être comprise comme suit : Dans les affaires de <b>droit monétaire,</b> le tribunal <b>ramène</b> le plaideur <b>de retour</b> pour être jugé à nouveau <b>pour exempter</b> ce plaideur, <b>ce qui revient</b> à la <b>responsabilité</b> de l'autre plaideur, tandis que <b>dans la situation correspondante</b> <b>en ce qui concerne</b> les cas de droit <b>capital</b>, le tribunal <b>représente</b> l'accusé <b>pour l'acquitter</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

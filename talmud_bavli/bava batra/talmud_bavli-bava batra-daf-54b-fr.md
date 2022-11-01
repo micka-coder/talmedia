@@ -15,4 +15,4 @@ Abaye lui dit : Es-tu en train de dire</b> que l'incident s'est produit à <b>Du
 La Gemara relate : <b>Rav Huna a acheté une terre à un Gentil. Un autre juif vint et le laboura légèrement.</b> Rav Huna et ce juif <b>se présentèrent devant Rav Naḥman,</b> qui <b>établit</b> la propriété <b>en possession</b> de ce dernier. Rav Huna <b>dit à</b> Rav Naḥman : <b>Que pensez-vous</b> en émettant cette décision ? Est-ce <b>parce que Shmuel dit</b> que <b>la propriété d'un Gentil est comme un désert, et quiconque en prend possession</b> l'a <b>acquis?</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

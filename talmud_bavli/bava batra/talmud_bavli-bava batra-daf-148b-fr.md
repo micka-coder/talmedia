@@ -54,4 +54,4 @@ La Gemara présente <b>une autre version</b> de cette série de dilemmes : Si un
 Une série de <b>dilemmes ont été soulevés devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

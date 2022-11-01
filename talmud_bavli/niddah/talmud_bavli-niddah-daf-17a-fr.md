@@ -69,4 +69,4 @@ La Guemara analyse la <i>baraita</i> : <b>Cette</b> <i>baraita</i> <b>en soi</b>
 <b>Abaye dit :</b> Il est possible que toute la neige devienne impure, dans un cas <b>où l'on a passé</b> la neige <b>dans l'espace aérien</b> d'un récipient en terre, tel que <b>un four,</b> dans lequel se trouvait la source d'impureté. Cela rend toute la motte de neige impure, <b>comme la Torah témoigne à propos d'un récipient en terre</b> qui contient une source d'impureté que tous les éléments à l'intérieur de son espace aérien sont rendus impurs, comme le dit le verset : "Tout ce qui s'y trouve sera impur" (Lévitique 11:33).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara demande : <b>Et l'autre</b> Sage, qui le déduit du verset : "Et il ne
 Un <i>tanna</i> de l'<b>école de Rabbi Yishmael a enseigné :</b> Le <i>halakha</i> <b>est dérivé par une <i>a fortiori</i></b> déduction <b>de</b> le cas d'un <b>prêtre souillé</b> : <b>Et tout comme</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

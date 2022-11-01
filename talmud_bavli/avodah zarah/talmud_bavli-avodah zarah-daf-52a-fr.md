@@ -75,4 +75,4 @@ La Gemara suggère : <b>Et qu'il soulève le dilemme</b> quant à savoir si la r
 La Guemara suggère : <b>Qu'il soulève le dilemme</b> en ce qui concerne la question de savoir si la révocation de son statut purifie l'objet d'adoration de l'<b>idole lui-même</b> dans un cas où il est constitué de nourriture. La Guemara répond : Rabbi Yoḥanan <b>ne soulève pas le dilemme</b> en ce qui concerne l'objet de <b>l'adoration des idoles lui-même,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

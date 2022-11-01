@@ -71,4 +71,4 @@
 <b>La voix de tes ambassadeurs</b> Heb. מַלְאָכֵכֵה. La voix de tes ambassadeurs, comme l'avaient déjà fait Rabshakeh et ses collègues, les ambassadeurs de l'Assyrie : "Et ils appelèrent d'une voix forte en Judée" (Esaïe 36, 13).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

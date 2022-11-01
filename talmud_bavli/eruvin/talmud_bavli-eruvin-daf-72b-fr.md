@@ -54,4 +54,4 @@ La Guemara s'étonne de la formulation de la <i>baraita</i> : <b>Est-il entré d
 La Gemara demande : <b>Qu'est-ce qui est</b> considéré comme le <b>lieu de résidence</b> d'une personne ? Rav répond :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

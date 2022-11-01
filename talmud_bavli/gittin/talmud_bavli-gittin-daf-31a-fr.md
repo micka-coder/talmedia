@@ -12,4 +12,4 @@
 <strong>GEMARA:</strong> La mishna a enseigné que si le produit ou l'argent a été perdu, alors on doit s'inquiéter que cela se soit produit du temps jusqu'au même moment. La Guemara demande : <b>Qu'est-ce que</b> on entend par : <b>Du temps jusqu'au</b> même <b>temps ? Rabbi Yoḥanan répond :</b> Cela signifie <b>depuis le moment</b> où il a été <b>vérifié</b> et trouvé perdu, <b>jusqu'à la</b> même <b>heure</b> de la veille. Si on avait utilisé ce produit pour rendre convenable d'autres produits dans les vingt-quatre heures avant de s'apercevoir qu'il avait été perdu, on doit séparer à nouveau le <i>teruma</i> et la dîme pour ce produit. <b>Rabbi Elazar ben Antigonus dit au nom de Rabbi Elazar, fils de Rabbi Yannai :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

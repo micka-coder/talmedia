@@ -54,4 +54,4 @@ La Gemara demande : <b>De quoi</b> le verset fait-il référence lorsqu'il dit :
 Sur le même sujet, la Gemara déclare : <b>"Alors ma colère s'enflammera contre eux en ce jour, je les abandonnerai, je leur cacherai ma face,</b> et ils seront dévorés" (DeutéronomeÂ 31:17). <b>Rav Bardela bar Tavyumei a dit</b> que <b>Rav a dit : Toute personne qui n'est pas soumise à</b> Sa <b>couverture de la face,</b> c'est-à-dire dont les prières sont invariablement exaucées, <b>n'est pas du</b> peuple juif, car le verset précise à propos du peuple juif que Dieu leur cachera Sa face en raison de leurs péchés. De même, <b>toute personne</b> qui <b>n'est pas soumise à : "Et ils seront dévorés,"</b> c'est-à-dire que les Gentils ne lui volent pas son argent,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

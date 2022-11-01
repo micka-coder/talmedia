@@ -42,4 +42,4 @@ La Gemara rejette cette idée : <b>Peut-être</b> on peut seulement conclure de 
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve d'un incident <b>où Shmuel a trouvé Rav en train de manger avec un tissu</b> au lieu de se laver les mains, et Shmuel <b>lui a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara commente : L'exigence de <b>broyage</b> dans une <i>baraita</i> <b>es
 <strong>GEMARA:</strong> La Gemara commence par demander : <b>Qui est</b> l'auteur de <b>la mishna ? Il n'est pas</b> conforme à l'opinion de <b>Rabbi Yehuda, et il n'est pas</b> conforme à l'opinion de <b>Rabbi Shimon, et il n'est pas</b> conforme à l'opinion de <b>Rabbi Yosei HaGelili.</b> La Gemara clarifie cette question : <b>Quel est</b> le cas sur lequel ces Sages sont en désaccord, et quels sont leurs avis sur cette question ? La Guemara explique : <b>Comme il a été enseigné</b> dans une <i>baraita</i> : Celui qui mange ou tire profit du <b>pain levé, que ce soit avant son temps,</b> à partir de midi la veille de Pessah, <b>ou après son temps,</b> c'est-à-dire du pain levé sur lequel Pessah s'est écoulé, <b>transgresse une mitsva négative. Pendant son temps,</b> le jour même de Pessah, celui qui mange du pain levé <b>transgresse une mitzva négative et</b> est susceptible de recevoir <b><i>karet</i>.</b> Telle est <b>la déclaration de Rabbi Yehuda.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

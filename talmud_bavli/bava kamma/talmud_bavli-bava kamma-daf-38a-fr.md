@@ -48,4 +48,4 @@ Le raisonnement des officiels était que ce <i>halakha</i> est difficile <b>quel
 Ulla est donc <b>allé consoler</b> Rav Shmuel bar Yehuda <b>par lui-même,</b> et lui <b>dit :</b> Le verset dit : <b>"Et l'Eternel m'a dit : ne sois pas en hostilité avec Moab, et ne leur livre pas bataille"</b> (Deutéronome 2, 9). <b>Qu'est-ce qui est entré dans l'esprit de Moïse,</b> pour que Dieu doive l'avertir de ne pas entreprendre une action particulière ? Est-il entré dans son esprit <b>de faire la guerre</b> avec les Moabites <b>sans permission ? Au contraire, Moïse a raisonné une <i>a fortiori</i></b> déduction <b>par lui-même, en disant : Et si</b> en ce qui concerne <b>les Madianites, qui ne sont venus que pour aider les Moabites</b> à nuire au peuple juif (voir Nombres, chapitre 22), <b>la Torah a dit : "Harassez les Madianites et frappez-les"</b> (Nombres 25, 17),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

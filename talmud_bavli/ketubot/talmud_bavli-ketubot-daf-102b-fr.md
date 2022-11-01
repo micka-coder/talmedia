@@ -60,7 +60,7 @@ La Gemara demande : <b>D'où savons-nous</b> que <b>nous avons affaire</b> à un
 La Gemara répond : <b>Si c'est le cas, que</b> la mishna <b>enseigne</b> que le mari doit apporter la subsistance <b>à l'endroit où elle, </b> la fille, se trouve.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Lorsqu'ils sont en désaccord, c'est conformément</b> à l'avis de <b>Rabbi Yishmael. Rabbi Yoḥanan</b> a énoncé sa décision <b>conformément</b> à l'interprétation simple de l'avis de <b>Rabbi Yishmael. Et Reish Lakish</b> soutient que <b>Rabbi Yishmael énonce</b> son avis <b>uniquement là,</b> dans le cas du garant, <b>qui concerne une obligation de la loi de la Torah</b>, puisqu'un garant est obligé par la loi de la Torah de payer. <b>Mais ici,</b> où le cas <b>ne se rapporte pas</b> à <b>une obligation de la loi de la Torah</b>, puisque l'homme ne devait pas d'argent jusqu'à ce qu'il accepte cette obligation sur lui-même, même Rabbi Yishmael l'exempterait de payer.
 
@@ -122,4 +122,4 @@ La Gemara demande : <b>D'où savons-nous</b> que <b>nous avons affaire</b> à un
 La Gemara répond : <b>Si c'est le cas, que</b> la mishna <b>enseigne</b> que le mari doit apporter la subsistance <b>à l'endroit où elle, </b> la fille, se trouve.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

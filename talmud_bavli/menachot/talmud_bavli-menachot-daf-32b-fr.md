@@ -33,4 +33,4 @@ La Gemara relate : Les membres <b>de la maison du roi Munbaz faisaient cela,</b>
 <b>Et Rav Yehuda dit</b> que <b>Shmuel dit :</b> C'est <b>une mitzva de placer</b> le <i>mezuza</i> <b>dans l'espace aérien de l'entrée,</b> pas à l'extérieur. La Gemara demande : N'est-ce pas <b>évident ?</b> Après tout, <b>Le Miséricordieux déclare :</b> "Et <b>sur vos portes"</b> ce qui indique qu'elle doit se trouver dans l'espace de la porte, et non à l'extérieur. La Guemara explique qu'il pourrait <b>entrer dans votre esprit de dire</b> que <b>puisque Rava dit :</b> C'est <b>une mitzva de placer</b> la <i>mezuza</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

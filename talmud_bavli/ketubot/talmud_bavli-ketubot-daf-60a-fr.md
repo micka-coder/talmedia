@@ -42,4 +42,4 @@ La Guemara continue à discuter de la <i>baraita</i> susmentionnée, qui stipule
 § La Guemara aborde d'autres <i>halakhot</i> relatives à l'allaitement. <b>Les Sages ont enseigné : Une femme allaitante dont le mari est décédé dans les vingt-quatre mois</b> de la naissance de son enfant <b>ne peut pas être fiancée et ne peut pas se marier</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

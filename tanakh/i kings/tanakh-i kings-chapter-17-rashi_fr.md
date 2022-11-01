@@ -57,4 +57,4 @@
 <b>Il se déploya.</b> [ויתמודד est] une expression de מדה, [c'est-à-dire] il se déploya sur lui.<sup>16</sup><i class="footnote">Eliyahou se prosterna de la même manière qu'Elisée, dans le cas du fils de Shunamis. Il plaça ses yeux sur les yeux du jeune, et sa bouche sur la bouche du jeune, dans II Melochim 4:34.-Radak </i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

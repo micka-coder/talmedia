@@ -48,4 +48,4 @@ La Guemara développe : <b>Comme, si</b> c'est conforme à l'opinion de <b>Rabbi
 <b>Comme il est enseigné</b> dans la <i>Tosefta</i> (<i>Bava Batra</i> 2:4) que <b>Rabbi Yosei a dit : Lorsque le père Ḥalafta est allé étudier la Torah avec Rabbi Yoḥanan ben Nuri, et certains disent</b> qu'il a dit : Lorsque <b>Rabbi Yoḥanan ben Nuri</b> est allé étudier la <b>Torah avec le père</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

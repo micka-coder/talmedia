@@ -45,4 +45,4 @@ La Gemara commente que <b>cela est enseigné</b> dans <b>une</b> <i>baraita</i> 
 La Guemara demande : <b>Et quelle est</b> la durée d'une <b>courte sieste ? Rami bar Yeḥezkel a enseigné :</b> Elle est <b>équivalente</b> au temps nécessaire pour <b>marcher cent coudées.</b> La Gemara commente : <b>Ceci est également enseigné</b> dans une <i>baraita</i> : <b>La personne qui dort avec des phylactères et qui éprouve une émission séminale saisit la sangle</b> des phylactères pour les retirer.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

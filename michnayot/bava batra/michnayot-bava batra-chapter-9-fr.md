@@ -29,5 +29,5 @@ Si la maison s'est effondrée sur un homme et sa femme, les héritiers du mari d
 ### michna 10
 Si la maison s'est effondrée sur un homme et sa mère, ils (les écoles de Shammai et Hillel) sont d'accord pour partager les biens. Rabbi Akiva a dit : "Je suis d'accord ici, que la propriété reste dans son ancien statut." Ben Azzai lui dit :  Ben Azzai lui dit : "Nous sommes déjà affligés par les choses sur lesquelles il y a un désaccord, et tu viens apporter un désaccord sur les points sur lesquels ils sont d'accord".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

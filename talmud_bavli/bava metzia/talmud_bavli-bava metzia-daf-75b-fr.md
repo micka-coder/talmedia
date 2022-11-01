@@ -39,4 +39,4 @@ La Gemara cite un incident connexe : <b>Les Sages ont dit à Rav Ashi : Ravina a
 La Guemara clarifie : Celui qui <b>acquiert un maître pour lui-même, qu'est-ce que c'est ? Il y a</b> ceux <b>qui disent</b> qu'il s'agit de celui qui <b>attribue ses biens à un Gentil.</b> Il prétend faussement que ses biens appartiennent à un Gentil afin de se soustraire à ses obligations, invitant ainsi le Gentil à tirer profit de cette déclaration. Et <b>il y a</b> ceux <b>qui disent</b> qu'il s'agit de celui <b>qui écrit</b> un document léguant <b>ses biens</b> en cadeau <b>à ses enfants de son vivant,</b> car il devient financièrement dépendant d'eux. Et <b>il y a</b> ceux <b>qui disent que</b> il fait référence à celui <b>qui a mauvaise</b> fortune <b>dans cette ville mais ne va pas dans une autre ville.</b> Il est par conséquent responsable de ses propres malheurs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

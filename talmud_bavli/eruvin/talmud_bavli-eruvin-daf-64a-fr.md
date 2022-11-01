@@ -36,4 +36,4 @@ La Guemara pose une question : <b>Quelles sont les circonstances</b> dans lesque
 <b>L'autre</b> a alors <b>ouvert</b> une discussion différente <b>et a dit :</b> En ce qui concerne <b>celui qui a pris possession des biens d'un converti, que doit-il faire pour qu'ils restent entre ses mains ?</b> Les biens d'un converti qui est mort sans enfants sont considérés comme sans propriétaire, et sont acquis par la première personne qui effectue un acte d'acquisition valide sur ces biens. Puisque dans ce cas, celui qui a pris possession du bien ne l'a pas acquis par son propre travail, sa propriété est ténue, et il est susceptible de la perdre à moins qu'il ne l'utilise dans le cadre d'une mitzva. Celui qui se trouve dans cette situation <b>doit acheter un rouleau de Torah avec</b> une partie du revenu, et par le mérite de cet acte, il conservera le reste. <b>Rav Sheshet a dit : Même</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

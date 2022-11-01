@@ -27,4 +27,4 @@ La Guemara demande : <b>Qui est considéré comme une personne méchante et comp
 <b>Rav Yosef bar Ḥama</b> dit que <b>Rav Sheshet dit :</b> Un méchant complice est <b>celui qui persuade les autres avec ses manières,</b> en convainquant les autres d'imiter son comportement apparemment vertueux, afin de cacher ses défauts. <b>Rabbi Zerika</b> dit que <b>Rav Huna dit :</b> Un méchant complice est <b>celui qui est indulgent</b> dans la <i>halakha</i> <b>pour lui et strict pour les autres. Ulla dit : Ce</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

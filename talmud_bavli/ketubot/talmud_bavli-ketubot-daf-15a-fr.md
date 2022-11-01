@@ -51,7 +51,7 @@ La Guemara répond : <b>Non,</b> le verset n'est <b>nécessaire</b> que dans un 
 <b>Rav Yirmeya a soulevé une objection</b> à la décision de Rav Ḥiyya bar Ashi, qui a apparemment jugé que même dans les cas où il n'y a qu'une seule majorité, la <i>halakha</i> est conforme à l'opinion de Rabbi Yosei : <b>Et en matière de lignage, n'exigeons-nous pas deux majorités,</b> une majorité des habitants de la ville et une majorité du contingent de passage ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Makhshirin</i> 2:7) :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 L'<b>incident</b> a transpiré <b>parmi les chariots [<i>keronot</i>]</b> sur la place <b>de Tzippori</b> le jour du marché, et cette <i>halakha</i> est <b>conforme</b> à la déclaration de <b>Rabbi Ami, comme l'a dit Rabbi Ami : Et ceci n'est</b> la décision que dans un cas <b>où il y avait un contingent d'hommes de lignée irréprochable passant par là.</b> Du fait que tant la lignée de la majorité des habitants de la ville où la fille a été violée que la lignée de la majorité des passants est irréprochable, le viol est attribué à un homme de lignée irréprochable. <b>Et</b> cette décision est <b>conforme</b> à la déclaration de <b>Rabbi Yannai, car Rabbi Yannai a dit : Si elle a eu des rapports sexuels dans les wagons, elle est apte à</b> épouser un membre de la <b>prêtrise.</b>
 
@@ -104,4 +104,4 @@ La Guemara répond : <b>Non,</b> le verset n'est <b>nécessaire</b> que dans un 
 <b>Rav Yirmeya a soulevé une objection</b> à la décision de Rav Ḥiyya bar Ashi, qui a apparemment jugé que même dans les cas où il n'y a qu'une seule majorité, la <i>halakha</i> est conforme à l'opinion de Rabbi Yosei : <b>Et en matière de lignage, n'exigeons-nous pas deux majorités,</b> une majorité des habitants de la ville et une majorité du contingent de passage ? <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Makhshirin</i> 2:7) :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

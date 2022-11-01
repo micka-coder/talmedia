@@ -18,4 +18,4 @@ La Guemara répond : <b>Rav Huna</b> aurait pu <b>vous dire</b> en réponse : M�
 On raconte que <b>Rav Pappa a acheté une terre à un certain homme,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

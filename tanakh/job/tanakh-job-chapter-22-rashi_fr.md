@@ -95,4 +95,4 @@ Dieu <b>sauvegarde</b> par tes mains et par ta prière.
 <b>Il délivrera celui qui n'est pas innocent</b> Heb. אי נקי, synonyme de אין נקִי, pas innocent, comme (I Sam. 4:21), "Ichabod (איכבוד)", signifiant, il n'y a pas de gloire (אין כבוד). Et ainsi (Prov. 31:4), "l'ivresse n'est pas non plus pour les dirigeants (אי שכר)," il n'y a pas d'ivresse (אין שכר). Il ne leur sied pas de s'enivrer. Menachem a réuni les trois en un seul groupe (Machbereth Menachem p. 22). Bien qu'il s'agisse de deux mots ( ?), ils les expliquent ainsi. Et celui qui n'est pas innocent sera délivré à cause de la pureté de vos mains. C'est ce que j'ai entendu. J'ai entendu une autre version qui était dite au nom de Rabbi Jacob : C'est l'expression d'un homme qui vit dans la douleur et les soupirs, et le "yud" est superflu dans le mot, comme (Ps. 123:1), "Qui habite (הישבי) dans le ciel." Mais je n'ai pas entendu cela de la bouche du rabbin.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

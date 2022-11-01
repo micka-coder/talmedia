@@ -48,4 +48,4 @@ La Guemara commente : <b>C'est enseigné</b> dans une <i>baraita</i> <b>conforme
 § <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>tout interdit qui</b> a <b>une mitzva positive</b> qui le <b>précède,</b> tout le monde s'accorde à dire que <b>on est fouetté pour sa</b> violation, car il n'est pas classé comme un interdit qui implique l'accomplissement d'une mitzva positive.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

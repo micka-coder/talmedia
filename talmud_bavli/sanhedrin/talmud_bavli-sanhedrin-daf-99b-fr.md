@@ -57,4 +57,4 @@ La Guemara demande : <b>Accordé, selon celui qui dit</b> que <b>celui qui trait
 <b>Au contraire,</b> le <i>épikoros</i> mentionné dans la mishna fait référence à celui qui se conduit <b>comme quelqu'un qui est assis devant son professeur et une <i>halakha</i></b> qu'il a apprise <b>d'un autre endroit arrive à tomber</b> dans sa conscience <b>et</b> l'étudiant <b>dit : C'est ce qu'on dit là, et il ne dit pas</b> avec déférence : <b>C'est ce que le Maître a dit,</b> même s'il n'a pas appris cette matière de son maître. <b>Rava a dit :</b> Le terme <i>épikoros</i> fait référence à celui qui se conduit <b>comme ceux de la maison de Binyamin le médecin, qui disent :</b> De <b>quelle</b> manière les Sages nous ont-ils profité</b> avec toute leur étude de la Torah ? <b>Jamais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ Rabbi Shimon <b>alla raconter à son père,</b> Rabbi Yehuda HaNasi, ce que bar 
 <b>En une autre occasion, Rabbi</b> Yehuda HaNasi <b>décréta que les étudiants ne soient pas enseignés sur la place du marché</b> mais seulement dans une salle d'étude. <b>Quel</b> verset a-t-il <b>expliqué</b> pour servir de base à ce décret ? Le verset dit : <b>"Tes cuisses arrondies sont comme des bijoux,</b> l'œuvre des mains d'un artiste" (Cantique des Cantiques 7:2). <b>Juste</b> comme <b>une cuisse est</b> ordinairement <b>cachée</b> et maintenue couverte par des vêtements,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

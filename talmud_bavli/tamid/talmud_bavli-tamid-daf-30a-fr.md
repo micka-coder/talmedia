@@ -10,4 +10,4 @@
 La Guemara <b>souleve une objection</b> de la mishna : <b>Il y avait un espace entre les bûches, car</b> les prêtres <b>allumaient le petit bois de là.</b> De toute évidence, le petit bois n'était pas allumé par l'ouverture. La Guemara explique : Le Sage qui soutient que le petit bois était allumé à partir de l'ouverture à l'est de l'arrangement pourrait <b>vous dire</b> qu'en plus d'allumer le petit bois à partir de l'ouverture, les prêtres <b>façonnaient de nombreux espaces</b> dans l'arrangement, à travers lesquels ils allumaient le petit bois afin d'augmenter le feu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

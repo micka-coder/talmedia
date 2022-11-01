@@ -65,4 +65,4 @@
 <b>et il a nommé le bon Jachin</b> bien que la lune soit plus petite que le soleil, c'est-à-dire qu'elle doit l'aider comme une lune établie, mais pas comme une lune décroissante. Salomon dit : "Si le Saint, béni soit-Il, compare mon royaume au soleil et à la lune, je ferai moi aussi une chose établie et durable, à savoir de grands piliers de cuivre." Une autre explication : Huram, qui était l'un des fils de Dan, a fabriqué les piliers. Il a appelé l'un d'eux Jachin, d'après son père Samson, dont l'Écriture dit (Jud. 16:29) : "Et Samson saisit les deux piliers du centre, etc.". Et Salomon a appelé le second Boaz, d'après son grand-père Boaz. Un exemple similaire est (Gen. 31:47) : "Et Laban l'appela Yegar Sahadutha."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

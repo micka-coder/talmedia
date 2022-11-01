@@ -71,4 +71,4 @@
 <b>Et le Seigneur aura le royaume</b> - Ceci vous enseigne que son royaume ne sera pas complet tant qu'il n'aura pas exigé le châtiment d'Amalek. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

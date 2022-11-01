@@ -57,4 +57,4 @@ La Gemara rejette cette preuve : Cet avertissement n'est <b>pas nécessaire</b> 
 <b>Si vous le souhaitez, dites</b> plutôt que <b>Rav Huna</b> aurait pu <b>vous dire : J'ai énoncé</b> mon opinion selon laquelle il est permis de tuer un poursuivant mineur <b>conformément au <i>tanna</i></b> qui a parlé de la question <b>du</b> cambrioleur qui <b>fait irruption</b> dans une maison. <b>Comme</b> ce <i>tanna</i> <b>dit</b> que <b>son effraction est son avertissement,</b> c'est-à-dire qu'un cambrioleur qui s'introduit dans une maison n'a pas besoin d'autre avertissement. Ici aussi, celui qui en poursuit un autre pour le tuer n'a pas besoin d'être averti puisque sa poursuite est son avertissement.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

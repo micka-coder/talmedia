@@ -30,4 +30,4 @@ La Gemara demande : <b>Et</b> d'où <b>Levi</b> tire-t-il ces cas ? La Guemara r
 La Guemara s'interroge sur la position de Levi : <b>Mais dites</b> que le verset doit être interprété comme suit : <b>Dans tout ce qui concerne"</b> est une <b>généralisation,</b> et <b>Un service de don"</b> est une <b>spécification,</b> indiquant un cas de <b>généralisation</b> suivie d'une <b>spécification.</b> L'un des principes de l'herméneutique stipule que dans de tels cas, <b>la généralisation ne comprend que ce qui</b> est mentionné explicitement <b>dans la spécification.</b> En suivant cette règle, on conclurait : <b>Un service de don,</b> c'est-à-dire de placement sur l'autel, <b>oui,</b> cela est inclus, mais <b>un service de retrait</b> n'est <b>pas</b> inclus. Ceci présente une difficulté pour Lévi. La Guemara répond que <b>le verset stipule :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

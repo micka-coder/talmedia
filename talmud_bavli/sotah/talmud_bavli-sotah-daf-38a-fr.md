@@ -45,4 +45,4 @@ On <b>pourrait</b> avoir pensé que <b>même dans les zones périphériques,</b>
 <b>Abaye a dit : Nous avons une tradition</b> concernant l'animateur de la prière qui appelle les prêtres à réciter la bénédiction sacerdotale : Quand il y a <b>deux</b> prêtres, <b>il appelle : Prêtres, mais</b> quand il y a <b>un</b> prêtre <b>il n'appelle pas : Prêtre, comme il est dit : "Tu leur diras"</b> au pluriel, c'est-à-dire <b>à</b> un minimum de <b>deux</b> prêtres. <b>Et Rav Ḥisda a dit : Nous avons une tradition</b> selon laquelle <b>un prêtre appelle : Prêtres, mais un israélite n'appelle pas : Prêtres, comme il est dit : "Tu leur diras", </b> ce qui veut dire que le <b>dit</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

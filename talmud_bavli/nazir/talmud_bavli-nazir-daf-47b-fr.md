@@ -30,4 +30,4 @@ C'est <b>comme l'ont enseigné les Sages :</b> Le verset indique à propos d'un 
 La Gemara commente : En ce qui concerne le reste du verset : "Ni se souiller pour son père ou pour sa mère" (Lévitique 21:11), chacune de ces clauses doit servir à enseigner une nouvelle <i>halakha</i>. <b>Et</b> l'expression "pour son père" enseigne : <b>C'est pour</b> enterrer <b>son père afin qu'il ne devienne pas rituellement impur,</b> d'où l'on peut déduire que <b>il devient impur pour</b> enterrer <b>une <i>mitsva</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

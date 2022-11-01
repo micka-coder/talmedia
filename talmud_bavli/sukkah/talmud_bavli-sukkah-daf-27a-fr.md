@@ -42,4 +42,4 @@ La Gemara demande : <b>Avec quoi</b> va-t-il <b>compenser</b> son manquement à 
 <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Eliezer dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

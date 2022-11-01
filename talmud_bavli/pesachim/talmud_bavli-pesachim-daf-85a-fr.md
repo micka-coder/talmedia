@@ -57,4 +57,4 @@ La Gemara demande : <b>Mais la dernière clause</b> de la <i>baraïta</i> <b>n'e
 La Guemara s'interroge sur la source d'une <i>halakha</i> mentionnée ci-dessus : <b>Et</b> en ce qui concerne <b>celui qui emporte de la viande</b> de l'agneau <b>Paschal</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

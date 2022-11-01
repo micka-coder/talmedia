@@ -51,4 +51,4 @@ La Gemara raconte : Un jour <b>Rabbi Asi ne s'est pas rendu à la salle d'étude
 <b>Rava a demandé à Rav Naḥman :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

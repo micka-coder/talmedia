@@ -23,5 +23,5 @@ Comment paie-t-on la dîme des animaux ? Il les amène dans un hangar et leur fa
 ### michna 8
 Si deux [agneaux] sont sortis en même temps, il les compte par paires. S'il a compté [les deux] comme un seul, le neuvième et le dixième sont gâtés. Si le neuvième et le dixième sont sortis en même temps, le neuvième et le dixième sont gâtés. S'il a appelé le neuvième le dixième, le dixième le neuvième et le onzième le dixième, les trois sont saints : le neuvième peut être mangé lorsqu'il devient souillé, le dixième est la dîme et le onzième est sacrifié comme un shelamim, et il peut faire un substitut, les mots de Rabbi Meir. Rabbi Juda a dit : un substitut peut-il faire un autre substitut ? Ils ont dit au nom de Rabbi Meir : si c'était un substitut, il n'aurait pas été sacrifié. S'il a appelé le neuvième le dixième, le dixième le dixième et le onzième le dixième, le onzième n'est pas saint. La règle est la suivante : partout où le nom du dixième [animal] n'a pas été retiré, le onzième n'est pas consacré.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

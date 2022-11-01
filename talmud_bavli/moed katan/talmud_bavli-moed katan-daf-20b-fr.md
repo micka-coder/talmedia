@@ -51,4 +51,4 @@ On a encore raconté que <b>le fils d'Ameimar' est mort,</b> et Ameimar <b>renda
 A propos de cette question, la Guemara rapporte que <b>Rav Ashi a dit à Ameimar : D'où déduit-on</b> que le <b>rendement</b> doit être fait en étant <b>débout ?</b> Il a répondu : <b>Comme il est écrit</b> à propos de la mort des fils de Job : <b>"Alors Job se leva et déchira son manteau"</b> (Job 1:20).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

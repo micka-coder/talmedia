@@ -33,4 +33,4 @@
 <b>Rabbi Abba bar Memel a dit : Et ils ne sont pas en désaccord</b> les uns avec les autres :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

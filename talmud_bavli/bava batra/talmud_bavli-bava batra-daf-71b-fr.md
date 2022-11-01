@@ -15,4 +15,4 @@ La Gemara répond : L'hypothèse selon laquelle la déclaration de Rav Huna est 
 La Guemara demande : Si la déclaration de Rav Huna est seulement <b>conforme</b> à l'opinion des <b>Rabbins,</b> alors sa déclaration n'est-elle pas <b>évidente ?</b> Quelle idée nouvelle ajoute-t-il ? La Guemara répond : La <b>différence</b> pratique est <b>que</b> alors que l'on aurait pu penser que le propriétaire antérieur conserve un droit sur la terre uniquement pour les arbres qui s'y trouvaient, ce n'est pas le cas. Au contraire, il conserve la propriété absolue du terrain, et donc, <b>si</b> les arbres <b>chutent</b> ou meurent <b>il peut les replanter.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

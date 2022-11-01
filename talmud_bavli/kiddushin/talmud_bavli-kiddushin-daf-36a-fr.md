@@ -66,4 +66,4 @@ En ce qui concerne le <b>pincement,</b> c'est <b>comme il est écrit : "Il pince
 En ce qui concerne la <b>réception,</b> c'est <b>comme il est écrit : "Et les fils d'Aaron présenteront</b> le sang" (Lévitique 1:5). <b>Et le Maître dit</b> en explication de ce verset :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

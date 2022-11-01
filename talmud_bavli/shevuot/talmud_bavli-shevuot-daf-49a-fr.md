@@ -6,4 +6,4 @@
 § La mishna enseigne : <b>L'année sabbatique</b> <b>abroge</b> l'obligation de prêter serment sur une dette, tout comme elle abroge une dette. La Gemara demande : <b>D'où vient cette question</b> ? <b>Rav Giddel dit</b> que <b>Rav dit : </b> Elle découle du fait <b>que le verset dit : "Et voici l'affaire [<i>devar</i>] de la libération:</b> Tout créancier libérera ce qu'il a prêté à son voisin ; il ne l'exigera pas de son voisin et de son frère, parce que la libération du Seigneur a été proclamée" (Deutéronome 15:2). Comme le mot <i>devar</i> signifie aussi déclaration, <b>cela enseigne que l'année sabbatique libère,</b> c'est-à-dire abroge, <b>même une déclaration,</b> c'est-à-dire un serment.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

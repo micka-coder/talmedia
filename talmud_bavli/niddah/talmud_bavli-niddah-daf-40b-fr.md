@@ -18,4 +18,4 @@ Rabbi Shimon poursuit : On <b>pourrait</b> avoir pensé <b>que je</b> devrais é
 Rabbi Shimon développe : <b>Et qu'as-tu vu,</b> c'est-à-dire quelle est la raison <b>d'inclure ces</b> cas particuliers <b>et d'exclure ces</b> cas particuliers ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -104,4 +104,4 @@
 <b>Parce qu'il s'est souvenu</b> Le Saint, béni soit-il, [s'est souvenu] de sa sainte parole, qui était avec Abraham, son serviteur, et qu'il lui avait promise (Gen. 15:14, 17) : "et ensuite ils partiront avec de nombreux biens...et une quatrième génération reviendra ici."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

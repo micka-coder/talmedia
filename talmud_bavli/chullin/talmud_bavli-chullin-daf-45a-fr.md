@@ -45,4 +45,4 @@ La Guemara développe : <b>Les Sages ont enseigné</b> dans une <i>baraita</i> :
 <b>Rabba bar Ḥana dit</b> que <b>Rabbi Yehoshua ben Levi dit :</b> Même si la membrane interne du cerveau est très fine et peu visible, <b>son équivalent dans les testicules,</b> qui sont également enfermés dans une membrane fine, <b>est visible,</b> car il a un aspect différent des testicules eux-mêmes. <b>Rabbi Shimon ben Pazi dit</b> que <b>Rabbi Yehoshua ben Levi dit au nom de bar Kappara:</b> En ce qui concerne le <b>cerveau, tout ce qui est à l'intérieur du crâne est considéré</b> comme faisant partie du <b>cerveau.</b> A partir du point où il <b>commence à s'étendre</b> comme une corde hors de la base du crâne, il <b>est considéré comme la moelle épinière. Et à partir d'où commence-t-elle à s'étendre ? Rabbi Yitzḥak bar Naḥmani a dit : Cela m'a été expliqué</b> personnellement <b>par Rabbi Yehoshua ben Levi</b> lui-même : Des saillies <b>similaires</b> à <b>deux</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

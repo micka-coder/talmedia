@@ -51,4 +51,4 @@ Rabbi Yirmeya <b>souleve</b> une autre <b>objection à</b> l'opinion de bar Padd
 Rabbi Yirmeya a objecté : <b>Si</b> la mishna fait référence <b>à la progéniture des animaux sacrifiés</b>, <b>quelle</b> est la signification de ce terme : <b>On consacre ?</b> Après tout, ces rejetons <b>sont déjà consacrés</b> par leurs mères.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

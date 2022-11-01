@@ -27,4 +27,4 @@ La Guemara demande : En ce qui concerne les <b>deux mille ans</b> de la période
 En ce qui concerne cette <i>baraita</i> également, <b>Rav Pappa a dit : Si un <i>tanna</i></b> voulait affirmer qu'à son époque, telles et telles années étaient déjà perdues par rapport aux deux mille ans qui sont désignés pour les jours du Messie, mais qu'il <b>oubliait et ne connaissait pas les détails</b> permettant de savoir exactement <b>combien</b> de temps s'était écoulé, <b>qu'il demande à un scribe combien</b> d'années <b>il écrit</b> lorsqu'il date des documents. <b>Et qu'il ajoute quarante-huit à</b> ce nombre, en corrigeant pour le siècle, <b>et</b> de cette manière <b>il</b> trouvera son nombre. Et votre moyen mnémotechnique</b> pour cela est le verset :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

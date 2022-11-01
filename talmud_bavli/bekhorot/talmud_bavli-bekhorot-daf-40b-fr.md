@@ -54,4 +54,4 @@ La mishna enseigne : Ou bien <b>une de ses oreilles</b> est <b>grande</b> et une
 <strong>MISHNA :</strong> Dans le cas de <b>la queue d'un veau qui n'atteint pas l'articulation de la jambe [<i>la'arkov</i>], les Sages ont dit :</b> C'est une tare, car <b>toute la croissance des veaux</b> se fait de <b>cette</b> manière : <b>Tout au long de leur croissance,</b> leurs queues <b>s'étendent</b> sous l'articulation de la jambe. <b>Quelle est l'articulation de la jambe</b> à propos de <b>laquelle</b> les Sages ont <b>parlé ? Rabbi Ḥanina ben Antigonus dit :</b> Ils font référence <b>à</b> l'<b>articulation de la jambe qui se trouve au milieu de la cuisse.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

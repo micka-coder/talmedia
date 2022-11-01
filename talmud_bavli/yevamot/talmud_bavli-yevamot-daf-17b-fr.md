@@ -48,4 +48,4 @@ La Gemara rejette cette idée : Aucune preuve ne peut être tirée d'ici, car il
 La Gemara répond : <b>S'il avait dit cela, je dirais que</b> en ce qui concerne le lien lévirien, <b>cela s'applique dans</b> le cas d' <b>un</b> frère, <b>mais</b> s'il y avait <b>deux</b> frères alors <b>le</b> lien lévirien <b>n'est pas substantiel.</b> La Gemara objecte : <b>Mais lorsque</b> les <i>tanna'im</i> <b>discordent,</b> ils <b>discordent dans</b> un cas de <b>deux</b> frères, alors comment pourrait-on penser que Rav Yehuda ne parle que dans le cas d'un seul frère ? <b>Au contraire,</b> il faut dire : <b>S'il disait que</b> la décision halakhique concluante est que le lien est substantiel,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

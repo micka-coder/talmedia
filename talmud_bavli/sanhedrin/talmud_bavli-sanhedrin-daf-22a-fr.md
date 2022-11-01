@@ -66,4 +66,4 @@ La Guemara demande : <b>C'est ainsi</b> qu'il est si difficile de trouver une co
 <b>Rabbi Shmuel bar Naḥman dit : Pour tout</b> ce qui est perdu <b>il y a un substitut, sauf</b> sa <b>femme de jeunesse</b> qui meurt, <b>comme il est dit : "Et une épouse de jeunesse, peut-elle être rejetée ?"</b> (Isaïe 54, 6). <b>Rav Yehouda a enseigné à Rav Yitzḥak, son fils : Un homme ne trouve le calme de l'esprit que de sa première femme, comme il est dit : " Que ta fontaine soit bénie et qu'elle ait de la joie avec la femme de</b> ".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

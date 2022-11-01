@@ -72,4 +72,4 @@ Rav Naḥman lui a demandé : <b>Et que le Maître résolve</b> le dilemme par r
 <b>Rav Ḥisda a dit :</b> En ce qui concerne <b>cette chemise en lin,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

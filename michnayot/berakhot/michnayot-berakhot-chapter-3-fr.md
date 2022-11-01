@@ -18,4 +18,4 @@ S'il se tenait en prière et se rappelait qu'il est un _Ba'al Keri_, il ne doit 
 Un _Zav_ [personne sujette à une certaine forme d'impureté rituelle] qui a vu une émission séminale, et un _Niddah_ [personne sujette à une autre forme d'impureté rituelle] qui a déchargé du sperme lors de relations sexuelles, et une femme ayant des relations sexuelles qui a vu du sang menstruel, nécessitent une immersion [rituelle]. Et Rabbi Yehouda les exempte.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

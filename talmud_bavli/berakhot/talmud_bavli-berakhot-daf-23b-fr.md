@@ -69,4 +69,4 @@ La Guemara <b>souleve une objection</b> basee sur ce qui a ete enseigne dans une
 <b>Rava dit : Bien que</b> une <i>baraita</i> <b>a ete enseignee</b> qui constitue <b>une refutation concluante de Shmuel, la <i>halakha</i> est en accord avec son</b> avis a ce sujet. <b>Quel est le motif</b> de cette decision ?
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

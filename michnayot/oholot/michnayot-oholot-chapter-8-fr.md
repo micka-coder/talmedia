@@ -17,5 +17,5 @@ N'apportent pas [l'impureté] et ne protègent pas contre elle : les graines, le
 ### michna 6
 Deux jarres [en terre] dans lesquelles se trouvent deux morceaux de cadavre de la taille d'une demi-olive, scellées par des couvercles bien ajustés, se trouvant dans une maison, elles restent propres, mais la maison devient impure. Si l'on ouvre l'une d'elles, cette [jarre] et la maison deviennent impures, mais l'autre reste pure. Il en est de même pour deux pièces qui s'ouvrent sur une maison.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

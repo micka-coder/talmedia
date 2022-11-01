@@ -63,4 +63,4 @@ Rabbi Zeira a répondu : <b>Non,</b> peut-être que la référence dans la mishn
 Rabbi Yirmeya soulève une objection supplémentaire à la déclaration de Rabbi Zeira : <b>Est-ce le cas ?</b> Le propriétaire de l'animal est-il exempt de responsabilité pour les cailloux propulsés par son animal dans le domaine public ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

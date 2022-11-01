@@ -33,4 +33,4 @@ Pourquoi ne donne-t-on pas les cent dinars s'il n'a pas ajouté de spécificatio
 La Guemara commente : <b>Et la <i>halakha</i></b> est que <b>on ne s'inquiète pas d'une somme enterrée</b> de cent dinars, c'est-à-dire que la <i>halakha</i> n'est pas conforme à l'avis de Rav. La Guemara demande : <b>Quelle est la raison</b> pour laquelle <b>Rav Pappa n'a pas dit</b> une explication qui soit <b>conforme</b> à celle de <b>Rav Zevid</b> en ce qui concerne la déclaration de Rav ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

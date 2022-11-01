@@ -33,4 +33,4 @@ La Guemara répond : <b>Ils le tirent</b> <b>du verset qui dit : <b>"Et il ne</b
 § <b>Abaye a dit : Tous</b> <i>tanna'im</i> de la mishna <b>sont d'accord en ce qui concerne celui qui a des relations sexuelles avec une femme menstruée,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

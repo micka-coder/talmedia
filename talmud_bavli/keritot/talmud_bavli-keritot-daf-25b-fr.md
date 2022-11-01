@@ -57,4 +57,4 @@ Abaye poursuit : Si oui, quand il est dit : <b>"Et toutes leurs transgressions, 
 <b>Rav Taḥlifa, père de Rav Huna bar Taḥlifa, a dit au nom de Rava :</b> En ce qui concerne <b>la première clause</b> de la mishna <b>aussi bien :</b> Ceux qui sont tenus d'apporter des offrandes de péché et des offrandes de culpabilité définitives pour lesquels Yom Kippour est passé sont tenus de les apporter après Yom Kippour, <b>on ne peut apporter</b> une preuve convaincante.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

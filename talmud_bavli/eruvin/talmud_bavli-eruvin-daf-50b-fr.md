@@ -48,4 +48,4 @@ La Guemara pose une question : <b>Disons</b> que cette <i>baraita</i> est une <b
 Nous avons appris dans la mishna que si, toutefois, <b>il dit : Ma résidence est au</b> <b>tronc</b> de l'arbre, il y établit sa résidence, et il <b>peut marcher de l'endroit où il se tient au tronc</b> de l'arbre, jusqu'à <b>deux mille coudées, et du tronc</b> de l'arbre <b>à sa maison</b> encore <b>deux mille coudées. En fin de compte, il peut marcher après la tombée de la nuit</b> une distance totale de <b>quatre mille coudées.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

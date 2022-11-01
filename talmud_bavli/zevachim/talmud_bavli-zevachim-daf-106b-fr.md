@@ -57,4 +57,4 @@ La Guemara conteste la prémisse même de l'affirmation de Rabbi Avin : <b>Mais 
 En ce qui concerne l'abattage, il est dit : "Ou qui l'égorge en dehors du camp, et il ne l'a pas apporté à l'entrée de la Tente d'assignation" (Lévitique 17:3-4), et en ce qui concerne l'offrande, il est dit : "Qui offre un holocauste ou un sacrifice, et il ne l'apportera pas à l'entrée de la Tente de la Rencontre" (Lévitique 17:8-9). L'analogie verbale enseigne que <b>comme là,</b> en ce qui concerne l'offrande, la Torah <b>ne prescrivait pas de punition</b> pour une action <b>à moins</b> qu'elle n'ait aussi explicitement <b>interdit</b> cette action, <b>de même ici,</b> en ce qui concerne l'abattage, la Torah <b>ne prescrivait pas de punition à moins qu'elle</b> ne l'ait aussi <b>interdit</b>. Par conséquent, même si la Torah n'énonce pas explicitement l'interdiction, il est évident qu'elle est interdite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

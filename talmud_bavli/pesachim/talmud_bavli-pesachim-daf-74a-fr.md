@@ -30,4 +30,4 @@ La Guemara soulève une discussion halakhique générale liée à la mishna. <b>
 La Gemara suggère : <b>Disons que</b> cette mishna <b>lui donne raison : Il place ses jambes et ses entrailles à l'intérieur</b> de l'agneau pascal et les fait rôtir ensemble. <b>Quelle est la raison</b> pour laquelle il est permis de faire cela ? N'est-ce pas <b>pas parce que nous disons : Comme il l'absorbe, il l'émet ?</b> Bien que Rabbi Akiva conteste cette affirmation, son opinion est due aux <i>halakhot</i> uniques de l'agneau pascal. Il semble que tout le monde s'accorde à dire que l'interdiction de consommer du sang ne pose aucun souci. La Guemara réfute cette preuve : <b>Disons que c'est différent là,</b> dans le cas de l'agneau pascal. <b>Puisque là se trouve le lieu de l'abattage, qui est creux</b> et ouvert,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

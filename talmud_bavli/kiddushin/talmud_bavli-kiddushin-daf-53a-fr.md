@@ -45,4 +45,4 @@ La Guemara demande : <b>Mais il y a</b> produit de l'année <b>sabbatique</b>, <
 La Gemara demande : <b>Mais il y a <i>teruma</i>,</b> à propos duquel il est écrit : "Le peuple juif est la portion sainte du Seigneur, Ses prémices de l'accroissement"</b> (Jérémie 2.3) ? <b>Et nous avons appris</b> dans une mishna (58a) que dans le cas de <b>celui qui fiance</b> une femme <b>avec <i>teruma</i>, elle est fiancée.</b> La Gemara répond : <b>Ce</b> verset <b>a été écrit à propos du peuple juif,</b> qui est appelé la portion sainte du Seigneur, mais pas à propos du <i>teruma</i> lui-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

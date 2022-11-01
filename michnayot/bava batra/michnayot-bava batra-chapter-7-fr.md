@@ -11,5 +11,5 @@ S'il a dit : "Je te vendrai] un espace de terre d'un kor" mesuré par une corde"
 ### michna 4
 Si un homme dit à son compagnon : "Je te vendrai la moitié du champ", celui-ci doit être divisé entre eux en portions de valeur égale, et l'acheteur prend la moitié du champ [que l'autre lui attribue]. S'il a dit : "Je te vendrai" la moitié sud, le champ doit être divisé entre eux en portions de valeur égale, et l'acheteur prend la moitié sud. Il accepte la responsabilité de [fournir le terrain] pour le mur de séparation, le grand et le petit fossé. Quelle est la largeur du grand fossé ?  Six millièmes de pouce. Et le petit fossé ?  Trois millièmes de pouce.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

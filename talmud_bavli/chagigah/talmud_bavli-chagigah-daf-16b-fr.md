@@ -57,4 +57,4 @@ La Guemara rejette cette idée : <b>En fait, je</b> pourrais <b>vous dire</b> qu
 <b>Rav Pappa a dit : Apprends de ceci</b> que tout ce sur quoi on ne peut pas placer d'objets ou sur lequel on ne peut pas s'asseoir le Chabbat, ses <b>côtés sont</b> également <b>interdits, car s'il te vient à l'esprit</b> de dire que les <b>côtés sont permis,</b> ils auraient pu dire aux femmes <b>de placer</b> leurs mains <b>sur les côtés,</b> c'est-à-dire, sur la tête de l'animal plutôt que sur son dos, car la tête de l'animal est considérée comme si elle était un de ses côtés. <b>Donc, </b> on ne doit pas <b>en conclure</b> que les <b>côtés sont interdits ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara objecte : <b>Mais d'après</b> le fait <b>que la dernière clause</b> 
 § <b>Rabbi Ḥiyya bar Avin dit :</b> Celui qui a <b>dédié un bien meuble peut le donner au prêtre qu'il souhaite, comme il est dit : "Tout ce qui est consacré en Israël</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

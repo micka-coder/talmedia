@@ -30,4 +30,4 @@ La Guemara répond : Ceci n'est <b>pas difficile. Cette</b> <i>baraita</i> fait 
 <b>Rava a dit</b> une réponse différente : <b>Qui sont</b> les <b>malades</b> mentionnés dans la <i>baraita</i>, pour lesquels une calebasse est bénéfique ? Ce sont <b>les Sages,</b> qui sont affaiblis par leur labeur dans l'étude de la Torah et leur abstention des plaisirs du monde, bien qu'ils ne soient pas réellement malades. Par conséquent, il n'y a pas de contradiction. Les courges sont nocives pour les personnes qui sont réellement malades. La Guemara commente : <b>Rava</b> se conforme <b>à sa ligne standard de <b>raisonnement</b>, car Rava a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara relate : <b>Rav Mattana enseignait</b> cette <i>halakha</i> <b>à Paph
 <b>Et Rav Ashi dit</b> en réponse : <b>Est-ce à dire</b> que <b>tous sont tissés dans le même</b> acte de <b>tissage ?</b> En d'autres termes, la <i>halakha</i> est-elle identique dans tous les cas ? <b>Là où il a été dit</b> que les Sages ne punissaient pas le contrevenant en rendant sa nourriture interdite, <b>cela a été dit ; et là où il n'a pas été dit</b> qu'ils s'abstenaient de punir le contrevenant, <b>cela n'a pas été dit.</b> Il est donc possible que les Sages aient rendu interdite la pâte pétrie à l'eau chaude, pour punir la femme qui la préparait de cette manière.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

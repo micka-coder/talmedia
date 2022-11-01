@@ -48,4 +48,4 @@ Et <b>Reish Lakish dit :</b> Le statut du <b>dixième</b> jour est <b>comme</b> 
 "En <b>jugement" ; il s'agit d'une inférence logique,</b> qui est l'un des principes herméneutiques,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

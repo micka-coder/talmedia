@@ -72,4 +72,4 @@ La Gemara cite des déclarations supplémentaires dites par Abaye au nom de la f
 <b>Rav Huna a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

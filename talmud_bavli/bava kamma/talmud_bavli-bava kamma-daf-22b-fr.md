@@ -33,4 +33,4 @@ La Gemara répond : Mais il <b>a été dit</b> déjà <b>à ce sujet que Reish L
 Le <b><i>baraita</i></b> soutenant son opinion est <b>tel qu'il est enseigné : Le verset</b> concernant la responsabilité pour un incendie <b>ouvert</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ De même, <b>Rava résout</b> les différents avis de la mishna selon <b>son</b>
 § <b>Nous avons appris</b> dans la mishna : <b>Et les rabbins disent</b> que <b>on est tenu de dire : Il a été écrit en ma présence et il a été signé en ma présence, seulement</b> s'il <b>apporte</b> un acte de divorce <b>d'un pays d'outre-mer</b> à Eretz Yisrael, <b>et</b> il en est de même pour <b>celui qui remet</b> un acte de divorce d'Eretz Yisrael à un pays d'outre-mer. La Gemara analyse cette déclaration : On peut apprendre <b>par déduction que la première <i>tanna</i></b> de la mishna <b>soutient</b> que <b>celui qui délivre</b> un acte de divorce d'Eretz Yisrael à un pays d'outre-mer <b>n'est pas tenu</b> de dire cette déclaration. <b>Quoi, n'est-ce pas</b> le cas où <b>ils sont en désaccord par rapport à ce</b> principe, <b>comme</b> un <b>Sage,</b> le premier <i>tanna</i>, <b>soutient</b> que la raison de la déclaration est <b>parce qu'ils ne sont pas experts</b> dans la rédaction d'un acte de divorce <b>pour elle,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

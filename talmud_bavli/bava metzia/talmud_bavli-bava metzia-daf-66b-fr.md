@@ -60,4 +60,4 @@ La Gemara relate : <b>Rav bar Shabba devait de l'argent à Rav Kahana.</b> Rav b
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

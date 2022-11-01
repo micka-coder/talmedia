@@ -45,4 +45,4 @@ La Guemara pose une autre question : Que doit faire le Grand Prêtre si <b>le sa
 <b>Rava lui dit : Jusqu'à présent, ils nous appelaient</b> Babyloniens simplement <b>fous, et maintenant</b> ils nous appelleront les <b>fous des fous, car</b> ils diront que <b>nous leur enseignons et</b> pourtant <b>ils n'apprennent pas.</b> En réponse à votre déclaration, on pourrait simplement répéter l'argument précédent de Rabbi Yirmeya : <b>Mais il présente des aspersions vers le bas</b> pour le bouc avant</b> les aspersions <b>vers le haut</b> pour le bouc, et la Torah a dit : Présentez vers le haut puis vers le bas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

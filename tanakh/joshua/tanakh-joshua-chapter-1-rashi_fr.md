@@ -55,7 +55,7 @@ Cela inclut toute la terre du Chitim.
 <b>Rebelles</b> - qui contestent vos paroles.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Et après la mort de Moshé.</b> Ceci est lié au chapitre de la Torah<sup>1</sup><i class="footnote">L'esprit de prophétie ne reposa pas sur Yehoshua avant que la période de deuil de Moshé de trente jours ne soit terminée. C'est alors que Dieu a commencé à lui parler et à lui ordonner de commencer la conquête d'Eretz Israël. Yehoshua était dans un état de tristesse et l'esprit de prophétie ne repose pas sur une personne qui est triste. Il y a d'autres <i>Séforim</i> dans <i>Tanach</i> comme Ruth, Esther, Yonah qui commencent par le mot וַיְהִי, et c'était, qui ne sont reliés à aucun événement antérieur. Mais ici, le début est définitivement relié à la conclusion du <i>Sefer Devorim</i> où la mort de Moshé est relatée.</i> qui se concluait par le décès de Moshé;<sup>2</sup><i class="footnote">Devorim 34:5,6,7,8.</i> et ceci (Seifer Yehoshua) y est relié.<sup>3</sup><i class="footnote">Devorim 34:9.</i>.
 
@@ -112,4 +112,4 @@ Cela inclut toute la terre du Chitim.
 <b>Rebelles</b> - qui contestent vos paroles.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara note : Malgré leurs désaccords, <b>Tout le monde</b> s'accorde, <b>
 § Il a été enseigné dans la mishna : Le Grand Prêtre <b>sanctifiait ses mains et ses pieds</b> et entrait dans le Saint des Saints pour en sortir la cuillère à encens et la cuvette à charbon. La Guemara cite une <i>baraita</i> apparentée. <b>Les Sages ont enseigné :</b> Le verset stipule : <b>"Et Aaron entrera dans la Tente de la Rencontre"</b> (Lévitique 16:23), ce qui est interprété comme signifiant qu'il entre dans le Saint des Saints. <b>Pourquoi vient-il ? </b> Il vient afin de <b>sortir l'encens</b> <b>la cuillère et la cuvette à charbon</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

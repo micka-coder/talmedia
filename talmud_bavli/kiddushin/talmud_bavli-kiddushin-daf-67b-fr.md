@@ -51,4 +51,4 @@ En ce qui concerne <b>une femme mariée</b> l'interprétation <b>peut de même �
 La Gemara demande : <b>Si oui,</b> que cette <i>halakha</i> est dérivée d'ici,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

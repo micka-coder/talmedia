@@ -72,4 +72,4 @@ La Gemara conteste cette affirmation : <b>Est-ce le cas ? Mais Rava n'a-t-il pas
 Le verset raconte qu'après qu'Amnon l'ait violée : <b>"Et Tamar mit de la cendre sur sa tête et déchira son vêtement de plusieurs couleurs qui était sur elle"</b> (II Samuel 13:19). Les Sages ont <b>enseigné au nom de Rabbi Yehoshua ben Korḥa : Tamar a établi une grande barrière à cette époque</b> par le biais de son cri public, car les gens <b>disaient :</b> Si <b>un tel événement</b> pouvait arriver <b>aux filles de rois, à plus forte raison</b> pourrait-il arriver <b>aux filles de gens ordinaires</b>. Si <b>un tel événement</b> pouvait arriver <b>aux femmes modestes</b> comme Tamar, qui a résisté, <b>à plus forte raison</b> pourrait-il arriver <b>aux femmes licencieuses. Rav Yehuda dit</b> que <b>Rav dit : A cette époque, ils ont décrété</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

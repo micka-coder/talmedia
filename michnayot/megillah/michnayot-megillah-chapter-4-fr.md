@@ -29,5 +29,5 @@ Si l'on dit : "Que le bien vous bénisse", c'est la voie de l'hérésie. Si l'on
 ### michna 10
 L'incident de Reuven est lu mais non traduit. L'histoire de Tamar est lue et traduite. La première partie de l'incident du veau d'or est lue et traduite, mais la seconde est lue mais non traduite. La bénédiction des prêtres, les histoires de David et d'Amnon ne sont ni lues ni traduites. Ils ne concluent pas avec la portion du char comme une haftarah. Mais Rabbi Judah le permet. R. Eliezar dit : ils ne concluent pas avec "Proclamez les [abominations] de Jérusalem" (Ezéchiel) comme haftarah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

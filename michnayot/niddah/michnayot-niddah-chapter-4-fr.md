@@ -20,5 +20,5 @@ Si une femme a été en travail prolongé pendant les quatre-vingts jours prescr
 ### michna 7
 Pendant les onze jours, une femme est présumée propre. Si elle ne s'est pas examinée, que ce soit involontairement, sous la contrainte ou intentionnellement, elle est pure. Si le moment de ses règles habituelles est arrivé et qu'elle ne s'est pas examinée, elle est impure. Rabbi Meir dit : si une femme se trouvait dans un endroit caché lorsque le moment de ses règles est arrivé et qu'elle ne s'est pas examinée, elle est pure, car la peur suspend l'écoulement du sang. Mais pendant les jours prescrits pour un zav ou une zavah ou pour celui qui attend jour après jour, ceux-ci sont présumés être impurs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

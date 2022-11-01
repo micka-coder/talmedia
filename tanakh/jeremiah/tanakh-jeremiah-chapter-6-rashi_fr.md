@@ -117,7 +117,7 @@
 <b>Refusez l'argent</b> qui ne peut être raffiné par aucun labeur.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Rassemblez les fils de Benjamin</b> pour aller dans leurs villes garder leurs fortifications.
 <b>Beth-hakerem</b> C'est un nom de lieu.
@@ -236,4 +236,4 @@
 <b>Refusez l'argent</b> qui ne peut être raffiné par aucun labeur.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

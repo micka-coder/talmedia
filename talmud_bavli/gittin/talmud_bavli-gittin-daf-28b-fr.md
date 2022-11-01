@@ -48,4 +48,4 @@ La Gemara répond : <b>En fait,</b> on peut expliquer qu'il est <b>vraiment mort
 Ceci est une version du discours ; il existe également une autre version : <b>Il y a</b> ceux <b>qui disent</b> que <b>Rav Yosef a dit : Ils ont enseigné</b> que l'on applique les rigueurs des vivants et des morts <b>uniquement dans un tribunal des nations du monde;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara suggère : <b>Et qu'il désigne un</b> couteau pour couper à la fois
 La Guemara soulève une objection : <b>Si c'est le cas,</b> et c'est un souci, <b>lorsque</b> les flancs sont <b>placés</b> de leur manière <b>typique</b> <b>[<i>teritzi</i>] également,</b> avec la graisse interdite au-dessus de la viande des flancs, <b>la</b> <b>graisse interdite coule et la viande</b> des flancs <b>l'absorbe</b>. La Gemara explique : <b>La membrane</b> entre la graisse interdite et la viande des flancs <b>intervient par le bas</b> et empêche l'absorption de la graisse interdite. La Gemara conteste : <b>Si oui,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

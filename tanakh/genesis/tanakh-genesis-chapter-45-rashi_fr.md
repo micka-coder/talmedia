@@ -85,5 +85,5 @@
 ### passuk 28
 <b>C'est trop.</b> Beaucoup de joie et de plaisir me sont encore réservés depuis que mon fils Yoseif, est vivant. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

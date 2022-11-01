@@ -63,4 +63,4 @@ La Guemara demande : <b>Et Rabbi</b> Yehuda HaNasi, <b>que fait-il de ce</b> ver
 La Guemara demande : <b>Et Rabbi</b> Yehuda HaNasi <b>accepte-t-il cette opinion ? Mais n'est-il pas enseigné</b> dans une <i>baraïta</i> : Si <b>dix hommes ont eu des rapports sexuels avec</b> une jeune femme fiancée, <b>et qu'elle est encore vierge, ils sont tous</b> punis <b>par lapidation. Rabbi</b> Yehuda HaNasi <b>dit : Je dis</b> que <b>le premier</b> est puni <b>par lapidation, mais</b> les autres sont <b>tous</b> punis <b>par strangulation.</b> Cela prouve que selon l'opinion de Rabbi Yehuda HaNasi, même celui qui n'est pas son mari peut rendre une femme non vierge en ayant des rapports anaux avec elle.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

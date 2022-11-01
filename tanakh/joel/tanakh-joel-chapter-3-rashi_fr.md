@@ -17,7 +17,7 @@
 <b>Ceux que le Seigneur invite</b> Heb. קֹרֵא, expression de ceux qui sont invités à un banquet ou au service du roi, expression d'invitation.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Et il arrivera après</b> - dans le futur.
 <b>Sur toute chair</b> - c'est-à-dire sur toute personne dont le cœur devient mou comme de la chair. Comp. (Ezéchiel 36:26) "Et je vous donnerai un coeur de chair."
@@ -36,4 +36,4 @@
 <b>Ceux que le Seigneur invite</b> Heb. קֹרֵא, expression de ceux qui sont invités à un banquet ou au service du roi, expression d'invitation.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -11,5 +11,5 @@ Qu'entend-on par "récipient endommagé" (gistera) ? Celui dont les anses ont é
 ### michna 4
 Un récipient en terre cuite qui a trois bords : si le plus intérieur dépasse les autres, tout ce qui est à l'extérieur n'est pas susceptible d'être impur. Si le bord le plus extérieur dépasse les autres, tout ce qui est à l'intérieur est susceptible d'être impur ; et si le bord du milieu dépasse les autres, ce qui est à l'intérieur est susceptible d'être impur, tandis que ce qui est à l'extérieur n'est pas susceptible d'être impur. S'ils étaient de même hauteur : Rabbi Judah dit : celui du milieu est considéré comme divisé. Mais les sages ont décidé que tous ne sont pas susceptibles d'être impurs. Quand les récipients en terre cuite deviennent-ils susceptibles d'être impurs ? Dès qu'ils sont cuits dans le four, ce qui constitue l'achèvement de leur fabrication.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

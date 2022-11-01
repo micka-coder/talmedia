@@ -36,7 +36,7 @@ En ce qui concerne ce même passage de la mishna : <b>S'il y a des témoins</b> 
 § <b>Les Sages ont enseigné : Comment danse-t-on devant la mariée,</b> c'est-à-dire, que récite-t-on en dansant à son mariage ? <b>Beit Shammai disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et</b> en ce qui concerne <b>cette</b> femme, <b>parce que son</b> mariage <b>n'a pas généré de publicité, l'effet</b> de la <b>majorité est miné.</b>
 
@@ -74,4 +74,4 @@ En ce qui concerne ce même passage de la mishna : <b>S'il y a des témoins</b> 
 § <b>Les Sages ont enseigné : Comment danse-t-on devant la mariée,</b> c'est-à-dire, que récite-t-on en dansant à son mariage ? <b>Beit Shammai disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

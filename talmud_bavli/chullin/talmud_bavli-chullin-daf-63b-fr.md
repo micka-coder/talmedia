@@ -45,4 +45,4 @@ La Gemara objecte : <b>Mais peut-être qu'ils</b> proviennent d'un <b>oiseau non
 La Guemara demande : <b>Mais</b> pourquoi doit-on se fier au Gentil ? <b>Laissons-le inspecter</b> les œufs <b>pour les signes, comme il est enseigné</b> dans une <i>baraita</i> : <b>Comme les signes des</b> <b>oeufs casher, ainsi</b> sont <b>les signes des poissons.</b> La Gemara interjette : Peut-il <b>entrer dans votre esprit</b> que le <i>baraita</i> fait référence aux <b>signes du poisson ? Le Miséricordieux les énonce</b> explicitement dans la Torah : <b>"Les nageoires et les écailles"</b> (Lévitique 11:9). <b>Dites plutôt : Ainsi</b> aussi sont <b>les signes de</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

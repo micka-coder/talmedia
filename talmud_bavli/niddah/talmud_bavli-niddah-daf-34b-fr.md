@@ -54,4 +54,4 @@ La Guemara a précédemment indiqué que l'expression "que ce soit un mâle" ser
 <b>Rava dit : Venez</b> et <b>entendre</b> la preuve d'un <i>baraita</i> : Le verset dit : "Lorsqu'un homme a une issue de sa chair, <b>son issue [<i>zovo</i>] est impure"</b> (Lévitique 15:2). Le verset <b>enseigne à propos du <i>zov</i> qu'il est impur,</b> et qu'il transmet l'impureté par le portage. <b>À quel cas</b> le verset fait-il référence ? <b>Si nous disons</b> qu'il fait référence <b>à</b> celui qui est <b>juste un <i>zav</i></b> et non pas aussi un lépreux, et que le verset enseigne que toute goutte de <i>ziva</i> émise par lui communique l'impureté par le portage,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

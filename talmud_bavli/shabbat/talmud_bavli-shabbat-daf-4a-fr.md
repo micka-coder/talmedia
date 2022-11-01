@@ -39,4 +39,4 @@ Cette dispute peut être expliquée comme suit : <b>Rabbi Akiva soutient</b> que
 Dans un premier temps, la Guemara s'interroge sur le fond de l'avis de Rabba' : <b>Est-ce à dire qu'il est évident pour Rabba</b> que, <b>en ce qui concerne</b> la question de savoir si oui ou non <b>un objet dans l'espace aérien est considéré au repos,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

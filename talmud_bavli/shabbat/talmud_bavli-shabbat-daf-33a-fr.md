@@ -42,4 +42,4 @@ Sur une note connexe, <b>les Sages ont enseigné</b> dans un <i>baraita</i> que 
 <b>Les Sages ont enseigné : <i>Askara</i> vient au monde</b> comme une punition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

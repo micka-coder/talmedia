@@ -63,4 +63,4 @@ Le verset suivant indique : <b>"Mais plus ils l'affligeaient, plus il se multipl
 Le verset suivant indique : <b>"Et les Égyptiens firent travailler les enfants d'Israël</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

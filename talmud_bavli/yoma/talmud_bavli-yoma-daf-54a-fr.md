@@ -54,4 +54,4 @@ La Guemara pose une question concernant la déclaration de Rav Ketina : <b>De qu
 <b>Et il est écrit : "Selon l'espace de chacun avec <i>loyot</i>"</b> (I Rois 7:36). La Gemara demande : <b>Quel est</b> le sens de : <b>Selon l'espace de chacun avec <i>loyot</i>" ? Rabba bar Rav Sheila a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

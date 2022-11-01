@@ -27,4 +27,4 @@ Nous avons appris dans la mishna : Si <b>il a circoncis</b> un enfant <b>mais n'
 Lorsqu'un juif achète un esclave cananéen, il a l'obligation de le circoncire, car l'esclave entre partiellement dans l'alliance du peuple juif. <b>La personne qui circoncit les esclaves récite</b> une bénédiction : <b>Qui nous a sanctifiés par ses commandements, et nous a prescrit la circoncision. Et celui qui récite les bénédictions supplémentaires dit</b> une bénédiction similaire à celles mentionnées ci-dessus : <b>Qui nous a rendus saints par Ses commandements, et nous a ordonné de circoncire les esclaves, et de faire couler d'eux le sang de l'alliance, car sans le sang de l'alliance, le ciel et la terre ne seraient pas soutenus, comme il est dit : "Si mon alliance n'était pas avec le jour et la nuit, les ordonnances du ciel et de la terre, je ne les aurais pas placées"</b> (Jérémie 33:25). <b>Bienheureux es-tu, Seigneur, qui établis l'alliance.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

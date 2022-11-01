@@ -18,4 +18,4 @@ La Guemara cite une dispute entre les Sages concernant l'opinion d'Abaye. <b>Il 
 <b>Et il y a</b> ceux <b>qui disent</b> que Abaye soutient que le contrevenant <b>n'est même pas fouetté</b> avec <b>une</b> série de coups de fouet, <b>car l'interdiction</b> qu'il a transgressée <b>n'est pas spécifique</b> à une matière, <b>comme l'interdiction de museler.</b> Le principe selon lequel on est susceptible d'être fouetté pour avoir enfreint une interdiction découle de la juxtaposition de la mitzva : "Tu ne muselleras pas un bœuf pendant qu'il foule le grain" (Deutéronome 25, 4), avec les versets qui mentionnent le fouet. On déduit de cette juxtaposition que l'on ne risque pas d'être fouetté pour avoir enfreint des interdictions dont les circonstances ne sont pas similaires à celle de la muselière, par exemple une interdiction générale qui ne se réfère pas à une action spécifique.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

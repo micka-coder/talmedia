@@ -63,4 +63,4 @@ La Gemara demande : <b>C'est le cas ? Mais Rabbi Yehuda Nesia,</b> qui était le
 La Gemara demande : <b>Quelle est la raison</b> de l'opinion de Rav Dimi ? Intimider les témoins pour qu'ils témoignent sur quelque chose qu'ils n'ont pas vu est pire que de les intimider pour qu'ils retiennent leur témoignage sur quelque chose qu'ils ont vu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

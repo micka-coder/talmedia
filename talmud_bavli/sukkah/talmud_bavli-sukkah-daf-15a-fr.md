@@ -45,4 +45,4 @@ La Gemara répond : Il est interdit d'utiliser des planches de ce genre pour cou
 La Guemara répond que <b>Rav Huna, fils de Rav Yehoshua,</b> aurait pu <b>vous dire : Quelle</b> est la signification de : <b>Comme</b> les brochettes et les planches ? Cela ne signifie pas que l'espace entre les brochettes et les planches est égal à la largeur des brochettes et des planches elles-mêmes. Il fait référence à un cas <b>où</b> l'espace est suffisamment grand pour que la toiture en bon état puisse <b>entrer et sortir</b> facilement, c'est-à-dire qu'il est plus large que la toiture en mauvais état. Selon cette interprétation, la mishna peut être expliquée selon le Rav Huna, fils du Rav Yehoshua, également. La mishna s'accorde à dire que même si les surfaces debout et les brèches sont égales, la <i>sukka</i> est impropre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ Si on lui apporte d'abord un aliment salé et du pain avec, il bénit l'aliment 
 Celui qui a mangé des figues, du raisin ou des grenades, bénit trois bénédictions après eux [selon les] paroles de Rabban Gamliel. Les Sages disent, une seule bénédiction qui est l'essence de trois. Rabbi Akiva dit, même celui qui a mangé des légumes, si c'était sa nourriture, bénit trois bénédictions après lui. Celui qui boit de l'eau pour sa soif dit : "que tout existe par Sa parole". Rabbi Tarphon dit : "Qui crée de nombreux êtres vivants".
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

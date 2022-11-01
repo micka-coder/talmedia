@@ -48,4 +48,4 @@ La Guemara répond : Il est <b>nécessaire</b> que cela soit dit ici aussi, <b>c
 Il a été enseigné dans la mishna : Si l'une des sœurs était interdite à l'un des frères en raison d'un <b>interdit</b> résultant d'une <b>mitsva</b> ou d'un interdit découlant de la sainteté, alors sa sœur doit accomplir <i>ḥalitza</i> et ne peut pas contracter un mariage lévirat. La Guemara s'interroge : <b>Nous</b> avons déjà <b>appris cela aussi :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -14,5 +14,5 @@ Comment le mattir est-il offert conformément à la loi ? Si l'on a abattu en si
 ### michna 5
 Si l'on a l'intention] de manger autant qu'une olive le lendemain [et] autant qu'une olive en dehors de l'endroit prévu, [ou] autant qu'une olive en dehors de l'endroit prévu [et] autant qu'une olive le lendemain ; la moitié d'une olive le lendemain [et] la moitié d'une olive en dehors de l'endroit prévu ; la moitié d'une olive le lendemain [et] la moitié d'une olive en dehors de l'endroit prévu, [le sacrifice] est impropre et n'implique pas de karet. Rabbi Juda dit : c'est la règle générale : lorsque l'intention [incorrecte] du temps précède l'intention [incorrecte] du lieu, [le sacrifice] est piggul, et implique le karet ; mais si l'intention [incorrecte] du lieu précède l'intention [incorrecte] du temps, il est invalide et n'implique pas le kareth. Mais les sages disent : dans les deux cas, [le sacrifice] est invalide et n'implique pas de karet. Si l'on a l'intention] de manger la moitié d'une olive [après le moment prévu ou en dehors du lieu prévu] [et] de brûler la moitié d'une olive [de même], le sacrifice est valide, car manger et brûler ne se combinent pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

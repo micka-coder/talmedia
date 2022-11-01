@@ -45,4 +45,4 @@ Si un homme dit à une femme : <b>Fiance-toi à moi avec une miche</b> de pain, 
 La Gemara raconte : Il y avait <b>un certain homme qui vendait</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ Par conséquent, Rav Huna <b>nous enseigne</b> qu'il statue <b>conformément</b>
 § A propos des transactions effectuées sous la contrainte, la Gemara cite ce que <b>Rav Huna dit :</b> Si quelqu'un a été <b>suspendu,</b> par exemple, d'un arbre, et ainsi contraint de vendre un certain article, <b>et qu'il l'a vendu</b>, <b>sa vente est valide. Quelle en est la raison ? </b> La Gemara suggère que c'est parce que <b>quel que soit l'objet qu'une personne vend, si ce n'était</b> du fait <b>qu'elle est <b>contrainte</b> par son besoin d'argent, elle <b>ne le vendrait pas</b>, <b>et malgré cela, sa vente est valide.</b> Cela indique qu'une transaction effectuée sous la contrainte est valide. La Guemara rejette cette idée : <b>Mais peut-être que la contrainte</b> qui résulte <b>de ses propres</b> besoins, comme son besoin d'argent, <b>est différente de la contrainte</b> qui résulte <b>d'un autre,</b> comme dans ce cas. <b>Au contraire,</b> le fondement de la décision du Rav Huna est <b>tel qu'il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

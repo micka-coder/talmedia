@@ -45,7 +45,7 @@ La Guemara répond qu'il n'y a pas de contradiction. <b>On a dit qu'elles ne son
 A propos du terme porte [<i>dasha</i>], la Guemara cite des déclarations faisant référence à son étymologie ainsi qu'à celle de plusieurs autres termes araméens. En ce qui concerne le mot <b><i>dasha</i>,</b> porte, <b>Rava dit :</b> C'est un acrostiche de <b><i>derekh sham</i>,</b> qui signifie par là. En ce qui concerne le mot <b><i>darga</i>,</b> échelle ou escalier, <b>Rava a dit :</b> C'est un acrostiche de <b><i>derekh gag</i>,</b> qui signifie chemin vers le toit. Concernant le mot <b><i>purya</i>,</b> lit, <b>Rav Pappa a dit :</b> C'est un acrostiche de <b><i>parin veravin aleha</i>,</b> signifiant on procrée dessus. <b>Rav Naḥman bar Yitzḥak a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Notre calandrage</b> en Babylonie, qui comprend le passage d'une pierre abrasive sur les vêtements pour gratter la saleté, <b>est comme leur blanchissage</b> en Eretz Israël, et c'est seulement de cette manière que les vêtements en Babylonie atteignent ce niveau de propreté. <b>Et si vous dites : Effectuons</b> le processus de <b>calandrage</b> sur des linges apportés comme preuve qu'elle n'était pas vierge, <b>la pierre élimine</b> toute trace de sang. Par conséquent, le processus serait inefficace.
 
@@ -92,4 +92,4 @@ La Guemara répond qu'il n'y a pas de contradiction. <b>On a dit qu'elles ne son
 A propos du terme porte [<i>dasha</i>], la Guemara cite des déclarations faisant référence à son étymologie ainsi qu'à celle de plusieurs autres termes araméens. En ce qui concerne le mot <b><i>dasha</i>,</b> porte, <b>Rava dit :</b> C'est un acrostiche de <b><i>derekh sham</i>,</b> qui signifie par là. En ce qui concerne le mot <b><i>darga</i>,</b> échelle ou escalier, <b>Rava a dit :</b> C'est un acrostiche de <b><i>derekh gag</i>,</b> qui signifie chemin vers le toit. Concernant le mot <b><i>purya</i>,</b> lit, <b>Rav Pappa a dit :</b> C'est un acrostiche de <b><i>parin veravin aleha</i>,</b> signifiant on procrée dessus. <b>Rav Naḥman bar Yitzḥak a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

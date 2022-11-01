@@ -66,4 +66,4 @@ La Guemara commente : Cette question fait <b>l'objet</b> d'une dispute entre <b>
 § Dans la mishna, <b>Rabbi Akiva dit</b> au nom de Rabbi Yehoshua que deux personnes peuvent chacune cueillir des concombres par sorcellerie, dont l'une est exemptée, car elle ne fait que tromper les yeux, et l'autre est responsable, car elle accomplit une véritable sorcellerie.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

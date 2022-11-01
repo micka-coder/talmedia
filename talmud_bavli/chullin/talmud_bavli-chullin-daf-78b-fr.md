@@ -36,4 +36,4 @@ Par conséquent, <b>le verset dit :</b> "Un taureau ou un mouton, <b>celui-ci</b
 La Gemara demande : A <b>quelle</b> réfutation possible est l'expression : <b>Si c'est ton souhait de dire,</b> faisant référence ? La Guemara explique que la réfutation possible est : <b>Et si tu voulais dire</b> que le mot <b>"il,"</b> dans le verset <b>désigne un mâle,</b> car il est exprimé au masculin dans l'hébreu, la réponse est que le verset dit aussi <b>"sa progéniture"</b> dans ce verset, indiquant que cela s'applique à <b>ce</b> parent <b>dont la progéniture s'accroche à lui. </b> Cela sert à <b>exclure</b> le parent <b>mâle</b>, <b>dont la progéniture ne s'accroche pas à lui.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

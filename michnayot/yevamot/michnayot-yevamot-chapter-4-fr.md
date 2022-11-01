@@ -38,5 +38,5 @@ Un homme qui s'est remarié avec sa femme divorcée, ou qui s'est marié avec sa
 ### michna 13
 Qui est un mamzer ? [La progéniture d'une union avec] tout parent avec lequel la cohabitation est interdite, selon les mots de Rabbi Akiva. Shimon le Yéménite dit : [La progéniture de toute union] pour laquelle on est obligé kareth aux mains du ciel ; et la halakha est comme ses paroles. Rabbi Joshua dit : [La progéniture de toute union] pour laquelle on est obligé la mort aux mains d'un tribunal.Rabbi Shimon ben Azzai a dit : J'ai trouvé un rouleau de registres généalogiques à Jérusalem, et il était écrit dessus : " Untel est un mamzer [étant né] d'une femme adultère ", ce qui confirme l'opinion de Rabbi Joshua. Si la femme d'un homme est morte, il lui est permis d'épouser sa sœur. S'il a divorcé d'elle et qu'elle est morte, il est autorisé à épouser sa sœur. Si elle était mariée à un autre homme et qu'elle est morte, il est permis d'épouser sa sœur. Si la belle-sœur d'un homme est décédée, il peut épouser sa sœur. S'il a accompli pour elle la halitzah et qu'elle est ensuite décédée, il lui est permis d'épouser sa sœur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Si un zav [se trouvait] dans une balance, alors que de la nourriture et des liqu
 ### michna 7
 S'il s'est assis sur un lit et qu'il y avait quatre manteaux sous les quatre pieds du lit, tous deviennent impurs, puisque le lit ne peut pas tenir sur trois pieds ; Mais Rabbi Shimon les déclare purs. S'il est monté sur une bête et qu'il y avait quatre manteaux sous les pattes de la bête, ils sont purs, puisque la bête peut se tenir sur trois pattes. S'il y avait un manteau sous ses deux pattes avant ou ses deux pattes arrière, ou sous une patte avant et une patte arrière, il devient impur. Rabbi Yose dit : un cheval transmet l'impureté par ses pattes arrière et un âne par ses pattes avant, car un cheval s'appuie sur ses pattes arrière et un âne sur ses pattes avant. S'il s'est assis sur une poutre d'un pressoir à olives, les récipients du réceptacle du pressoir à olives sont impurs. S'il s'est assis] sur un pressoir à vêtements, les vêtements qui se trouvent sous le pressoir sont purs. Rabbi Néhémie les déclare impurs.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

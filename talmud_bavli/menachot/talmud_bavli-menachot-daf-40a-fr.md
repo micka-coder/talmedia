@@ -27,4 +27,4 @@ La Guemara suggère : <b>Et qu'ils testent</b> les cordes pour vérifier si elle
 La Guemara suggère : <b>Laissons</b> les Sages <b>écrire des lettres</b> informant les producteurs de teinture que le <i>tekhelet</i> qui a été utilisé pour tester la couleur de la teinture dans la cuve est impropre aux franges rituelles. La Guemara explique : <b>Doit-on aller se fier à des lettres,</b> en supposant que les producteurs de teinture suivront les instructions qu'elles contiennent ? <b>Rava</b> répond à cette question et <b>dit : Maintenant,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

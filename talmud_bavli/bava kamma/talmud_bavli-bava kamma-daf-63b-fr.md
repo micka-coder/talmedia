@@ -63,4 +63,4 @@ La Gemara répond : <b>Il tire</b> l'obligation pour un voleur de payer double s
 <b>Si</b> le verset avait été écrit <b>de cette</b> façon <b>je l'aurais dit : De même que</b> l'objet mentionné dans <b>le détail</b> est clairement <b>défini comme</b> un objet qui <b>est sacrifié sur l'autel, de même tout ce qui est sacrifié sur l'autel</b> est soumis au double paiement, mais d'autres objets ne le sont pas. <b>Quoi</b> d'autre <b>est-il possible d'inclure</b> dans cette catégorie ? <b>Moutons,</b> qui, comme les bœufs, peuvent être sacrifiés sur l'autel.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

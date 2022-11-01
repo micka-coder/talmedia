@@ -45,4 +45,4 @@ De même, <b>Rabbi Yirmeya a soulevé un dilemme :</b> En ce qui concerne les <b
 La mishna enseigne : Celui qui vend un champ n'a <b>pas</b> vendu <b>le caroubier qui a été greffé, et</b> il n'a <b>pas</b> vendu <b>le tronc de sycomore.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

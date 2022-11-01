@@ -9,4 +9,4 @@ La Guemara relate : <b>Le père de Shmuel façonnait des bains rituels pour ses 
 <b>Rabbi Ami dit</b> que <b>Rav a dit : Quel est</b> le sens de ce <b>qui est écrit : "Et toi, fils de l'homme, fais-toi des instruments d'exil"</b> (Ezéchiel 12:3) ? <b>Ceci fait</b> référence à <b>une lampe, et un bol,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara s'interroge sur le terme utilisé dans la mishna : <b>Quel</b> est la
 La Gemara note : <b>Et Reish Lakish suit sa</b> ligne de <b>raisonnement</b> énoncée ailleurs, <b>comme Reish Lakish a dit : Je suis l'expiation pour Rabbi Ḥiyya et ses fils, car initialement, lorsque</b> certaines des lois de la <b>Torah</b> ont été <b>oubliées du <b>peuple juif</b> en Eretz Yisrael, <b>Ezra est monté de Babylone et a rétabli</b> les lois oubliées. Des parties de la Torah furent <b>encore oubliées</b> en Eretz Yisrael, et <b>Hillel le Babylonien monta et rétablit</b> les sections oubliées. Lorsque des parties de la Torah ont été <b>de nouveau oubliées</b> en Eretz Yisrael, <b>Rabbi Ḥiyya et ses fils sont montés et ont rétabli</b> les sections oubliées. Cette expression de déférence envers Rabbi Ḥiyya introduit la <i>halakha</i> que Reish Lakish cite en son nom. <b>Et ainsi dit Rabbi Ḥiyya et ses fils : Rabbi Dosa et les sages n'ont pas été en désaccord concernant les</b> <b>matelas souples de Usha,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

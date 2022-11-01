@@ -48,4 +48,4 @@ La Guemara analyse cette <i>baraita</i> : <b>Que</b> les rabbins ont-ils <b>dit 
 <b>Et si vous deviez dire</b> que l'acceptation du document par l'agent n'est pas au détriment de l'esclave, car en tout état de cause <b>si</b> le maître <b>souhaite, il peut jeter l'acte</b> de manumission à moins de quatre coudées de l'esclave <b>et</b> le <b>disqualifier ainsi</b> de participer à la <i>teruma</i> ; l'esclave peut empêcher que cela se produise en <b>quittant</b> son maître, <b>en s'échappant et en allant dans le monde. </b> S'il agit de la sorte, son maître ne pourra pas l'émanciper, et il pourra continuer à participer au <i>teruma</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

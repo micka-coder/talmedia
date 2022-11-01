@@ -69,4 +69,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> que l'une <b>année énoncée en c
 La Gemara demande en outre : <b>D'où tire-t-on</b> la <i>halakha</i> que l'une <b>année énoncée en ce qui concerne les maisons des villes fortifiées</b> est calculée par année entière et non par année civile ? <b>Le verset stipule :</b> "Alors il peut la racheter <b>dans l'année entière qui suit sa vente,</b> pour une année entière, il aura le droit de rachat" (Lévitique 25:29). Le verset fait référence à une année comptée à partir du jour <b>de sa</b> propre <b>vente, et non à l'année du décompte universel. D'où déduit-on</b> que les <b>deux années</b> énoncées <b>en ce qui concerne un champ ancestral</b> sont des années entières ? <b>Le verset stipule :</b> "Selon le nombre d'années après le Jubilé, tu achèteras de ton voisin, et <b>selon le nombre</b>...".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

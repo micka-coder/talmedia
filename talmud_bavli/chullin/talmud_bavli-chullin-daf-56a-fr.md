@@ -39,4 +39,4 @@ De même, la Gemara relate : Il y avait <b>une certaine poule qui était dans la
 La Guemara note que <b>Rav Sheizvi inspectait</b> la membrane du cerveau <b>par</b> la lumière du <b>soleil. Rav Yeimar l'inspecterait</b> <b>en versant</b> de l'<b>eau</b> dans le crâne par le trou, pour voir si elle ressort mélangée au tissu nerveux. <Le Rav Aḥa bar Ya'akov l'inspecterait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

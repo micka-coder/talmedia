@@ -51,4 +51,4 @@ A ce propos, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : <b>D'où v
 <b>Ou aller dans ce sens,</b> et dire que <b>parce que la Torah a déclaré :</b> Une offrande qui a été <b>laissée pendant la nuit doit être brûlée, et</b> de même, la Torah a déclaré qu'une offrande qui <b>sort</b> de la cour du Temple <b>doit être brûlée,</b> on peut tirer la conclusion suivante : <b>De même que</b> une offrande qui <b>sort</b> de la cour du Temple est <b>valable dans</b> le cas d'un <b>autel</b> privé car il n'a pas de périmètre déterminé, <b>de même, </b> une offrande qui a été <b>laissée toute la nuit</b> est <b>valide dans</b> le cas d'un <b>autel privé,</b> et on peut donc conclure que la <i>halakha</i> du temps ne s'applique pas aux offrandes sur un autel privé. La Guemara demande : <b>Et n'est-ce pas une <i>a fortiori</i></b> déduction <b>de</b> la <i>halakha</i> des offrandes d'oiseaux</b> que dans le cas d'un autel privé, le temps devrait rendre une offrande disqualifiée ?
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

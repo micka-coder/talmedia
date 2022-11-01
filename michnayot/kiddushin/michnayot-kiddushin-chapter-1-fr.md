@@ -29,5 +29,5 @@ Tout commandement qui dépend de la terre est pratiqué uniquement dans la terre
 ### michna 10
 Celui qui accomplit un commandement est récompensé, ses jours sont prolongés et il hérite de la terre, mais celui qui n'accomplit pas un commandement n'est pas récompensé, ses jours ne sont pas prolongés et il n'hérite pas de la terre. Celui qui connaît la Bible, la Mishna et les coutumes du pays ne péchera pas facilement, comme il est dit : "Et une corde triple ne se rompt pas rapidement" (Ecclésiaste 4:12). Mais celui qui ne connaît pas la Bible, la Mishnah et les coutumes du pays n'appartient pas à la civilisation.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

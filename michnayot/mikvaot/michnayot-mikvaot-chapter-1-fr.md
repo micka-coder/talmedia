@@ -23,5 +23,5 @@ Supérieure à cette [eau des fosses] est [l'eau du] mikvé contenant quarante s
 ### michna 8
 Supérieures aux précédentes sont aux "eaux abimée" [sources chaudes et ou salée] qui peuvent purifier même lorsqu'elles coulent [sur le sol]. [Tandis que] les "eaux vivantes" [source d'eau douce] leur sont supérieures car elles permettent l'immersion pour les zavim et l'aspersion pour les metzoraim, et elles sont valables pour la préparation des eaux lustrales [cendres de la vache rousse].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

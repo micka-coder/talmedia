@@ -33,4 +33,4 @@ A l'inverse, <b>Rabbi Yehuda lui permet</b> de boire du vin ou de se couper les 
 La Guemara demande : <b>Pourquoi</b> n'est-il <b>pas</b> possible de lui retirer le statut de naziréat ? <b>Voyons le panier comme si</b> il était <b>plein de concombres ou de courges,</b> car il a accepté au moins autant de conditions de naziréité que le nombre de concombres ou de courges qui peuvent entrer dans le panier, <b>et</b> de cette manière <b>il y aura un remède pour lui. Il est entré dans notre esprit</b> de dire que <b>ce sont</b> des <b>nazirites distinctes qu'il a acceptées sur lui-même,</b> et donc une fois qu'il a accompli le nombre minimal de nazirites, il ne devrait plus être considéré comme un nazirite à moins qu'on puisse déterminer qu'il a accepté plus que ce nombre de termes de nazirites.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara rejette cet argument : <b>D'où tirez-vous cette conclusion</b> ? <b>
 <b>Et</b> alternativement, peut-être que <b>Rabban Gamliel dit</b> que le parent en deuil est autorisé à avoir des relations sexuelles <b>uniquement là, où</b> les <i>halakhot</i> du <b>deuil n'ont pas</b> encore <b>pris effet,</b> car le deuil ne commence qu'après l'enterrement. <b>Mais ici, où</b> les <i>halakhot</i> du <b>deuil</b> ont déjà <b>pris effet,</b> il peut <b>aussi</b> interdire les relations sexuelles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

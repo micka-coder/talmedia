@@ -48,4 +48,4 @@ Nous avons appris dans la mishna <b>que sur le pain on recite : Qui fait sortir 
 A ce propos, la Guemara relate : <b>Les Sages louaient fils de Rav Zevid, frere de Rabbi Shmuel bar Rav Zevid a Rabbi Zeira, qu'il est un grand homme et qu'il est expert en benedictions.</b> Rabbi Zeira <b>dit aux Sages : <b>Quand il viendra chez vous, amenez-le moi</b> afin que je puisse le rencontrer. <b>Un jour, il arriva</b> qu'il vienne <b>devant lui. On apporta du pain</b> a l'invite, <b>il commenca et recita : Qui a fait sortir [<i>motzi</i>] le pain de la terre.</b> Rabbi Zeira s'est agace <b>et a dit : C'est celui dont on dit qu'il est un grand homme et expert en benedictions ? Accorde, s'il avait recite : <i>Hamotzi,</i></b>
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -91,4 +91,4 @@
 <b>sur ce que Dieu avait préparé pour que le peuple</b> le serve et fasse sa volonté, semblable à ce qui suit (30:19) : "Il se mit de tout son cœur à chercher, etc.", et ils se réjouirent aussi parce qu'ils furent soudain inspirés, dès la première année de son règne, de revenir au Seigneur, et ils y retournèrent immédiatement.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

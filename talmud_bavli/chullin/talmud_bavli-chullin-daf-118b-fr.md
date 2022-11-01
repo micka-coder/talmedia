@@ -66,4 +66,4 @@ La Guemara <b>souleve une objection</b> aux avis du Rav et de Rabbi Yoḥanan à
 <b>Yehuda ben Nekosa dit au nom de Rabbi Ya'akov : Comment deux os peuvent-ils se joindre pour</b> constituer <b>une olive-bulk</b> si la chair attachée à chaque os est inférieure à la mesure d'une olive-bulk ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

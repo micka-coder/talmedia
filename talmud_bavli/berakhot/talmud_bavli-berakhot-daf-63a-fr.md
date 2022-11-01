@@ -81,4 +81,4 @@ Ces deux savants, cependant, ont commence a contester chaque decision qu'Hanina 
 <b>Il leur dit : Est-ce que</b> Rabbi <b>Akiva ben Yosef</b> n'a pas aussi <b>intercale les annees et etabli les mois en dehors d'Eretz</b> Yisrael ? <b>Ils lui ont repondu : Laissez</b> le cas de <b>Rabbi Akiva, car,</b> lorsqu'il est parti, <b>il n'a laisse derriere lui personne</b> aussi grand en Torah <b>que lui en Eretz Yisrael.</b> Rabbi Hanina <b>leur dit : Moi aussi je n'ai laisse derriere moi personne</b> aussi grand <b>que moi en Eretz Yisrael. Ils lui dirent : Les chevreaux que tu as laisses derriere toi sont devenus des chevres avec des cornes;</b> ils sont plus grands que toi. <b>Et ils nous ont envoyes vers toi, et voici ce qu'ils nous ont dit : Va et dis-lui en notre nom : S'il obeit, tres bien ; et si</b> il n'obeit <b>pas</b>, <b>il sera ostracise.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

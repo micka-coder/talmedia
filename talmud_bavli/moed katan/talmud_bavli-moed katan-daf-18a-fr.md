@@ -51,4 +51,4 @@ La Guemara répond : <b>Une femme ne se trouve généralement pas</b> <b>dans la
 <b>Rav Yitzḥak bar Ya'akov bar Giyorei a envoyé</b> un message <b>au nom de Rabbi Yoḥanan:</b> En ce qui concerne les <b>vêtements en lin, il est permis de les blanchir pendant les jours intermédiaires de la Fête</b> car ils se salissent facilement. <b>Rava soulève une objection</b> à partir de ce qui est enseigné dans la mishna : <b>Les serviettes à la main, les serviettes</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

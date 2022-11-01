@@ -18,4 +18,4 @@ La Guemara répond : <b>Parce que</b> Shimon <b>se dit</b> à lui-même : <b>La 
 <b>Et si vous le souhaitez, dites</b> à la place : Il fait référence à un cas <b>où</b> ce <b>Maître,</b> Shimon, <b>a des témoins</b> attestant de sa propriété, <b>et</b> ce <b>Maître,</b> Yehuda, a également <b>des témoins</b> attestant de sa propriété, <b>et les Sages ont dit</b> que dans de telles circonstances <b>la terre doit rester là où elle est.</b> C'est-à-dire qu'elle doit rester avec celui qui en est actuellement le propriétaire. Si Yehuda se voyait attribuer la terre, Shimon ne pourrait pas la retirer de sa possession malgré le fait qu'il ait des témoins à l'appui de sa demande, car Yehuda a également des témoins à l'appui de sa demande et serait en possession de la terre. Suite au témoignage de Shimon, la terre sera attribuée à Lévi, qui en a la possession suite à son achat à Reuven. Ensuite, Shimon sera en mesure de retirer la terre de la possession de Lévi en prouvant que Reuven la lui a volée. Par conséquent, le témoignage de Shimon est biaisé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

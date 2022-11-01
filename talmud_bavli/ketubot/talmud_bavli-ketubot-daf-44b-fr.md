@@ -36,4 +36,4 @@ Rava développe : <b>Grâce à toi, si tu dis</b> que <b>dans un cas comme celui
 <b>Sheila a enseigné</b> dans une <i>baraita</i> : Il y a <b>trois</b> différentes <b>circonstances concernant une jeune femme</b> qui a été diffamée. Si des <b>témoins</b> sont venus témoigner d'elle</b> alors qu'elle était <b>dans la maison de son beau-père,</b> c'est-à-dire après son mariage, et ont déclaré <b>qu'elle a commis l'adultère dans la maison de son père,</b> alors qu'elle était fiancée,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

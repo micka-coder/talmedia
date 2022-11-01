@@ -33,4 +33,4 @@ La Gemara raconte : L'<b>empereur romain dit à Rabbi Yehoshua ben Ḥananya : V
 § La Gemara raconte : <b>L'empereur dit à Rabbi Yehoshua ben Ḥananya : Je souhaite voir ton Dieu.</b> Rabbi Yehoshua <b>lui répondit : Tu ne peux pas Le voir.</b> L'empereur <b>lui dit : En vérité,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

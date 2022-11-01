@@ -39,4 +39,4 @@ La Gemara demande : <b>Et d'où déduit-on</b> que la pluie doit être mentionn�
 Rabbi Yoḥanan cite des versets à l'appui de son affirmation. <b>La clé de la pluie, comme il est dit : "Le Seigneur ouvrira pour toi son bon trésor, les cieux, pour donner la pluie de ton pays en son temps"</b> (Deutéronome 28:12), indique que la pluie est contrôlée par Dieu Lui-même. <b>D'où vient</b> le fait que <b>la clé de l'accouchement</b> est maintenue par Dieu ? <b>Comme il est écrit : "Et Dieu se souvint de Rachel et l'écouta</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara demande : <b>Il est enseigné</b> que s'il associe l'objet <b>à ce q
 <strong>GEMARA :</strong> <b>Il a été déclaré</b> qu'à l'égard de celui qui dit : <b>Dormir est <i>konam</i> pour mes yeux aujourd'hui si je vais dormir demain, Rav Yehuda a dit</b> que <b>Rav a dit : Il ne peut pas dormir aujourd'hui, de peur de dormir demain</b> et ainsi faire en sorte que le vœu ait été violé aujourd'hui, rétroactivement. <b>Et Rav Naḥman a dit : Il peut dormir aujourd'hui,</b> puisqu'il n'y a actuellement pas d'interdiction, <b>et nous ne sommes pas concernés par le fait qu'il dormira peut-être demain,</b> puisqu'il fera attention à ne pas dormir. <b>Et Rav Yehuda concède</b> que <b>dans</b> un cas où <b>il dit : Dormir est <i>konam</i> pour mes yeux demain si je dors aujourd'hui, il pourra dormir aujourd'hui.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

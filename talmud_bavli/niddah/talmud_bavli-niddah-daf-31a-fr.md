@@ -75,4 +75,4 @@ Ceci est <b>conforme</b> à une déclaration <b>de Rabbi Abbahou, car Rabbi Abba
 Cette affirmation est également dérivée du verset suivant : <b>"Et les fils d'Ulam étaient des hommes puissants et valeureux, des archers, et avaient beaucoup de fils et de fils de fils"</b> (I Chroniques 8:40). <b>Est-ce au pouvoir d'une personne d'avoir beaucoup de fils et de fils de fils ? Plutôt, parce que</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

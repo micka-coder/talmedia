@@ -30,7 +30,7 @@ Les Sages <b>de Néharde'a disent : On ratifie un document</b> en authentifiant 
 <b>Un dilemme a été soulevé devant</b> les Sages : Si le plaideur <b>même</b> rappelle le témoignage au témoin, <b>quelle est la décision</b> ? <b>Rav Ḥaviva a dit : Même</b> si le plaideur <b>se rappelle lui-même</b> le témoin, celui-ci peut témoigner. <b>Mar, fils de Rav Ashi, a dit : </b> Si le plaideur <b>se</b> rappelle le témoin, il <b>ne peut pas</b> témoigner. <b>Et</b> la Gemara conclut que <b>la <i>halakha</i> est</b> que si le plaideur <b>même</b> rappelle le témoignage au témoin, ce dernier <b>ne peut pas</b> témoigner, en raison de la crainte que le plaideur ait influencé la nature de son témoignage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et de même que</b> les témoins <b>rendent</b> d'autres <b>témoins faux, conspirateurs</b> témoins <b>uniquement en leur présence,</b> car par leur témoignage ils les rendent passibles de sanctions, <b>de même,</b> les témoins <b>contredisent</b> le témoignage d'autres témoins <b>uniquement en leur présence.</b> Les signataires du document étant morts, leur témoignage ne peut être contredit.
 
@@ -62,4 +62,4 @@ Les Sages <b>de Néharde'a disent : On ratifie un document</b> en authentifiant 
 <b>Un dilemme a été soulevé devant</b> les Sages : Si le plaideur <b>même</b> rappelle le témoignage au témoin, <b>quelle est la décision</b> ? <b>Rav Ḥaviva a dit : Même</b> si le plaideur <b>se rappelle lui-même</b> le témoin, celui-ci peut témoigner. <b>Mar, fils de Rav Ashi, a dit : </b> Si le plaideur <b>se</b> rappelle le témoin, il <b>ne peut pas</b> témoigner. <b>Et</b> la Gemara conclut que <b>la <i>halakha</i> est</b> que si le plaideur <b>même</b> rappelle le témoignage au témoin, ce dernier <b>ne peut pas</b> témoigner, en raison de la crainte que le plaideur ait influencé la nature de son témoignage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

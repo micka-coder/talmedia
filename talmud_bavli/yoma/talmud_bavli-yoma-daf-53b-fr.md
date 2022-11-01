@@ -51,4 +51,4 @@ De même, <b>Rabbi Shimon ben Yoḥai dit : L'Arche a été exilée en Babylonie
 La Guemara commente : Et <b>cette</b> opinion selon laquelle l'Arche a été exilée en Babylonie <b>est en désaccord</b> avec celle <b>de Ulla, car Ulla a dit : Rabbi Matya ben Ḥarash a demandé à Rabbi Shimon ben Yoḥai à Rome : Et puisque Rabbi Eliezer nous a enseigné une fois et deux fois,</b> c'est-à-dire à partir de deux versets distincts, que <b>l'Arche a été exilée en Babylonie.</b> La Guemara interrompt sa citation de la question de Rabbi Matya ben Ḥarash' pour identifier ces deux versets. <b>Le premier</b> verset est <b>celui que nous avons dit : "Et l'emmenèrent en Babylonie, avec les vases précieux de la Maison du Seigneur.</b> Quel est le second</b> verset ? Rabbi Eliezer a dit : <b>Comme il est écrit : "Et de la fille de Sion est partie</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

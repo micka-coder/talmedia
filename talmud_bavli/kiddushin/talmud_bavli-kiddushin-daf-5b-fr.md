@@ -54,4 +54,4 @@ Rav Pappa demande : <b>Mais n'avons-nous pas appris</b> dans une mishna (<i>Nazi
 La Guemara rejette cette idée : <b>De quoi s'agit-il ici ?</b> Shmuel fait référence à un cas <b>où il a dit</b> la formulation et a ajouté la phrase : <b>A moi.</b> Par exemple, il a dit à une femme : Tu es par la présente fiancée à moi. La Gemara demande : <b>Si c'est le cas, qu'est-ce que</b> Shmuel <b>nous apprend ? </b> Si l'homme a énoncé la formule complète, il est évident qu'elle est fiancée, car il a utilisé l'expression standard de fiançailles. La Guemara répond : <b>Ceux-ci</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

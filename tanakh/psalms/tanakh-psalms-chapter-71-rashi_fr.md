@@ -61,4 +61,4 @@
 <b>Mes lèvres chanteront des louanges</b> avec la musique de la harpe quand je jouerai pour Toi sur la harpe.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

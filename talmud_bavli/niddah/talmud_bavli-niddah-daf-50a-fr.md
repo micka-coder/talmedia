@@ -45,4 +45,4 @@ La Guemara note que <b>si</b> ces légumes exemptés de <i>pe'a</i> <b>contenaie
 § <b>Rabba bar bar Ḥana dit</b> que <b>Rabbi Yoḥanan dit :</b> Dans le cas des <b>endives qui ont été initialement plantées</b> pour être nourries <b>aux animaux, et</b> plus tard le propriétaire <b>réfléchit à leur</b> désignation et décide de les utiliser <b>pour la consommation humaine</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

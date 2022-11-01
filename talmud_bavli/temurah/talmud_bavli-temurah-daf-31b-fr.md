@@ -63,4 +63,4 @@ Ceci est <b>tel qu'il est enseigné</b> dans un <i>baraita</i> : En ce qui conce
 <b>Et même selon celui qui a dit</b> qu'on est responsable de <b>mauvais usage des sous-produits des</b> animaux consacrés pour l'<b>autel, cette affirmation</b> ne s'applique qu'aux <b>sous-produits qui sont propres à l'autel, mais</b> en ce qui concerne les <b>sous-produits qui ne sont pas propres à l'autel,</b> par exemple les œufs et le lait, on n'est <b>pas</b> responsable de <b>mauvais usage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

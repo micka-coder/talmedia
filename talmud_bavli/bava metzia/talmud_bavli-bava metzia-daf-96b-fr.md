@@ -60,4 +60,4 @@ La Gemara demande : <b>Et s'il n'y a pas de témoins, quelle</b> est la <i>halak
 <b>Rav Kahana et Rav Asi ont dit à Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

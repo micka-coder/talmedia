@@ -51,4 +51,4 @@ Un <b>Sage,</b> Rabbi Ami, <b>soutient</b> que cela <b>vient et prend effet, tou
 <b>Et l'autre</b> Sage, Rabbi Ḥiyya bar Abba, considère <b>que c'est</b> seulement l'interdiction de manger de la <b>graisse interdite dont il est redevable</b> en plus d'être redevable de l'interdiction de manger un <i>tereifa</i>. L'interdiction de manger une <i>tereifa</i> prend effet en plus de l'interdiction de manger de la graisse interdite <b>parce que</b> en ce qui concerne cette dernière, il existe des <b>circonstances permises</b> qui servent d'exceptions.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais dérivons</b> par analogie verbale entre une instanc
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Si quelqu'un plante</b> un arbre, ou <b>plante</b> un sarment de vigne dans le sol pour qu'il prenne racine, <b>ou greffe</b> une branche sur un arbre <b>la veille de l'année sabbatique trente jours avant Roch HaShana,</b> dès que Roch HaShana arrive, <b>une année est comptée pour lui. </b> Les trente jours comptent comme une année complète en ce qui concerne l'interdiction de <i>orla</i>, <b>et il est permis de conserver</b> la plante <b>pendant l'année sabbatique,</b> car cela n'est pas considéré comme une nouvelle croissance. Cependant, si l'on a effectué ces actions <b>moins de trente jours avant Rosh HaShana,</b> alors lorsque Rosh HaShana arrive, <b>une année n'est pas comptée pour lui</b> pour <i>orla</i>, <b>et il est interdit de conserver</b> la nouvelle croissance <b>pendant l'année sabbatique.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ Le verset précise encore à propos du même incident : <b>"Il se retourna derri
 Le verset dit : <b>"Et deux ourses sortirent de la forêt et leur arrachèrent quarante-deux enfants"</b> (II Rois 2:24).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

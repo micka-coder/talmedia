@@ -87,4 +87,4 @@ On a demandé au Rav Naḥman : <b>Avez-vous abandonné</b> l'opinion majoritair
 <b>Rav Naḥman a alors placé un orateur</b> debout <b>au-dessus de lui, et a enseigné : Les sujets que j'ai énoncés devant vous sont une erreur de ma part. En effet, voici</b> ce que les sages ont <b>dit :</b> En ce qui concerne un <b>individu,</b> le <i>halakha</i> <b>lui fournit</b> une superficie de <b>deux <i>beit se'a</i>. </b> En ce qui concerne <b>deux</b> individus, le <i>halakha</i> <b>leur fournit</b> une aire de <b>deux <i>beit se'a</i></b> également. <b>Trois</b> individus <b>assument le</b> statut légal de caravane, et</b> le <i>halakha</i> <b>leur fournit</b> un espace pour satisfaire <b>tous leurs besoins.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

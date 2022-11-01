@@ -30,4 +30,4 @@ La Guemara explique : <b>En fait,</b> la <i>tanna</i> de la mishna <b>interprèt
 Le verset suivant indique : "Et s'il n'a pas de <b>fille,</b> alors vous donnerez son héritage à ses frères" (Nombres 27:9). <b>J'ai</b> déduit <b>seulement</b> que <b>une fille</b> précède les autres, à l'exception d'un fils et de ses descendants, en ce qui concerne l'héritage du défunt, <b>d'où</b> alors dois-je déduire que <b>la fille d'une fille, ou un fils d'une fille, ou une fille d'un fils d'une fille</b> précède également les autres parents du défunt ? <b>Le verset indique :</b> "Et s'il <b>n'a pas de [<i>ein lo</i>]</b> fille." Le mot <i>ein</i> s'écrit <i>aleph</i>, <i>yod</i>, <i>nun</i>. Par conséquent, les Sages le lisent comme s'il disait : <b>Enquêter à son égard [<i>ayyein alav</i>],</b> pour rechercher des descendants de sa fille, et leur donner l'héritage s'ils sont trouvés.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

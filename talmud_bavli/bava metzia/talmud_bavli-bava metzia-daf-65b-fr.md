@@ -39,4 +39,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent</b> dans <b>la première cla
 Plus tard, le statut juridique de cette promesse a été remis en question. <b>Ameimar a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

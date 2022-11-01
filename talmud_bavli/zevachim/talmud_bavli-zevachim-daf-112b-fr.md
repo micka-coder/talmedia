@@ -48,4 +48,4 @@ Si <b>quelqu'un a consacré</b> les animaux <b>pendant une période d'autorisati
 <b>Et quelle</b> est la différence <b>entre l'autel</b> privé d'un individu et l'autel public</b> à l'emplacement du Tabernacle lorsqu'il était situé à Gilgal, Nov et Gibéon ? C'est que sur un autel privé, il n'y a pas de <b>placage</b> de <b>mains</b> sur la tête d'une offrande, pas d'<b>abattage au nord,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,5 +69,5 @@
 ### passuk 24
 <b>Ils élevèrent [leurs voix],</b> selon son Targum. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

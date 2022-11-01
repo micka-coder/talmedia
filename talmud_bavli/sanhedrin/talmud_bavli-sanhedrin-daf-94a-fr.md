@@ -51,4 +51,4 @@ La Guemara cite des versets supplémentaires écrits à propos de Sennacherib. <
 <b>Il a été enseigné au nom de Rabbi Yehoshua ben Korḥa :</b> A l'égard de <b>Pharaon, qui a lui-même blasphémé</b> Dieu, <b>le Saint, Béni soit-Il, lui a lui-même infligé un châtiment.</b> A l'égard de <b>Sennacherib, qui a blasphémé</b> Dieu.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

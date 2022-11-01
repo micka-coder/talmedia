@@ -51,4 +51,4 @@ La Guemara relate une interaction entre Rav Anan et Rav Huna. <b>Rav Anan a envo
 <b>Rav Anan se rendit devant Mar Ukva</b> pour le consulter sur la réponse de Rav Huna. Il lui <b>a dit :</b> Que le <b>Maître voie comment Rav Huna m'a envoyé</b> un message offensant, en s'adressant à moi comme <b>Anan, Anan. De plus,</b> en ce qui concerne ce mot <b><i>marzeiḥa</i></b> dans la lettre <b>qu'il m'a envoyée, je ne sais pas ce que c'est.</b> Mar Ukva <b>lui a dit : Dis</b> à <b>moi, mon ami [<i>izi</i>],</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara suggère encore une autre réponse : <b>Si tu veux, dis : </b> Rabban
 <strong>MISHNA :</strong> Il y eut <b>un incident</b> dans lequel deux</b> témoins <b>sont venus</b> pour témoigner de la nouvelle lune, <b>et ils ont dit : Nous avons vu</b> la lune décroissante <b>le matin à l'est,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

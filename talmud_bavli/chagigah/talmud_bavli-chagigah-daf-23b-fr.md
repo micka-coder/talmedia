@@ -30,4 +30,4 @@ Le <i>baraita</i> conclut : Par conséquent, <b>le verset dit : "Et celui qui s'
 <b>Reish Lakish a dit au nom de Bar Kappara :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

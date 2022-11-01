@@ -63,4 +63,4 @@ Dans le cas de <b>quelqu'un qui</b> est accusé d'être un <b>ador d'idoles,</b>
 <b>Ulla dit : D'où vient dans la Torah</b> l'obligation <b>de prévenir</b> ? <b>Comme il est dit : "Et si un homme prend sa sœur, la fille de son père ou la fille de sa mère, et voit sa nudité</b> et qu'elle voit sa nudité, c'est un acte infâme et ils seront retranchés aux yeux de leur peuple" (Lévitique 20:17). On peut se demander : <b>Est-ce à dire</b> que <b>la question dépend de la vue ?</b> La transgression consiste à avoir des rapports sexuels, pas à se voir. <b>Au contraire,</b> le sens de "et voir" est : Il n'est pas responsable <b>jusqu'à ce qu'il voie la raison de la chose,</b> qu'il soit clair pour lui qu'il commet une transgression en ayant été prévenu. <b>Si</b> cette <i>halakha</i> <b>n'est pas nécessaire pour la question de l'excision [<i>karet</i>],</b> car cette punition est entre les mains du Ciel, et Dieu sait s'il a agi intentionnellement ou non,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

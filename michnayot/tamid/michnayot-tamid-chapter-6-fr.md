@@ -8,5 +8,5 @@ Celui qui avait gagné le droit d'apporter le brasero faisait un tas de charbons
 ### michna 3
 Celui qui avait gagné le droit à l'encens prenait le plat du milieu de la cuillère et le donnait à son ami ou à son parent. Si une partie se répandait dans la cuillère, il la mettait dans ses mains. Ils avaient l'habitude de lui donner des instructions : Fais attention à ne pas commencer immédiatement devant toi, sinon tu risques de te brûler. Il commençait alors à répandre l'encens et [après avoir terminé] sortait. Celui qui brûlait l'encens ne le faisait que lorsque le surintendant lui disait : brûle l'encens. Si c'était le grand prêtre qui brûlait : il lui disait : Monsieur le grand prêtre, brûlez l'encens. Tout le monde sortait, il brûlait l'encens, se prosternait et sortait.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

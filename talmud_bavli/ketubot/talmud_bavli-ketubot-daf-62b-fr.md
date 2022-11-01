@@ -45,4 +45,4 @@ Rabbi Ḥama <b>rentra dans sa maison</b> et <b>son fils entra</b> avec lui. Rab
 La Guemara relate encore : <b>Rabbi Akiva était le berger de ben Kalba Savua,</b> l'un des riches résidents de Jérusalem. La <b>fille</b> de ben Kalba Savua <b>voyait qu'il était humble et raffiné. Elle lui dit : Si je me fiance à toi, iras-tu à la salle d'étude</b> pour apprendre la Torah ? <b>Il lui répondit : Oui. Elle s'est fiancée à lui en privé et l'a</b> envoyé à l'étude. <b>Son père entendit</b> cela et se mit en colère. <b>Il la retira de sa maison</b> et fit un <b>vœu</b> lui interdisant de <b>bénéficier de ses biens.</b> Rabbi Akiva <b>s'en alla</b> et <b>s'assit pendant douze ans dans la salle d'étude. Lorsqu'il revint</b> à sa maison, <b>il emmena avec lui douze mille étudiants</b> et, en s'approchant, <b>il entendit un vieil homme dire à</b> sa femme : <b>Pendant combien de temps</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

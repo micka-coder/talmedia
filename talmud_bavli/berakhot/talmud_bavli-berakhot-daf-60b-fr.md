@@ -39,4 +39,4 @@ Nous avons appris dans la mishna : <b>On est oblige de reciter une benediction</
 La Guemara relate : <b>Comme cet</b> incident, <b>lorsque Rabbi Akiva marchait sur la route et arrivait dans une certaine ville, il s'enquit d'un logement et on ne lui en donna</b> pas. <b>Il dit : Tout ce que Dieu fait, Il le fait pour le mieux. Il alla dormir dans un champ, et il avait avec lui un coq, un ane et une bougie. Une</b> rafale de <b>vent vint et eteignit la bougie ; un chat vint et mangea le coq ; et un lion vint et mangea l'ane. Il a dit : Tout ce que Dieu fait, il le fait pour le mieux. Cette nuit-la, une armee arriva et emmena la ville en captivite.</b> Il s'avera que Rabbi Akiva seul, qui n'etait pas dans la ville et n'avait ni bougie allumee, ni coq bruyant, ni ane pour indiquer son emplacement, fut sauve. <b>Il leur dit : Ne vous ai-je pas dit ? Tout ce que Dieu fait,</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

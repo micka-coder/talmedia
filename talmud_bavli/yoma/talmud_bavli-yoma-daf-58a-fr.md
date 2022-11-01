@@ -33,4 +33,4 @@ Rav Ḥisda <b>lui a dit</b> en réponse : <b>Nous</b> avons déjà <b>appris</b
 <b>Certains disent</b> que <b>c'est ainsi</b> que Rav Ḥisda <b>résolu</b> le problème de placer le liber dans le bol <b>pour</b> Rami bar Ḥama : Dans le cas <b>du sang, c'est valable,</b> car le sang passe à travers, et le bast ne l'obstrue pas. Cependant, dans le cas <b>de la poignée</b> d'une offrande de repas, qui doit être sanctifiée dans un récipient immédiatement après la prise de la poignée, s'il a mis du liber dans un récipient et a placé la poignée par-dessus, <b>elle est disqualifiée.</b> La raison est que la poignée d'une offrande de repas est constituée de pâte, qui ne passe pas à travers le liber, et elle est donc considérée comme une interposition correcte.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

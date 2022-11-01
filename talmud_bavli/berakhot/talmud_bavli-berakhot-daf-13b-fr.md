@@ -87,4 +87,4 @@ Ici aussi, il faut preciser : Il peut <b>repondre en raison de quelle</b> circon
 La Gemara dit : La mishna <b>est incomplete;</b> il lui manque un element important, <b>et elle enseigne ce qui suit : Aux</b> pauses entre les <b>paragraphes, on peut saluer en raison du respect, et, il va sans dire, on peut repondre</b> en raison du respect. <b>Au milieu</b> de chaque paragraphe, <b>on peut saluer en raison de la peur, et, inutile de le dire, il peut repondre</b> en raison de la peur. C'est la <b>declaration de Rabbi Meir. Rabbi Yehuda dit : Au milieu</b> de chaque paragraphe <b>on peut saluer en raison de la crainte et repondre en raison du respect.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

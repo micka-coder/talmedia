@@ -51,4 +51,4 @@ La Gemara conteste : Cette déduction <i>a fortiori</i> <b>peut être réfutée.
 La Gemara répond : <b>Dérivez</b> cette <i>halakha</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara explique : <b>Nous disons</b> que la liste de Rabbi Yoḥanan se réf
 La Gemara demande en outre : <b>Mais n'y a-t-il pas ce que Rabbi Yehoshua ben Levi a dit :</b> En ce qui concerne une femme enceinte qui a <b>passé à travers une rivière</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

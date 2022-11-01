@@ -39,4 +39,4 @@ Toutefois, si elle est <b>ouverte au domaine public, il ne peut ouvrir</b> que <
 La Gemara répond : Ce n'est <b>pas difficile : Cette</b> <i>baraita</i> qui interdit de vendre de manière habituelle fait référence <b>à</b> la vente de <b>fruits,</b> qui sont généralement achetés en grandes quantités et qui auraient pu être achetés avant la Fête ; les gens pourraient donc soupçonner l'acheteur de les acheter pour les utiliser après la Fête. En revanche, <b>cette décision clémente de Rav Huna fait référence <b>à</b> la vente d'<b>épices,</b> qui est permise parce que les gens ne les achètent qu'en petites quantités pour le plaisir de la Fête.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

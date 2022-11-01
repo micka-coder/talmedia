@@ -57,4 +57,4 @@ De même, s'il l'a fiancée <b>à la condition qu'il n'y ait pas de taches sur e
 <strong>MISHNA : </strong>Dans le cas de <b>celui qui fiance deux femmes</b> ensemble <b>avec</b> un objet <b>valeur d'une <i>peruta</i>,</b> de sorte que la valeur de la part de chaque femme ne valait pas une <i>peruta</i>, <b>ou</b> qui fiance <b>une femme avec</b> un objet <b>valant moins d'une <i>peruta</i>, malgré</b> le fait <b>qu'il ait ensuite envoyé</b> les <b>cadeaux traditionnels [<i>sivlonot</i>]</b> d'un marié à la mariée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

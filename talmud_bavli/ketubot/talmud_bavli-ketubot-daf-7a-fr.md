@@ -48,4 +48,4 @@ La Gemara demande : <b>Cependant, ce qui est enseigné</b> dans un <i>baraita</i
 La Guemara répond que cette question peut être résolue de plusieurs manières. <b>Si vous le souhaitez, dites : Dans</b> le cas d'un <b>veuf</b> épousant une veuve, il y a <b>un jour pour la bénédiction et trois jours pour la célébration.</b> Le mariage est prévu le jeudi pour faciliter une célébration de trois jours. <b>Et si vous le souhaitez, dites</b> à la place : <b>Dans</b> le cas d'un <b>célibataire</b> épousant une veuve, il y a <b>sept jours pour la bénédiction et</b> il y a <b>trois jours pour la célébration,</b> pendant lesquels il doit s'abstenir d'aller travailler.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

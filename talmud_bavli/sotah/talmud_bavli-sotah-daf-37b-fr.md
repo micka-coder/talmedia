@@ -39,4 +39,4 @@ On <b>pourrait</b> avoir pensé que <b>toutes les bénédictions</b> devraient <
 <strong>MISHNA :</strong> <b>Comment</b> on récite <b>la bénédiction sacerdotale</b> ? <b>Dans la campagne,</b> c'est-à-dire en dehors du Temple, le prêtre <b>recite</b> les versets comme <b>trois bénédictions,</b> faisant une pause entre chaque verset pendant que le peuple répond amen. <b>Et dans le Temple,</b> les prêtres récitent les trois versets comme <b>une seule bénédiction,</b> après quoi le peuple répond : Béni soit le Seigneur, Dieu, le Dieu d'Israël, d'éternité en éternité, comme le veut la réponse habituelle aux bénédictions dans le Temple. <b>Dans le Temple,</b> le prêtre <b>dit le nom</b> de Dieu...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

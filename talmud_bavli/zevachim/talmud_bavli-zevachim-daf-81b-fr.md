@@ -51,4 +51,4 @@ Si le prêtre, de sa propre initiative, a placé le mélange de sang <b>à l'int
 La Guemara explique que Rabbi Eliezer n'est pas en désaccord dans ce cas, car <b>comment doit</b> le prêtre <b>agir ?</b> Si l'on dit qu'il <b>doit</b> d'abord <b>placer</b> le sang du mélange sur l'autel <b>à l'extérieur</b> du Sanctuaire, <b>et ensuite placer</b> le sang du mélange <b>à l'intérieur</b> du Sanctuaire, cela n'est pas permis. <b>De même que</b> c'est <b>une mitsva de donner la priorité</b> au sang qui doit être placé <b>au-dessus</b> de la ligne rouge <b>sur</b> le sang qui doit être placé <b>en dessous</b> de la ligne, par ex, la présentation du sang d'une offrande pour le péché précède la présentation du sang d'un holocauste, puisque l'offrande pour le péché sert à effectuer l'expiation, <b>ainsi</b> est-ce <b>une mitzva de donner la préséance</b> au sang qui doit être placé <b>à l'intérieur</b> du Sanctuaire <b>sur</b> le sang qui doit être placé <b>à l'extérieur</b> du Sanctuaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

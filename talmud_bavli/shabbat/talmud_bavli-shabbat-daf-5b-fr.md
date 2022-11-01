@@ -33,4 +33,4 @@ La Guemara clarifie les avis. <b>Accordé,</b> l'avis de <b>ben Azzai</b> est lo
 <b>Rav Safra dit</b> que <b>Rabbi Ami dit</b> que <b>Rabbi Yoḥanan dit:</b> Ce n'est pas un cas exceptionnel,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

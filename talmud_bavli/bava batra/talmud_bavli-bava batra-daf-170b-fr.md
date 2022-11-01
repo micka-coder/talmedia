@@ -15,4 +15,4 @@
 Rav Huna <b>lui dit :</b> Rav <b>a entendu</b> la <i>baraita</i>, <b>et</b> néanmoins <b>il ne s'est pas rétracté</b> de sa déclaration. Alors que Rabbi Yehuda dit dans la <i>baraita</i> que les témoins rédigent un nouveau billet à ordre, le Rav soutient que cela doit être fait spécifiquement par un tribunal. Pourquoi cela ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

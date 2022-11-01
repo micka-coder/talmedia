@@ -24,4 +24,4 @@ Rava développe : <b>A moins que tu ne dises</b> que <b>si</b> il <b>se présent
 <b>Au contraire, Rav Ashi dit : De quoi s'agit-il ici ? </b> Nous avons affaire à un cas <b>où</b> le Grand Prêtre avait une intention qui peut <b>rendre</b> l'offrande <b><i>piggul</i> pendant la première</b> série d'aspersions, dans le Saint des Saints, <b>et pendant la deuxième</b> série, sur le Rideau, <b>et pendant la troisième,</b> sur les coins de l'autel intérieur. Mais pendant la quatrième série, les aspersions sur le sommet de l'autel intérieur, il s'est tu. <b>De peur que tu dises</b> que <b>si</b> il <b>se présente à ton esprit</b> de dire que <b>toute personne qui accomplit</b> une action <b>l'accomplit</b> <b>avec</b> son <b>intention initiale, pourquoi ai-je</b> besoin qu'il ait une fois <b>encore</b> une intention impropre qui puisse <b>rendre</b> l'offrande <b><i>piggul</i> pendant chaque</b> série d'aspersions ? Par conséquent, le <i>baraita</i> <b>nous enseigne</b> que malgré cela, il est considéré comme ayant effectué toutes les aspersions avec son intention initiale.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

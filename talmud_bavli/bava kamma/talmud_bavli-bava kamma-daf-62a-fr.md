@@ -39,4 +39,4 @@ Rav Ashi <b>lui a dit : Si</b> le demandeur <b>déclarait</b> qu'il y avait des 
 Rav Adda fut perplexe face à cette réponse et lui <b>dit : S'il donne de l'argent, l'appelez-vous quand même</b> <b>un <i>gazlan</i> ? </b> Puisqu'il donne de l'argent, il l'acquiert légalement, malgré le fait que son propriétaire ne l'ait pas vendu volontairement. <b>Mais Rav Huna ne dit-il pas :</b> Si quelqu'un a été <b>stringué</b> pour qu'un autre le contraigne à vendre un certain objet, <b>et qu'il l'a vendu</b>, <b>sa vente est</b> une <b>vente valide.</b> Cela indique qu'une vente sous contrainte est considérée comme une vente valide. Rav Ashi a répondu : Ceci n'est <b>pas difficile. Ce</b> cas, où la vente sous contrainte est légalement considérée comme une vente, fait référence à un cas <b>où il</b> finit par <b>dire : je veux</b> vendre l'objet, bien qu'il ait été forcé. En revanche, dans <b>cette</b> affaire, où la vente est invalide, <b>il n'a pas dit : Je veux</b> vendre l'objet.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -84,7 +84,7 @@
 <b>[Alors] tue-moi.</b> Le roi devrait me tuer.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -170,4 +170,4 @@
 <b>[Alors] tue-moi.</b> Le roi devrait me tuer.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -41,7 +41,7 @@
 <b>Et son salaire</b> [Lit. son acte.] La récompense de l'acte qu'ils ont fait avec Lui, est devant Lui, préparée pour donner.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Pour l'amour de Sion</b> Je ferai, et je ne me tairai pas sur ce qu'ils lui ont fait.
 <b>Je ne me reposerai pas</b> Il n'y aura pas de paix devant Moi jusqu'à ce que sa justice sorte comme un éclat.
@@ -84,4 +84,4 @@
 <b>Et son salaire</b> [Lit. son acte.] La récompense de l'acte qu'ils ont fait avec Lui, est devant Lui, préparée pour donner.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

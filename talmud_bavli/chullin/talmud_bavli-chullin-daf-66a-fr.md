@@ -27,4 +27,4 @@ La Gemara demande : <b>Qu'est-ce qui est différent là,</b> dans la <i>baraita<
 § La mishna indique : <b>Et en ce qui concerne les poissons, tout</b> poisson <b>qui a une nageoire et une écaille</b> est cachère. <b>Les Sages ont enseigné</b> dans une <i>baraïta</i> : Si un poisson <b>n'a pas</b> d'écailles <b>maintenant mais en fera pousser</b> après une période de <b>temps, comme les poissons <i>sultanit</i> et <i>afyan</i></b>, <b>il est permis. </b> De même, si <b>il a</b> des écailles <b>maintenant mais qu'il les perdra lorsqu'il</b> sera pêché et <b>sortira de l'eau, tel que</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

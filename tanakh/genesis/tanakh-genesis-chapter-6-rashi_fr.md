@@ -88,5 +88,5 @@
 ### passuk 22
 <b>Noach fit ainsi.</b> Cela fait référence à sa construction de l'arche.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

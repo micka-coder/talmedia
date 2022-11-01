@@ -43,7 +43,7 @@
 <b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beit Hamikdash. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beit Hamikdash.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -88,4 +88,4 @@
 <b>Et l'entrée... du roi.</b> [L'entrée] par laquelle il viendrait, de sa maison au Beis [Hamikdosh] d'Hachem par l'extérieur,<sup>14</sup><i class="footnote">Il scella cette entrée afin que l'accès au palais ne puisse se faire que par le Beit Hamikdash. Cela rendrait une attaque du palais plus difficile car désormais le seul accès au palais se ferait par le Beit Hamikdash.-Ralbag</i> il changea de lieu de dissimulation à cause du roi d'Assur, afin qu'il ne convoite pas ces récipients, et il changea également l'entrée, au cas où il devrait se cacher et s'échapper secrètement.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

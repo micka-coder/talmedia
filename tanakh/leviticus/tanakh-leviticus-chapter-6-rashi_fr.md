@@ -94,5 +94,5 @@
 <b>Et toute offrande pour le péché, etc.</b> S'il a introduit [une partie] du sang d'une offrande pour le péché "extérieure" à l'intérieur, elle est invalide. 
 <b>Et tous,</b> pour inclure les autres sacrifices. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

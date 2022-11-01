@@ -48,7 +48,7 @@ Dans le même ordre d'idées, <b>les Sages ont enseigné :</b> En ce qui concern
 Rabbi Meir <b>leur dit : Moi aussi, je n'ai parlé que</b> d'un <i>log</i> d'huile qui <b>arrive avec l'offrande de culpabilité</b>. Les rabbins lui ont dit : Mais même dans ce cas, l'huile ne doit pas être considérée comme faisant partie de l'offrande, car <b>il est possible d'échanger</b> l'huile <b>pour</b> l'utiliser avec <b>une autre offrande de culpabilité. Rava a dit : Rabbi Meir soutient</b> que le <i>log</i> d'huile <b>est fixé</b> à cette offrande de culpabilité particulière <b>au moment de son <b>abattage</b> et est donc rendu <i>piggul</i> à cause de cela, tout comme les pains d'une offrande de remerciement,</b> car l'abattage de l'offrande de remerciement fixe les pains qui l'accompagnent à cette offrande particulière.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Qui a planté</b> des graines dans <b>la vigne d'un autre</b> alors que les raisins sur les vignes étaient <b>en train d'ébouriffer, et</b> l'<b>incident est venu devant les Sages et ils ont jugé les graines interdites</b> en raison de l'interdiction de planter diverses sortes dans une vigne, <b>mais ils ont jugé les vignes permises.</b> La Gemara poursuit : <b>Mais pourquoi</b> ont-ils jugé les graines interdites ? <b>Laissons</b> les Sages <b>dire</b> par une <b><i>a fortiori</i></b> déduction analogue que les graines devraient être autorisées : <b>Et si ce qui rend</b> un élément <b>prohibé,</b> c'est-à-dire, la vigne, qui fait que les graines sont interdites, <b>est</b> elle-même <b>non interdite,</b> alors en ce qui concerne les graines, <b>qui viennent rendre</b> les vignes <b>interdites mais qui n'ont pas rendu</b> les vignes <b>interdites, n'est-il pas logique qu'elles ne soient pas rendues interdites ?</b>
 
@@ -98,4 +98,4 @@ Dans le même ordre d'idées, <b>les Sages ont enseigné :</b> En ce qui concern
 Rabbi Meir <b>leur dit : Moi aussi, je n'ai parlé que</b> d'un <i>log</i> d'huile qui <b>arrive avec l'offrande de culpabilité</b>. Les rabbins lui ont dit : Mais même dans ce cas, l'huile ne doit pas être considérée comme faisant partie de l'offrande, car <b>il est possible d'échanger</b> l'huile <b>pour</b> l'utiliser avec <b>une autre offrande de culpabilité. Rava a dit : Rabbi Meir soutient</b> que le <i>log</i> d'huile <b>est fixé</b> à cette offrande de culpabilité particulière <b>au moment de son <b>abattage</b> et est donc rendu <i>piggul</i> à cause de cela, tout comme les pains d'une offrande de remerciement,</b> car l'abattage de l'offrande de remerciement fixe les pains qui l'accompagnent à cette offrande particulière.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

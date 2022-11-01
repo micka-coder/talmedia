@@ -30,4 +30,4 @@ La Gemara reformule la déclaration de Rabba : <b>Au contraire, si</b> la décla
 <strong>MISHNA :</strong> <b>Celui qui prête</b> de l'argent <b>à un autre au moyen</b> d'un billet à ordre peut recouvrer</b> la dette <b>sur des biens grevés</b> qui avaient été vendus à d'autres par le débiteur après l'octroi du prêt. Celui qui prête de l'argent <b>au moyen de témoins,</b> sans enregistrer le prêt dans un billet à ordre, <b>ne peut recouvrer</b> la dette que <b>sur des biens non vendus.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

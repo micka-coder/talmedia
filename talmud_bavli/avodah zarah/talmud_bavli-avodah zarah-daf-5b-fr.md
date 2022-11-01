@@ -33,4 +33,4 @@ La Gemara répond : <b>Nous</b> Juifs, <b>pour qui les tares qui disqualifient</
 La Gemara demande : Ce <b>verset</b> n'est-il pas <b>requis</b> pour enseigner <b>qu'un animal ayant une blessure qui le fera mourir dans les douze mois [<i>tereifa</i>] n'est pas</b> apte à être sacrifié en offrande ? La Gemara répond : La disqualification d'une <b>Téréifa</i> est dérivée de</b> la phrase : <b>"Pour garder la semence vivante"</b> (Genèse 7:3), car une <i>Téréifa</i> ne peut pas se propager. La Guemara demande : <b>Cela marche bien selon celui qui dit</b> qu'un <b>tereifa</i> ne peut pas donner naissance.</b> Selon cette opinion, la disqualification d'un membre manquant est tirée de la phrase : "De tout être vivant", tandis que la disqualification d'un <i>tereifa</i> est apprise de la phrase : "Pour garder la semence vivante."
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara continue d'expliquer ces versets : <b>Rabbi Ḥiyya bar Abba dit</b> 
 La Guemara demande : <b>Et Rabbi Akiva,</b> qui n'expose pas les versets de cette manière, que répond-il à cela ? La Guemara répond : Il soutient que <b>puisque</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

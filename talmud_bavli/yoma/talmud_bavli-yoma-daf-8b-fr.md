@@ -27,4 +27,4 @@ A propos de la chambre du <i>Parhedrin</i>, la Guemara discute d'une <i>halakha<
 La Gemara demande : <b>Grâce, <i>teruma gedola</i>,</b> qui est égale à environ un cinquantième du produit et est donnée à un prêtre, n'a pas besoin <b>d'être séparée du produit douteux, <b>comme il a été enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

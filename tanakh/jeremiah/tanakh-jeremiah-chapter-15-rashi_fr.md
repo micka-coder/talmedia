@@ -86,7 +86,7 @@
 <b>Les laisser revenir vers toi, mais tu ne reviendras pas vers eux</b> Les laisser revenir à ta parole, mais tu ne reviendras pas t'égarer après eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Moïse et Samuel</b> Tous deux ont été nécessaires pour implorer la miséricorde pour Israël, mais d'abord ils les ont incités à se repentir, et ensuite ils ont prié en leur nom, mais ils n'avaient aucune idée de détourner Ma colère avant de les avoir incités à se repentir. Moïse a dit (Exode 32:27), "Que chaque homme mette son épée..." (v. 20) "et il la répandit à la surface de l'eau, etc.". Et ensuite (v. 30), "Je monterai vers le Seigneur, peut-être que j'expierai." Samuel à Mitspa (I Samuel 7,4,5) "Et les enfants d'Israël firent disparaître les Baalim," et après, "'Rassemblez tout Israël à Mitspa, et je prierai le Seigneur en votre faveur (sic)". Mais tu ne peux pas les ramener à Moi, donc ne prie pas pour eux.
 <b>Désir</b> Heb. נַפְֹשִי lit. mon âme.
@@ -174,4 +174,4 @@
 <b>Les laisser revenir vers toi, mais tu ne reviendras pas vers eux</b> Les laisser revenir à ta parole, mais tu ne reviendras pas t'égarer après eux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

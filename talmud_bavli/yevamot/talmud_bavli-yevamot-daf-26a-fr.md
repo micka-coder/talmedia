@@ -39,4 +39,4 @@ La Guemara répond : Il y a une distinction entre les situations, car <b>il est 
 La Gemara demande : <b>Si c'est le cas, le père d'un individu</b> devrait être autorisé à épouser une femme libérée par son fils <b>aussi.</b> Alors pourquoi la mishna dit-elle : Leurs fils ou leurs frères, et non : Leurs pères ? La Guemara répond : Certes, son père est autorisé également, mais la mishna <b>parle</b> en utilisant le style de : <b>Il n'est pas nécessaire. Il n'est pas nécessaire</b> de mentionner le cas de <b>son père</b> car il lui est très certainement permis d'épouser une femme libérée par son fils, <b>car son fils est gêné [<i>baziz</i>] devant lui</b> et ne viendrait donc pas coucher avec la femme de son père. <b>Mais je pourrais dire que</b> puisque <b>le père n'est pas embarrassé devant son fils,</b> elle <b>ne peut pas</b> être mariée au fils de celui pour lequel il y a suspicion. Par conséquent, <b>ceci vient nous apprendre</b> qu'il n'y a pas de souci de ce genre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

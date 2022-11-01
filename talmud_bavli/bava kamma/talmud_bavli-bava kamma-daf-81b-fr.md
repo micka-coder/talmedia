@@ -72,4 +72,4 @@ Le <i>baraita</i> poursuit : <b>Et c'est</b> également une <b>stipulation du tr
 La Guemara explique pourquoi les stipulations mentionnées par Rabbi Yehuda et Rabbi Yishmael sont omises par la <i>baraita</i> antérieure : Dans la <i>baraita</i>, <b>on ne parle pas des opinions individuelles</b> mais seulement de celles qui sont acceptées par tous les Sages.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

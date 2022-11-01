@@ -65,5 +65,5 @@
 ### passuk 21
 <b>Œil pour œil.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Paiement monétaire. De même, "dent pour dent, etc." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

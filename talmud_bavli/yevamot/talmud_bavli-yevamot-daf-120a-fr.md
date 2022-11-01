@@ -51,4 +51,4 @@ La Gemara raconte que <b>Abba bar Marta, qui est</b> également connu sous le no
 <b>Et il y a</b> ceux <b>qui disent</b> que <b>Rava a dit : Tout le monde</b> convient que les <b>marques distinctives</b> sont invoquées <b>par la loi rabbinique</b>. Cependant, il s'agit de marques distinctives ordinaires. Les marques qui sont exceptionnellement inhabituelles peuvent être invoquées même selon la loi de la Torah. <b>Et ici,</b> dans la dispute entre les rabbins et Rabbi Eliezer ben Mahavai, il s'agit <b>de savoir</b> si <b>une taupe</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

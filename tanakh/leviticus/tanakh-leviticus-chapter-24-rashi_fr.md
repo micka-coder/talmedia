@@ -82,5 +82,5 @@
 ### passuk 23
 <b>Et les Bnei Israël firent - </b> [ils exécutèrent] le <i>mitzvoh</i> complet de la lapidation mentionné ailleurs [sur le blasphémateur] : jeter [le condamné en bas d'une hauteur], l'amoncellement de pierres [sur lui] et la pendaison [de son corps ensuite]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

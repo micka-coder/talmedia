@@ -36,4 +36,4 @@ La Gemara demande : <b>De quelle perle</b> veut-il parler ? <b>Comme il est ense
 <strong>MISHNA:</strong> Dans le cas de <b>quelqu'un dont la femme est partie à l'étranger</b> et les gens <b>sont venus et lui ont dit : Ta femme est morte, et il a épousé sa sœur, et par la suite sa femme est</b> revenue d'outre-mer, la femme originelle <b>est autorisée à revenir</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ La Guemara demande : <b>Par rapport à quelle</b> clause de la mishna cela fait-
 <b>Et</b> s'il s'agit <b>plutôt</b> de faire référence <b>à la clause du milieu,</b> c'est-à-dire un acte de divorce non daté, pourquoi est-il important de savoir s'il a été écrit de la main du mari ? <b>Il n'y a pas</b> des signatures de <b>témoins dessus ? </b> Il doit plutôt se référer <b>à la dernière clause</b> de la mishna, c'est-à-dire à un acte de divorce qui <b>a une date</b> écrite <b>sur lui mais qui n'a que</b> la signature d'<b>un témoin.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

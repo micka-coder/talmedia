@@ -54,4 +54,4 @@ La Guemara note que <b>cela est enseigné</b> dans une <i>baraïta</i> <b>confor
 Le <i>baraita</i> poursuit : <b>Dîtes-vous</b> que le verset parle <b>des animaux souillés ; ou</b> peut-être que <b>il</b> se réfère <b>uniquement à un animal non casher,</b> et qu'il enseigne qu'un animal non casher qui a été consacré à l'entretien du Temple est racheté au moyen de la station debout et de l'évaluation. Le <i>baraita</i> répond : <b>Lorsqu'il est dit</b> plus loin dans ce passage : "Et <b>s'il s'agit d'un animal non cachère, il le rachètera selon votre évaluation"</b> (Lévitique 27:27), <b>un animal non cachère</b> est ainsi <b>déclaré</b> comme pouvant être racheté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -23,5 +23,5 @@ Si un homme cède ses biens à son fils par écrit, il doit écrire : "A partir 
 ### michna 8
 S'il a laissé des filles aînées et des filles cadettes, les filles aînées ne peuvent pas s'occuper d'elles-mêmes aux frais des filles cadettes, et les filles cadettes ne peuvent pas non plus demander une pension alimentaire aux frais des filles aînées, mais elles partagent toutes de la même façon. Si les filles aînées se sont mariées [et ont pris chacune sa dot sur l'héritage commun], de même les filles cadettes peuvent se marier [et prendre chacune une dot sur l'héritage commun]. Si les filles cadettes disent : "Nous nous marierons comme vous vous êtes mariés", on ne les écoute pas, car ce que leur père leur a donné, il l'a donné. Une plus grande rigueur s'applique aux filles qu'aux fils, car les filles peuvent réclamer des aliments aux dépens des fils, mais elles ne peuvent pas réclamer des aliments aux dépens des [autres filles].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

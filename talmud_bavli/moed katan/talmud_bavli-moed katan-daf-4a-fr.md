@@ -66,4 +66,4 @@ La Gemara demande : <b>Mais n'est-il pas</b> probable que le bassin <b>s'arrête
 La Guemara relate que <b>Ravina et Rabba Tosefa'a étaient</b> un jour <b>en train de marcher le long de la route</b> quand <b>ils ont vu un certain homme qui puisait</b> de l'eau <b>avec un seau les jours intermédiaires d'une Fête. Rabba Tosefa'a dit à Ravina : Que le Maître vienne et l'excommunie</b> pour avoir transgressé les paroles des Sages. Ravina <b>lui dit : Mais n'est-il pas enseigné</b> dans un <i>baraita</i> : <b>On peut tirer des légumes pour les manger,</b> et ainsi il n'a pas commis de transgression. Rabba Tosefa'a <b>lui dit : Soutenez-vous</b> que <b>ce que l'on entend par <b>on peut puiser</b> [<b><i>madlin</i></b>] <b>c'est</b> que <b>on peut puiser de l'eau</b> afin d'irriguer les légumes ? Ce n'est pas le cas. Au contraire, <b>ce qu'on entend</b> par là.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

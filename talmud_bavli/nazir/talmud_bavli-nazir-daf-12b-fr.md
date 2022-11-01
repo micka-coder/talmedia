@@ -30,4 +30,4 @@ La Gemara rejette cette affirmation : <b>Et peut-être</b> Rabbi Yoshiya a parl�
 <strong>MISHNA :</strong> Si quelqu'un a dit : <b>Je suis par la présente un nazirite lorsque j'aurai un fils, et qu'un fils lui est né, il est nazirite.</b> Si <b>une fille, un <i>tumtum</i>, ou un hermaphrodite [<i>androginos</i>] lui est né, il n'est pas nazirite,</b> puisqu'un fils ne lui est pas né. Cependant, <b>s'il dit :</b> Je suis par la présente un nazirite <b>lorsque j'aurai un enfant,</b> alors <b>même si une fille, un <i>tumtum</i>, ou un hermaphrodite lui est né, il est un nazirite.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

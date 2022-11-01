@@ -24,4 +24,4 @@ La Guemara clarifie la question : A <b>Quel</b> avis de <b>Rabbi Eliezer</b> fai
 <b>Mais plutôt,</b> la référence doit être à l'opinion de <b>Rabbi Eliezer concernant une ruche d'abeilles. Comme nous l'avons appris</b> dans une mishna (<i>Shevi'it</i> 10:7) : En ce qui concerne <b>une ruche</b> attachée au sol par de l'argile, <b>Rabbi Eliezer dit : Elle est comme une terre, et</b> par conséquent <b>on peut écrire un document qui empêche l'année sabbatique d'annuler une dette impayée [<i>prosbol</i>]</b> basée <b>sur elle.</b> Un tel document ne peut être écrit à moins que l'emprunteur ne possède une certaine terre, et une ruche est considérée comme une terre à cet effet.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

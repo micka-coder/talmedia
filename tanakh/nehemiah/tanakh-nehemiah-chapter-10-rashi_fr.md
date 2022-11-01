@@ -41,4 +41,4 @@
 <b>la dîme de la dîme</b> car les lévites prélevaient une dîme de la dîme et la montaient aux prêtres, qui ne quittaient pas le Temple. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

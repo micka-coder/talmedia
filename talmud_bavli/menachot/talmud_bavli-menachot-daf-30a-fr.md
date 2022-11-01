@@ -54,4 +54,4 @@ Les <i>halakhot</i> des marges nonobstant, <b>une personne ne peut réduire</b> 
 Si <b>on tombe sur un mot qui comprend cinq lettres</b> et qui ne peut pas être écrit en entier dans la colonne, <b>il ne peut pas écrire deux</b> lettres <b>dans la colonne et trois en dehors de la colonne,</b> dans la marge.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

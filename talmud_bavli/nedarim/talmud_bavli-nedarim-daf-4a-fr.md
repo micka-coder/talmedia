@@ -36,4 +36,4 @@ La Gemara demande : <b>Cela marche bien selon celui qui a dit</b> que <b>lorsque
 <b>Au contraire, quelle est sa nouveauté</b> qui rend nécessaire la juxtaposition entre les vœux et la naziréité ? Il pourrait <b>entrer dans votre esprit de dire</b> que <b>depuis</b> .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

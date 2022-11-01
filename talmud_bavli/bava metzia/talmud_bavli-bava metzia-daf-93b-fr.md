@@ -63,4 +63,4 @@ La mishna enseigne que si <b>des bandits sont venus, cela est</b> considéré co
 <b>Un dilemme a été soulevé devant</b> les Sages : Si le cas impliquait <b>un bandit armé et un berger armé, quelle est</b> la <i>halakha</i> ? <b>Disons-nous, qu'un homme se tienne debout</b> et se batte <b>contre un autre homme, ou peut-être que ce</b> bandit est prêt à <b>riser sa vie et que ce</b> berger <b>n'est pas</b> prêt à <b>riser sa vie ?</b> La Gemara répond : <b>Il va de soi que celui-ci</b> <b>risera sa vie et que celui-là</b> <b>ne risquera pas sa vie.</b> Par conséquent, le berger n'est pas tenu pour responsable s'il refuse de combattre le bandit. <b>Abaye dit à Rava :</b> Quel est le <i>halakha</i> si le <b>berger a trouvé</b> un voleur connu <b>et lui a dit : Sale voleur ! Dans tel ou tel endroit, nous</b> bergers <b>sont assis;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

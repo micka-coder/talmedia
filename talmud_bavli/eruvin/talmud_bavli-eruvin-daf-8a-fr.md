@@ -60,4 +60,4 @@ La Guemara soulève une difficulté : <b>Mais n'avons-nous pas</b> déjà <b>app
 La Gemara réfute cet argument : <b>Si</b> cela était dérivé <b>de ce seul endroit</b>, <b>j'aurais dit</b> que cela <b>ne s'applique</b> que dans un cas où les deux brèches ne sont <b>pas opposées,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ La Guemara développe les dixièmes de l'école de Rabbi Yehuda HaNasi, <b>comme
 La Gemara relate : <b>Le Rav Ḥelbo est tombé malade. Rav Kahana est sorti et a annoncé :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

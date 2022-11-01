@@ -72,4 +72,4 @@ En ce qui concerne la manière dont les Sages examinaient le sang, la Guemara re
 § La mishna dit : <b>Et</b> quelle est la couleur qui est <b>comme le vin dilué</b> qui est impur ? C'est spécifiquement lorsque la dilution consiste en <b>deux parts</b> d'eau et une part de vin, et spécifiquement lorsqu'il s'agit du vin de la région du Sharon en Eretz Yisrael. Les Sages <b>enseignent</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ De même, s'il a dit : <b>Cette</b> chose <b>est par la présente</b> interdite 
 <b>Les</b> Rabbins <b>qui ont dit</b> que l'on <b>met ses biens dans</b> un état d'<b>incertitude,</b> et que par conséquent un <i>koy</i> est inclus dans le vœu susmentionné, soutiennent que l'on <b>se met dans</b> un état d'incertitude <b>aussi.</b> Par conséquent, l'incertitude en ce qui concerne la naziréité est traitée avec rigueur. <b>Et</b> Rabbi Eliezer, <b>qui a dit</b> que l'on <b>ne met pas ses biens dans</b> un état d'<b>incertitude,</b> et donc la phrase : Animaux non domestiqués et domestiqués, ne désigne que les animaux définitivement non domestiqués et définitivement domestiqués,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

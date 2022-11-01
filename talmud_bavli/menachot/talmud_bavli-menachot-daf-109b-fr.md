@@ -63,7 +63,7 @@ Il est dans la nature humaine qu'après avoir accédé à une position prestigie
 Abaye répondit à Mar Kashisha et dit que Rabbi Meir utilise ce verset <b>pour ce qui est enseigné</b> dans une <i>baraita</i> : <b>Après la chute de Sennacherib,</b> le roi d'Assyrie qui assiégea Jérusalem (voir II Rois, chapitres 18-19), le roi <b>Hézéchias</b> sortit de Jérusalem <b>et trouva les</b> <b>princes gentils</b> que Sennacherib avait amenés avec lui de ses autres conquêtes, <b>assis dans des carrosses [<i>bikronot</i>] d'or. Il leur fit jurer de ne pas adorer les idoles,</b> et ils accomplirent leur vœu, <b>comme il est dit</b> dans la prophétie d'Isaïe sur l'Égypte : <b>"En ce jour-là, il y aura cinq villes dans le pays d'Égypte qui parleront la langue de Canaan</b>".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 comme en égorgeant intentionnellement l'offrande idolâtre <b>il est devenu un serviteur du culte des idoles.</b>
 
@@ -128,4 +128,4 @@ Il est dans la nature humaine qu'après avoir accédé à une position prestigie
 Abaye répondit à Mar Kashisha et dit que Rabbi Meir utilise ce verset <b>pour ce qui est enseigné</b> dans une <i>baraita</i> : <b>Après la chute de Sennacherib,</b> le roi d'Assyrie qui assiégea Jérusalem (voir II Rois, chapitres 18-19), le roi <b>Hézéchias</b> sortit de Jérusalem <b>et trouva les</b> <b>princes gentils</b> que Sennacherib avait amenés avec lui de ses autres conquêtes, <b>assis dans des carrosses [<i>bikronot</i>] d'or. Il leur fit jurer de ne pas adorer les idoles,</b> et ils accomplirent leur vœu, <b>comme il est dit</b> dans la prophétie d'Isaïe sur l'Égypte : <b>"En ce jour-là, il y aura cinq villes dans le pays d'Égypte qui parleront la langue de Canaan</b>".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

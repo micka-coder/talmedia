@@ -72,4 +72,4 @@ La Guemara demande : <b>Nous avons trouvé</b> une source pour la <i>halakha</i>
 La Gemara explique : Elle est dérivée par <b>une <i>a fortiori</i></b> inférence : <b>Si un récipient en terre cuite fermé par un couvercle étanche, qui ne fait pas écran,</b> c'est-à-dire n'empêche pas, le morceau <b>impur</b> d'un cadavre <b>qu'il contient de transmettre l'impureté</b> à d'autres objets se trouvant dans la même tente que lui ; la Guemara interrompt l'explication de la déduction et clarifie : <b>Comme le Maître l'a dit :</b> Le morceau <b>impur</b> d'un cadavre qui se trouve <b>dans un espace étroit;</b> par exemple, il est enterré dans le sol et il n'y a pas un mètre carré d'espace creux au-dessus de lui, sous la terre, <b>perce</b> la terre au-dessus de lui <b>et monte vers les cieux,</b> communiquant l'impureté sur ce chemin. La Guemara reprend l'explication de cette déduction : Bien que le récipient en terre cuite hermétiquement fermé ne protège pas l'objet impur, il <b>protège un objet pur</b> <b>contenu en son sein d'être rendu impur</b> (voir Nombres 19:15).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara demande : <b>Et est-ce que</b> l'eau est effectivement <b>rendue inter
 A l'époque talmudique, les murs extérieurs des maisons étaient souvent construits en deux parties, avec un espace fonctionnel entre elles. Si l'espace entre les deux parties du mur <b>appartenait à lui et à</b> la maison d'adoration d'un <b>idole,</b> il fallait le construire.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

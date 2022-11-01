@@ -51,4 +51,4 @@
 <b>Et on l'enterra dans sa maison</b> Comme "dans sa maison". Dans II Rois (21:18) il est écrit : "dans le jardin de sa maison." Il n'a pas mérité d'être enterré avec ses ancêtres.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara répond : La <i>baraïta</i> aurait pu enseigner cette distinction, ma
 En revanche, dans <b>toute situation</b> où le résultat de l'aspersion est <b>de retirer</b> l'offrande <b>du</b> <i>halakhot</i> de <b>misuse,</b> par ex, la viande d'une offrande de l'ordre le plus sacré, qui était sujette aux <i>halakhot</i> de mauvais usage avant même que le sang ne soit aspergé, <b>même l'aspersion</b> du sang retire <b>impeccablement</b> l'offrande <b>de</b> les <i>halakhot</i> de <b>mauvais usage.</b> Cette décision n'est pas conforme à l'opinion du Rav Giddel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

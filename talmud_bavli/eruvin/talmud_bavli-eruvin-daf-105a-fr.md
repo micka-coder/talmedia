@@ -33,4 +33,4 @@ Rabbi Shimon dit encore : <b>Comme ils t'ont permis seulement</b> les activités
 La raison pour laquelle seule la <b>formation d'un arc</b> est permise, est <b>qu'elle ne peut entraîner la responsabilité d'une offrande pour le péché,</b> car former un arc ne peut constituer une violation de la catégorie du travail interdit du nouage. Par conséquent, <b>les Sages l'ont permis.</b> Cependant, en ce qui concerne le fait de <b>nouer</b> un nœud, <b>qui peut entraîner la responsabilité d'une offrande de péché</b> lorsqu'il est effectué en dehors du Temple, <b>les Sages ne l'ont pas permis,</b> car Rabbi Shimon soutient que les Sages n'ont permis que les activités dont l'interdiction implique un décret rabbinique.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Par ailleurs, <b>un magasin ne contient pas l'élément de</b> danger associé a
 <b>Rav Yehuda dit</b> que <b>Shmuel a dit : Tout</b> type de boisson qui est <b>diluée se combine</b> pour former un nombre pair ou impair,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -78,4 +78,4 @@ Le <i>baraita</i> continue : Si <b>un esclave l'a rempli</b> avec sa signature, 
 <b>Rav Ashi a dit :</b> Le langage de <b>la <i>baraita</i> est également précis,</b> conformément à cet avis,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

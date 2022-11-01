@@ -30,4 +30,4 @@ La Gemara demande : <b>Si c'est le cas,</b> et que l'on accepte l'opinion de Rav
 <b>Un dilemme a été soulevé devant</b> les Sages : <b>Qu'en est-il</b> de la <i>halakha</i> si l'on a non seulement écrit une déclaration renonçant à ses droits sur les biens de son partenaire, mais qu'ils ont également <b>effectué un acte d'acquisition</b> transférant les droits <b>de lui ? Rav Yosef a dit : Ils ont acquis de lui</b> uniquement sa promesse de : <b>Je n'ai aucune relation légale</b> <b>ou implication</b> avec votre propriété. Par conséquent, la transaction n'est pas plus efficace que la promesse elle-même. <b>Rav Naḥman a dit :</b> La transaction est effective et <b>ils ont acquis de lui le terrain lui-même. Abaye dit :</b> La <b>déclaration de Rav Yosef est raisonnable</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

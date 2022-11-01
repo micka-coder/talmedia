@@ -63,4 +63,4 @@ La Gemara <b>souleve une objection</b> à la déclaration de Rav à partir de ce
 La Gemara demande : <b>Et puisque</b> la <i>baraïta</i> <b>comprendra finalement tous les types</b> d'arbres, de sorte que même un arbre qui produit des fruits pourra être coupé, <b>Quel est donc le sens, </b> lorsque <b>le verset dit : "Que</b> ce ne sont <b>pas des arbres pour la nourriture"</b>, ce qui indique qu'il est permis d'abattre uniquement un arbre stérile ? La Gemara répond : C'est <b>pour donner la priorité</b> à l'abattage d'un <b>arbre stérile</b> <b>sur</b> un arbre dont le fruit est utilisé pour <b>la nourriture.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

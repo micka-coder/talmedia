@@ -75,4 +75,4 @@ Or [dans] l'expression : " Et mon oreille en a saisi un peu ", שֶׁמֶץ, sig
 <b>Leur orgueil, qui est absorbé en eux, ne les quitte-t-il pas ? </b> Heb. יתרם בם, comme (Isa. 15:7), "A cause des choses hautaines (יתרה) qu'ils ont faites." Leur arrogance et leur sagesse, qui est absorbée dans leur corps, s'éloigneront et seront déracinées d'eux, comme (ibid. 33 : 20), "dont les chevilles ne seront jamais déplacées (יסע)."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

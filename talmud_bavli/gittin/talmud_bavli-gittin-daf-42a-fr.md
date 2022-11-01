@@ -51,4 +51,4 @@ Rafram poursuit sa démonstration : <b>La raison</b> pour laquelle l'esclave n'e
 <b>Venez</b> et <b>entendez</b> une preuve par rapport à cette question : Lorsqu'un esclave cananéen est tué par un bœuf, en plus de la mise à mort du bœuf, le propriétaire du bœuf paie une amende fixe de trente shekels au propriétaire de l'esclave. Si un homme libre est tué par un bœuf, en plus de la mise à mort du bœuf, la valeur de l'homme libre est versée à ses héritiers. Si un bœuf <b>a tué un demi-esclave mi-libre,</b> alors le propriétaire du bœuf <b>donne la moitié</b> d'une <b>pénalité,</b> soit quinze sicles, <b>à son maître</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

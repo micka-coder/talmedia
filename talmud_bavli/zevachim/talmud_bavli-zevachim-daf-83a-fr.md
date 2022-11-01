@@ -39,4 +39,4 @@ La <i>baraita</i> répond <b>que</b> si le terme "offrande pour le péché" n'é
 La Guemara note : <b>Et Rabbi Yehouda n'apprend</b> rien du terme <b>"expier". Quelle en est la raison</b> ? N'est-ce pas parce qu'il exige</b> cette expression <b>pour une analogie verbale,</b> pour en déduire que le sang d'une offrande pour le péché externe qui a été pris à l'intérieur du Sanctuaire est disqualifié seulement si le prêtre l'a aspergé, conformément à l'opinion de Rabbi Shimon ? Ceci répond à la question de la Guemara, car Rabbi Yehuda suit manifestement l'opinion de Rabbi Shimon.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

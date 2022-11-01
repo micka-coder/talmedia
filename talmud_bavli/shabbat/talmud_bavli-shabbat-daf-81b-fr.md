@@ -18,4 +18,4 @@ En ce qui concerne la matière elle-même, Reish Lakish a dit : Il est permis d'
 La Guemara demande : <b>Quel est le <b>savoir-faire</b> impliqué dans l'essuyage avec un tesson de faïence ? La Guemara explique : C'est <b>comme ce</b> qui a transpiré lorsque <b>Rav Ḥisda et Rabba bar Rav Huna allaient sur un bateau. Une certaine matrone [<i>matronita</i>] leur dit : Laissez-moi m'asseoir avec vous, et ils ne la laissèrent pas s'asseoir. Elle a dit quelque chose,</b> une incantation de sorcellerie, et a <b>arrêté le bateau. Ils ont dit quelque chose,</b> le Saint Nom, et l'ont <b>libéré. Elle leur a dit : Que vais-je vous faire,</b> pour me permettre de vous nuire par la sorcellerie,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

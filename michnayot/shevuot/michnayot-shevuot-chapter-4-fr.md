@@ -38,5 +38,5 @@ S'il a envoyé par la main de son serviteur, ou si le défendeur leur a dit : "J
 ### michna 13
    [S'il a dit] : "Je t'adjure" ; "Je te commande" ; "Je te lie" ; ils sont responsables. "Par le ciel et la terre !", ils sont exempts. " Par Alef Daleth " ; " Par Yod He " ; " Par Dieu tout-puissant " ; " Par le Seigneur des armées " ; " Par le Miséricordieux et le Gracieux " ; " Par celui qui souffre depuis longtemps " ; " Par celui qui abonde en bonté " ; ou par l'un des substituts [du nom], ils sont responsables. Celui qui blasphème par l'un d'eux est responsable, ce sont les paroles de Rabbi Meir. Et les Sages l'exemptent. Celui qui maudit son père ou sa mère par l'un d'eux est responsable ce sont les paroles de Rabbi Meir. Et les Sages l'exemptent. Celui qui se maudit ou maudit son voisin par l'un d'eux transgresse un précepte négatif.  S'il dit : "Que Dieu te frappe" ; ou "Oui, que Dieu te frappe" ; c'est la malédiction écrite dans la Torah. "Que [Dieu] ne te frappe pas" ; ou "Qu'il te bénisse" ; ou "Qu'il te fasse du bien [si tu témoignes pour moi]" : Rabbi Meir les rend responsables, et les Sages les exemptent.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

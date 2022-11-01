@@ -32,4 +32,4 @@
 <b>A propos de la parole du Seigneur, il n'a pas gardé</b> ce que Samuel lui avait ordonné, comme il est écrit (I Sam. 10:8) : "Tu attendras sept jours", et parce qu'il a agi en traître dans la guerre contre Amalek [en épargnant Agag].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

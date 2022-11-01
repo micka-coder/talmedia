@@ -45,4 +45,4 @@ La Gemara demande : <b>Si c'est le cas, disons-le également en ce qui concerne 
 La Guemara demande : <b>Donc, qu'il consomme le mariage lévirat avec une</b> femme <b>et effectue la <i>ḥalitza</i> avec</b> l'autre <b>une,</b> et cela éliminerait notre préoccupation. La Guemara répond : Nous ne le faisons pas en raison d'un <b>décret rabbinique de peur qu'ils ne disent :</b> Lorsqu'il y a deux femmes d'un <b>ménage unique, une partie de celui-ci</b> doit <b>être construite</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -23,5 +23,5 @@ Les membres entiers [du corps] n'ont aucune [restriction quant à] la taille : m
 ### michna 8
 Il y a deux cent quarante-huit membres dans un corps humain : Trente dans le pied, six pour chaque orteil, dix dans la cheville, deux dans le tibia, cinq dans le genou, un dans la cuisse, trois dans la hanche, onze côtes, trente dans la main, [c'est-à-dire] six pour chaque doigt, deux dans l'avant-bras, deux dans le coude, un dans le bras supérieur et quatre dans l'épaule, [pour un total de] cent un d'un côté [du corps] et cent un de l'autre. Dix-huit vertèbres dans la colonne vertébrale, Neuf dans la tête, Huit dans le cou, Six dans la clé du cœur, Et cinq autour des organes génitaux. Chacune [d'entre elles] peut souiller par contact, transport ou occultation. Quand est-ce le cas ? Quand ils ont sur eux la quantité appropriée de chair, mais s'ils n'ont pas sur eux la quantité appropriée de chair, ils peuvent souiller par contact et par transport mais ne peuvent pas souiller par éclipse.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

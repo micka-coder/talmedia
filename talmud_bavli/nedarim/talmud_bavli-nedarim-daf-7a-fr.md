@@ -30,4 +30,4 @@ La Guemara répond : <b>Ravina a soulevé un dilemme à l'intérieur d'un autre<
 <b>Rav Pappa a dit : En ce qui</b> concerne un vœu que l'on a exprimé avec la phrase : <b>Je suis éloigné [<i>nadeina</i>] de toi, tout le monde s'accorde à dire qu'il lui est interdit</b> de tirer profit de l'autre individu, car il s'agit là de l'intimation d'un vœu. S'il emploie l'expression : <b>Je suis excommunié [<i>meshamattena</i>] de toi tout le monde s'accorde</b> à dire qu'il est <b>permis</b> de tirer profit de l'autre personne, même s'il a voulu s'éloigner de l'autre individu, car ce n'est pas la terminologie d'un vœu. <b>A propos de quoi sont-ils en désaccord ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

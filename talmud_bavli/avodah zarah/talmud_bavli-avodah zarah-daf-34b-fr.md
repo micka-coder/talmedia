@@ -48,4 +48,4 @@ La Gemara développe : <b>Si vous le souhaitez, proposez un raisonnement logique
 <b>Rava a dit : Nous avons appris ces deux</b> de ces <i>halakhot</i> de la mishna. Il développe : <b>Du fait <b>que</b> Rabbi Yehoshua <b>a dit à</b> Rabbi Yishmael que le fromage des Gentils est interdit <b>parce qu'ils le caillent</b> <b>dans le contenu de l'estomac</b> <b>d'une carcasse <b>animale non abattue,</b> on peut déduire la <i>halakha</i> des excréments d'un bœuf qui doit être lapidé. La raison est que Rabbi Yishmael <b>répondait à</b> Rabbi Yehoshua : <b>Mais l'estomac d'un holocauste</b> n'est-il pas soumis à une <b>stringente</b> <i>halakha</i> <b>que l'estomac d'une</b> carcasse d'animal non abattu,</b> et pourtant, bien que l'on ne puisse pas tirer profit de l'estomac d'un holocauste <i>ab initio</i>, si l'on en a tiré profit, on n'est pas responsable de l'abus de biens consacrés au Temple ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

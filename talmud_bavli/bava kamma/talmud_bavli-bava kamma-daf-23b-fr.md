@@ -57,4 +57,4 @@ La Gemara commente : <b>Rav Yosef, et certains disent</b> c'était <b>Rabba, ann
 La Gemara demande : <b>Et quelle est la raison</b> de l'avis de <b>Rabbi Meir,</b> qui ne détermine pas le statut d'animal prévoyant d'un bœuf par le nombre de jours où l'animal s'est encorné mais simplement par le nombre de fois ? <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Meir a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

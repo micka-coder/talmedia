@@ -45,4 +45,4 @@ En ce qui concerne la dernière déclaration, la Gemara demande : <b>Quel est l'
 <strong>GEMARA :</strong> La mishna enseigne que toutes les carcasses d'animaux, dont la consommation est interdite et qui transmettent l'impureté par contact et par le portage, se rejoignent pour constituer la mesure de lentille-boulot requise. <b>Rav dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

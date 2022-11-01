@@ -39,4 +39,4 @@ En <b>quelle</b> manière <b>ce cas est-il</b> différent des relations interdit
 La Gemara demande : <b>Et dire que</b> c'est <b>en effet</b> le <i>halakha</i>. Peut-être qu'un frère qui est un <i>mamzer</i> n'oblige pas sa <i>yevama</i> dans le mariage lévirat. La Guemara répond : <b>Puisqu'en ce qui concerne le mariage lévirat,</b> si le mari avait un enfant qui était un <i>mamzer</i> il <b>exempterait</b> la femme du mariage lévirat,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

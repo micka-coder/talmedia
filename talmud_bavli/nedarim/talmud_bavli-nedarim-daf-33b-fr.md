@@ -21,4 +21,4 @@ La Guemara explique la dispute entre Rava et Rav Hoshaya en ce qui concerne l'at
 <b>Et l'on dit : Même</b> dans un cas <b>où le bien du propriétaire de l'objet perdu est interdit à celui qui rend</b> l'objet perdu, <b>il le lui rend</b>. <b>Et</b> en ce qui concerne l'inquiétude <b>du fait</b> de la <b><i>peruta</i> de Rav Yosef,</b> il ne s'agit pas d'une inquiétude car il est <b>peu courant</b> qu'un indigent tombe sur une personne juste au moment où elle s'occupe de l'objet perdu. Par conséquent, on ne peut pas dire qu'il y a un profit dans le retour d'un objet perdu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

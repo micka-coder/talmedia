@@ -26,5 +26,5 @@ Si le mari dit :] "Voici ton get si je ne reviens pas dans les douze mois", et q
 ### michna 9
 Si un mari dit :] "Si je ne reviens pas dans les douze mois, écrivez un get et donnez-le à ma femme", et qu'ils ont écrit un get avant que douze mois se soient écoulés et qu'ils le lui ont donné après, ce n'est pas un get. S'il a dit : " Écris un get et donne-le à ma femme si je ne reviens pas dans les douze mois ", et qu'ils l'ont écrit avant que les douze mois soient passés et l'ont donné après, ce n'est pas un get. Rabbi Yose dit : comme ceci est un get. S'ils l'ont écrit après douze mois et l'ont remis après douze mois et qu'il est mort, si la remise de la get a précédé sa mort, la get est valide, mais si sa mort a précédé la remise de la get, elle n'est pas valide. Si l'on ne sait pas qui a été le premier, c'est la femme au sujet de laquelle on a dit : " [Elle est] divorcée et non divorcée ".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

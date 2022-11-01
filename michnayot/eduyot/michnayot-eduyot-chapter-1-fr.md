@@ -41,5 +41,5 @@ Celui qui est à moitié esclave et à moitié homme libre doit travailler un jo
 ### michna 14
 Selon Beth Hillel, un récipient en terre cuite peut protéger tout ce qui s'y trouve [de l'impureté]. Mais Beth Shammai dit : "Il ne protège que les aliments et les liquides et les [autres] vases de terre cuite." Beth Hillel leur dit : Beth Hillel leur dit : "Pourquoi ? "Beth ShammaÃ¯ leur dit :  "Parce qu'il est [lui-même] impur à l'égard d'un ignorant, et qu'aucun vase impur ne peut protéger [contre l'impureté]. "Beth Hillel leur dit :  "Et n'avez-vous pas déclaré purs les aliments et les liquides qu'il contient ? "Beth Shammai leur dit :  "Lorsque nous avons déclaré purs les aliments et les liquides qu'il contient, nous les avons déclarés purs pour lui [l'ignorant] seulement, mais lorsque vous avez déclaré pur le vase, vous l'avez déclaré pur pour vous et pour lui. "Beth Hillel changea alors d'avis et enseigna selon l'opinion de Beth Shammai.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

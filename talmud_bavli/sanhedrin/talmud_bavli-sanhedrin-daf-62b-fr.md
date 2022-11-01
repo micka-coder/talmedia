@@ -48,4 +48,4 @@ Puisque la <i>baraita</i> peut être expliquée de cette manière, la Guemara ex
 § La Guemara discute de <b>la</b> question <b>elle-même,</b> à savoir si celui qui s'adonne à plusieurs formes d'adoration d'idoles dans le même laps de temps de conscience apporte plus d'une offrande de péché.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

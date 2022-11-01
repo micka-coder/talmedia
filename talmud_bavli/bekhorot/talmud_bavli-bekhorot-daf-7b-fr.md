@@ -60,4 +60,4 @@ Rav Huna lui répondit : <b>Non,</b> il n'y a pas de preuve à partir de cette <
 § La Guemara cite l'intégralité de la <i>baraita</i> mentionnée précédemment. <b>Les Sages ont enseigné</b> que <b>un poisson non casher pond</b> sa progéniture, alors que <b>un poisson casher pond des œufs. Tout</b> animal <b>qui donne naissance</b> à sa progéniture <b>nourrit</b>, <b>et tout</b> animal <b>qui pond des œufs rassemble</b> de la nourriture et la donne à ses petits. Ceci s'applique à tous les animaux <b>sauf à la chauve-souris [<i>atallef</i> ], car bien qu'elle ponde des œufs, elle allaite</b> ses petits.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

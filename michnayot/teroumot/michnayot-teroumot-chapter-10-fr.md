@@ -35,5 +35,5 @@ Rabbi Yose dit : Tout ce qui est mijoté avec des betteraves [teroumah] devient 
 ### michna 12
 Si un œuf est bouilli avec des épices interdites, même son jaune est interdit, car il absorbe. L'eau dans laquelle la teroumah a été mijotée ou marinée est interdite aux non-prêtres.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

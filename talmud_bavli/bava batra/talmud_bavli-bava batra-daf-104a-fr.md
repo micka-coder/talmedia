@@ -30,4 +30,4 @@ La Gemara soulève une difficulté : <b>Mais n'est-il pas enseigné</b> dans une
 <b>Et Rav Naḥman dit : Il calcule sept <i>kav</i> et demi pour chaque <i>kor</i>,</b> ce qui équivaut à un quart d'un <i>kav</i> par <i>se'a</i>. Tant que l'excédent ne dépasse pas ce ratio, il n'est pas tenu de le restituer, même si l'excédent est supérieur à la surface nécessaire à l'ensemencement de neuf <i>kav</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

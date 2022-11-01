@@ -36,4 +36,4 @@ La Guemara développe : Le tribunal <b>n'autorise pas un mineur à descendre sur
 <b>Rava a dit : Apprenez de</b> la déclaration <b>de Rav Huna</b> que <b>on ne peut pas assumer la propriété présumée du bien d'un mineur.</b> Même si on a pris possession et utilisé le bien d'un mineur pendant trois ans, cela n'indique pas qu'il a la propriété présumée du bien. Rav Huna a limité la descente spécifiquement des parents sur la propriété d'un mineur, indiquant que ce ne sont pas des préoccupations lorsque c'est un non-parent qui descend pour gérer le champ. Apparemment, la raison pour laquelle il n'y a pas de problème est que l'on ne peut pas présumer de la propriété d'un mineur.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

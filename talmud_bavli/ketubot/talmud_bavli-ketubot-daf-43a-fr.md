@@ -51,4 +51,4 @@ Cette <i>halakha</i> <b>a également été énoncée</b> par des <i>amora'im</i>
 La Gemara remet en question cette interprétation : En ce qui concerne les <b>blessures, elles sont</b> le résultat de <b>sa douleur corporelle,</b> et le principe directeur est que toute compensation pour la douleur physique d'une fille n'appartient pas à son père, qui ne fait que la garder en fiducie pour elle. Si tel est le cas, la catégorie des blessures n'aurait pas dû être incluse dans cette liste. <b>Rabbi Yosei bar Ḥanina a dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

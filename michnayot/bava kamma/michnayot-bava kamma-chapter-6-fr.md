@@ -17,5 +17,5 @@ Si un homme met le feu à une pile et que dans celle-ci il y avait des ustensile
 ### michna 6
 Si une étincelle s'est échappée de dessous le marteau et a causé des dégâts, il est responsable. Si un chameau chargé de lin est passé sur le domaine public et que son chargement de lin est entré dans une boutique et a pris feu, le propriétaire du chameau est responsable. Mais si le commerçant a laissé sa lumière à l'extérieur, le commerçant est responsable. Rabbi Judah dit :  "S'il s'agissait d'une lampe de Hannouka, il n'est pas responsable".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

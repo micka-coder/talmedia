@@ -23,5 +23,5 @@ Cent [parts de] tevel qui [ont été mélangées à] cent [parts de] produits co
 ### michna 8
 Celui qui avait dix rangées contenant chacune dix cruches de vin, et qui a dit : "Une rangée extérieure sera la dîme", et que l'on ne sait pas de quelle rangée il s'agit, il doit prendre deux cruches [chacune aux extrémités d'une] ligne diagonale. S'il a dit :] "La dîme sera prélevée sur la moitié d'une rangée extérieure" et que l'on ne sait pas de quelle demi-rangée il s'agit, il devra prendre quatre cruches aux quatre coins. S'il a dit :] "La dîme sera prélevée sur une rangée", et que l'on ne sait pas de quelle rangée il s'agit, il devra prendre une rangée [entière] en diagonale. S'il a dit :] "La moitié d'une rangée sera la dîme", et qu'on ne sait pas de quelle moitié de rangée il s'agit, il doit prendre deux rangées en diagonale. S'il a dit :] "Une cruche sera la dîme", et on ne sait pas de quelle cruche il s'agit, il doit prendre de chaque cruche.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

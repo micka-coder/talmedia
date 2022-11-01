@@ -51,4 +51,4 @@ La Gemara conteste : <b>Si oui, maintenant aussi, ça marche bien s'il lui dit</
 La Gemara répond : <b>Si</b> Rabbi Yehuda HaNasi a répondu de <b>cette</b> manière, c'est-à-dire que Rabbi Yehuda concède que : Un paquet d'olives le lendemain à l'extérieur, est considéré comme un terme, il fournirait involontairement la réponse à l'autre question également. En effet, si Rabbi Yehouda avait également concédé à propos de : Une olive-bulk et une olive-bulk, Rabbi Yehouda HaNasi se serait <b>fâché</b> contre Lévi pour avoir posé la mauvaise question et aurait dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

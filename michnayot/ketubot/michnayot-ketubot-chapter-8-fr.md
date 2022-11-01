@@ -23,5 +23,5 @@ Si son frère a laissé de l'argent, on achètera une terre avec cet argent et i
 ### michna 8
 Il ne peut pas lui dire : " Voici ta kétouba qui repose sur la table", plutôt tous ses biens ont sur eux un privilège de sa kétouba. De même, un homme ne peut pas dire à sa femme : "Voici ta ketubah qui repose sur la table", mais tous ses biens sont grevés par la ketubah de sa femme. S'il a divorcé d'elle, elle n'a droit qu'à sa ketubah. S'il s'est remarié avec elle, elle est comme toutes les autres épouses, et n'a droit qu'à sa ketubah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

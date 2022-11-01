@@ -54,7 +54,7 @@ La Guemara demande : <b>Si</b> alors, on peut suggérer la comparaison suivante 
 § <b>Rabbi Abba embrassait les rochers d'Akko,</b> qui se trouvaient sur la côte d'Eretz Yisrael. <b>Rabbi Ḥanina réparerait ses pierres d'achoppement,</b> c'est-à-dire tous les nids de poule du territoire, afin que les voyageurs ne tombent pas et par conséquent ne disent pas de mal d'Eretz Yisrael. <b>Rabbi Ammi et Rabbi Asi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et elle avait</b> la même superficie <b>que</b> celle qui s'étend <b>de la ville de <b>Bei Mikhsei</b> jusqu'à la forteresse de Tulbanki : Sa longueur vingt-deux parasangs et sa largeur six parasangs,</b> 132 parasangs carrés, soit 2 112 <i>mil</i> carrés.
 
@@ -110,4 +110,4 @@ La Guemara demande : <b>Si</b> alors, on peut suggérer la comparaison suivante 
 § <b>Rabbi Abba embrassait les rochers d'Akko,</b> qui se trouvaient sur la côte d'Eretz Yisrael. <b>Rabbi Ḥanina réparerait ses pierres d'achoppement,</b> c'est-à-dire tous les nids de poule du territoire, afin que les voyageurs ne tombent pas et par conséquent ne disent pas de mal d'Eretz Yisrael. <b>Rabbi Ammi et Rabbi Asi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

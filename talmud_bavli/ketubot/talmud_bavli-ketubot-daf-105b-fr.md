@@ -51,7 +51,7 @@ La Gemara relate : Il y avait <b>un certain homme</b> qui un jour <b>apporta à 
 Rav Anan lui <b>dit : Je ne veux pas te le prendre,</b> mais <b>maintenant que tu m'as expliqué la raison</b> pour laquelle tu souhaites me le donner <b>je vais l'accepter</b> de ta part. Rav Anan <b>envoie</b> l'homme <b>au Rav Naḥman,</b> et <b>il</b> lui <b>aussi envoyé</b> une lettre : <b>Que le Maître juge le cas de cet homme</b> <b>parce que moi, Anan, je suis disqualifié pour juger ses</b> cas. Rav Naḥman <b>se dit</b> à lui-même : <b>Du fait qu'il m'a envoyé cette</b> lettre, je peux <b>conclure d'ici</b> que la raison pour laquelle il est disqualifié pour juger l'affaire est parce que <b>il est son parent.</b> A cette époque, <b>une affaire concernant des orphelins était</b> entendue <b>avant</b> Rav Naḥman. <b>Il a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Même s'il est complètement vertueux mais qu'il a accepté un pot-de-vin, il ne quittera pas</b> ce <b>monde sans devenir dément.</b>
 
@@ -104,4 +104,4 @@ La Gemara relate : Il y avait <b>un certain homme</b> qui un jour <b>apporta à 
 Rav Anan lui <b>dit : Je ne veux pas te le prendre,</b> mais <b>maintenant que tu m'as expliqué la raison</b> pour laquelle tu souhaites me le donner <b>je vais l'accepter</b> de ta part. Rav Anan <b>envoie</b> l'homme <b>au Rav Naḥman,</b> et <b>il</b> lui <b>aussi envoyé</b> une lettre : <b>Que le Maître juge le cas de cet homme</b> <b>parce que moi, Anan, je suis disqualifié pour juger ses</b> cas. Rav Naḥman <b>se dit</b> à lui-même : <b>Du fait qu'il m'a envoyé cette</b> lettre, je peux <b>conclure d'ici</b> que la raison pour laquelle il est disqualifié pour juger l'affaire est parce que <b>il est son parent.</b> A cette époque, <b>une affaire concernant des orphelins était</b> entendue <b>avant</b> Rav Naḥman. <b>Il a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

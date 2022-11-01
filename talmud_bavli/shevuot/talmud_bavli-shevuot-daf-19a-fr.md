@@ -24,4 +24,4 @@ Si <b>il a marché sur le premier</b> chemin <b>et est entré</b> dans le Temple
 La Guemara demande : Rabbi Shimon ben Yehuda l'exempte-t-il vraiment <b>dans tous</b> ces cas,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

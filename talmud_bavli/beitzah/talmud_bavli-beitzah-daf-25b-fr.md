@@ -48,4 +48,4 @@ La Guemara relate que <b>Ameimar et Mar Zutra seraient portés</b> à leur place
 <strong>MISHNA :</strong> Un premier-né mâle de bovin, de mouton ou de chèvre appartenant à un Juif est sanctifié dès la naissance et doit être remis à un prêtre pour être sacrifié sur l'autel du Temple. Si un animal premier-né a acquis une tare physique qui le disqualifie pour être sacrifié en tant qu'offrande, il doit toujours être donné à un prêtre, mais il peut être racheté, abattu et mangé comme viande non sacrée. Si <b>un animal premier-né</b> <b>est tombé dans une citerne</b> lors d'une fête, et que l'on craint qu'il n'y meurt, <b>Rabbi Yehuda dit : Un expert</b> en ces matières <b>descend</b> dans la citerne <b>et examine</b> l'animal.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -78,4 +78,4 @@ On raconte encore qu'il y avait <b>une personne violente qui</b> causait de la <
 Rav Yosef <b>lui a dit : Sors</b>, c'est-à-dire publie <b>un ostracisme écrit</b> contre lui.</b> L'érudit de la Torah lui a répondu : <b>D'autant plus que j'ai peur de lui,</b> car si je publie l'affaire, il s'en prendra certainement à moi. Rav Yosef <b>lui a dit</b> de faire comme suit : <b>Prendre</b> l'ostracisme écrit <b>et le placer dans une cruche,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

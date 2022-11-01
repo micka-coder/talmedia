@@ -60,4 +60,4 @@ La Guemara s'oppose à la déduction de Rafram : <b>D'où</b> cite-t-il la preuv
 <strong>MISHNA :</strong> <b>Il existe</b> un cas où <b>quelqu'un</b> peut <b>se livrer à un seul</b> acte d'<b>intercours et</b> être <b>obligé</b> d'apporter <b>six offrandes de péché pour cela. Comment cela ? </b> Il est possible pour <b>celui qui a des rapports avec sa fille</b> d'être <b>responsable du fait</b> d'avoir violé les interdictions d'avoir des rapports avec <b>sa fille, sa sœur, la femme de son frère, la femme du frère de son père, une femme mariée et une femme en période de menstruation.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

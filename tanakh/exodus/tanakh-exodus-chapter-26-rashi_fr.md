@@ -125,5 +125,5 @@ Et un amahs et demi sera la largeur. De ceci nous apprenons que la longueur du <
 <b>L'œuvre d'un brodeur.</b> Ses images étaient produites par un travail à l'aiguille, la forme d'un côté étant la même que celle de l'autre côté. 
 <b>Brodeur.</b> [רֹקֵם est] le nom de l'artisan et non le nom du métier. Son targum doit donc lire : עוֹבַד צַיָּיר - " l'œuvre d'un brodeur ", et non עוֹבַד צִיּוּר - " œuvre de broderie ". Les dimensions de l'écran étaient les mêmes que celles des <i>paroches</i>, dix <i>amahs</i> par dix <i>amahs.</i> 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

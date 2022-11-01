@@ -54,4 +54,4 @@ La Guemara remet en question la formulation de la <i>baraita</i>. <b>Et la <i>ta
 La Gemara demande : <b>Et</b> dans ce cas, <b>pourquoi ai-je</b> besoin du verset cité à la fin de la <i>baraita</i> : <b>"Sa tête et sa graisse"?</b> La Gemara répond : Le verset <b>est nécessaire pour ce qui est enseigné</b> dans une <i>baraïta</i> : <b>D'où vient</b> <b>que la tête et la graisse précèdent toutes les</b> autres <b>pièces</b> lorsque les portions sacrificielles sont immolées sur l'autel ? <b>Le verset stipule : "Avec sa tête et sa graisse, et</b> le sacrificateur <b>les disposera</b>" (Lévitique 1:12).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

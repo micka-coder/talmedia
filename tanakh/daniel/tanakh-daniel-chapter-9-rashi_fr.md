@@ -112,4 +112,4 @@
 <b>Tomber sur le muet</b> Heb. תִּתַּךְ, atteindre ; et une destruction totale s'abattra sur l'image de la divinité païenne et sur ses adorateurs.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

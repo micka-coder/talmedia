@@ -51,4 +51,4 @@ On raconte encore que <b>Rav avait une plainte contre un certain boucher</b> qui
 La Guemara raconte encore : <b>Rav récitait la</b> Torah <b>portionnée devant Rabbi</b> Yehuda HaNasi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ Dans le même ordre d'idée, <b>l'école de Rabbi Yishmael a enseigné</b> plus 
 La Guemara s'interroge à propos de cette dernière <i>halakha</i> : <b>N'a-t-on pas enseigné</b> dans une <i>baraïta</i> que <b>le <i>shofar</i> peut être déplacé</b> le Chabbat, <b>et les trompettes ne peuvent pas être déplacées ? Rav Yosei a répondu :</b> Ce n'est <b>pas difficile,</b> car on pourrait dire que <b>ici,</b> où le déplacement d'un <i>shofar</i> était autorisé, il est question <b>de</b> un <i>shofar</i> appartenant à <b>un individu.</b> Comme il a une utilité même le Chabbat, on peut le déplacer. <b>Là,</b> où le déplacement d'un <i>shofar</i> était interdit, il est fait référence <b>à</b> un <i>shofar</i> qui appartient à <b>une communauté.</b> Parce qu'il n'a pas d'usage le Chabbat, il est, par conséquent, considéré comme mis en jachère [<i>muktze</i>]. <b>Abaye lui dit : Et dans</b> le cas d'un <b>individu, pour quelle</b> action permise un <i>shofar</i> <b>apte</b> à être utilisé le Chabbat ? Il est apte à être utilisé <b>puisqu'il est convenable de donner de l'eau avec lui</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

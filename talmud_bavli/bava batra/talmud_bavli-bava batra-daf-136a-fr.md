@@ -45,4 +45,4 @@ Rav Naḥman <b>demanda</b> Rabba bar Avuh. Rabba bar Avuh <b>lui a dit</b> que 
 § La mishna enseigne que si <b>quelqu'un écrit</b> un document concédant <b>son bien à son fils</b> à partir d'aujourd'hui et <b>après sa mort,</b> ni lui ni le fils ne peuvent vendre le bien. Il <b>a été précisé</b> que dans un cas où <b>le fils a vendu</b> le bien <b>du vivant du père, et</b> ensuite <b>le fils est décédé du vivant du père,</b> après quoi le père est également décédé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

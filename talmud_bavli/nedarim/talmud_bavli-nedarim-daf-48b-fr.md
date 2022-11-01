@@ -21,4 +21,4 @@ La Gemara raconte : <b>Parfois</b> lorsqu'on posait cette question à Rav Naḥm
 § <b>Nous avons appris</b> dans la mishna (48a) : <b>Les Sages</b> ont donc <b>dit : Tout cadeau qui n'est pas</b> absolu au point <b>que, si</b> le destinataire <b>vous consacriez</b> le cadeau <b>il serait consacré, n'est pas un cadeau.</b> La Gemara demande : <b>Qu'est-ce qui est ajouté</b> par le mot : <b>Tout ? N'ajoute-t-on pas cette affaire de</b> celui qui <b>sélectionne des gerbes</b> de lin, et de dire que le don du père n'a aucun effet ? La Guemara répond : <b>Non,</b> l'intention est <b>d'ajouter la dernière version de la <b>déclaration de Rava</b> susmentionnée, à savoir qu'un cadeau donné comme moyen de contourner un vœu n'a pas d'effet, même lorsque le donateur ne mentionne la nature du cadeau que de manière fortuite et ne le stipule pas comme une condition formelle.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

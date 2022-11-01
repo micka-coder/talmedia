@@ -84,7 +84,7 @@
 <b>Après quoi</b> deviendras-tu jamais purifié ?
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Une gaine</b> (pourceint en ancien français.).
 <b>et ne la mettez pas dans l'eau</b> pour la laver quand elle sera trempée de sueur, afin qu'elle se hâte de se décomposer.
@@ -170,4 +170,4 @@
 <b>Après quoi</b> deviendras-tu jamais purifié ?
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

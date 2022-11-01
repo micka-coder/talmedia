@@ -30,4 +30,4 @@ La Guemara répond que <b>Shmuel a dit :</b> Le mishna fait référence à un ca
 La Gemara demande : Puisque la <b>naziréité</b> est <b>une question de transgression,</b> peut-on <b>dire d'un naziréen qu'il est <b>beau ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

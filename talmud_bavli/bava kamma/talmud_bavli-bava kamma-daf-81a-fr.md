@@ -30,4 +30,4 @@ Le <i>baraita</i> enseigne : <b>Et</b> qu'ils <b>ont le droit d'arracher une pou
 En outre, on peut prendre <b>d'une nouvelle</b> branche, <b>qui ne</b> pas encore <b>produit des fruits, mais pas des vieilles</b> branches, <b>qui produisent des fruits;</b> et on peut prendre <b>d'un endroit qui n'est pas tourné vers le soleil,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

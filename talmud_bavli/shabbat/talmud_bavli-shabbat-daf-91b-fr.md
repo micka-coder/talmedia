@@ -33,4 +33,4 @@ Et <b>Rav Beivai bar Abaye</b> a également <b>soulevé une objection</b> à par
 La Gemara explique : <b>Si</b> cela fait référence à un cas <b>où il l'a emporté par sa bouche, en effet c'est le cas,</b> il serait responsable du vol. Cependant, <b>De quoi s'agit-il ici ?</b> Nous avons affaire à un cas <b>où il l'a porté par</b> la <b>face inférieure</b> de la bourse. Comme aucune partie de l'argent n'est accessible tant que la totalité de la bourse n'est pas dans le domaine public, il a violé les interdictions simultanément. La Gemara demande : <b>N'y a-t-il pas là la zone de la couture ?</b> Il pourrait avoir accès à l'argent même s'il traînait la bourse par sa face inférieure,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

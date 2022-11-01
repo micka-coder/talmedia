@@ -45,4 +45,4 @@ La Guemara conteste en outre la déclaration du Rav Naḥman : <b>Mais si</b> L�
 La Gemara demande : <b>Et</b> peut-on <b>ne pas</b> déduire la <i>halakha</i> concernant les offrandes disqualifiées de la <i>halakha</i> concernant les offrandes aptes ? <b>Mais n'est-il pas enseigné</b> dans un <i>baraita</i> : <b>D'où vient</b> que <b>en ce qui concerne</b> un objet qui a <b>sorti</b> de la cour du Temple et a été de ce fait disqualifié <b>que si</b> il est néanmoins <b>monté</b> sur l'autel <b>il ne descendra pas ? </b> Elle est dérivée du fait <b>que</b> un objet qui <b>sort est valable</b> pour le sacrifice <b>sur</b> un <b>autel privé.</b> Ici, le <i>baraita</i> dérive la <i>halakha</i> concernant une offrande disqualifiée de la <i>halakha</i> concernant une offrande apte.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

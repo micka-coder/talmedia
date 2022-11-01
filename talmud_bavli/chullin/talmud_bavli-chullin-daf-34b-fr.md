@@ -30,4 +30,4 @@ La Guemara répond : Il était nécessaire que Ulla enseigne cette <i>halakha</i
 <b>Et si vous dites</b> qu'en prenant une nourriture impure au troisième degré, <b>son corps est disqualifié du</b> droit <b>de prendre part au <i>teruma</i>,</b> est-ce que <b>nous lui donnons à manger une matière qui invalide son corps</b> du droit de prendre part au <i>teruma</i> ? Selon cela, en mangeant le ragoût qui contient des aliments impurs au troisième degré, il est disqualifié du droit de prendre part aux épices de <i>teruma</i> que la mishna lui permet d'ajouter au ragoût. Ulla <b>lui dit : Laisse</b> la matière du <b>stew</b> qui est <b>un mélange</b> contenant des épices de <i>teruma</i>,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

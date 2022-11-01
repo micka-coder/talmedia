@@ -48,4 +48,4 @@ La Gemara répond : Par conséquent, <b>le verset indique</b> non seulement <b>"
 La Guemara demande : <b>Et quelle est sa rigueur ?</b> En quoi un <i>zav</i> est-il plus sévère que celui qui a contracté une impureté rituelle par un animal rampant ? La Gemara répond : <b>Comme nous l'avons dit,</b> que son impureté sort sur lui de son propre corps, contrairement à celui qui a contracté l'impureté d'un animal rampant. Mais <b>au contraire,</b> il est possible de dire que le statut juridique <b>d'un animal rampant est</b> plus <b>sévère, car il transmet l'impureté rituelle</b> même <b>par accident.</b> Un <i>zav</i> ne devient impur que lorsqu'il est clair que sa décharge ne résulte pas d'une maladie ou d'un autre accident, mais une personne qui entre en contact avec un animal rampant contracte l'impureté rituelle quelles que soient les circonstances de ce contact. <b>Ils disent</b> en réponse à cette question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

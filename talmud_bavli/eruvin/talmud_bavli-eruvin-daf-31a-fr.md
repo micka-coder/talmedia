@@ -36,4 +36,4 @@ La Guemara répond : <b>Rav Yosef</b> aurait pu <b>vous dire :</b> En fait, <b>t
 <strong>GEMARA:</strong> La Gemara demande : Comment peut-on établir un <i>eirouv</i> avec <b><i>demai</i> ? N'est-il pas impropre pour lui ?</b> Puisqu'il est interdit de manger du <i>demai</i>, comment peut-on l'utiliser comme <i>eirouv</i> ? La Guemara répond : <b>Puisque s'il le veut, il pourrait déclarer son bien sans propriétaire, et il serait un pauvre</b> personne, <b>et</b> le <i>demai</i> serait alors <b>digne de lui, </b> comme il est permis à un pauvre de manger du <i>demai</i>, <b>maintenant aussi,</b> même s'il n'a pas renoncé à la propriété de son bien, <b>il est</b> considéré comme <b>convenable pour lui</b> de l'utiliser comme <i>eiruv</i>. <b>Comme nous l'avons appris</b> dans une mishna : <b>On peut nourrir les pauvres <i>demai</i>,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

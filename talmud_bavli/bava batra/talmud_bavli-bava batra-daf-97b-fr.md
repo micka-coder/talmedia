@@ -36,4 +36,4 @@ La Guemara pose à nouveau la question : La déclaration de Rav sert <b>à exclu
 <strong>MISHNA :</strong> Si quelqu'un <b>vend du vin à un autre et</b> ensuite <b>il tourne,</b> le vendeur <b>ne supporte pas</b> la <b>responsabilité financière de sa</b> perte. <b>Mais s'il est connu</b> de ce vendeur <b>que son vin</b> s'altère toujours, alors cette</b> vente <b>est une transaction erronée,</b> c'est-à-dire fondée sur de fausses hypothèses, car l'acheteur avait l'intention d'acheter un vin qui conserverait sa qualité ; le vendeur doit donc rembourser l'acheteur. <b>Et si</b> le vendeur a <b>dit à</b> l'acheteur : C'est un <b>vin</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

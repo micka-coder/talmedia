@@ -51,4 +51,4 @@ La Guemara demande : <b>Et</b> n'y a-t-il <b>plus de cas</b> dans lesquels Rabbi
 <b>Rabbi Abba a dit,</b> en explication : <b>Ce</b> cas est différent, <b>car</b> ce n'est pas l'avis de Rabbi Eliezer lui-même. Il a plutôt <b>énoncé</b> cette décision <b>au nom de Rabbi Ḥanina ben Gamliel, comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Akiva dit : On récite</b> <i>havdala</i> comme <b>une quatrième bénédiction à elle seule ; Rabbi Ḥanina ben Gamliel dit : On la récite dans</b> la bénédiction de <b>l'action de grâce.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

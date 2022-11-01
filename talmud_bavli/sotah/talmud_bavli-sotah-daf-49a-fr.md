@@ -57,4 +57,4 @@ Guemara <b>Les Sages ont enseigné : Rabbi Pineḥas ben Ya'ir dit : A partir</b
 <b>Rabbi Eliezer le Grand dit : Depuis le jour où le</b> Second <b>Temple a été détruit,</b> les générations se sont détériorées : <b>Les savants ont commencé à devenir comme des scribes</b> qui enseignent aux enfants, <b>et les scribes sont devenus des bedeaux, et les bedeaux sont devenus des ignorants, et les ignorants</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

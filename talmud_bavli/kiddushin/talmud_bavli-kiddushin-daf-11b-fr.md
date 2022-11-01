@@ -30,4 +30,4 @@ La Gemara répond : <b>Il était nécessaire pour</b> Rav Asi d'enseigner : <b>E
 <b>Grâce, si tu dis que</b> lorsqu'elle a été acquise <b>il lui a donné</b> au moins <b>un dinar, c'est</b> le sens de la déclaration <b>qu'elle peut continuellement déduire</b> de cette somme <b>jusqu'à un <i>peruta</i>. Mais si on dit que</b> il lui a <b>donné une <i>peruta</i></b> lorsqu'il l'a achetée comme servante, peut-elle <b>déduire d'une <i>peruta</i>?</b> Une <i>peruta</i> est déjà la plus petite somme d'argent possible. La Guemara rejette cet argument : <b>Mais peut-être est-ce là ce que dit le Miséricordieux :</b> Dans un cas <b>où il lui a donné un dinar, elle déduit</b> de cette somme <b>jusqu'à un <i>peruta</i>;</b> dans <b>un cas où il lui a donné un <i>peruta</i> elle ne peut rien déduire.</b> S'il a payé un <i>peruta</i> pour elle, la possibilité de rachat ne s'applique pas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

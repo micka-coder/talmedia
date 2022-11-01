@@ -57,4 +57,4 @@ Rava lui répondit : C'est en effet ce que je dis ; cependant, le fait est que l
 § A propos de la couverture d'une ruelle, la Gemara élabore sur <b>la</b> question <b>elle-même. Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

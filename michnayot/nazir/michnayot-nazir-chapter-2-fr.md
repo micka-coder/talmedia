@@ -29,5 +29,5 @@ Si sa femme fait une fausse couche, il ne devient pas nazirite. Rabbi Shimon dit
 ### michna 10
 Si quelqu'un dit] "Voici, je suis nazirite quand j'aurai un fils, et je serai nazirite pendant cent jours [pour mon propre compte]," : si un fils lui est né avant l'expiration de soixante-dix jours, il ne perd rien de cette période ; mais si c'est après soixante-dix jours, cela annule [tout ce qui dépasse les] soixante-dix jours, car il ne peut y avoir de rasage pour une période de moins de trente jours.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

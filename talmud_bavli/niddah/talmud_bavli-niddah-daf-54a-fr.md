@@ -39,4 +39,4 @@ La Gemara objecte : <b>Mais</b> les jours pendant lesquels elle est autorisée <
 <b>Rav Adda bar Yitzḥak dit</b> que cette prémisse doit être rejetée : <b>C'est-à-dire</b> que <b>ses jours de menstruation pendant lesquels elle ne</b> effectivement pas <b>voir</b> du sang <b>comptent dans le décompte de ses</b> sept jours purs de <b><i>ziva</i>.</b> En d'autres termes, elle commence à compter les sept jours purs pendant ces jours de menstruation. <b>Comme un dilemme a été soulevé devant</b> les Sages à propos de cette question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

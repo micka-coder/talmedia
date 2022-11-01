@@ -51,4 +51,4 @@ La Gemara répond : <b>Initialement, Rav Huna pensait</b> que <b>on ne peut pas 
 <b>Les Sages ont enseigné :</b> En ce qui concerne <b>celui qui transporte un paquet</b> de marchandises <b>d'un endroit,</b> où il l'a acheté à bon marché, <b>vers un autre endroit,</b> où le prix est plus élevé, afin de le vendre avec un bénéfice, et <b>un autre l'a trouvé</b> en chemin <b>et lui a dit : Donne-moi</b> le paquet, <b>et je te paierai de la manière dont on te paie dans ce lieu</b> où tu vas,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

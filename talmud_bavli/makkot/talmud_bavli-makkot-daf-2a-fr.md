@@ -21,4 +21,4 @@ La Gemara demande : <b>D'où vient cette affaire</b> que le tribunal ne punit pa
 <b>Bar Padda dit</b> que cette forme alternative de punition est dérivée par <b>une <i>a fortiori</i></b> déduction : <b>Si quelqu'un qui</b> effectivement <b>disqualifie</b> un autre de la prêtrise, c'est-à-dire, un prêtre qui engendre un fils avec une divorcée disqualifie son fils de la prêtrise, <b>n'est pas</b> lui-même <b>disqualifié</b> de la prêtrise, ainsi en ce qui concerne ce témoin <b>qui est venu disqualifier</b> un autre de la prêtrise mais n'a pas réussi <b>et ne l'a pas disqualifié</b> parce qu'il a été rendu témoin conspirateur, <b>n'est-il pas logique qu'il ne soit pas disqualifié ? Ravina s'oppose à ce</b> raisonnement : <b>Si oui,</b> que l'échec des témoins conspirateurs à atteindre leur objectif est la considération à la base de la déduction <i>a fortiori</i>, <b>vous avez</b> ainsi <b>rendu obsolète le <i>halakha</i> des témoins conspirateurs,</b> comme on pourrait le prétendre :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

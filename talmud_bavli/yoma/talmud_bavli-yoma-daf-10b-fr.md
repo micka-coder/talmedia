@@ -21,4 +21,4 @@ La Gemara explique : En ce qui concerne la <b><i>sukka</i>, la raison est discr�
 <b>Qui</b> est le <i>tanna</i> qui a <b>enseigné</b> le <i>baraita</i> suivant ? <b>Comme l'ont enseigné les Sages :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

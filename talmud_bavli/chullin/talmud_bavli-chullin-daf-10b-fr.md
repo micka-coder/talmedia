@@ -45,4 +45,4 @@ Le <i>baraita</i> conclut : <b>Et d'où</b> provient-il <b>que s'il est entré d
 <b>Et Rav Aḥa bar Ya'akov</b> interprète la <i>baraita</i> conformément à son avis.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara répond : Lorsque Abaye a dit que Rabbi Yéhouda interdit les actes n
 <b>Le matin, il portait</b> des vêtements de lin <b>provenant</b> de la ville égyptienne de <b>Pélusium d'une valeur de douze <i>maneh</i>,</b> 1 200 dinars ou <i>zuz</i>. Ces vêtements étaient très chers en raison de leur grande qualité. Et <b>l'après-midi</b> il portait des vêtements en lin <b>venant de l'Inde,</b> légèrement moins chers, <b>d'une valeur de huit cents <i>zuz</i>.</b> C'est <b>la déclaration de Rabbi Meir. Et les sages disent : Le matin, il portait</b> des vêtements <b>de dix-huit <i>maneh</i>, et l'après-midi</b> il portait des vêtements <b>de douze <i>maneh</i>.</b> En <b>total,</b> les vêtements valaient <b>trente <i>maneh</i>. Ces</b> sommes pour les vêtements provenaient <b>de la communauté, et si</b> le Grand Prêtre <b>souhaitait ajouter</b> de l'argent pour acheter des vêtements encore plus fins, <b>il</b> ajoutait <b>des fonds propres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

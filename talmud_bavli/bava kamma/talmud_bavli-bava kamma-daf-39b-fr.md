@@ -54,4 +54,4 @@ Et <b>Rabbi Ya'akov tient conformément</b> à l'opinion de <b>Rabbi Yehuda en c
 <b>Rav Aḥa bar Abaye a dit à Ravina : Accordé, selon Abaye, qui dit</b> que <b>ils sont en désaccord,</b> l'explication <b>fonctionne bien. Mais selon Rava, qui dit</b> que <b>ils ne sont pas en désaccord, au lieu d'interpréter</b> la <i>baraita</i> comme faisant référence <b>à un bœuf prévenu</b>, <b>il aurait dû l'interpréter</b> comme faisant référence <b>à un bœuf inoffensif</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -6,4 +6,4 @@
 La Guemara pose une question par rapport à la déclaration de Rabbi Yosei : <b>Et</b> quant à <b>Rabbi Yosei, maintenant, il soutient</b> que le statut de <b>une partie de la journée est comme</b> celui <b>d'une journée entière</b>. <b>Comment peut-on trouver une <i>zava</i> à part entière qui apporte une offrande ? Puisqu'elle voit</b> une décharge <b>au milieu de la journée, l'autre moitié de la journée compte pour elle</b> comme une journée complète d' <b>observation,</b> car une partie de la journée est considérée comme celle d'une journée entière. La Guemara répond : <b>Si tu veux, dis que</b> elle <b>décharge continuellement</b> du sang pendant <b>trois jours consécutifs. Et si tu veux, dis qu'elle a vu</b> une décharge pendant <b>trois</b> jours consécutifs près du coucher du soleil.</b> Dans ce cas, elle est impure à chaque fois à la fin d'un jour et au début du jour suivant, de sorte qu'il n'y a pas eu <b>temps</b> pour devenir pur le jour suivant afin <b>d'être inclus pour son décompte</b> d'un jour pur correspondant à un jour impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

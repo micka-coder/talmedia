@@ -48,4 +48,4 @@ La Gemara rejette cet argument : <b>Quelle est la difficulté</b> posée par cet
 <b>Rabbi Shimon dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

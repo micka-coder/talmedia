@@ -23,5 +23,5 @@ Le premier degré d'impureté dans la nourriture sainte, dans la térouma ou dan
 ### michna 8
 Si l'on mange une nourriture présentant un deuxième degré d'impureté, on ne doit pas travailler dans un pressoir à olives. La nourriture commune qui a été préparée dans des conditions propres à la pureté de la nourriture consacrée est toujours considérée comme une nourriture commune. Rabbi Elazar bar Zadok dit : [cette nourriture est] comme de la térouma [c.a.d] qu'elle transmet une impureté à deux aliments et rend la teroumah invalide à un degré supplémentaire.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

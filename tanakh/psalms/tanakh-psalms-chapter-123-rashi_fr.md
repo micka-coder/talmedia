@@ -12,4 +12,4 @@
 <b>Les complaisants</b> Heb.  לגאיונים. Il s'écrit comme un seul mot et se lit comme deux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

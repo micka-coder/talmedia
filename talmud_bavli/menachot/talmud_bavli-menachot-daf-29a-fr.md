@@ -57,4 +57,4 @@ A propos de cette discussion, la Gemara relate : <b>Rabbi Ḥiyya bar Abba dit</
 La Gemara relate : <b>Agra, le beau-père de Rabbi Abba,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

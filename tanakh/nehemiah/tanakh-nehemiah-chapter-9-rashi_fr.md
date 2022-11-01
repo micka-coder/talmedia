@@ -62,4 +62,4 @@
 <b>ceux que tu as établis sur nous</b> qui nous gouvernent. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

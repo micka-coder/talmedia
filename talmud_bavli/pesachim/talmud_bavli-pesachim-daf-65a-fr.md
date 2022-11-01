@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais le sang pressé</b> d'un animal après le jaillissem
 La Guemara conteste cette réponse : <b>Rabbi Elazar n'a-t-il pas dit</b> que même <b>Rabbi Yehuda concède en ce qui concerne l'expiation</b> que l'aspersion sur l'autel du sang pressé de l'animal après que le jet initial ait conclu <b>ne fait pas l'expiation ? Comme il est dit:</b> "Car la vie de la chair est dans le sang ; et je vous l'ai donné sur l'autel pour faire l'expiation de vos âmes ; <b>car c'est le sang qui fait l'expiation en raison de la vie"</b> (Lévitique 17:11).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

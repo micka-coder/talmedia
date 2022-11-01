@@ -69,4 +69,4 @@ La Guemara explique que cela n'est <b>pas difficile. Cette</b> <i>baraita</i> di
 <b>Et Rabbi Yishmael,</b> qui soutient qu'il n'y a pas de telle mitzva, argumenterait : <b>Si on ne le consacre pas</b> verbalement, l'animal n'est-il <b>pas consacré ?</b> Il est certainement consacré, car <b>son caractère sacré est issu du ventre de la mère. Et puisque lorsqu'on ne le consacre pas</b> l'animal est néanmoins <b>sanctifié</b> automatiquement, <b>on n'a pas besoin de le consacrer</b> verbalement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

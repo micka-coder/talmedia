@@ -133,4 +133,4 @@ Une autre explication : <Aux sages. C'est Moshe. <b>Than ten rulers.</b> [Les] d
 <b>Ils ont élaboré de nombreux stratagèmes.</b> Plans et desseins de péché. C'est ainsi qu'il est expliqué dans le Midrash.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La Guemara note : <b>Rav Huna</b> se conforme <b>à sa ligne standard de <b>rais
 <b>Rav Ḥisda a dit :</b> Le fait <b>que je sois supérieur à mes collègues</b> est <b>parce que je me suis marié</b> à l'âge de <b>seize ans, et si je me serais marié à</b> l'âge de <b>quatorze ans,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

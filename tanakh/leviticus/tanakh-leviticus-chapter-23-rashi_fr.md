@@ -145,5 +145,5 @@
 ### passuk 43
 <b>C'est dans le sukkos que j'ai fait habiter,</b> [dans] des nuées de gloire. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

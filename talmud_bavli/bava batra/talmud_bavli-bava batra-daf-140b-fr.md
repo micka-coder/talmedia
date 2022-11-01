@@ -27,4 +27,4 @@ S'il dit : <b>Si</b> ma femme donne naissance à <b>un mâle</b> la progéniture
 La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : <b>Un <i>tumtum</i> hérite comme un fils et est entretenu comme une fille. Accordé, selon Rava,</b> le <i>baraita</i> peut être expliqué pour signifier que la clause : <b>Hérite comme un fils,</b> est <b>dans</b> le cas d'un <b>petit domaine,</b> car les filles dirigent le <i>tumtum</i> vers les fils, et de même qu'il n'y a pas d'héritage pour les fils, il n'y en a pas non plus pour le <i>tumtum</i>. Et la clause : <b>Et est soutenue comme une fille,</b> est <b>dans</b> le cas d'un <b>grand domaine,</b> car les fils dirigent le <i>tumtum</i> vers les filles, et le <i>tumtum</i> reçoit la subsistance en même temps qu'eux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

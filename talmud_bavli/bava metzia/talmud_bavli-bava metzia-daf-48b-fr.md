@@ -33,4 +33,4 @@ La Gemara suggère : <b>Disons</b> que cette dispute amoraïque entre Rav et Rab
 La Gemara demande : <b>Quel est le sens de la déclaration : L'année sabbatique <b>n'abroge pas</b> le prêt, <b>que dit Rabban Shimon ben Gamliel ? Si nous disons</b> que cela signifie que l'année sabbatique n'annule pas la partie du prêt <b>commensurable</b> à la garantie, mais qu'elle annule le reste, cela indique <b>par déduction que Rabbi Yehuda HaNasi soutient</b> que l'année sabbatique <b>abroge également cette moitié.</b> C'est difficile, car n'y a-t-il pas une garantie commensurable à cette moitié ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

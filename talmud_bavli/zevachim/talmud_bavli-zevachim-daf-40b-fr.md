@@ -33,4 +33,4 @@ La Guemara clarifie la <i>baraita</i>. <b>Le Maître a dit</b> ci-dessus : <b>Co
 <b>La référence est plutôt,</b> le taureau pour un péché communautaire involontaire et le bouc de Yom Kippour, et c'est</b> ce que Rabbi Yishmael <b>dit : Tout comme dans un cas où</b> une <b>offrande n'est pas assimilée à</b> une autre <b>offrande, car celle-ci</b> est <b>un taureau et celle-là</b> est <b>un bouc, </b> néanmoins les <b>actions</b> d'aspersion du sang dans une offrande <b>sont assimilées</b> aux <b>actions</b> du sang dans l'autre offrande <b>en ce qui concerne ce qui est écrit à son sujet,</b> dans <b>un cas dans lequel</b> une <b>offrande est assimilée à</b> une autre <b>offrande,</b> c'est-à-dire. e., le taureau pour un péché involontaire du prêtre oint et le taureau de Yom Kippour, <b>comme ceci</b> est <b>un taureau et que</b> est <b>un taureau, n'est-ce pas logique</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

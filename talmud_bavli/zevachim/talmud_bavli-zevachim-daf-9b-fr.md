@@ -84,4 +84,4 @@ La Guemara conclut : Le dilemme <b>doit rester</b> non résolu.
 <b>Et</b> Rabbi Yoḥanan et Reish Lakish ont chacun <b>suivi [<i>ve'azdu</i>] leur</b> ligne générale de <b>raisonnement</b> dans cette affaire ; <b>comme il a été dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

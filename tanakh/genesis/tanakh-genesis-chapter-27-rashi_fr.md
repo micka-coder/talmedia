@@ -140,5 +140,5 @@
 ### passuk 46
 <b>Je suis dégoûté de ma vie.</b> [Signification :] "Je suis devenu dégoûté de ma vie."
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

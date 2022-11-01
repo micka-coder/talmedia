@@ -90,7 +90,7 @@
 <b>De Kadush-barnea à Gaza.</b> Il s'agit du côté sud d'Eretz Israël allant d'est en ouest, mais il n'a pas conquis toute la frontière, laissant non conquise la zone allant de Gaza à la mer [Méditerranée]. C'est ce qui est indiqué ci-dessous : "C'est le pays qui est resté [non conquis], les Gazites et les Ashdodites"<sup>16</sup><i class="footnote">Chapitre 13:2,3</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -182,4 +182,4 @@
 <b>De Kadush-barnea à Gaza.</b> Il s'agit du côté sud d'Eretz Israël allant d'est en ouest, mais il n'a pas conquis toute la frontière, laissant non conquise la zone allant de Gaza à la mer [Méditerranée]. C'est ce qui est indiqué ci-dessous : "C'est le pays qui est resté [non conquis], les Gazites et les Ashdodites"<sup>16</sup><i class="footnote">Chapitre 13:2,3</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

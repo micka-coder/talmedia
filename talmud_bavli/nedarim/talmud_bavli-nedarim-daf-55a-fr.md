@@ -27,4 +27,4 @@ Rav Yosef <b>a dit à</b> Rava : <b>Ne t'assieds pas sur tes pieds avant de me d
 Rava <b>lui a dit</b> que cela signifie : <b>Une fois qu'une personne se rend comme un désert, abandonnée devant tous, la Torah lui est donnée comme un cadeau [<i>mattana</i>], comme il est dit : "Et du désert, Mattana." Et une fois qu'elle lui est donnée en cadeau, Dieu la lègue [<i>naḥalo</i>]</b> à <b>lui, comme il est dit : "Et de Mattana Nahaliel." Et une fois que Dieu la lègue</b> à <b>lui, il s'élève à la grandeur, comme il est dit : Et de Nahaliel, Bamot,</b> qui sont des lieux élevés. <b>Et s'il s'élève</b> et est arrogant à propos de sa Torah, <b>le Saint, Béni soit-Il, le dégrade, comme il est dit : "Et de Bamot la vallée"</b> (Nombres 21:20). <b>Et non seulement</b> on le dégrade, <b>mais on l'abaisse dans le sol, comme il est dit : "Et regardant par-dessus [<i>nishkafa</i>] la face du désert"</b> (Nombres 21:20), comme un seuil [<i>iskopa</i>] qui s'enfonce dans le sol. <b>Et s'il renverse son</b> arrogance et devient humble, <b>le Saint, Béni soit-Il, l'élève,</b> <b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

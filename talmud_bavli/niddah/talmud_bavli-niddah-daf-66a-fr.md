@@ -78,4 +78,4 @@ Ravina <b>a dit à</b> Rav Ḥanina : <b>Rava a dit explicitement</b> qu'il n'y 
 § <b>Rava dit : Une femme</b> qui s'apprête à s'immerger dans un bain rituel pour se purifier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

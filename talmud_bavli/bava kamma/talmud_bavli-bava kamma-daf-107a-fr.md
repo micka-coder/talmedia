@@ -15,7 +15,7 @@ La Guemara complète sa réponse : <b>Et c'est à propos d'un prêt que l'on peu
 § <b>Rami bar Ḥama enseigne</b> cette <i>baraita</i> : Tous les <b>quatre</b> types de <b>bailees</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Une fusion de</b> Torah <b>portions est écrite ici,</b> et la <i>halakha</i> écrite dans ce passage est en fait destinée à être appliquée à un autre passage. <b>Et quand il est écrit : "C'est cela"</b>, d'où découle la <i>halakha</i> d'une admission partielle, <b>il est écrit concernant un prêt,</b> non un dépôt. La Gemara demande : <b>Et qu'est-ce qui est différent</b> à propos d'un <b>prêt</b> pour que cette <i>halakha</i> ne s'applique que là ?
 
@@ -32,7 +32,7 @@ La Guemara complète sa réponse : <b>Et c'est à propos d'un prêt que l'on peu
 § <b>Rami bar Ḥama enseigne</b> cette <i>baraita</i> : Tous les <b>quatre</b> types de <b>bailees</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Une fusion de</b> Torah <b>portions est écrite ici,</b> et la <i>halakha</i> écrite dans ce passage est en fait destinée à être appliquée à un autre passage. <b>Et quand il est écrit : "C'est cela"</b>, d'où découle la <i>halakha</i> d'une admission partielle, <b>il est écrit concernant un prêt,</b> non un dépôt. La Gemara demande : <b>Et qu'est-ce qui est différent</b> à propos d'un <b>prêt</b> pour que cette <i>halakha</i> ne s'applique que là ?
 
@@ -49,4 +49,4 @@ La Guemara complète sa réponse : <b>Et c'est à propos d'un prêt que l'on peu
 § <b>Rami bar Ḥama enseigne</b> cette <i>baraita</i> : Tous les <b>quatre</b> types de <b>bailees</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

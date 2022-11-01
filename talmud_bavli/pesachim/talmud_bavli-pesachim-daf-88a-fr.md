@@ -54,4 +54,4 @@ Nous avons appris dans la mishna : <b>Une personne mi-esclave et mi-homme libre 
 La Guemara répond que cela n'est <b>pas difficile : Ici,</b> la <i>baraita</i> qui statue que le demi-esclave ne peut prendre part ni à son propre agneau ni à celui de son maître, <b>est en accord avec la version originale</b> de la <b>mishna,</b> qui cite l'opinion de Beit Hillel' selon laquelle le maître conserve ses droits sur le demi-esclave. <b>Là,</b> la mishna qui permet au demi-esclave de participer à son propre agneau, <b>est en accord avec la version ultime</b> de la <b>mishna,</b> qui cite l'opinion révisée de Beit Hillel, selon laquelle le statut du demi-esclave est modifié de telle sorte qu'il est considéré comme un homme libre en ce qui concerne son inclusion dans un groupe pour l'agneau pascal. <b>Comme nous l'avons appris</b> dans une mishna : <b>Un homme mi-esclave et mi-homme libre sert son maître un jour et lui-même un jour;</b> c'est <b>la déclaration de Beit Hillel. Beit Shammai disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

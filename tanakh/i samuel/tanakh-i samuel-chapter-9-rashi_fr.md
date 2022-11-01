@@ -81,4 +81,4 @@
 <b>Et il est passé devant.</b> Le jeune est passé devant eux, mais à Shaoul, il a dit : "Et toi, tu te tiens avec moi".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

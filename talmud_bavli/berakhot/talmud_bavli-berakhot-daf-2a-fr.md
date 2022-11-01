@@ -42,7 +42,7 @@ La Guemara repond : En effet, il aurait ete plus simple de dire que le temps de 
 La Guemara discute de la preuve proposee dans la <i>baraita</i> : <b>D'ou savons-nous que la phrase suivante : <b>"Et le soleil se couche"</b> fait reference a <b>la</b> complete <b>coucher du soleil,</b> et donc, <b>"et il est purifie"</b> fait reference au fait que <b>le jour est pur,</b> c'est-a-dire, et le soleil se couche et il est purifie est une phrase signifiant que le soleil se couchera, l'air s'eclaircira, et les etoiles emergeront (Rav Hai Gaon) ?
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Le debut du tractat <i>Berakhot</i>, le premier tractat du premier des six ordres de la Mishna, s'ouvre sur une discussion de la recitation du <i>Shema</i>, car la recitation du <i>Shema</i> englobe une acceptation du joug du Ciel et des mitzvot, et a ce titre, constitue la base de tous les enseignements ulterieurs. La Mishna s'ouvre sur les lois concernant le moment approprie pour reciter le <i>Shema</i> : <br><br><strong>MISHNA:</strong> <b>A partir de quand,</b> c'est-a-dire a partir de quelle heure, doit-on <b>reciter le <i>Shema</i> le soir ? A partir du moment ou les pretres entrent pour prendre part a leur <i>teruma.</i></b> Jusqu'a quand s'etend le temps de la recitation du <i>Shema</i> du soir ? <b>Jusqu'a la fin de la premiere veille.</b> Le terme utilise dans la Torah (Deuteronome 6:7) pour indiquer le moment de la recitation du <i>Shema</i> du soir est <i>beshokhbekha</i>, quand on se couche, ce qui fait reference au moment ou les individus s'endorment. Par consequent, le moment de la recitation du <i>Shema</i> est la premiere partie de la nuit, lorsque les individus se preparent generalement a dormir. <b>C'est la declaration de Rabbi Eliezer.</b>
 
@@ -86,4 +86,4 @@ La Guemara repond : En effet, il aurait ete plus simple de dire que le temps de 
 La Guemara discute de la preuve proposee dans la <i>baraita</i> : <b>D'ou savons-nous que la phrase suivante : <b>"Et le soleil se couche"</b> fait reference a <b>la</b> complete <b>coucher du soleil,</b> et donc, <b>"et il est purifie"</b> fait reference au fait que <b>le jour est pur,</b> c'est-a-dire, et le soleil se couche et il est purifie est une phrase signifiant que le soleil se couchera, l'air s'eclaircira, et les etoiles emergeront (Rav Hai Gaon) ?
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

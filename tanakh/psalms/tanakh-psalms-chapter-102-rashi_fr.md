@@ -84,4 +84,4 @@
 <b>Mais Tu es Celui</b> qui se tient et existe.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

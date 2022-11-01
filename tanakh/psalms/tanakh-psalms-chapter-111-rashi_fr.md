@@ -21,4 +21,4 @@
 <b>Fixe</b> sont Ses commandements, soutenus par la puissance, renforcés par les punitions et les avertissements, et les chapitres sont placés les uns à côté des autres dans l'ordre et pour les exposer. C'est ce que dit Salomon (Cantique 5:15) : "Ses cuisses sont des piliers de marbre, etc.".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

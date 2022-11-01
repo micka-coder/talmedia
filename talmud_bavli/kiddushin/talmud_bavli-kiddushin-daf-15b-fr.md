@@ -42,4 +42,4 @@ La Guemara s'interroge : <b>Qui</b> sont ces <b>Rabbis ?</b> C'est <b>Rabbi</b> 
 La Guemara demande : <b>Et Rabbi</b> Yehuda HaNasi, <b>que fait-il avec</b> le verset : "Et s'il n'est racheté par aucun de ces moyens, <b>alors il sortira l'année du Jubilé"</b> (Lévitique 25:54) ? La Gemara répond : <b>Il exige</b> ce verset <b>pour ce qui est enseigné</b> dans une <i>baraita</i> à propos du verset : <b>"Puis il sortira l'année du Jubilé."</b> Si l'esclave n'est pas racheté avant ce moment, il ne quitte son maître gentil que l'année du Jubilé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

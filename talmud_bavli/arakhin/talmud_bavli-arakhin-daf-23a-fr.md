@@ -45,4 +45,4 @@ La Guemara répond : Lorsqu'on est garant pour <b>son fils</b>, c'est <b>différ
 La Gemara objecte : <b>Et que</b> Abaye <b>déduise</b> qu'une telle démarche est inefficace, <b>car un garant d'un contrat de mariage n'est pas</b> légalement <b>responsable</b> de payer le contrat de mariage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

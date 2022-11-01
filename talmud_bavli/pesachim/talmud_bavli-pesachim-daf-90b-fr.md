@@ -81,4 +81,4 @@ La Guemara explique qu'il était <b>nécessaire</b> que la <i>baraita</i> enseig
 <strong>MISHNA:</strong> <b>Un deuil aigu,</b> c'est-à-dire un deuil le jour du décès d'un parent proche ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

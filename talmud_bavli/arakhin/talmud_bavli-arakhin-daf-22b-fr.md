@@ -39,4 +39,4 @@ En revanche, les Sages <b>de Néharde'a disent : Dans tous</b> ces cas où le p�
 <b>Rav Ashi dit : Par conséquent, on ne s'occupe pas</b> des biens des orphelins mineurs afin de rembourser un prêt standard, <b>comme le dit Rava : La <i>halakha</i></b> est que le tribunal <b>ne s'occupe pas</b> de leurs biens. <b>Et si l'on s'occupe</b> de leurs biens, par exemple, dans un cas où le père a dit à ses enfants de rembourser la dette, <b>on installe un intendant</b> pour agir au nom des orphelins, <b>comme le disent</b> les Sages <b>de Néharde'a : Dans tous</b> les cas, le tribunal <b>s'occupe</b> des biens des orphelins mineurs <b>et installe un intendant, sauf</b> une situation <b>où un champ est trouvé</b> en leur possession <b>qui n'est pas</b> celui du père, <b>car on ne présume pas</b> que les <b>témoins sont des menteurs.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

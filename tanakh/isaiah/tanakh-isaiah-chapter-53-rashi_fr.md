@@ -57,7 +57,7 @@
 <b>et a intercédé pour les transgresseurs</b> par ses souffrances, car le bien est venu au monde par lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Qui aurait cru notre rapport</b> Ainsi les nations se diront les unes aux autres : Si nous entendions des autres ce que nous voyons, ce serait incroyable.
 <b>Le bras du Seigneur</b> ainsi, avec grandeur et gloire, à qui a-t-il été révélé jusqu'à présent ?
@@ -116,4 +116,4 @@
 <b>et a intercédé pour les transgresseurs</b> par ses souffrances, car le bien est venu au monde par lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -69,4 +69,4 @@ Les tanna'im <b>Rabbi Yehuda et Rabbi Neḥemya</b> sont en désaccord sur le se
 Le verset en question indique : "Et il planta un <i>eshel</i> à Beersheba, <b>et y invoqua [<i>vayyikra</i>] le nom du Seigneur, le Dieu éternel"</b> (Genèse 21:33). <b>Reish Lakish a dit : Ne pas lire</b> ce mot littéralement comme <b>"<i>vayyikra</i>,"</b> et il appela,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

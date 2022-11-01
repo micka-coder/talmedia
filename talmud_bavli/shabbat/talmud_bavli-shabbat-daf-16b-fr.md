@@ -30,4 +30,4 @@ La Guemara s'interroge : En effet, selon Rabbi Meir, un autre décret a été aj
 La Guemara demande : <b>Et quel est</b> l'<b>autre</b> décret ? La Gemara répond qu'un autre décret est <b>comme nous l'avons appris</b> une tradition halakhique dans une mishna selon laquelle <b>tous les objets mobiles ayant la largeur d'un aiguillon à bœuf,</b> un long bâton pour aiguillonner et diriger un animal de labour, <b>transmettent l'impureté.</b> Si un côté de l'objet était au-dessus d'un cadavre et l'autre côté de l'objet était au-dessus de récipients, les récipients deviennent impurs en raison de l'impureté d'une tente au-dessus d'un cadavre. <b>Rabbi Tarfon a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ Rabbi Yishmael poursuit : <b>Et</b> le verset des Prophètes <b>dispose : "Et El
 Rabbi Yishmael poursuit . <b>Et</b> le verset dans les Ecrits <b>dispose : "Et Ségouv engendra Yaïr, qui eut vingt-trois villes dans le pays de Galaad"</b> (I Chroniques 2:22).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

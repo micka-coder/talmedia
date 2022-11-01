@@ -58,5 +58,5 @@
 <b>Il a dit.</b> Moshé [a dit].
 <b>"La main est sur le trône de Dieu.</b> La main de Dieu est levée pour jurer par son trône d'avoir une guerre et une animosité éternelles contre Amaleik. Pourquoi est-il écrit כֵּס et non כִּסֵּא et aussi le Nom est coupé en deux ( י-ה ) ? Dieu a juré que son Nom ne sera pas entier, et que son Trône ne sera pas entier tant que le nom d'Amaleik ne sera pas totalement oblitéré. Et lorsque son nom sera oblitéré, le Nom sera entier et le Trône sera entier, comme il est dit : "L'ennemi est fini, lui dont les épées étaient éternelles", ce qui fait référence à Amaleik dont il est écrit : "Il a gardé sa colère pour toujours" [Le verset du Tehillim continue :] "Et les villes que tu as déracinées, leur mémoire a disparu." Et que dit-on ensuite ? "Mais Hachem ( י-ה-ו-ה ) est intronisé pour toujours", ce qui signifie que le nom est devenu entier. "Il établit ( כִּסְאוֹ ) son Trône pour le jugement," par lequel le Trône est devenu entier. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Bien que le <i>tanna</i> aurait pu inclure ce cas dans le <i>baraita</i>, <b>il 
 La Gemara demande : <b>Quelles bénédictions doit-on réciter ? Rav Yehuda répond</b> que ce sont les sept bénédictions : <b>Béni sois-tu, Seigneur notre Dieu, Roi de l'univers,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

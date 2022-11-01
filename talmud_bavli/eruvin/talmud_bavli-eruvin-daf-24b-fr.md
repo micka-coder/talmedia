@@ -30,4 +30,4 @@ La Gemara relate : <b>Il y avait une certaine cour dans</b> la ville de <b>Pum N
 <b>C'est pourquoi,</b> en résumé, <b>il est permis de porter à l'intérieur de la ville elle-même</b> et <b>de porter à l'intérieur de la cour elle-même.</b> Cependant, en ce qui concerne le portage <b>de la ville à la cour ou de la cour à la ville, Rav Aḥa et Ravina ne sont pas d'accord : L'un interdit</b> de le faire <b>et l'autre le permet</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

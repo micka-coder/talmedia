@@ -23,5 +23,5 @@ Tous les aliments se combinent pour former la moitié d'un demi-pain qui rend le
 ### michna 8
 Si quelqu'un a mangé des aliments impurs ou a bu des liquides impurs et qu'il les a ensuite immergés puis vomis, ils sont toujours impurs car ils ne sont pas devenus purs dans le corps. Si l'on a bu de l'eau impure et qu'on l'a immergée puis vomie, elle est propre car elle est devenue propre dans le corps. Si quelqu'un a avalé une bague pure et est ensuite entré dans la tente d'un cadavre, s'il s'est aspergé une fois et deux fois et s'est immergé puis a vomi, voici, il reste comme il était avant. Si quelqu'un a avalé une bague impure, il peut s'immerger et manger de la teroumah. S'il l'a vomie, elle est impure et le rend impur. Si une flèche a été plantée dans un homme, elle bloque tant qu'elle est visible. Mais si elle n'est pas visible, il peut s'immerger et manger de la teroumah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

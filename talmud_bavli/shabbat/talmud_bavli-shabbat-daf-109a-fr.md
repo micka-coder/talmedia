@@ -30,4 +30,4 @@ La Gemara relate : <b>Ravina arriva</b> à venir <b>dans la maison de Rav Ashi. 
 <b>Rabbi Yosei dit : Toutes les mers purifient</b> comme un bain rituel. En fait, elles purifient encore plus qu'un bain rituel, car elles purifient même <b>quand</b> elles sont <b>coulantes.</b> L'immersion dans une mer est purifiante non seulement quand ses eaux sont calmes, mais même quand elles sont coulantes. Ce n'est pas le cas d'un bain rituel, dont les eaux ne purifient que lorsqu'elles sont immobiles. <b>Et</b> l'eau de mer <b>n'est pas valable pour</b> purifier les <b><i>zavim</i> et les lépreux et pour sanctifier l'eau de purification</b> afin d'y mélanger les cendres de la vache rousse <b>.</b> Ces cas nécessitent une eau de source. <b>Rav Naḥman bar Yitzḥak s'oppose fermement à cette</b> explication :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

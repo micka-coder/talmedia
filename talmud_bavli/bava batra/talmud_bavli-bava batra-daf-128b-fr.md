@@ -33,4 +33,4 @@ La Guemara compare cette <i>halakha</i> au cas d'un billet à ordre qui stipule 
 La Guemara demande : <b>Mais</b> alors <b>quelle</b> possibilité <b>exclut</b> Mar Zutra <b>en décidant que <b>la <i>halakha</i></b> est conforme à la déclaration de Rabbi Abba ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

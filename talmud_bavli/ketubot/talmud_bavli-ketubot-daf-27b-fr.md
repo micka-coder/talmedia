@@ -60,7 +60,7 @@ La Guemara dit : Il n'y a pas de preuve que l'opinion de Rav Pappa soit continge
 La Gemara cite une preuve pour résoudre le dilemme : <b>Venez</b> et <b>entendez</b> la preuve <b>telle qu'elle est enseignée</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui divorce de sa femme, elle ne peut pas se marier</b> et vivre <b>dans sa</b> <b>vicinité immédiate,</b> c'est-à-dire sa cour, en raison de la crainte qu'en raison de l'intimité qu'ils partageaient autrefois, le fait qu'elle y vive conduise à la transgression.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Pourquoi mentirais-je</b> d'une manière aussi inefficace, et la jugerais-je crédible ? Si elle avait voulu mentir, elle aurait pu prétendre qu'elle se cachait, ce qui est une affirmation plus efficace. <b>Ou peut-être que nous ne disons pas</b> ce principe.
 
@@ -122,4 +122,4 @@ La Guemara dit : Il n'y a pas de preuve que l'opinion de Rav Pappa soit continge
 La Gemara cite une preuve pour résoudre le dilemme : <b>Venez</b> et <b>entendez</b> la preuve <b>telle qu'elle est enseignée</b> dans une <i>baraita</i> : En ce qui concerne <b>celui qui divorce de sa femme, elle ne peut pas se marier</b> et vivre <b>dans sa</b> <b>vicinité immédiate,</b> c'est-à-dire sa cour, en raison de la crainte qu'en raison de l'intimité qu'ils partageaient autrefois, le fait qu'elle y vive conduise à la transgression.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

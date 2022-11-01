@@ -66,4 +66,4 @@ Abaye <b>s'adressa à lui :</b> Votre question évoque celle de Baitos ben Zunin
 Rav Yeimar a répondu : <b>Mais selon votre raisonnement,</b> on peut réfuter <b>ce que Rabbi Asi a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Bien que les Sages aient interdit le blanchiment les jours intermédiaires d'une Fête, <b>celui qui n'a qu'une seule chemise est autorisé à la blanchir les jours intermédiaires d'une Fête.</b> Ici aussi, on peut prétendre : Les gens <b>vont dire</b> métaphoriquement :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

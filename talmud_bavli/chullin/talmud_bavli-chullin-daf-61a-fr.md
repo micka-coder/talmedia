@@ -18,4 +18,4 @@ La Gemara objecte : <b>Mais tirons</b> plutôt <b>d'eux,</b> c'est-à-dire du re
 La Gemara répond : <b>Si oui, pourquoi ai-je</b> besoin du <b>corbeau que le Miséricordieux a écrit</b> parmi les oiseaux non cachères ? <b>Maintenant</b> qu'il est établi <b>qu'on ne mange</b> aucun oiseau <b>qui a trois</b> signes, <b>est-il</b> <b>nécessaire</b> de mentionner le corbeau, <b>qui n'en a</b> que <b>deux ?</b> Au contraire, les oiseaux explicitement listés comme non cachers sont interdits, et tous les autres oiseaux avec un nombre quelconque de signes sont cachers.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

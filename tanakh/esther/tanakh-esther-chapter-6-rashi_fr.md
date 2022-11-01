@@ -32,4 +32,4 @@
 <b>Puisque vous avez commencé à tomber, etc.</b> Elle dit : "Cette nation a été comparée aux étoiles et à la poussière. Quand ils descendent, ils descendent dans la poussière, et quand ils montent, ils montent jusqu'au ciel et aux étoiles."<sup>6</sup><i class="footnote">Masehet Megillah 15a. Zeresh et les conseillers d'Haman ont prévenu ce dernier que l'accession de Mordechai aux honneurs signifiait le début de la montée des Juifs et de la chute d'Haman. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

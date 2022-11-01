@@ -42,4 +42,4 @@ Il a été enseigné dans la mishna que si <b>le seize</b> de Nisan <b>se produi
 <b>Rava dit</b> une raison différente : <b>Le verset dit</b> concernant les Fêtes : "Et le premier jour, il y aura une convocation sacrée ; on n'y fera aucune sorte de travail, sauf ce que chacun doit manger, <b>seulement ce qui peut être fait pour vous"</b> (Exode 12:16). De ce verset, on peut déduire ce qui suit : <b>Cela,</b> c'est-à-dire la nourriture elle-même, vous pouvez la préparer, <b>mais</b> vous ne pouvez <b>pas</b> accomplir les actes qui <b>facilitent sa</b> préparation, qui doit être faite au préalable. Le mot <b>seulement</b> est également exclusif ; il indique que seule la préparation de la nourriture est autorisée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

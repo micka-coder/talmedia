@@ -20,5 +20,5 @@ Sur les vêtements : si sur un côté [seulement] ils ne bloquent pas. Mais [s'i
 ### michna 7
 On ne bloque pas dans le cas de tabliers appartenant à des travailleurs de la poix, des potiers ou des tailleurs d'arbres. Rabbi Judah dit : la même chose s'applique également aux sécheurs de fruits d'été. C'est la règle générale : s'il s'agit d'une chose que l'on se soucie suffisamment [d'enlever], elle bloque ; mais s'il s'agit d'une chose que l'on ne se soucie pas suffisamment [d'enlever], elle ne bloque pas.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Il a été enseigné dans la mishna : <b>Et</b> on peut aussi préparer <b>un ce
 La Gemara <b>souleve une objection</b> à partir de la <i>baraita</i> suivante : <b>Tous ceux que</b> les Sages ont <b>interdit de se marier les</b> jours intermédiaires d'une <b>fête</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

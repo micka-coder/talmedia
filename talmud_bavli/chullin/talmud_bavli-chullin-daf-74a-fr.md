@@ -51,4 +51,4 @@ La Guemara développe : Il <b>peut être soulevé selon</b> l'opinion de <b>Rabb
 Si <b>il a trouvé</b> en son sein <b>un fœtus vivant de neuf</b> mois</b>, <b>il nécessite</b> son propre <b>abattage,</b> car il est considéré comme un animal indépendant à part entière, <b>et</b> si l'on abat la mère et le fœtus le même jour, <b>on est responsable</b> de la violation de l'interdiction d'abattre un animal <b>lui-même et sa progéniture</b> le même jour ; c'est <b>la déclaration de Rabbi Meir. Et les rabbins disent :</b> Même lorsque le fœtus a neuf mois, il est toujours considéré comme faisant partie de sa mère, et <b>l'abattage de sa mère le rend permis</b> pour la consommation.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

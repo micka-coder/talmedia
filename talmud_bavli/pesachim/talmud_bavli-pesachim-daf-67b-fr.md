@@ -39,4 +39,4 @@ La Gemara répond : <b>Non, en fait</b> il est possible de dire que la comparais
 La Gemara <b>souleve une objection :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

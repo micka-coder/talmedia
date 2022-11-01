@@ -39,4 +39,4 @@ La Gemara conclut : <b>A l'égard de tous ces cas</b>, la réservation de <b>bie
 <b>Et Rav Ḥiyya bar Avin</b> dit que <b>Rav Huna dit : Il existe trois</b> types d'<b>actes. Deux</b> sont <b>ceux que nous avons énoncés</b> ci-dessus, et <b>l'autre</b> est le suivant : <b>Si le vendeur a rédigé l'acte à l'avance</b> et l'a conservé jusqu'à ce que l'acheteur vienne le payer. La Gemara ajoute entre parenthèses : Ceci est <b>comme ce</b> <i>halakha</i> <b>que nous avons appris</b> dans une mishna (167b) :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

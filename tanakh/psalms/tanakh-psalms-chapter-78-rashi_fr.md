@@ -189,4 +189,4 @@ Une autre explication :  לא זרוּ מתאותם  Ils ne se sont pas éloign�
 <b>Depuis derrière les brebis allaitantes, il l'a amené</b> Car il gardait les brebis allaitantes pour son père, parce qu'il était miséricordieux et qu'il amenait les chevreaux en premier et les nourrissait des pointes supérieures des herbes, qui sont tendres. Puis, après elles, il ferait sortir les boucs, qui mangeraient le milieu des herbes, et ensuite, il ferait sortir les plus âgés, qui mangeraient les racines. Le Saint, béni soit-Il, dit : "Celui-ci est apte à paître mon peuple".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ Si <b>Il avait des fonds non alloués,</b> ils <b>seront alloués pour</b> les <
 <strong>GEMARA:</strong> La mishna a enseigné qu'un <b>homme</b> peut faire le vœu que son fils soit un nazirite, <b>mais une femme ne peut</b> le faire. La Guemara demande : <b>Quelle est la raison</b> de ceci ? <b>Rabbi Yoḥanan dit : C'est une <i>halakha</i></b> transmise à Moïse depuis le Sinaï <b>en ce qui concerne un nazirite. Et Rabbi Yosei, fils de Rabbi Ḥanina,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

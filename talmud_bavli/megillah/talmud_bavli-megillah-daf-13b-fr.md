@@ -66,4 +66,4 @@ Par conséquent, Haman conclut : <b>S'il plaît au roi, qu'il soit écrit qu'ils
 Assuérus répond à la demande d'Haman : <b>"Et le roi dit à Haman : L'argent t'est donné ; le peuple aussi, tu en feras ce qui te semblera bon"</b> (Esther 3:11). <b>Rabbi Abba a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

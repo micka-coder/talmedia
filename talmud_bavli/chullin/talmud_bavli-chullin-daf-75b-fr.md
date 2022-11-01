@@ -51,4 +51,4 @@ La Guemara développe maintenant ces deux cas. Le cas de celui qui est <b>danger
 Le cas de <b><i>teruma</i> de la dîme de <i>demai</i></b> est <b>comme nous l'avons appris</b> dans une mishna (<i>Demai</i> 4:1) : En ce qui concerne <b><i>teruma</i> de la dîme de <i>demai</i>,</b> c'est-à-dire, <i>teruma</i> de la dîme qui a été séparée du produit d'un <i>am ha'aretz</i>, qui est soupçonné de ne pas séparer la dîme correctement, <b>cette</b> est tombée et <b>est retournée à sa</b> place originelle,</b> se mêlant au reste du produit dont elle avait été séparée, <b>Rabbi Shimon ben Shezuri dit : Même un jour de semaine, on peut demander</b> au <i>am ha'aretz</i> s'il a ou non séparé les dîmes nécessaires <b>et</b> ensuite <b>manger en se basant sur sa déclaration.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -6,4 +6,4 @@
 La Guemara demande : <b>Et Rabbi Eliezer, d'où dérive-t-il</b> le principe général <b>qu'une mitzva positive</b> <b>viendra annuler une interdiction ?</b> La Guemara répond : Il le <b>dérive</b> <b>de la mitzva des <b>bordures rituelles</b>. Comme il est enseigné</b> dans une <i>baraita</i> : Ce verset : <b>"Tu ne porteras pas diverses sortes</b> de laine et de lin" (Deutéronome 22:11),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

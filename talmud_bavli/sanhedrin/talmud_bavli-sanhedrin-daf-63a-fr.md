@@ -87,4 +87,4 @@ La Gemara répond : <b>Cette</b> <i>halakha</i> de Rabbi Eliezer est <b>conforme
 <b>Comme il est enseigné</b> dans une <i>baraita</i> à propos de l'offrande pascale : Le verset dit : <b>"Et tu n'en laisseras rien jusqu'au matin;</b> mais ce qui en restera jusqu'au matin, tu le brûleras au feu" (Exode 12:10). <b>Le verset vient fournir une mitzva positive</b> pour brûler les restes de viande <b>après avoir enfreint l'interdiction</b> de les laisser,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

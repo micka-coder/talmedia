@@ -9,4 +9,4 @@ En ce qui concerne les fagots de paille, les fagots de bois et les fagots de bri
 On ne peut pas faire naître un animal un jour de fête, et à plus forte raison on ne peut pas le faire naître le jour de Chabbat. Cependant, on peut l'aider à mettre bas. Et on peut faire naître une femme même le Chabbat, et appeler une sage-femme pour qu'elle se déplace d'un endroit à l'autre, même si le déplacement de la sage-femme implique la profanation du Chabbat. Et on peut profaner Chabbat pour une femme qui accouche. Et on peut attacher le cordon ombilical d'un enfant né le Chabbat. Rabbi Yosei dit : On peut même couper le cordon ombilical. Et toutes les exigences de la circoncision peuvent être accomplies pour un bébé dont le huitième jour de vie survient le Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

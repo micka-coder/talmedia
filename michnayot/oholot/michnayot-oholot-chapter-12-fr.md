@@ -23,5 +23,5 @@ Si sa circonférence est de vingt-quatre tefahs, elle rend impur tout ce qui se 
 ### michna 8
 Si une portion d'un cadavre de la taille d'une olive est collée sur le seuil : Rabbi Eliezer déclare la maison impure. Rabbi Josué la déclare propre. Si elle a été placée sous le seuil, le cas est jugé par la moitié [dans laquelle se trouve l'impureté]. S'il est collé au linteau, la maison devient impure. Rabbi Yose la déclare propre. Si elle était dans la maison, une personne touchant le linteau devient impure. Quant à la personne qui touche le seuil : Rabbi Eliezer le déclare impur. Rabbi Joshua dit : S'il le touche en un point situé en dessous d'un tefah [paume] [de la surface], il reste pur ; au-dessus de ce tefah, il devient impur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

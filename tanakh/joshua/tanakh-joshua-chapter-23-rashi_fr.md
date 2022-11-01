@@ -30,4 +30,4 @@
 <b>Et des épines.</b> C'est l'expression de camps. De même : "Et ils viendront sur toi avec des camps"<sup>2</sup><i class="footnote">Yechezkeil 23:24.</i> comme un bouclier (צִנָה) qui entoure une personne de trois côtés, comme il est dit : "Comme un bouclier, tu l'englobes de faveur"<sup>3</sup><i class="footnote">Tehillim 5:13. </i> תַּעְטְרֶנוּ signifiant תְּסוֹבְבֶנוּ, entourant, semblable à "Et Shaul et ses hommes entourèrent David et ses hommes. "<sup>4</sup><i class="footnote">I Chmouel 23:26.</i> עוֹטְרִים signifiant סוֹבְבִים, entourer.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

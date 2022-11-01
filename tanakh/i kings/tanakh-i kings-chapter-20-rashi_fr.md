@@ -124,4 +124,4 @@
 <b>Détresse et colère.</b> [Le Targum Yonathan a rendu,] "lésé et triste". Son esprit s'est détourné [סר] de lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

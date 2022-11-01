@@ -51,4 +51,4 @@ Le <i>baraita</i> demande : Pourquoi cette dérivation est-elle nécessaire ? <b
 La Gemara objecte : <b>Mais</b> on <b>peut dire</b> que <b>cette affirmation,</b> que la décharge de <i>ziva</i> transmet l'impureté, ne s'applique qu'à la transmission de l'impureté <b>par contact. Mais</b> en ce qui concerne la transmission de l'impureté <b>par le portage</b>, elle ne transmet <b>pas</b> l'impureté, <b>comme c'est le cas pour</b> la carcasse d'un <b>animal rampant,</b> qui transmet l'impureté par contact mais pas par portage. <b>Rav Beivai bar Abaye a dit : Un verset n'était pas nécessaire</b> pour enseigner que la <i>ziva</i> transmet l'impureté rituelle <b>par contact, car</b> la <i>halakha</i> à l'égard de la <i>ziva</i> n'est <b>pas moins rigoureuse</b> qu'à l'égard du <b>semen,</b> qui transmet l'impureté par contact.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

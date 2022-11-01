@@ -45,4 +45,4 @@ Quelque peu lié au cas du tonneau discuté précédemment qui était un cas de 
 <b>Le Maître</b> a également <b>dit</b> dans la <i>Tosefta : </i> Une personne qui se tient sur le seuil peut prendre un objet du propriétaire et lui donner un objet, et elle peut prendre un objet du pauvre ou lui donner un objet, <b>à condition de ne pas prendre</b> l'objet <b>du propriétaire et le donner</b> <b>à un pauvre</b> ou <b>du pauvre et le donner</b> <b>au propriétaire. Et,</b> cependant</b>, s'il a pris</b> un objet de l'un <b>et l'a donné</b> à l'autre, certainement aucun travail interdit par la loi de la Torah n'a été effectué dans ce cas, et tous les <b>trois sont exemptés.</b> La Gemara demande : <b>Dit que cela sera une réfutation concluante de l'opinion de Rava</b>, <b>car Rava a dit : Celui qui transfère un objet du début de quatre</b> coudées <b>à la fin de quatre</b> coudées <b>dans le domaine public, même s'il l'a transféré</b> au-dessus de la limite supérieure du domaine public.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

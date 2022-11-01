@@ -57,4 +57,4 @@ La Guemara revient maintenant à sa suggestion selon laquelle la contradiction e
 La Guemara propose une autre résolution de la contradiction entre les <i>baraitot</i> concernant la validité ou l'invalidité des aspersions de la génisse rouge lorsqu'elles sont effectuées pas précisément vers l'entrée de la Tente de la Rencontre. <b>Rava a dit :</b> Tant <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> sont conformes à l'avis des <b>rabbins :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

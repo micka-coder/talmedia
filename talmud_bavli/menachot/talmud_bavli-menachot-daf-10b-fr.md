@@ -24,7 +24,7 @@ La Guemara répond : L'analogie verbale <b>est nécessaire uniquement pour la po
 § La mishna enseigne : Si un prêtre <b>enlevait la poignée</b> de farine, <b>et qu'une pierre ou un grain de sel émergeait dans sa main,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 La Gemara demande : <b>Mais</b> n'y a-t-il pas l'<b>aspersion</b> du sang, <b>concernant uniquement</b> la <b>prêtrise est écrite</b> dans le verset, <b>et nous avons appris : </b> Si <b>quelqu'un aspergeait</b> le sang <b>avec</b> sa main <b>gauche</b>, il est <b>disqualifié ; et Rabbi Shimon n'est pas en désaccord</b> avec cette décision, ce qui indique que Rabbi Shimon considère que la mention du sacerdoce ne nécessite pas la mention du mot doigt ? <b>Abaye dit : Il n'est pas d'accord</b> avec cette décision <b>dans un <i>baraita</i>, car il est enseigné</b> dans un <i>baraita</i> : Si <b>on a recueilli</b> le sang <b>avec</b> sa <b>main gauche</b>, il est <b>disqualifié, et Rabbi Shimon le juge</b> <b>adéquat. </De plus, si quelqu'un a aspergé le sang avec sa main gauche, il est disqualifié et Rabbi Shimon le considère comme convenable.
 
@@ -50,4 +50,4 @@ La Guemara répond : L'analogie verbale <b>est nécessaire uniquement pour la po
 § La mishna enseigne : Si un prêtre <b>enlevait la poignée</b> de farine, <b>et qu'une pierre ou un grain de sel émergeait dans sa main,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

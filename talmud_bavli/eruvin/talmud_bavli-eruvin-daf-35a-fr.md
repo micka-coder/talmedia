@@ -60,4 +60,4 @@ La Gemara commente : <b>Et</b> les deux décisions, celle concernant un <i>eirou
 La mishna précise en outre : <b>Ou</b> si le <i>eirouv</i> <b>a été brûlé,</b> ou si le <i>eirouv</i> était <b><i>teruma</i> qui est devenu</b> rituellement <b>impur</b> avant Chabbat, ce n'est pas un <i>eirouv</i> valide. La Guemara demande : <b>Pourquoi ai-je besoin</b> d'enseigner ces deux cas ? Le point essentiel des deux cas est le même : le <i>eirouv</i> n'est plus propre à être mangé. La Guemara répond : La mishna <b>a enseigné</b> le cas où le <i>eiruv</i> <b>a été brûlé</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

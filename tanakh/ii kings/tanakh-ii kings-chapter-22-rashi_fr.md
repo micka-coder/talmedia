@@ -45,7 +45,7 @@
 <b>Et tu seras recueilli dans ta tombe en paix.</b> Et qu'est-ce que la paix ? <sup>12</sup><i class="footnote">Bien que Yoshiyahou ait été tué dans une bataille avec Paro Necho, il est considéré comme étant mort en paix car il est mort alors que les Bnei Israël vivaient en paix, avant que la destruction ne commence. -Radak</i> "Tes yeux ne verront pas", la destruction du Beis [Hamikdosh].<sup>13</sup><i class="footnote">Voir Masehet Moed Katan 28b.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -92,4 +92,4 @@
 <b>Et tu seras recueilli dans ta tombe en paix.</b> Et qu'est-ce que la paix ? <sup>12</sup><i class="footnote">Bien que Yoshiyahou ait été tué dans une bataille avec Paro Necho, il est considéré comme étant mort en paix car il est mort alors que les Bnei Israël vivaient en paix, avant que la destruction ne commence. -Radak</i> "Tes yeux ne verront pas", la destruction du Beis [Hamikdosh].<sup>13</sup><i class="footnote">Voir Masehet Moed Katan 28b.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara cite une <i>halakha</i> similaire impliquant l'interposition d'un obj
 <b>Rabba bar Rav Huna dit : Un seul cheveu attaché</b> en un nœud <b>interpose</b> et invalide une immersion.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

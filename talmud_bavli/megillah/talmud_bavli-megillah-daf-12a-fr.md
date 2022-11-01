@@ -57,4 +57,4 @@ Le verset dit : <b>"Personne n'a contraint"</b> (Esther 1:8). <b>Rabbi Elazar a 
 Le verset indique : <b>Aussi la reine Vashti fit un festin pour les femmes, dans la maison royale,</b> qui appartenait au roi Assuérus" (Esther 1:9). La Guemara se demande pourquoi elle a organisé le festin dans la maison royale, un lieu d'hommes, plutôt que dans <b>la maison des femmes,</b> où il <b>aurait dû être. Rava dit</b> en réponse : <b>Ils avaient tous deux des intentions pécheresses.</b> Assuérus souhaitait forniquer avec les femmes, et Vashti souhaitait forniquer avec les hommes. <b>Ceci</b> explique le dicton populaire <b>que les gens disent : Celui qui a des citrouilles et sa femme</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

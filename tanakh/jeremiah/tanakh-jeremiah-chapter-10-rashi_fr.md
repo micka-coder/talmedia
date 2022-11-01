@@ -86,7 +86,7 @@
 <b>they have devoured</b> (devorerent en français). Il en va de même pour "et l'ont consumé" (ואכלהוּ).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -174,4 +174,4 @@
 <b>they have devoured</b> (devorerent en français). Il en va de même pour "et l'ont consumé" (ואכלהוּ).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

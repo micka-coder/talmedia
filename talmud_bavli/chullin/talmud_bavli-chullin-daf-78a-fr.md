@@ -9,4 +9,4 @@
 <b>Ravina a dit : Selon l'avis de qui</b> <b>on accroche des grappes de <b>dates non mûres</b> à un palmier</b> qui jette ses dattes, alors que c'est la pratique des Amorites ? C'est <b>conforme</b> à l'opinion de <b>ce <i>tanna</i></b> du <i>baraita</i> qui vient d'être cité, qui affirme qu'il faut annoncer de tels événements aux masses afin qu'elles prient pour la miséricorde.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

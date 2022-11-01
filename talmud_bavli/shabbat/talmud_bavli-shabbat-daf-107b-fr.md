@@ -36,4 +36,4 @@ Nous avons appris dans la mishna que <b>celui qui piège</b> des animaux rampant
 <b>Mar bar Hamdurei a dit</b> que <b>Shmuel a dit : Celui qui a porté sa main dans les entrailles d'un animal</b> le Chabbat <b>et a détaché un fœtus qui se trouvait dans son ventre est responsable.</b> La Gemara demande : <b>Quelle est la raison</b> pour cela ? Cela n'a pas de sens de considérer le fœtus comme un être vivant à part entière. <b>Rava dit : Bar Hamdurei a expliqué</b> ceci <b>à moi. Rav Sheshet n'a-t-il pas dit : Celui</b> qui <b>détache le houblon</b> le Chabbat <b>des arbustes et des épines</b> sur lesquels il pousse <b>est responsable du déracinement d'un objet de son</b> lieu de <b>croissance ? Ici aussi,</b> dans le cas du fœtus, <b>on est responsable de déraciner un objet de son</b> lieu de <b>croissance. Abaye a dit : Celui qui a détaché</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -130,4 +130,4 @@
 <b>était construit</b> Heb.  וַתִּקָשֵּׁר, lit. il a été lié. Lorsque la muraille fut liée et construite jusqu'à sa moitié, le peuple était impatient et désireux d'achever sa construction. 
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

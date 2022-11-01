@@ -98,7 +98,7 @@
 <b>Et l'œuvre de Mes mains</b> Je leur ai montré par les exploits que j'ai accomplis merveilleusement contre l'Assyrie, et par ces miracles, ils se repentiront et seront comme si Je venais de les faire à nouveau, et ils seront Mon héritage, Israël. Jonathan a paraphrasé cela d'une manière similaire.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>est monté sur un nuage léger</b> rapidement pour envoyer facilement et rapidement le décret de sa parole pour punir l'Égypte.
 <b>et les idoles de l'Égypte trembleront devant Lui</b> Elles n'auront aucun pouvoir pour sauver leur peuple des messagers du roi d'Assyrie. Le prophète a présenté le châtiment de l'Égypte de cette manière, contrairement à la manière dont il l'a présenté aux autres nations, parce qu'elles sont habituées à être punies de cette manière. Le prophète présente le châtiment de l'Égypte de cette manière, contrairement aux autres nations, parce qu'elles ont l'habitude d'être punies de cette façon : "Je passerai par le pays d'Égypte... et je punirai tous les dieux de l'Égypte" (Exode 12:12).
@@ -198,4 +198,4 @@
 <b>Et l'œuvre de Mes mains</b> Je leur ai montré par les exploits que j'ai accomplis merveilleusement contre l'Assyrie, et par ces miracles, ils se repentiront et seront comme si Je venais de les faire à nouveau, et ils seront Mon héritage, Israël. Jonathan a paraphrasé cela d'une manière similaire.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

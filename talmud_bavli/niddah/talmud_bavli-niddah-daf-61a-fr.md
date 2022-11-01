@@ -63,4 +63,4 @@ La Gemara cite la source de cette affirmation. <b>Comme il est dit : "Et il vint
 § La Guemara cite un autre cas dans lequel un objet impur a été perdu, similaire au cas discuté ci-dessus concernant le tas de pierres. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Le sang menstruel est lui-même une source d'impureté. En ce qui concerne <b>un vêtement dans lequel</b> une <b>tache de sang s'est perdue,</b> c'est-à-dire qu'il est difficile de déterminer si le sang est encore sur le vêtement, <b>on lui applique,</b> c'est-à-dire qu'on le frotte avec, <b>sept</b> substances <b>abrasives</b> qui sont connues pour enlever les taches de sang, <b>et</b> ainsi <b>annulent</b> la tache de sang, de sorte que le vêtement est pur. <b>Rabbi Shimon ben Elazar dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

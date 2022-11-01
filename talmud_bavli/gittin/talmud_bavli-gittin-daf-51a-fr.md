@@ -63,4 +63,4 @@ Rabbi Yitzḥak dit aussi : Si le propriétaire de l'objet perdu dit au trouveur
 Une question peut être soulevée contre ces décisions de Rabbi Yitzḥak : <b>Mais Rabbi Yitzḥak n'accepte-t-il pas</b> la <i>halakha</i> énoncée dans la mishna selon laquelle <b>celui qui trouve un objet perdu n'est pas</b> tenu de <b>prêter serment,</b> ceci étant un texte institué <b>pour l'amélioration du monde ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

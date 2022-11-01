@@ -20,5 +20,5 @@
 ### passuk 8
 <b> זֵית שֶׁמֶן - (littéralement, l'olive d'huile).</b> Sa signification est, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>les olives qui produisent de l'huile. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

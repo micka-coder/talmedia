@@ -108,4 +108,4 @@
 <b>Voici les rois</b> Il est expliqué (<i>Gen. Rab.</i> 83:2) : Rabbi Aibu a dit : C'était avant qu'un roi ne règne en Israël, mais depuis qu'un roi a régné en Israël, un gouverneur a régné en Edom. Rabbi Jose, fils de Hanina, dit : Quand celui-ci [Édom] nomme des rois, celui-là [Israël] nomme des juges ; quand celui-ci nomme des chefs, celui-là nomme des princes. Rabbi Josué, fils de Lévi, dit : Celui-ci [Edom] a nommé huit [rois] et celui-ci : [Israël] a nommé huit [rois], et j'ai entendu [les gens demander] : Edom n'avait-il que ces huit rois, et Israël n'en avait-il que huit ? N'y en avait-il pas d'autres ? Joram, Achazia, Joas, etc. L'affirmation selon laquelle celui-ci a nommé huit rois signifie plutôt que lorsqu'ils [Édom] ont nommé ces huit rois d'Édom, ils [Israël] n'ont pas nommé les rois d'Israël, car ils étaient devant David et les chefs des maisons de ses pères.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

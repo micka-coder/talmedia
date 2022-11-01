@@ -39,4 +39,4 @@ La Guemara répond que la contradiction entre cette déclaration concernant <b>u
 La Guemara objecte : <b>Et en ce qui concerne le reste des anneaux,</b> Rabbi Yosei, fils de Rabbi Yehuda, n'a <b>pas</b> énoncé sa <i>halakha</i> ; <b>mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei, fils de Rabbi Yehuda, dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Gemara répond : <b>Venez</b> et <b>entendez</b> ce <b>que Rabbi Yoḥanan di
 La Guemara répond : <b>Venez</b> et <b>entendez</b> ce <b>que Rava a dit</b> à l'égard de celui qui a dit : Je fais le serment que je ne mangerai pas, je fais le serment que je ne mangerai pas : <b>Si</b> une autorité halakhique <b>a été sollicitée pour</b> dissoudre le <b>premier</b> serment et l'a dissous, le <b>second</b> serment <b>entre en vigueur pour lui.</b> De même, la seconde ratification entre en vigueur. <b>Rabba</b> demande en outre :</b> S'il lui a dit : Le vœu est <b>ratifié pour toi et annulé pour toi, et la ratification ne prendra effet que si l'annulation prend effet, quel est</b> le <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

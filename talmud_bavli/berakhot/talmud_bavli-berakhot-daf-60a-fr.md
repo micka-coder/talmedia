@@ -90,4 +90,4 @@ La Gemara relate : <b>Rabbi Abbahou est entre dans une maison de bain lorsque le
 En ce qui concerne la saignee, la Gemara demande : <b>Lorsqu'on se leve</b> apres avoir fait couler du sang, <b>que dit-il ? Rav Aha repond : <b>Il recite en signe de gratitude : <b>Grace a celui qui guerit sans payer.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

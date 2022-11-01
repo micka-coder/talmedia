@@ -66,7 +66,7 @@
 <b>Pharaon Hophra</b> Heb. פרעה חפרע, rendu par Jonathan par פרעֹה תבירה, le Pharaon brisé, et ce 'heth' sert à la place d'un 'heh'.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -134,4 +134,4 @@
 <b>Pharaon Hophra</b> Heb. פרעה חפרע, rendu par Jonathan par פרעֹה תבירה, le Pharaon brisé, et ce 'heth' sert à la place d'un 'heh'.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara revient pour discuter de la décision de Shmuel'. <b>Et Shmuel a dit 
 <b>Il a été</b> en outre <b>établi</b> que ces mêmes <i>amora'im</i> étaient en désaccord en ce qui concerne <b>un</b> grand <b>sacrifice. Rav a dit : Il est permis de déplacer</b> un objet <b>à travers</b> l'ensemble du navire, car il s'agit d'un seul domaine ; <b>et Shmuel a dit : On peut déplacer</b> un objet <b>dans celui-ci uniquement dans un rayon de quatre</b> coudées. La Guemara procède à la clarification de leurs opinions respectives. <b>Rav a dit : Il est permis de déplacer</b> un objet <b>dans tout</b> le bateau,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

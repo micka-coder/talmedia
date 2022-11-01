@@ -42,4 +42,4 @@ La Gemara note : <b>Nous avons dit</b> que ce doute est pris en compte <b>seulem
 La Gemara demande : <b>Devons-nous dire</b> que <b>Rav a dit</b> sa décision <b>conformément</b> à l'opinion de <b>Rabbi Meir, qui a dit</b> que les <b>témoins signataires</b> sur le document <b>effectuent</b> la transaction ? Ici, puisque le vendeur ou le donateur du champ n'a pas demandé aux témoins signataires de noter l'heure exacte, cela implique qu'il souhaitait le donner à deux personnes, mais qu'il ne voulait pas révéler qu'il le donnait aux deux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

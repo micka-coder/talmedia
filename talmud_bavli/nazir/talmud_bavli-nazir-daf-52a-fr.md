@@ -24,4 +24,4 @@ La Gemara déduit de cet incident : <b>La raison</b> pour laquelle il est rituel
 La Gemara suggère en outre : <b>Venez</b> et <b>entendez le décompte</b> dans la <i>baraita</i> ci-dessus : <b>Et quels sont ces six objets que Rabbi Akiva juge rituellement impurs et que les rabbins jugent rituellement purs ?</b> Ils consistent <b>en un membre d'un cadavre qui provient de,</b> c'est-à-dire, est combiné avec, <b>deux cadavres ; et</b> un <b>membre coupé d'une personne vivante</b> <b>qui provient de deux</b> personnes vivantes ; et un demi-<i>kav</i> d'ossements qui proviennent de deux cadavres ; et un quart-</b><i>log</i> <b>de sang qui provient de deux</b> cadavres ; <b>et d'un os qui est un grain d'orge-bulle,</b> même d'un corps, <b>qui a été divisé en deux ; et la colonne vertébrale et le crâne</b> de deux cadavres.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

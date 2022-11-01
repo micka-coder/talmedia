@@ -45,4 +45,4 @@ La Guemara demande : <b>Et Rabbi Shimon ben Lakish a-t-il dit ceci,</b> que l'ab
 <b>Et nous disons : N'est-ce pas</b> le <b>dilemme que soulève Ilfa : Si un fœtus a étendu sa patte antérieure</b> hors du ventre de sa mère pendant l'abattage, <b>entre</b> la coupe du premier <b><i>siman</i>,</b> la trachée, et du second <b><i>siman</i>,</b> l'œsophage, faisant ainsi que la patte antérieure a le statut de <i>tereifa</i>, <b>qu'est-ce que</b> la <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

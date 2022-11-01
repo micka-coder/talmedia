@@ -69,7 +69,7 @@ Rav Ḥiyya bar Adda lui <b>dit : Père m'a laissé une branche</b> d'une vigne,
 <b>Rabbi Ya'akov ben Dostai a dit : Il y a trois <i>mil</i> de Lud à Ono. Une fois, je me suis levé tôt le matin et j'ai marché dans du miel jusqu'aux chevilles</b> suintant <b>des figuiers. Reish Lakish a dit : J'ai vu moi-même</b> une région appelée : Le lieu <b>débordant de lait et de miel par Tzippori, et c'était</b> une région qui couvrait <b>seize par seize <i>mil</i>,</b> 256 <i>mil</i> carrés. <b>Rabba bar bar Ḥana a dit : J'ai vu moi-même</b> la région <b>coulant de lait et de miel de tout Eretz Yisrael,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Sans appui, se tenir avec un appui,</b> c'est-à-dire un objet contre lequel on peut s'appuyer, <b>c'est mieux que ça.</b>
 
@@ -140,4 +140,4 @@ Rav Ḥiyya bar Adda lui <b>dit : Père m'a laissé une branche</b> d'une vigne,
 <b>Rabbi Ya'akov ben Dostai a dit : Il y a trois <i>mil</i> de Lud à Ono. Une fois, je me suis levé tôt le matin et j'ai marché dans du miel jusqu'aux chevilles</b> suintant <b>des figuiers. Reish Lakish a dit : J'ai vu moi-même</b> une région appelée : Le lieu <b>débordant de lait et de miel par Tzippori, et c'était</b> une région qui couvrait <b>seize par seize <i>mil</i>,</b> 256 <i>mil</i> carrés. <b>Rabba bar bar Ḥana a dit : J'ai vu moi-même</b> la région <b>coulant de lait et de miel de tout Eretz Yisrael,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

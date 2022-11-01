@@ -45,4 +45,4 @@ Rav Ḥiyya déduit de cette déclaration ce qui suit : La <b>raison</b> de cett
 La Gemara relate un autre incident : <b>Lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Reish Lakish a dit : Une femme fiancée qui est morte n'a pas de contrat de mariage. Abaye dit aux</b> savants qui ont récité cette <i>halakha</i> au nom de Ravin : <b>Allez,</b> et <b>dites à</b> Ravin :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

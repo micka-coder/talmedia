@@ -45,4 +45,4 @@ La Gemara répond : Ceci n'est <b>pas difficile. Ici,</b> la déclaration du <i>
 <b>Et si vous le souhaitez, dites</b> une réponse différente : Tant <b>cette</b> déclaration <b>que celle-là</b> ont été faites <b>après que la Voix Divine</b> ait annoncé que la <i>halakha</i> est conforme à Beit Hillel,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

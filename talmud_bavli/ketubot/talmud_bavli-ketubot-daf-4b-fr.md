@@ -36,4 +36,4 @@ La Guemara modifie la <i>baraita</i>. <b>Enseigner en ce qui concerne son deuil 
 <b>Rabbi Zeira a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

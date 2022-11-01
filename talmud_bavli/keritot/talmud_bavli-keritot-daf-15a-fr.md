@@ -84,4 +84,4 @@ Il s'agit du cas <b>d'une vigne grimpante qui est palissée sur un figuier, et i
 <strong>MISHNA :</strong> <b>Et en outre, Rabbi Akiva a demandé</b> Rabban Gamliel et Rabbi Yehoshua sur le marché aux viandes d'Emmaüs : <b>Quel est</b> le statut d'un <b>membre suspendu d'un animal ?</b> Est-ce qu'il transmet une impureté rituelle comme un membre coupé ? <b>Ils ont dit à</b> Rabbi Akiva : <b>Nous n'avons pas entendu</b> une décision de nos maîtres dans ce cas précis, <b>mais nous avons entendu</b> en ce qui concerne <b>un membre pendant d'une personne qu'il est rituellement pur. Et</b> de <b>cette</b> manière <b>serait</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

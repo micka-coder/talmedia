@@ -83,7 +83,7 @@
 <b>Heureux es-tu</b> Israël, que les semailles de ta justice aient réussi comme ceux qui sèment à toutes les eaux. Désormais, tu moissonneras et tu recueilleras le grain de ta bonne récompense ; tu enverras les pieds du bœuf pour battre le grain, et l'âne pour le porter dans la maison. C'est ainsi que Jonathan l'a rendu : Tu recevras la récompense de ton bon travail.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Voici, pour la justice, un roi régnera</b> Voici qu'un roi n'a pas le droit de régner, sauf pour exécuter un jugement juste.
 <b>Et sur des princes qui gouvernent avec justice</b> Et sur qui doit-il régner ? Sur des princes qui gouvernent avec justice. Le prophète dit cela à propos d'Achaz, qui était un homme méchant, mais Ézéchias, son fils, régnera, et il en est digne. ([Les manuscrits lisent :] Et il est digne de régner.)
@@ -168,4 +168,4 @@
 <b>Heureux es-tu</b> Israël, que les semailles de ta justice aient réussi comme ceux qui sèment à toutes les eaux. Désormais, tu moissonneras et tu recueilleras le grain de ta bonne récompense ; tu enverras les pieds du bœuf pour battre le grain, et l'âne pour le porter dans la maison. C'est ainsi que Jonathan l'a rendu : Tu recevras la récompense de ton bon travail.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

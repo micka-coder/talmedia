@@ -66,4 +66,4 @@
 <b>Il n'y eut pas de réponse,</b> car elle était morte.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -27,4 +27,4 @@ La Guemara note : <b>Et cette question</b> ne s'applique que dans un cas <b>où<
 La Gemara raconte : <b>Une rumeur a émergé concernant Rava bar Sharshom selon laquelle</b> il <b>profitait</b> de <b>terres appartenant à des orphelins. Abaye lui dit : Dis-moi, mon ami,</b> concernant <b>l'incident lui-même, comment se fait-il</b> que cette rumeur ait été générée ? Rava bar Sharshom <b>lui a dit : Je détenais</b> le terrain en garantie du père des orphelins, et j'avais</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

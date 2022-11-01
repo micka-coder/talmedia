@@ -48,4 +48,4 @@ On <b>pourrait</b> penser que seul celui qui touche <b>un animal rampant entier,
 § La mishna enseigne en outre que les <i>halakhot</i> de ceux avec qui les relations sont interdites ont quelque chose pour les soutenir. La Guemara demande : Les <i>halakhot</i> de <b>ceux avec qui les relations sont interdites sont écrites</b> explicitement dans la Torah. La Guemara répond : Ceci <b>est nécessaire seulement</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

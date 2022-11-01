@@ -33,4 +33,4 @@ La Gemara commente : <b>Et</b> il est <b>nécessaire</b> d'énoncer ces trois ve
 <b>Et</b> de même, <b>si la Torah <b>nous avait enseigné</b> seulement <b>cette</b> affaire de jugements monétaires, je dirais que ces jugements s'appliquent à une femme, <b>parce que</b> il y a des circonstances où s'engager dans des affaires <b>est son gagne-pain. Mais</b> en ce qui concerne le <b>ransom</b> que l'on paie lorsque son animal a tué quelqu'un, <b>je</b> dirais :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

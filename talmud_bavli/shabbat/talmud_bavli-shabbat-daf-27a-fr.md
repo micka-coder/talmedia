@@ -36,4 +36,4 @@ Cette affirmation est rejetée : <b>Et n'est-ce pas une déduction <i>a fortiori
 <b>Rav Naḥman bar Yitzḥak</b> a également <b>dit</b> que ces déclarations de la <i>tanna</i> de l'école de Rabbi Yishmael ne font pas référence aux <i>halakhot</i> d'impureté rituelle. Elles se réfèrent à un autre sujet. Selon lui, les <i>tanna</i> de l'école de Rabbi Yishmael en sont venues à dire que de même que les <i>halakhot</i> de la lèpre se limitent aux vêtements en laine ou en lin, <b>de même, toutes</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

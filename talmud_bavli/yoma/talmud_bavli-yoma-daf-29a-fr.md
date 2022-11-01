@@ -27,4 +27,4 @@ La Guemara répond que <b>Voici ce que</b> la mishna <b>dit :</b> L'incident s'e
 A propos de cette <i>halakha</i> fondamentale, <b>le père de Rabbi Avin enseignait</b> une <i>baraita</i> : <b>Non seulement ceci,</b> qu'une offrande quotidienne abattue avant l'aube est disqualifiée et brûlée, <b>disaient-ils ; plutôt, même</b> dans le cas du <b>pincement du</b> cou d'un <b>oiseau et de la prise de la poignée d'une offrande de repas</b> qui sont effectués <b>la nuit,</b> ces objets doivent <b>être brûlés.</b> La Guemara analyse la <i>baraïta</i> : <b>Accordé, un oiseau</b> sacrifié en tant qu'<b>holocauste</b> est disqualifié s'il est pincé avant l'aube ; <b>ce qui était, était.</b> On ne peut plus remédier à la situation et l'oiseau doit être brûlé. <b>Cependant,</b> pourquoi faudrait-il brûler <b>la poignée</b> d'une offrande de repas ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

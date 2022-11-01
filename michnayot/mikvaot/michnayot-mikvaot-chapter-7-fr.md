@@ -20,5 +20,5 @@ Si un mikvé contenait exactement quarante seahs et que deux personnes y descend
 ### michna 7
 Si l'on y immerge un lit, même si ses pieds s'enfoncent dans la boue épaisse, il reste propre car l'eau les a touchés avant [la boue]. Dans l'eau d'un mikvé qui est peu profonde, on peut presser même des fagots de bâtons, même des fagots de roseaux, afin que le niveau de l'eau monte, puis descendre et s'immerger. Si une aiguille [impure] est placée sur la marche [menant à un mikvé] dans une caverne, et que l'eau est mise en mouvement, une fois qu'une vague est passée dessus, [l'aiguille] devient propre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

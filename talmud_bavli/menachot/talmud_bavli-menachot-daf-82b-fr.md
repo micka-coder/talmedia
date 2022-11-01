@@ -42,4 +42,4 @@ La Guemara détaille ces aspects. Le verset stipule : "De l'<b>holocauste"</b> p
 La Guemara continue d'expliquer le verset susmentionné (Lévitique 7:37). Lorsque le verset mentionne <b>une offrande de repas,</b> il enseigne que <b>tout comme une offrande de repas n'est mangée que par les mâles de</b> la <b>prêtrise</b> (voir Lévitique 6:9-11), <b>de même toutes</b> les offrandes mentionnées dans ce verset <b>ne sont mangées que par les mâles de</b> la <b>prêtrise.</b> La Gemara demande : Par rapport à <b>quelle</b> offrande <b>est-ce</b> que cette <i>halakha</i> doit être dérivée ? <b>Si</b> on suggère que c'est par rapport à l'<b>offrande de péché et</b> l'<b>offrande de culpabilité,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

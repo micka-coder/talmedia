@@ -33,4 +33,4 @@ La Guemara soulève une dernière difficulté : Si l'on a violé la mitsva qui p
 <b>Rabbi Yoḥanan dit à</b> Reish Lakish :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

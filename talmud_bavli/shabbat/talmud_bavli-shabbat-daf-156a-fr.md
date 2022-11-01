@@ -42,4 +42,4 @@ La Gemara demande : <b>Quel est</b> le sens de la phrase : <b>Il n'y aura pas un
 Abraham <b>a dit devant Lui : Maître de l'Univers, j'ai regardé ma carte astrologique</b>, <b>et</b> selon la configuration de mes constellations <b>je ne suis pas apte à avoir un fils.</b> Le Saint, Béni soit-Il, lui <b>dit : Sors de ton astrologie,</b> comme le dit le verset : <b>Et il le fit sortir,</b> car il n'y a pas de constellation pour Israël. Qu'en pensez-vous ? </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

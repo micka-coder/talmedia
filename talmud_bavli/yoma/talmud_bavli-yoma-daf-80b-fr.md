@@ -30,4 +30,4 @@ La Guemara conteste cette affirmation : <b>Mais Rav Pappa</b> a-t-il réellement
 De même, <b>Rabbi Yirmeya a dit</b> que <b>Reish Lakish a dit : Un non-prêtre qui a mangé du <i>teruma</i> de manière excessive paie le principal,</b> ce qu'il a pris, <b>et ne paie pas le</b> <b>cinquième supplémentaire,</b> que celui qui mange illégalement du <i>teruma</i> paie au prêtre comme pénalité. C'est parce qu'il est dit à propos de celui qui mange du <i>teruma</i> : "Et <b>si</b> un homme <b>mange</b> de la chose sacrée par erreur, il y ajoutera un cinquième, et donnera au prêtre la chose sacrée" (Lévitique 22:14). Le mot " manger " exclut celui qui ne mange pas mais se <b>mange</b>. Il doit cependant payer le principal, puisqu'il a causé une perte au sacrificateur. Le cinquième n'est payé que par celui qui mange normalement, sans excès. De même, <b>Rabbi Yirmeya a dit</b> que <b>Rabbi Yoḥanan a dit : Un non-prêtre</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

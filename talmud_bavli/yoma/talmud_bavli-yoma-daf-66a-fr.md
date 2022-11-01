@@ -45,4 +45,4 @@ La Guemara conteste ce rejet : <b>Ce n'était pas enseigné</b> dans une <i>bara
 Il a été enseigné dans la mishna que le prêtre <b>passait</b> le bouc <b>à celui qui devait le conduire</b> dans le désert. <b>Les Sages ont enseigné,</b> en ce qui concerne le verset : "Et il l'enverra avec un homme désigné dans le désert" (Lévitique 16:21), que le midrash halakhique interprète le mot <b>homme</b> comme mentionné afin de <b>qualifier un non-prêtre</b> pour cette tâche. Le mot <b>nommé</b> indique...
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

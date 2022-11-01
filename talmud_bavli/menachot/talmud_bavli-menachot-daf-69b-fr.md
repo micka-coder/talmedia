@@ -33,4 +33,4 @@ La Guemara déclare que ces preuves ne sont pas concluantes, car <b>C'est en soi
 § En rapport avec la discussion précédente concernant un épi qui avait poussé d'un tiers avant l'<i>omer</i> et qui a ensuite été arraché et replanté, <b>Rabba soulève un dilemme : En ce qui concerne</b> l'obligation de <b>tithe, quelle</b> est la <i>halakha</i> d'un tel grain ? La Gemara demande : <b>Quelles sont les circonstances?</b> Les circonstances impliquent un cas <b>où</b>...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

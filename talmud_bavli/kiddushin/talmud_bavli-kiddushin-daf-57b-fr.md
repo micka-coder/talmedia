@@ -54,4 +54,4 @@ Le <i>baraita</i> continue : On <b>pourrait</b> avoir pensé que <b>on ne peut p
 Le <i>baraita</i> continue : <b>Et j'ai</b> dérivé <b>seulement</b> que l'interdiction de manger la viande après coup s'applique aux animaux <b>non sacrés</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

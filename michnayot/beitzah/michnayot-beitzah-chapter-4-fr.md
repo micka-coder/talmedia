@@ -20,5 +20,5 @@ Rabbi Eliezer dit : un homme peut prendre un morceau de ce qui se trouve devant 
 ### michna 7
 Il est interdit de faire du feu avec du bois, des pierres, de la terre ou de l'eau. On ne peut pas non plus faire chauffer des tuiles au rouge afin de les rôtir. Rabbi Eliezer a encore dit : Un homme peut se tenir près de son "muktzeh" la veille de Chabbat pendant l'année sabbatique et dire : "D'ici, je mangerai demain." Mais les Sages disent : [Cela ne fonctionne pas] à moins qu'il ne le marque et ne dise : "D'ici à là".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

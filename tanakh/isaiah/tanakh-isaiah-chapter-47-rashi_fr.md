@@ -56,7 +56,7 @@
 <b>Chacun s'est égaré sur son côté</b> chacun sur son chemin, sur le côté de son visage [c'est-à-dire que chacun s'est égaré dans la direction à laquelle il faisait face].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Sans trône</b> Sans royaume.
 <b>Pour ne plus</b> [lit. pour que tu ne continues pas,] qu'on t'appelle tendre et délicate.
@@ -114,4 +114,4 @@
 <b>Chacun s'est égaré sur son côté</b> chacun sur son chemin, sur le côté de son visage [c'est-à-dire que chacun s'est égaré dans la direction à laquelle il faisait face].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

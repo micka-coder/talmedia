@@ -57,4 +57,4 @@ La Gemara objecte : <b>Et Rabbi</b> Yehuda HaNasi <b>tient-il</b> que <b>le deui
 La Gemara répond : <b>En fait,</b> Rabbi Yehuda HaNasi soutient que le deuil aigu la nuit après le décès <b>est par la loi rabbinique,</b> pas par la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

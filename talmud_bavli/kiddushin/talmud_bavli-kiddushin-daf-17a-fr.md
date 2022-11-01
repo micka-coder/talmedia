@@ -54,4 +54,4 @@ La Guemara demande : <b>Et Rabbi Shimon,</b> pourquoi exclut-il l'argent mais pa
 La Gemara note : <b>Et il est nécessaire</b> que la Torah mentionne un troupeau, une aire de battage et un pressoir, <b>car, si le Miséricordieux avait écrit</b> seulement <b>"troupeau", je dirais</b> que <b>les animaux, oui,</b> le maître peut les donner à son esclave à sa libération, mais ce qui <b>pousse du sol, non,</b> il ne peut pas les donner. Par conséquent, <b>Le Miséricordieux écrit "aire de battage". Et si</b> la Torah <b>avait écrit</b> seulement <b>"aire de battage", je dirais</b> que ce qui <b>pousse du sol, oui,</b> il peut les donner, mais <b>les animaux, non,</b> il ne peut pas les donner. Par conséquent, <b>Le Miséricordieux écrit "troupeau". </b> La Gemara demande : Puisque l'aire de battage est énoncée, <b>pourquoi ai-je</b> besoin de la mention d'un <b>pressoir à vin ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

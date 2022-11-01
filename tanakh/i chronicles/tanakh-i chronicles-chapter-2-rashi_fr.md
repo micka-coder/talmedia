@@ -153,4 +153,4 @@
 <b>Ils sont les Kinites</b> orfèvres. (Jud. 16:4) "... et elle le donna à l'orfèvre." Le Targum rend צוֹרֵף par קִינָאָה.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara répond : <b>Cette</b> <i>halakha</b> <b>de Rabbi Abbahou</b> concerna
 § Il est enseigné dans la mishna que <b>tous</b> ceux <b>qui sont rituellement impurs</b> avec tout type d'impureté rituelle ne peuvent pas manger de <i>teruma</i>. La Gemara demande : <b>D'où proviennent ces questions</b> ? <b>Rabbi Yoḥanan a dit au nom de Rabbi Yishmael : Le verset dit : "Tout homme de la descendance d'Aaron qui est lépreux ou <i>zav</i></b> ne mangera pas des choses saintes jusqu'à ce qu'il soit pur" (Lévitique 22:4). Or, <b>cette question est la même</b> .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

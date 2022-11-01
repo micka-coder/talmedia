@@ -63,4 +63,4 @@ La Gemara demande : <b>Si l'on veut dire</b> que <b>puisqu'il a ramené</b> chaq
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de la mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

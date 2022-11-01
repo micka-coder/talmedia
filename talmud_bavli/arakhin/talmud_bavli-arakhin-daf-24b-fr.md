@@ -36,4 +36,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de l'opinion de
 La Gemara répond : <b>Tu maintiens</b> que la mishna fait référence à l'année <b>actuelle</b> <b>après</b> l'année du <b>Jubilé</b> ? Ce n'est pas le cas ; c'est plutôt à <b>quoi</b> que se réfère la phrase : <b>Après</b> l'année <b>Jubilaire</b>, fait-elle réellement référence ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

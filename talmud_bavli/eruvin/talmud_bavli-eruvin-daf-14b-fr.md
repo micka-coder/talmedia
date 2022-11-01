@@ -60,4 +60,4 @@ La Guemara rapporte que <b>Rav Raḥumei a enseigné cette</b> version de la dis
 La Guemara note que <b>Il y a</b> ceux <b>qui ont enseigné</b> que <b>cette</b> réponse a été donnée <b>par rapport à cette</b> discussion : <b>Quelqu'un qui boit de l'eau</b> pour étancher <b>sa soif récite</b> la bénédiction suivante avant de boire : <b>Par la parole de qui tout a été créé. Rabbi Tarfon</b> n'est pas d'accord et <b>dit</b> qu'il récite la bénédiction : <b>Qui crée les nombreuses formes de vie et leurs besoins, pour tout ce que Tu as créé. Rav Ḥanan dit à Abaye : Qu'est-ce que la <i>halakha</i> ? Il lui a répondu : Sors</b> et observe <b>ce que font les gens;</b> la pratique habituelle est de dire : Par la parole de qui toutes choses ont été créées.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

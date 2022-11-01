@@ -24,4 +24,4 @@ Si l'on dit : Je ne laisserai pas les <b>prêtres</b> et les <b>Lévites profite
 <b>Rav Naḥman a dit : En fait,</b> un mari <b>n'est pas inclus dans</b> sa référence aux <b>gens,</b> et son vœu de ne pas tirer profit de tous les gens ne l'inclut pas, c'est pourquoi il ne peut pas l'annuler. <b>Et voici ce que</b> la mishna <b>enseigne :</b> Le mari ne peut pas annuler le vœu de sa femme, car même si <b>elle divorce</b> et ne peut plus tirer de bénéfice de son mari, puisqu'il est maintenant inclus dans sa référence aux personnes, <b>elle peut</b> encore <b>bénéficier des glanes, des gerbes oubliées</b>, <b>et du <i>pe'a</i>.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -140,7 +140,7 @@
 <b>les tumultueux</b> Heb. בני שאון, ceux qui élèveraient la voix en se vantant.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Misgab</b> Un nom de lieu.
 
@@ -282,4 +282,4 @@
 <b>les tumultueux</b> Heb. בני שאון, ceux qui élèveraient la voix en se vantant.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais n'est-il pas écrit : "Et la Tirshatha leur dit qu'i
 La Gemara répond : <b>Voici</b> ce que dit le Tirshatha <b>:</b> Ils ne peuvent <b>pas</b> prendre part à <b>tout ce qui est appelé sacré [<i>kodesh</i>], ni à tout ce qui est appelé le plus sacré [<i>kodashim</i>].</b> La Gemara précise. Les mots <b>rien de ce qui est appelé sacré</b> font référence au <i>teruma</i>, <b>comme il est écrit</b> à propos du <i>teruma</i> : <b>"Aucun non-prêtre ne peut manger du sacré"</b> (Lévitique 22:10). Et les mots <b>ni rien de ce qui est appelé le plus sacré</b> font référence aux offrandes, <b>comme le précise le verset : "Et une fille de prêtre, si elle est mariée à un non-prêtre, elle ne pourra pas manger de ce qui est mis à part des choses sacrées"</b> (Lévitique 22:12). <b>Et le Maître dit :</b> Quelle est la signification de "ce qui est mis à part des choses sacrées" ? Cela signifie <b>de</b> les portions <b>séparées des offrandes,</b> c'est-à-dire la poitrine et la cuisse d'un sacrifice de paix,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

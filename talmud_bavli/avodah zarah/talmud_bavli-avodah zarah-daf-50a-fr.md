@@ -36,4 +36,4 @@ La Gemara demande : <b>Quelle est la raison de celui qui se retire</b> de ces ch
 <b>Rav Yosef bar Abba a dit : Rabba bar Yirmeya est arrivé</b> à venir <b>dans notre localité, et</b> quand <b>il est venu, il a apporté</b> la <b><i>baraïta</i> suivante avec lui :</b> Dans le cas d'un <b>gentil qui a apporté des pierres provenant</b> d'un tas dédié à <b>Mercure et a pavé des chemins et des théâtres avec elles,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -75,4 +75,4 @@ La Guemara clarifie : <b>A propos de quoi sont-ils en désaccord ? Les rabbins i
 Comment ? <b>Les rabbins exposent</b> les versets sur la base du principe des <b>généralisations et des détails.</b> La phrase <b>"Et il est mis à mort, et vous le pendrez</b>" est <b>une généralisation,</b> car aucun délit particulier n'est spécifié. La phrase <b>"Car</b> celui qui est pendu est <b>une malédiction de</b> Dieu" est <b>un détail,</b> car une transgression spécifique est mentionnée. <b>Si</b> la généralisation et le détail <b>se trouvaient l'un à côté de l'autre</b> dans le même verset, <b>nous appliquerions</b> le principe des généralisations et des détails et <b>direions</b> que <b>la généralisation ne comprend que ce qui est</b> énoncé <b>dans le détail. </b> Par conséquent, <b>ce transgresseur</b>, le blasphémateur, <b>oui,</b> son cadavre est susceptible d'être pendu après son exécution, mais le cadavre de <b>toute autre personne</b> ne l'est <b>pas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

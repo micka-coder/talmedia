@@ -48,4 +48,4 @@ La Guemara répond : La mishna fait référence à un cas <b>où sa santé <b>se
 § La mishna déclare : Un mari <b>peut émettre un avertissement</b> à sa femme <b>à l'égard de tous ceux avec qui les relations sont interdites,</b> par exemple, son père ou son frère. La Gemara demande : <b>N'est-ce pas évident ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

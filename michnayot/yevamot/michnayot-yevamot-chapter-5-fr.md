@@ -17,5 +17,5 @@ S'il a accompli la halitzah [pour l'une] et ensuite accompli la halitzah [pour l
 ### michna 6
 [Si le yavam] a accompli la halitzah puis a fait ma"amar, lui a donné un get, ou a eu des rapports sexuels avec elle ; ou s'il a eu des rapports sexuels avec elle puis a fait ma'amar, lui a donné un get, ou a accompli la halitzah, il n'y a pas d'acte valable après la halitzah,que [cela ait été accompli] au début, au milieu ou à la fin. En ce qui concerne les rapports sexuels, s'ils ont eu lieu en premier, il n'y a pas d'acte valide après ; s'ils ont eu lieu au milieu ou à la fin, il peut y avoir un acte valide après. Rabbi Néhémie dit : pour les rapports sexuels et la halizah, qu'ils aient eu lieu au début, au milieu ou à la fin, il n'y a aucune validité dans un acte qui les suit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

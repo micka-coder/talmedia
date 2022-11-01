@@ -42,4 +42,4 @@ La Guemara propose en outre : <b>Venez</b> et <b>entendez</b> une solution basé
 <b>Mais</b> si l'on avait les deux intentions <b>pendant un rite, tel que l'abattage, pendant lequel l'intention à l'égard de ceux qui mangeront</b> l'offrande <b>est effective,</b> le sacrifice <b>est disqualifié. </b> Toutefois, cette conclusion est difficile, <b>car nous soutenons que</b> si seulement <b>certains de ceux qui doivent manger</b> l'agneau pascal ne sont pas en mesure de le faire, comme dans ce cas, l'offrande n'est <b>pas disqualifiée.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara répond : <b>Même selon celui qui dit</b> que <b>là,</b> dans le cas
 La Gemara relate : <b>Rabbi Avin et Rav Yitzḥak, fils de Rabbi, étaient assis devant Rabbi Yirmeya, et Rabbi Yirmeya somnolait [<i>menamnem</i>].</b> Pendant qu'il somnolait, <b>ils se sont assis et ont dit : Selon bar Padda, qui a dit</b> que s'il les <b>rédemande</b>, ils <b>redeviennent consacrés de nouveau,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

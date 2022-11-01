@@ -39,4 +39,4 @@ La Guemara demande : Si oui, <b>là aussi,</b> lorsqu'elle refuse une demande de
 <b>Rabbi Ḥiyya bar Yosef dit à Shmuel : Qu'est-ce qui est différent</b> lorsque c'est elle qui se rebelle contre <b>lui, qu'on lui donne</b> une compensation <b>pour Chabbat,</b> puisque son contrat de mariage est réduit de sept dinars par semaine, soit un dinar par jour y compris Chabbat, et <b>qu'est-ce qui est différent</b> pour <b>elle qu'on ne lui donne pas</b> une compensation <b>pour Chabbat</b> mais seulement pour six jours ? La Gemara explique : Lorsque c'est <b>elle qui</b> est condamnée à une amende et que son contrat de mariage <b>est réduit,</b> il <b>ne semble pas s'agir d'un salaire de Chabbat,</b> d'une somme versée pour des services rendus le Chabbat, ce qui est interdit. Alors que lorsque c'est <b>elle qui</b> est mise à l'amende et contrainte de <b>ajouter</b> de l'argent supplémentaire chaque jour à son contrat de mariage,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

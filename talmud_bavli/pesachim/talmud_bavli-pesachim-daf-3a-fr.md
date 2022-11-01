@@ -42,4 +42,4 @@ La Gemara demande : <b>Quel est</b> la nécessité des preuves des deux versets 
 En ce qui concerne la <i>baraïta</i> ci-dessus enseignée à l'école de Rabbi Yishmael, la Guemara demande : <b>Et en ce qui concerne une femme, est-ce que</b> le terme <b>cavalier n'est pas écrit</b> dans la Torah ? <b>Mais n'est-il pas écrit : "Et Rebecca et ses demoiselles se levèrent et elles montèrent sur des chameaux"</b> (Genèse 24:61) ? La Guemara répond : <b>Là, en raison de la peur des chameaux, c'est une conduite standard.</b> Comme le dos d'un chameau est haut par rapport au sol, une femme ne peut pas s'y asseoir en amazone ; par conséquent, elle peut y monter sans être considérée comme impudique. La Guemara cite un autre verset pertinent . <b>Mais n'est-il pas écrit : "Et Moïse prit sa femme et ses enfants et les monta sur son âne"</b> (Exode 4:20) ? La Guemara répond : <b>Il y a,</b> malgré le fait que sa femme était aussi sur l'âne, le verset emploie le langage de l'équitation....
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

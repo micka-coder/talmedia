@@ -84,4 +84,4 @@ La Guemara répond : <b>Le verset dit : "Ce qui est sorti de tes lèvres, tu l'o
 <b>Et il était nécessaire</b> pour la Torah d'inclure le verset : <b>"Ce qui est sorti de tes lèvres", et il était nécessaire</b> d'inclure le verset : <b>"Ceci est la loi." Comme, si le Miséricordieux avait écrit</b> dans la Torah seulement le verset : <b>"Ce qui est sorti</b> de tes lèvres", <b>je dirais</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

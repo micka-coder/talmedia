@@ -75,4 +75,4 @@ Abaye en déduit : <b>Quelles sont les circonstances de</b> l'acte involontaire 
 Ce cas doit également être clarifié : <b>S'il a accepté</b> cette personne <b>sur lui comme un dieu, il est un transgresseur intentionnel</b>, et il est susceptible de recevoir la peine de mort et de ne pas apporter d'offrande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

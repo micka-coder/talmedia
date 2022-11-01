@@ -70,4 +70,4 @@
 <b>Elle est sa mère.</b> Une voix divine apparut et dit : "Elle est sa mère."</sup>26</sup><i class="footnote">Voir Rachi dans Masehet Makos 23b. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

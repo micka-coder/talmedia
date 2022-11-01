@@ -54,4 +54,4 @@ Rav Sheshet poursuit : La mishna enseigne <b>que</b> ce bébé <b>disqualifie le
 <b>Rav Sheshet a dit :</b> La mishna enseigne qu'un bébé d'un jour <b>hérite des biens de sa mère</b> si celle-ci est décédée le jour de sa naissance, de sorte qu'il peut <b>le léguer</b>, même s'il meurt après un jour, <b>à</b> ses héritiers qui ne sont pas les héritiers de la mère, par exemple <b>un demi-frère paternel. Et</b> dans ce cas, c'est <b>spécifiquement</b> lorsqu'il a au moins <b>un jour</b> qu'il hérite de sa mère et lègue les biens à ses demi-frères paternels, <b>mais un fœtus,</b> dont la mère est morte avant qu'il n'émerge, n'hérite <b>pas</b> de sa mère. <b>Quelle est la raison</b> de ceci ? La raison est <b>que</b> vraisemblablement le fœtus <b>est mort en premier,</b> avant que sa mère ne meure, <b>et</b> il y a un <i>halakha</i> selon lequel <b>un fils n'hérite pas de sa mère</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

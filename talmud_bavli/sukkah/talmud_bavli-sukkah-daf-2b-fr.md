@@ -57,4 +57,4 @@ La Guemara répond que <b>C'est ce que</b> Rabbi Yehuda <b>leur dit : Si vous di
 La Guemara explore les déclarations des <i>amora'im</i> qui ont cité le Rav à la lumière de cette <i>baraita</i>. <b>Accordé, selon celui,</b> Rabbi Yoshiya, <b>qui a dit que</b> c'est spécifiquement <b>dans</b> un cas <b>où les murs</b> de la <i>sukka</i> <b>n'atteignent pas</b> jusqu'à <b>la toiture</b> qu'il y a un <b>dispute</b> entre Rabbi Yehuda et les sages, la <i>baraita</i> peut être expliquée comme traitant d'une <i>sukka</i> de ce type, car <b>il est d'usage qu'une reine réside dans une <i>sukka</i> dans laquelle les murs ne montent pas</b> jusqu'à <b>la toiture,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

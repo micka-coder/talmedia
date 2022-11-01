@@ -72,4 +72,4 @@ La Gemara raconte : Il y avait <b>une certaine</b> femme <b>qui s'appelait Nefat
 <strong>MISHNA:</strong> <b>Une femme qui a dit</b> à un agent : <b>Recevez mon acte de divorce pour moi, exige deux séries de témoins</b> pour confirmer qu'elle était divorcée lorsque l'agent a reçu l'acte de divorce. Elle exige <b>deux</b> témoins <b>qui disent : En notre présence, elle a dit</b> à l'agent : Recevez mon acte de divorce en mon nom, <b>et deux qui disent : En notre présence</b> l'agent <b>a reçu</b> l'acte de divorce <b>et l'a déchiré</b>. Ce témoignage est efficace <b>même</b> si deux personnes <b>sont la première</b> paire de témoins <b>et</b> les deux mêmes <b>sont la dernière</b> paire de témoins,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

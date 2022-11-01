@@ -36,4 +36,4 @@ La Gemara relate un autre incident qui est quelque peu similaire à celui qui vi
 <b>Ravina a dit : Et</b> les personnes qui sont restées tard et ont prolongé leur repas <b>doivent donner</b> au serveur un supplément d'<b>argent</b> pour le <b>salaire</b> qu'il a gagné pendant le temps supplémentaire qu'il leur a servi, <b>et le dernier</b> <b>doit ajouter de l'argent</b> pour le temps que le serveur est resté pour le servir individuellement. La Guemara note : <b>Et la <i>halakha</i> n'est pas conforme à l'avis</b> de Ravina. Au contraire, le serveur doit servir jusqu'à ce que le dernier membre du groupe ait terminé son repas sans compensation supplémentaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

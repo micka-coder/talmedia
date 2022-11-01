@@ -138,4 +138,4 @@
 <b>Alors</b> Alors l'œuvre de la construction de la Maison de Dieu, qui était à Jérusalem, fut suspendue jusqu'à la deuxième année de Darius, roi de Perse ; car après Cyrus, régna Assuérus, qui épousa Esther, et après Assuérus, régna Darius, fils d'Assuérus, qui était le fils d'Esther. Et depuis la première année de Cyrus, roi de Perse, jusqu'à la seconde année de Darius, il y eut dix-huit ans, qui complétèrent les soixante-dix ans depuis la destruction de Jérusalem. En effet, depuis la destruction du Temple, lorsque Sédécias fut exilé, jusqu'à la première année de Cyrus, il y eut cinquante-deux ans, comme l'explique le Seder Olam (ch. 29). Il y eut ensuite dix-huit ans entre la première année de Cyrus et la deuxième année de Darius, soit un total de soixante-dix ans, et c'est au cours de la deuxième année de Darius qu'ils commencèrent à construire le Temple jusqu'à ce qu'ils l'achèvent.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

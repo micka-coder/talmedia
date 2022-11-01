@@ -48,4 +48,4 @@ La Guemara explique : Le guérisseur <b>de Rabbi Yoḥanan était un médecin ex
 <b>Rabbi Ya'akov a souffert</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

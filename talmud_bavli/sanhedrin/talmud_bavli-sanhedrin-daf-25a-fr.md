@@ -57,4 +57,4 @@ La Guemara répond qu'il est nécessaire que la mishna enseigne que les deux typ
 La Gemara explique : <b>Et</b> les deux sont <b>nécessaires. Comme si</b> la mishna <b>avait enseigné</b> cette <i>halakha</i> uniquement à l'égard de celui qui parie aux dés, <b>en le faisant dépendre de sa propre décision,</b> on pourrait raisonner que <b>c'est</b> spécifiquement <b>là</b> qu'un joueur est considéré comme un voleur. La raison en est <b>qu'il</b> vraisemblablement <b>ne se résout pas à transférer</b> l'argent s'il perd ; <b>comme il se dit</b> à lui-même :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

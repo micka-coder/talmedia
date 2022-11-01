@@ -30,4 +30,4 @@ La Guemara pose une autre question : Selon la lecture précise de la mishna, son
 § La mishna enseigne également une <i>halakha</i> supplémentaire : <b>Rabbi Eliezer dit :</b> Cette <i>halakha</i> ne s'applique <b>pas</b> à celui qui est entré dans le cimetière <b>le jour même</b> où il en est sorti, <b>comme il est dit</b> à propos des <i>halakhot</i> d'un nazirite impur : <b>"Mais les premiers jours seront nuls"</b> (Nombres 6:12), ce qui indique qu'il n'apporte pas les offrandes <b>sans avoir eu</b> ses <b>"premiers jours"</b> de pureté rituelle, pendant lesquels il a observé sa naziréité. <b>Ulla a dit : Rabbi Eliezer a dit</b> cette <i>halakha</i>, qu'un jour de naziréat dans la pureté n'est pas suffisant pour l'obliger à apporter des offrandes s'il devient impur, <b>uniquement à l'égard d'une personne impure</b> <b>qui a fait vœu de naziréat, mais un nazirite pur qui est devenu impur, même</b> s'il n'a été pur que pendant <b>un jour</b> de nazirisme, <b>cela annule</b> ce jour de son décompte et il doit apporter les offrandes d'un nazirite impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

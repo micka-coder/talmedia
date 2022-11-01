@@ -84,4 +84,4 @@ La Gemara répond : <b>En fait,</b> le but du témoignage est <b>de</b> témoign
 La Guemara demande : <b>Qu'est-ce que cela nous apprend, qu'on peut se rétracter</b> ce genre d'accord ? <b>Nous l'apprenons</b> dans la mishna suivante (24a) : Si l'un des plaideurs <b>dit à</b> l'autre : <b>Mon père est de confiance</b> pour statuer <b>pour moi,</b> ou : <b>Ton père est digne de confiance</b> pour juger <b>en ma faveur,</b> ou : <b>Trois éleveurs de bétail,</b> qui ne maîtrisent pas la <i>halakha</i>, <b>sont chargés</b> de statuer <b>pour moi,</b> tous étant légalement disqualifiés pour servir de juges, <b>Rabbi Meir dit</b> que celui qui a fait l'offre <b>peut la rétracter ; et les rabbins disent</b> qu'il <b>ne peut pas la rétracter,</b> et doit accepter leur verdict.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

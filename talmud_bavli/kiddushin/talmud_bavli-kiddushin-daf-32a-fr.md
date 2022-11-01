@@ -48,4 +48,4 @@ Plus tard, <b>Shmuel dit à Rav Yehuda : Grande dent</b> un, <b>ne parle pas à 
 <b>Et Rav Yosef dit : Même</b> à l'égard de <b>un rabbin qui renonce à son honneur, son honneur est oublié, comme il est dit : "Et le Seigneur les précédait de jour"</b> (Exode 13:21). Dieu Lui-même, le Maître du peuple juif, avait renoncé à l'honneur qui lui était dû et s'était donné la peine de guider le peuple. <b>Rava dit : Comment</b> ces cas peuvent-ils <b>être comparés ? Là,</b> en ce qui concerne <b>le Saint, Béni soit-Il, le monde est à Lui et la Torah est à Lui,</b> et donc Il peut <b>oublier Son honneur.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

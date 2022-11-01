@@ -51,4 +51,4 @@ Selon <b>une autre version, on rapporte</b> ce différend comme suit : <b>Rav Ye
 <b>Et Rabbi Yoḥanan a dit : Ils ont dit</b> qu'il y a <b>interposition à l'égard</b> d'un article qui est <b>moins de trois par trois</b> brins de doigt <b>uniquement dans un lieu</b> où l'on porte les <b>vêtements sacerdotaux</b>. <b>Cependant, dans un lieu</b> où les <b>vêtements sacerdotaux</b> sont <b>non</b> portés, la distinction suivante s'applique :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

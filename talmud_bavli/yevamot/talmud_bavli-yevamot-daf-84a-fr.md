@@ -9,4 +9,4 @@
 Il est enseigné dans la mishna que <b>Rabbi Eliezer dit :</b> Si l'on a eu des rapports sexuels avec <b>un hermaphrodite,</b> on <b>est susceptible</b> d'être puni de <b>pierre pour son compte comme si</b> on avait eu des relations avec <b>un mâle. Il est enseigné</b> à ce sujet dans une <i>baraita</i> que <b>Rabbi</b> Yehuda HaNasi <b>dit : Lorsque je suis allé apprendre la Torah auprès de Rabbi Elazar ben Shamua, ses étudiants se sont réunis</b> contre moi comme les coqs de Beit Bukya,</b> des animaux très agressifs qui ne permettent pas aux autres créatures de rester parmi eux, <b>et ils ne m'ont pas laissé apprendre</b> là. Par conséquent, j'ai réussi à apprendre <b>une seule chose dans notre mishna,</b> qui est que <b>Rabbi Eliezer dit :</b> Si l'on a eu des rapports avec <b>un hermaphrodite,</b> on <b>est susceptible</b> d'être puni de <b>pointes sur son compte comme si</b> on avait eu des relations avec <b>un mâle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

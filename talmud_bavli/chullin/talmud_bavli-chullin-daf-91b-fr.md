@@ -54,4 +54,4 @@ La Gemara <b>souleve une objection</b> à partir de la <i>baraita</i> suivante :
 La Guemara émend la déclaration de Rav Ḥananel en citant Rav : <b>Au contraire,</b> Rav dit que <b>un</b> groupe d'anges tutélaires <b>dit : " Saint ", et</b> un autre <b>un autre dit : " Saint, saint ", et</b> un autre <b>un autre dit : " Saint, saint, saint est le Seigneur des armées. "</b> La Gemara conteste la déclaration de la <i>baraita</i> selon laquelle les anges ne mentionnent le nom de Dieu qu'après trois mots : <b>Mais il y a</b> le verset : "Alors un esprit me souleva, et j'entendis derrière moi la voix d'un grand élan : <b>Béni soit</b> la gloire du Seigneur depuis Son lieu" (Ezéchiel 3, 12). Dans cette louange, "Bénie soit la gloire du Seigneur", le mot "Seigneur" apparaît comme le troisième mot hébreu, apparemment prononcé par les anges tutélaires.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

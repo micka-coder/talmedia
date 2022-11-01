@@ -42,4 +42,4 @@ La Guemara détaille les circonstances de la décision de Rav Asi : Il y avait <
 <b>Rav Ḥama bar Gurya a dit</b> que <b>Rav a dit : </b> Dans le cas d'un juif <b>qui a acheté un esclave à un Gentil, et</b> avant qu'il ne parvienne à l'immerger au nom de l'esclavage, l'esclave l'a <b>préempté</b> <b>et s'est immergé au nom de</b> la conversion pour se rendre <b>libre, il</b> s'est ainsi <b>acquis</b> et devient <b>libre,</b> c'est à dire. e., son immersion effectue une conversion complète et il n'est plus un esclave. <b>Quelle est la raison</b> de cette <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

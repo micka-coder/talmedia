@@ -75,4 +75,4 @@ Rava lui <b>dit : </b> Le <b><i>tanna</i> derive</b> l'interdiction de cracher <
 Celui qui l'a defie, Rav Pappa ou Ravina, <b>a dit a Rava : J'avais</b> l'intention de <b>dire ce qui suit : Disons qu'il faut etre rigoureux ici,</b> en ce qui concerne le Mont du Temple, <b>et etre rigoureux ici,</b> en ce qui concerne la synagogue,
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

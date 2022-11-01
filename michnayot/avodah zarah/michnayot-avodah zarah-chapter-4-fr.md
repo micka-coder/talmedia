@@ -35,5 +35,5 @@ Si [un Juif] prépare le vin d'un non-Juif dans un état de pureté rituelle et 
 ### michna 12
 Si [un Juif] prépare le vin d'un non-Juif dans un état de pureté rituelle et le laisse dans le domaine [du non-Juif], et que le [non-Juif] écrit pour lui "J'ai reçu l'argent de toi", alors [le vin] est permis. Si, toutefois, le Juif souhaite l'enlever et que [le non-Juif] refuse de le laisser partir tant qu'il ne l'a pas payé, cela s'est produit à Beth-Shan et [les sages] l'ont interdit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

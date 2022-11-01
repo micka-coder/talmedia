@@ -54,4 +54,4 @@ La Guemara conteste : <b>Si c'est le cas,</b> et que la <i>baraita</i> fait réf
 La Gemara conteste : <b>Si c'est le cas, son fils</b> devrait être exempté <b>aussi,</b> puisque l'exécution de son père est imminente.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

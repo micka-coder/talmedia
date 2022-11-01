@@ -63,4 +63,4 @@ Le Rav Naḥman suggère : <b>Peut-être que vous énoncez</b> une distinction e
 § La mishna enseigne : Dans les affaires de <b>droit capital,</b> le tribunal <b>juge pendant la journée,</b> et conclut les délibérations et rend la décision pendant la journée. La Gemara demande : <b>D'où proviennent ces questions</b> ? <b>Rav Shimi bar Ḥiyya dit : Le verset dit</b> à propos des Israélites qui adoraient l'idole de Péor dans le désert : <b>"Et suspendez-les [<i>hoka</i>] à l'Éternel, face au soleil"</b> (Nombres 25:4), indiquant que les affaires capitales sont jugées face au soleil, c'est-à-dire pendant la journée. <b>Rav Ḥisda dit : D'où</b> provient-il <b>que <i>Vehoka'a</i> est suspendu ? </b> Là où les Gibéonites ont demandé qu'on leur donne les fils de Saül, <b>comme il est écrit : "<i>Vehoka'anum</i> à l'Eternel à Gibéa de Saül, l'élu de l'Eternel"</b> (II Samuel 21:6).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

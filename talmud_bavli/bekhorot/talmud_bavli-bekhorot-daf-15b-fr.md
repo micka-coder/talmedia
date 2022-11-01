@@ -39,4 +39,4 @@ Le <i>baraita</i> conclut : <b>Avant leur rachat,</b> celui qui tire un bénéfi
 Il est admis que chaque fois qu'un <i>tanna</i> déclare : Le principe de la question, il ajoute certains cas que l'on aurait pu croire exclus de la <i>halakha</i> en question. En conséquence, la Guemara note que la phrase : <b>Le principe de la chose, dans la première clause</b> de la <i>baraita</i>, qui stipule que les animaux dont la tare permanente a précédé leur consécration sont comme des animaux non sacrés, sert <b>à ajouter</b> le cas de <b>celui qui abat</b> un tel animal <b>à l'extérieur</b> de la cour du Temple, en enseignant <b>qu'il est exempt.</b> La phrase : <b>Le principe de la question, dans la dernière clause,</b> qui stipule que que les animaux rachetés dont la consécration a précédé leur tare permanente sont comme les animaux sacrificiels rachetés dans tous les domaines,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

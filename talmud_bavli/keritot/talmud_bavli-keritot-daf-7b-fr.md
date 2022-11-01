@@ -78,4 +78,4 @@ La Gemara demande : <b>Et</b> quant aux <b>rabbins, quel est</b> leur <b>raisonn
 Beit Shammai ajoute : <b>Et</b> quant au statut d'impureté rituelle du <b>sang,</b> c'est-à-dire, L'opinion de Beit Hillel selon laquelle les deux périodes sont égales en ce qui concerne les <i>halakhot</i> d'impureté rituelle, cela <b>ne prouve pas</b> ce que doit être la <i>halakha</i> en ce qui concerne les offrandes, <b>comme</b> en ce qui concerne une femme <b>qui fait une fausse couche</b> avant le <b>complément</b> du terme de quatre-vingts jours, <b>son sang est impur</b> comme le sang d'une femme après l'accouchement, et néanmoins <b>elle est dispensée</b> d'apporter <b>l'offrande. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

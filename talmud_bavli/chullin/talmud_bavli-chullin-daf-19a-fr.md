@@ -60,4 +60,4 @@ Si <b>on coupe un tiers</b> de la trachée correctement, <b>et</b> ensuite on <b
 <b>Rav Ḥisda dit à</b> Rav Huna : <b>Ne vous rétractez pas</b> votre déclaration,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

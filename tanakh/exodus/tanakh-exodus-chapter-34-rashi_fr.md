@@ -128,5 +128,5 @@
 ### passuk 35
 <b>Moshé replacerait le couvercle sur son visage jusqu'à ce qu'il vienne lui parler.</b> Et lorsqu'il viendrait lui parler, il l'enlèverait de son visage.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -42,4 +42,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve d'un <i>baraita
 La Gemara déduit de cette décision : Cela indique que si elle a été consommée <b>à partir du moment de la séparation,</b> le prêtre peut <b>en tout cas</b> réclamer le paiement du <i>teruma</i> devant le tribunal, et celui qui l'a consommée doit <b>payer.</b> Mais <b>pourquoi</b> doit-on payer ? <b>Comme</b> un cas où l'on <b>cause des dommages aux cadeaux du sacerdoce ou les consomme,</b> à propos duquel Rav Ḥisda déclare qu'il est exempté de paiement. La Guemara répond : <b>Ici aussi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

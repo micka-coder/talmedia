@@ -36,4 +36,4 @@ La Gemara rejette cette idée : <b>Et quelle est la difficulté ? Peut-être est
 La Gemara demande : <b>Mais peut-on dire</b> que le verset <b>est écrit comme une bénédiction,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

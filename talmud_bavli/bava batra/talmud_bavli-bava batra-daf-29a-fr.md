@@ -54,4 +54,4 @@ Rav Ashi <b>lui a dit : Les juges de bas</b> niveau <b>règlent de cette manièr
 La Gemara cite une déclaration connexe. <b>Mar Zutra a dit : Et si</b> le demandeur <b>réclame et dit : Que deux témoins viennent attester pour</b> le possesseur <b>qu'il a habité</b> la maison <b>trois ans de jour et de nuit, sa demande est</b> une <b>demande légitime.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

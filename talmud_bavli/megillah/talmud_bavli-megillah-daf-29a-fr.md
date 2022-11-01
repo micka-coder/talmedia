@@ -60,4 +60,4 @@ La Guemara clarifie : En ce qui concerne la phrase : Par respect pour les morts,
 <strong>GEMARA : </strong> <b>On a appris</b> dans une mishna <b>là</b> (<i>Shekalim</i> 1:1) : <b>Le premier d'Adar, on fait</b> une <b>annonce publique concernant</b> la prochaine collecte de demi-<b>shekels.</b> L'argent est utilisé pour les offrandes communes au Temple dans l'année à venir.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

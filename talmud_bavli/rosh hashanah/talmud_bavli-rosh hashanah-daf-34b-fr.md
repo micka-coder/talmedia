@@ -48,4 +48,4 @@ A propos de cette <i>baraïta</i>, <b>Rabba bar bar Ḥana a dit</b> que <b>Rabb
 La Guemara demande : <b>Et Rabbi Yoḥanan</b> a-t-il réellement <b>dit cela ? Rabbi Ḥana de</b> la ville de <b>Tzippori n'a-t-il pas dit</b> que <b>Rabbi Yoḥanan a dit : La <i>halakha</i> est conforme</b> à l'opinion de <b>Rabban Gamliel ?</b> D'après le fait qu'il a dit : <b>La <i>halakha</i>,</b> on peut conclure <b>par inférence</b> que les sages sont toujours <b>en désaccord.</b> Le fait même qu'il ait émis un jugement en faveur de Rabban Gamliel montre que Rabbi Yoḥanan soutient que les Sages n'acceptent pas cette opinion.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

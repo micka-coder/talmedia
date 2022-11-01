@@ -57,4 +57,4 @@ Après avoir discuté d'une question qui a été soulevée pendant les années d
 <b>Rava dit : Cherchons</b> nous-mêmes une réponse auprès des sources. <b>Comme il a été enseigné</b> dans une <i>baraita</i> dans le cas de <b>la Neuvième de Av qui survient le Chabbat,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -65,5 +65,5 @@
 ### passuk 15
 <b>Le peuple ne partit pas.</b> Cet honneur lui fut accordé par l'Omniprésent pour <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>l'heure où elle resta auprès de Moshé lorsqu'il fut jeté dans le fleuve, comme il est dit : "sa sœur se tenait de loin, etc...". 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

@@ -124,4 +124,4 @@
 <b>Car il y avait de la joie en Israël</b> qu'ils avaient un roi prospère et sage.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

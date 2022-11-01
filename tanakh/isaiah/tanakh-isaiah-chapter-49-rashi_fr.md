@@ -98,7 +98,7 @@
 <b>Ils s'enivreront [de] leur sang</b> Ainsi ceux qui sont habitués à boire du sang s'enivreront de leur sang. Qui sont-ils ? Ce sont les oiseaux des cieux. Ainsi Jonathan a rendu ceci.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>M'a appelé dès le ventre de ma mère</b> Lorsque j'étais encore dans le ventre de ma mère, la pensée lui vint que mon nom devait être Isaïe (יְשַׁעְיָה) pour prophétiser des sauvetages (יְשׁוּעוֹת) et des consolations.
 
@@ -198,4 +198,4 @@
 <b>Ils s'enivreront [de] leur sang</b> Ainsi ceux qui sont habitués à boire du sang s'enivreront de leur sang. Qui sont-ils ? Ce sont les oiseaux des cieux. Ainsi Jonathan a rendu ceci.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

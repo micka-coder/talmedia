@@ -21,4 +21,4 @@ La Guemara développe : <b>Tout comme la <i>halakha</i></b> en ce qui concerne l
 La Guemara demande : <b>Et</b> est-ce que <b>la <i>halakha</i></b> concernant une transaction avec <b>une personne ordinaire</b> dit qu'on ne <b>pas</b> vendre l'eau avec la citerne ? <b>Mais n'avons-nous pas appris</b> dans la mishna (78b) que celui qui <b>vend une citerne a vendu son eau ? Rava a dit :</b> La décision dans <b>la mishna est une opinion individuelle</b>, <b>comme il est enseigné</b> dans une <i>baraita</i> : Celui qui a <b>vendu une citerne n'a pas vendu son eau. Rabbi Natan dit :</b> Celui qui a <b>vendu une citerne a vendu son eau.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

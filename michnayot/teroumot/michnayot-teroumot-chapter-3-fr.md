@@ -26,5 +26,5 @@ Celui qui a l'intention de dire "teroumah" et qui dit "dîme", ou "dîme" et qui
 ### michna 9
 La térouma donnée par un non-Juif ou un Samaritain est une térouma et leurs dîmes sont des dîmes et leurs dédicaces [au Temple] sont des dédicaces. Rabbi Juda dit : la loi de la vigne de la quatrième année n'est pas applicable à un non-Juif. Mais les sages disent : elle l'est. La teroumah d'un non-juif rend [le produit dans lequel elle tombe] medumma et [celui qui la mange à son insu] est obligé [de rembourser un cinquième] supplémentaire. Mais Rabbi Shimon l'exempte.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

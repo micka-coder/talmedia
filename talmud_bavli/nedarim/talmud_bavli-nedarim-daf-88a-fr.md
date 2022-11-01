@@ -12,4 +12,4 @@ En revanche, <b>Rabbi Meir soutient : Il est écrit</b> dans cette même section
 <strong>GEMARA:</strong> <b>Rav a dit</b> que <b>ils ont enseigné</b> cette <i>halakha</i> <b>uniquement</b> dans un cas <b>où il</b> lui a effectivement <b>dit : Ce que tu ramasses et mets dans ta bouche</b> est à toi. <b>Mais</b> si <b>il lui a dit : Fais ce que tu veux</b> avec l'argent, sa stipulation est sans effet, et <b>le mari acquiert</b> l'argent. <b>Et Shmuel dit</b> que <b>même</b> si <b>il a dit : Fais ce que tu veux</b> avec l'argent, <b>le mari ne l'acquiert pas. Rabbi Zeira s'oppose à cette</b> déclaration de Rav :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

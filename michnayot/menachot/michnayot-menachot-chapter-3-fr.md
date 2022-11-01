@@ -20,5 +20,5 @@ Pour les deux chèvres de Yom Hakippurim, [l'absence] de l'une invalide l'autre.
 ### michna 7
 En ce qui concerne les sept branches de la Ménorah, l'absence de l'une d'elles annule les autres. En ce qui concerne les sept lampes qui s'y trouvent, l'absence de l'une d'elles annule les autres. En ce qui concerne les deux parties de l'Écriture dans la mezouza, l'[absence de] l'une invalide l'autre ; en effet, même une lettre peut invalider l'ensemble. En ce qui concerne les quatre parties de l'Écriture dans les tefillin, [l'absence de] l'une d'entre elles invalide les autres ; en fait, même une seule lettre peut invalider l'ensemble. En ce qui concerne les quatre franges, [l'absence de] l'une d'entre elles invalide les autres, puisque les quatre forment ensemble une seule mitzvah. Rabbi Ishmael dit : les quatre sont quatre mitzvot distinctes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

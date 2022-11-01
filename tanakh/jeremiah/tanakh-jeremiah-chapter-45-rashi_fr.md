@@ -13,7 +13,7 @@
 <b>Et tu cherches de grandes choses pour toi-même ?</b> ["Grandes choses" signifie] des prophéties. Cf. "Je te prie de me dire toutes les grandes choses, etc." (II Rois 8:4). "Appelle-moi... et je te dirai de grandes, etc." (ci-dessus 33:3). Le Saint, béni soit-Il, lui dit : S'il n'y a pas de vigne, il n'y a pas de clôture, et s'il n'y a pas de brebis, il n'y a pas de berger. Je ne me révèle aux prophètes que dans le mérite d'Israël. Nous avons appris cela dans la Mechilta, au début.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -28,4 +28,4 @@
 <b>Et tu cherches de grandes choses pour toi-même ?</b> ["Grandes choses" signifie] des prophéties. Cf. "Je te prie de me dire toutes les grandes choses, etc." (II Rois 8:4). "Appelle-moi... et je te dirai de grandes, etc." (ci-dessus 33:3). Le Saint, béni soit-Il, lui dit : S'il n'y a pas de vigne, il n'y a pas de clôture, et s'il n'y a pas de brebis, il n'y a pas de berger. Je ne me révèle aux prophètes que dans le mérite d'Israël. Nous avons appris cela dans la Mechilta, au début.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

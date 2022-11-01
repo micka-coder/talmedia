@@ -66,4 +66,4 @@ La Guemara rejette la réponse de Rabba bar Rav Ḥanan : <b>Mais plutôt, quell
 Le verset indique qu'Absalom a soumis sa requête à son père "au bout de quarante ans". La Guemara demande : <b>Quarante ans, selon le comptage de qui</b>, c'est-à-dire quarante ans à partir de quand ? Il <b>est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Nehorai dit au nom de Rabbi Yehoshua:</b> Le verset fait référence <b>à la fin de quarante ans</b> à partir de <b>lorsque</b> le peuple juif <b>a demandé pour lui-même un roi,</b> à l'époque de Samuel (voir I Samuel, chapitre 8). <b>Comme il est enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>cette année où ils ont demandé pour eux-mêmes un roi, cette année était la dixième</b> année de la direction <b>de Samuel.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

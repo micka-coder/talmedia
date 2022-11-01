@@ -51,4 +51,4 @@ On raconte qu'il y avait <b>certains résidents</b> d'un lieu appelé <b>Bei Ḥ
 § La mishna enseigne : Prendre des <b>animaux, oiseaux ou poissons</b> qui ont été pris dans des <b>pièges</b> appartenant à une autre personne est considéré comme un vol en raison des voies de la paix. Et Rabbi Yosei dit qu'il s'agit d'un vol à part entière. La Guemara commente : <b>En ce qui concerne les filets [<i>uzlei</i>] et</b> les <b>trappes tissées [<i>oharei</i>],</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

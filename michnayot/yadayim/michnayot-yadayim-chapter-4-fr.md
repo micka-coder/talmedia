@@ -23,5 +23,5 @@ Les Sadducéens disent : nous nous plaignons de vous, Pharisiens, parce que vous
 ### michna 8
 Un Galiléen min dit : Je me plains de vous, pharisiens, parce que vous écrivez le nom du souverain et le nom de Moïse ensemble sur un document de divorce. Les pharisiens ont dit : nous nous plaignons contre toi, min Galiléen, que tu écrives le nom du dirigeant et le nom divin sur une seule page [de la Torah] ? Et de plus, que tu écrives le nom du souverain en haut et le nom divin en bas ? Comme il est dit : "Et Pharoah dit : Qui est le Seigneur pour que j'écoute sa voix et laisse partir Israël ?". (Exode 5:2) Mais quand il a été frappé, qu'a-t-il dit ? "Le Seigneur est juste" (Exode 9:27).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

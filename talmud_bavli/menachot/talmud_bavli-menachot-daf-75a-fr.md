@@ -54,4 +54,4 @@ Le <i>baraita</i> poursuit que le même verset indique : <b>"Et tu verseras de l
 Le <i>baraita</i> conclut : Peut-être <b>Je dois exclure</b> seulement <b>les pains</b> de l'obligation de verser, <b>mais je ne dois pas exclure les galettes.</b> Par conséquent, <b>le verset dit : "C</b> est une offrande de repas", indiquant que les galettes sont également exclues. La Gemara demande : <b>Quelle est la</b> <b>dérivation biblique,</b> par laquelle le terme "il" exclut spécifiquement les galettes ? Peut-être <b>je dirai :</b> Le terme sert <b>à exclure l'offrande de repas des prêtres</b> de l'obligation de verser.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

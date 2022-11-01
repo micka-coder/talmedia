@@ -50,4 +50,4 @@
 <b>Bénissez le Seigneur, toutes ses oeuvres</b> qui sont dans tous les lieux de sa domination.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

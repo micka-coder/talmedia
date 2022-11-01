@@ -72,4 +72,4 @@ La Guemara resout cette contradiction apparente : Ceci n'est <b>pas difficile. C
 La Gemara relate : <b>Abaye repondait</b> amen <b>a haute voix</b> apres avoir recite la benediction : Qui construit Jerusalem, <b>afin que les ouvriers entendent et se levent</b> pour retourner au travail, <b>comme</b> la benediction qui suit : <b>Qui est bon et fait le bien</b> n'est pas exigee <b>par la loi de la Torah,</b> donc les ouvriers travaillant pour le proprietaire n'ont pas besoin de la reciter. <b>Rav Ashi,</b> en revanche, repondrait <b>a l'amen</b> <b>en chuchotant, afin que</b> ceux qui l'entendent <b>ne fassent pas le lien avec</b> la benediction : <b>Qui est bon et fait le bien, avec mepris.</b>
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

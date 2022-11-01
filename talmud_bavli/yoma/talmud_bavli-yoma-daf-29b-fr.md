@@ -21,4 +21,4 @@ Si un service effectué la nuit n'est pas considéré comme prématuré, <b>lors
 La mishna poursuit : <b>C'était le principe dans le Temple:</b> Quiconque se couvre les jambes, euphémisme pour déféquer, doit s'immerger ensuite ; et quiconque urine exige la sanctification des mains et des pieds avec l'eau du bassin par la suite. La Guemara demande : <b>Accordé,</b> celui qui urine est tenu de sanctifier ses <b>pieds, en raison des gouttes</b> d'urine qui coulent sur ses pieds. <b>Cependant,</b> en ce qui concerne ses <b>mains, quelle est la raison</b> pour laquelle il est tenu de les sanctifier. Ses mains n'ont pas été en contact avec quelque chose de sale. <b>Rabbi Abba a dit : C'est-à-dire</b> que l'on apprend de cela une conduite appropriée, à savoir .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

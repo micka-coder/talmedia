@@ -36,4 +36,4 @@ Reish Lakish <b>lui a dit : Rav Hoshaya a déjà interprété en Babylonie</b> q
 La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une autre <i>baraïta</i> que si le deuxième bénéficiaire désigné meurt avant le premier, après le décès du premier, le bien <b>retourne aux héritiers du donateur ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

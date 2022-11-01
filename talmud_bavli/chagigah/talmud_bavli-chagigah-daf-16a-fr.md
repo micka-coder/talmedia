@@ -54,4 +54,4 @@ A propos de ce Sage, la Gemara cite une autre de ses déclarations : <b>Rabbi Ye
 <strong>MISHNA:</strong> <b>Yosei ben Yo'ezer dit de ne pas placer</b> ses mains sur les offrandes avant de les abattre lors d'une Fête car cela est considéré comme effectuer un travail avec un animal lors d'une Fête. Son collègue, <b>Yosef ben Yoḥanan, dit de les placer</b> ; <b>Yehoshua ben Peraḥya dit de ne pas les placer</b> ; <b>Nitai HaArbeli dit de les placer</b> ; <b>Yehuda ben Tabbai dit de ne pas les placer</b> ; <b>Shimon ben Shataḥ dit de les placer</b> ; <b>Shemaya dit de les placer</b> ; <b>Avtalyon dit de ne pas les placer</b>. <b>Hillel et Menaḥem n'étaient pas en désaccord</b> par rapport à cette question. <b>Menaḥem se retira</b> de son poste, et <b>Shammaï entra</b> à sa place. <b>Shammaï dit de ne pas les placer</b> ; <b>Hillel dit de les placer</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

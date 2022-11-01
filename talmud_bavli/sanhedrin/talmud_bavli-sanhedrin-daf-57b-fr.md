@@ -69,4 +69,4 @@ La Guemara suggère : <b>Et que</b> la <i>tanna</i> <b>compte également</b> le 
 En ce qui concerne l'opinion de Rabbi Meir énoncée dans la première clause de la <i>baraita</i>, la Guemara demande : <b>Et Rabbi Meir soutient-il</b> que <b>toute relation sexuelle interdite pour laquelle un tribunal juif administre la peine capitale est interdite à un descendant de Noé ? Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : En ce qui concerne <b>un converti</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

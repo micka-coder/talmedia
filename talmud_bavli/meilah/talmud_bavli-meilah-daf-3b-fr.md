@@ -45,4 +45,4 @@ La Guemara explique l'objection : <b>Evidemment,</b> asperger le sang d'offrande
 Rava <b>dit à</b> Rav Ashi : Ce n'est pas une difficulté, car Ulla n'a pas voulu dire que l'intention lors du retrait de la poignée seule rendait l'offrande de repas à part entière <i>piggul</i>. Il voulait plutôt dire qu'un <b>acte interdit</b> a été accompli sur elle <b>ce qui l'amène</b> à un statut de <b><i>piggul</i>,</b> mais le plein statut de <i>piggul</i> n'est atteint que s'il y a également une intention impropre au moment du sacrifice de la poignée, ce qui équivaut à l'aspersion dans le cas d'un animal.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

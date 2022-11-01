@@ -46,4 +46,4 @@
 <b>qui ont donné généreusement au Seigneur</b> - Héb. הַמִּתְנַדֵּב. On peut citer comme exemple (Jud. 5:2) "lorsque le peuple s'offre volontairement (בְּהִתְנַדֵּב עַם), bénissez le Seigneur."
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

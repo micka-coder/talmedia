@@ -48,7 +48,7 @@ Rami bar Ḥama a conclu sa déclaration : <b>Cependant, s'il n'était pas consc
 § <b>Les Sages ont enseigné : </b> Si son <b>premier</b> mari l'a <b>amenée dans</b> sa maison <b>dans le but du mariage, et qu'elle a des témoins</b> qui ont attesté <b>qu'elle ne s'est pas isolée</b> avec lui, ou <b>alternativement, </b> ils ont témoigné que <b>elle s'est isolée</b> avec lui <b>et n'est pas restée</b> dans l'isolement avec lui pendant une période <b>équivalente</b> au temps requis pour s'engager dans des <b>rapports sexuels, </b> si le premier mari meurt ou divorce et qu'elle se remarie, malgré la déposition des témoins, <b>le second</b> mari <b>ne peut pas faire une réclamation concernant la virginité,</b> et dire que les fiançailles étaient fondées sur la supposition qu'elle était vierge et qu'elle devait perdre son contrat de mariage. Puisque le <b>premier mari l'a fait entrer</b> dans sa maison, le second mari aurait dû considérer qu'une femme qui est entrée dans la maison de son mari n'est plus vierge.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>et elles ne sont pas</b> sujettes à <b>une revendication</b> concernant leur <b>virginité.</b> Puisqu'elles étaient mariées, même si elles n'ont pas eu de rapports sexuels avec leur mari, leur statut présumé est celui de non-vierges, et le second mari ne peut pas prétendre qu'il a été trompé quant à leur statut de vierges.
 
@@ -98,4 +98,4 @@ Rami bar Ḥama a conclu sa déclaration : <b>Cependant, s'il n'était pas consc
 § <b>Les Sages ont enseigné : </b> Si son <b>premier</b> mari l'a <b>amenée dans</b> sa maison <b>dans le but du mariage, et qu'elle a des témoins</b> qui ont attesté <b>qu'elle ne s'est pas isolée</b> avec lui, ou <b>alternativement, </b> ils ont témoigné que <b>elle s'est isolée</b> avec lui <b>et n'est pas restée</b> dans l'isolement avec lui pendant une période <b>équivalente</b> au temps requis pour s'engager dans des <b>rapports sexuels, </b> si le premier mari meurt ou divorce et qu'elle se remarie, malgré la déposition des témoins, <b>le second</b> mari <b>ne peut pas faire une réclamation concernant la virginité,</b> et dire que les fiançailles étaient fondées sur la supposition qu'elle était vierge et qu'elle devait perdre son contrat de mariage. Puisque le <b>premier mari l'a amenée dans</b> sa maison, le second mari aurait dû considérer qu'une femme qui est entrée dans la maison de son mari n'est plus vierge.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

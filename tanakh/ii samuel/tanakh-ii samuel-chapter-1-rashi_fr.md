@@ -70,7 +70,7 @@
 <b>Les armes de la guerre.</b> [Se référant à] Shaul et Yohanasan qui étaient les armes de Israël.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -142,4 +142,4 @@
 <b>Les armes de la guerre.</b> [Se référant à] Shaul et Yohanasan qui étaient les armes de Israël.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

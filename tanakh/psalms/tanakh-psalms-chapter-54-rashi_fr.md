@@ -17,4 +17,4 @@
 <b>Avec Ta vérité</b> Puisque Tu es véridique, et que Tu as dit que Tu te vengerais des faiseurs de contes et de ceux qui poursuivent pour tuer, donc, coupe-les.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

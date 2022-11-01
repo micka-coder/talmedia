@@ -27,4 +27,4 @@ Il s'agit d'un <b>détail, et d'une généralisation, et d'un détail,</b> et do
 Rava a dit à Rav Yehuda de Diskarta : On <b>ne peut pas dériver</b> la méthode d'un détail, d'une généralisation et d'un détail <b>de ce</b> verset, <b>comme si</b> la source était <b>de là, je dirais</b> l'expression <b>"animaux"</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

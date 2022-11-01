@@ -36,4 +36,4 @@ Rav Naḥman <b>a dit à</b> Rava : <b>Voici</b> ce que dit <b>Shmuel :</b> En c
 La Guemara conclut : <b>Et la <i>halakha</i></b> est que <b>la donation d'une personne sur son lit de mort</b> qui ne comprend qu'une <b>partie</b> de ses biens <b>exige</b> un acte d'<b>acquisition;</b> sinon elle est invalide <b>même si elle</b> est par la suite <b>morte,</b> et la donation est héritée par ses héritiers à sa place. La donation de <b>celui qui donne des directives</b> concernant ses biens <b>en raison</b> de son attente de sa <b>mort imminente ne nécessite pas</b> un acte d' <b>acquisition. Et ceci</b> ne s'applique que <b>lorsque</b> il est par la suite <b>décédé.</b> S'il <b>se rétablit,</b> il peut <b>rétracter</b> sa donation <b>même si elle a été acquise auprès de lui</b> au moyen d'un acte d'acquisition.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

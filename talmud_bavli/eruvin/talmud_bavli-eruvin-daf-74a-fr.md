@@ -24,4 +24,4 @@ Rabbi Elazar souleva l'objection suivante : <b>N'est-ce pas le Maître</b> lui-m
 La Guemara demande : Le silence de Shmuel indique-t-il qu'il a <b>accepté</b> l'objection de Rabbi Elazar et qu'il s'est rétracté, <b>ou qu'il ne l'a pas accepté de sa part ?</b> La Guemara tente d'apporter une preuve à partir de l'incident suivant . <b>Venez</b> et <b>entendez : </b> Il y avait <b>une certaine ruelle dans laquelle vivait Ivut bar Ihi,</b> qui ne contenait qu'une maison et une cour. <b>Il lui érigea un poteau latéral, et Shmuel lui permit</b> d'y porter.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

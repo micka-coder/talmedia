@@ -47,4 +47,4 @@
 <b>Ma bouche dira la louange du Seigneur</b> et aussi toute chair bénira son saint nom pour les siècles des siècles.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Pourquoi ai-je</b> besoin d'un <b>verset</b> pour enseign
 La mishna enseigne en outre : <b>Et le boiteux, l'aveugle, le malade et le vieillard</b> sont tous exemptés de la mitsva de l'apparence. <b>Les Sages ont enseigné : "Times [<i>regalim</i>]"</b> (Exode 23:14) fait allusion à l'usage de ses pieds [<i>raglayim</i>], et donc il <b>exclut les personnes ayant des jambes artificielles.</b> Bien qu'elles soient capables de marcher, elles sont exemptées de voyager, car elles n'ont pas de pieds. <b>Alternativement,</b> le terme <b>"<i>regalim</i>"</b> vient à <b>exclure les boiteux, les malades, les aveugles, les vieux, et celui qui est incapable de monter sur ses</b> propres <b>pieds.</b> La Gemara demande : La dernière catégorie de <b>celui qui est incapable de monter sur ses pieds,</b> vient <b>ajouter quoi ? </b> La <i>baraita</i> enseignait déjà que les boiteux et les malades sont exemptés. <b>Rava dit :</b> Il vient <b>ajouter</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

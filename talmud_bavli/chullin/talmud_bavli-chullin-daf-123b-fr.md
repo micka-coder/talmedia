@@ -60,4 +60,4 @@ Reish Lakish a répondu à Rabbi Yoḥanan : <b>Lorsque j'ai dit que</b> une pea
 <b>Rabbi Yirmeya soulève une objection</b> à l'opinion de Reish Lakish à partir d'une mishna (<i>Kelim</i> 5:7) : En ce qui concerne <b>un four qui est devenu impur, comment le purifie-t-on ? On divise</b> le four <b>en trois</b> parties <b>et on gratte la</b> couche de <b>plâtre</b> qui entoure le four....
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

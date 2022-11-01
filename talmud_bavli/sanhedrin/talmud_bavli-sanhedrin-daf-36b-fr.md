@@ -36,4 +36,4 @@ La Gemara rejette cette preuve : <b>Mais peut-être là,</b> ceux qui étaient a
 <strong>MISHNA :</strong> <b>Un Sanhédrin</b> de vingt-trois <b>était</b> disposé selon la même disposition <b>que la moitié d'une aire de battage circulaire, afin que</b> tous les juges <b>se voient entre eux</b> et les témoins. <b>Et deux scribes des juges se tiennent devant</b> le tribunal, <b>un à droite et un à gauche, et ils écrivent les déclarations de ceux qui trouvent</b> l'accusé <b>faisable et les déclarations de ceux qui acquittent</b> l'accusé. <b>Rabbi Yehuda dit :</b> Il y avait <b>trois</b> scribes. <b>L'un écrit</b> uniquement <b>les déclarations de ceux qui acquittent</b> l'accusé, <b>l'autre écrit</b> uniquement <b>les déclarations de ceux qui le trouvent</b> <b>responsable, et le troisième écrit</b> à la fois <b>les déclarations de ceux qui acquittent</b> l'accusé <b>et les déclarations de ceux qui le trouvent</b> <b>lible,</b> de sorte qu'en cas d'incertitude sur la formulation précise que l'un des scribes écrit, on peut la comparer aux mots du troisième scribe.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

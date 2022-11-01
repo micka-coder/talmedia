@@ -42,4 +42,4 @@ La Gemara propose une explication alternative : <b>Non;</b> peut-être est-ce le
 La Gemara propose une explication alternative : <b>Et si tu veux, dis</b> plutôt que les deux <b>cette</b> <i>baraita</i> <b>et cette</b> <i>baraita</i> se réfèrent au temps <b>après que l'ordonnance</b> ait été instituée, <b>et</b> la <i>tanna</i> dans chaque <i>baraita</i> soutient qu'il y a <b>une ordonnance de Usha. Au contraire, selon celui qui dit</b> que l'esclave est affranchi s'il est frappé <b>par la femme mais pas</b> s'il est frappé <b>par l'homme, quelle en est la raison ? </b> C'est <b>conformément</b> à la déclaration <b>de Rava, comme Rava a dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

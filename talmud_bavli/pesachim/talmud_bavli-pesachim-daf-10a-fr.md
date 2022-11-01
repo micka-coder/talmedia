@@ -45,4 +45,4 @@ La Guemara soulève la situation inverse. Si l'on <b>plaçait dix</b> morsels <b
 <b>Et les sages disent,</b> en accord avec leur avis précité : Il s'agit de <b>tout l'argent non sacré</b>, car l'hypothèse est que celui qui a pris une partie de l'argent a en fait tout pris, et c'est un <i>maneh</i> différent. Puisqu'il s'agit d'une monnaie différente, il s'agit vraisemblablement d'une monnaie non sacrée, et non d'une monnaie de second degré. Cette dispute s'applique au cas où l'on trouve moins de morceaux de levain qu'on en avait laissé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

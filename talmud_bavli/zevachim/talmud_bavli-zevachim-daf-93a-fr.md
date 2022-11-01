@@ -51,4 +51,4 @@ La Gemara demande : <b>Et</b> comment <b>Rabbi Akiva</b> interprète-t-il ces ve
 § La mishna enseigne : Si le sang <b>s'est répandu</b> du cou <b>sur le sol</b> avant d'être recueilli dans un récipient, et que le prêtre a recueilli le sang et qu'il s'est pulvérisé sur un vêtement, le vêtement n'a pas besoin d'être lavé. Ce n'est qu'en ce qui concerne le sang qui a été reçu dans un vase sacré et qui est apte à être aspergé que le vêtement doit être blanchi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

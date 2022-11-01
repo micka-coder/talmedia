@@ -63,4 +63,4 @@ Si le fœtus de sable est mâle, le statut de la femme après l'accouchement se 
 La Guemara discute pourquoi le cas d'une femme qui a déchargé un fœtus sandale est mentionné dans d'autres <i>mishnayot</i>, étant donné qu'un fœtus sandale a toujours un jumeau. Tout d'abord, la Guemara discute de la <i>halakha</i> d'une femme qui a déchargé <b>un fœtus sandale</b> que nous avons appris</b> dans une mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

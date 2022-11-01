@@ -39,4 +39,4 @@ La déclaration de Rabbi Yoḥanan continue : Et si quelqu'un <b>sépare le <i>t
 La Gemara ajoute : <b>Et</b> les deux déclarations de Rabbi Yoḥanan sont <b>nécessaires,</b> malgré le fait que tous deux affirment que les fœtus peuvent être consacrés. <b>Comme, si</b> Rabbi Yoḥanan nous avait <b>appris</b> seulement <b>ce premier</b> cas, de celui qui consacre un fœtus par lui-même, je pourrais dire que c'est seulement <b>là</b> que le fœtus est imprégné de sainteté, <b>comme il a été consacré</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

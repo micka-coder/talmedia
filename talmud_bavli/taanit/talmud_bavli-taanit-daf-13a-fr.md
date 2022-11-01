@@ -39,4 +39,4 @@ A propos de cette <i>baraita</i>, <b>Rav Ḥisda a dit :</b> Celui qui est oblig
 <b>Rava a dit : Il est permis à un endeuillé de se baigner dans l'eau froide tous les sept</b> jours de deuil, malgré le fait qu'il tire un certain degré de plaisir du bain froid, <b>tout comme il lui est</b> permis <b>de</b> manger de la <b>viande et du vin.</b> La Gemara <b>souleve une objection :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

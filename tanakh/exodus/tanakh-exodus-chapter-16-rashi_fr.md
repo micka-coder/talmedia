@@ -123,5 +123,5 @@
 ### passuk 36
 <b>Un dixième d'un eiphah.</b> L'<i>eiphah</i> est égal à trois <i>Se'ahs;</i> un <i>se'ah</i> est 6 <i>kabin</i> (3×6=18) ; un <i>kab</i> est 4 <i>logs</i> (18×4=72) ; un <i>log</i> équivaut à 6 œufs (72×6=432). Par conséquent, 1/10 d'un <i>eiphah (432/10) est égal à 43 1/5 (43,2) œufs. C'est la quantité minimale [de pâte] qui nécessite la séparation de la "challah" et pour les offrandes de repas. </i>
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

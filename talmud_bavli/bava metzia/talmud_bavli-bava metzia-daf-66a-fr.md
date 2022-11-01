@@ -36,4 +36,4 @@ Le Rav Naḥman lui <b>dit : J</b> avais l'habitude de <b>savoir</b> que <b>une 
 La Gemara demande : <b>Mais</b> si oui, <b>la mishna</b> est <b>difficile selon Minyumi.</b> La Gemara répond : <b>Si tu veux, dis</b> que <b>la mishna est</b> conforme à l'opinion de <b>Rabbi Yosei, qui a dit</b> que <b>un <i>asmakhta</i> effectue l'acquisition,</b> mais son opinion est minoritaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

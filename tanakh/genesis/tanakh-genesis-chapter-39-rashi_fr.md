@@ -65,5 +65,5 @@
 ### passuk 23
 <b>Parce que Hachem était avec lui.</b> [בַּאֲשֶׁר signifie] parce que Dieu était avec lui.
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

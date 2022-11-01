@@ -15,4 +15,4 @@ La Gemara demande : <b>Et Abaye</b> a-t-il réellement <b>say</b> que <b>Rabbi M
 La Guemara cite des preuves que ce sont les opinions de ces <i>tanna'im</i>. <b>Comme il est enseigné</b> dans une <i>baraita</i> : Dans le cas de <b>celui qui achète du vin chez les Samaritains</b> et qu'il y a des raisons de soupçonner que le <i>teruma</i> et la dîme n'ont pas été prélevés, et qu'il n'est pas en mesure de séparer le <i>teruma</i>, il agit comme suit . S'il y a cent <i>log</i> de vin dans les tonneaux, <b>il dit : Deux <i>log</i> que je séparerai à l'avenir sont des <i>teruma</i>,</b> car la mesure moyenne mandatée de <i>teruma</i> est d'un cinquantième ; <b>dix</b> <i>log</i> sont la <b>première dîme;</b> et un dixième du reste, soit <b>neuf</b> <i>log</i>, sont la <b>seconde dîme. Et il déconsacre</b> la seconde dîme qu'il séparera dans le futur, en transférant sa sainteté à l'argent, <b>et</b> il peut <b>boire</b> le vin <b>immédiatement,</b> en s'appuyant sur la séparation qu'il effectuera plus tard. Telle est la déclaration de Rabbi Meir.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

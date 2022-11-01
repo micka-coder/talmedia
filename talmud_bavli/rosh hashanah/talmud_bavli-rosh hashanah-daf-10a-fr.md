@@ -21,4 +21,4 @@ La Guemara rejette cet argument : <b>Même</b> si <b>on dit</b> que la <i>barait
 Contre cette affirmation <b>Rava dit : Mais</b> ne peut-on <b>pas</b> invoquer un <b><i>argument a fortiori</b> pour prouver exactement le contraire ? <b>Comme dans le cas d'une <b>femme en période de menstruation, où le début de la journée n'est pas compté</b> comme un jour complet <b>à la fin</b> de sa période de sept jours d'impureté rituelle et qu'elle doit plutôt attendre la fin du septième jour et s'immerger dans un bain rituel seulement le soir, mais néanmoins <b>la fin du jour est comptée</b> comme un jour complet <b>au début</b> de sa période d'impureté rituelle, puisque si elle a subi un saignement peu avant le coucher du soleil, ce jour est considéré comme le premier jour de sa période d'impureté de sept jours ; si tel est le cas, dans le cas d'une <b>année, où un jour est compté</b> comme une année complète <b>à la fin</b> de l'année,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

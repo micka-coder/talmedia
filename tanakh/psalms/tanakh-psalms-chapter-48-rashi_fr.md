@@ -51,4 +51,4 @@
 <b>comme dans la jeunesse</b> Heb.  על-מות, comme un homme qui conduit son jeune fils lentement. Menachem (p. 133) l'a interprété comme une expression de l'éternité, et il en est de même pour son interprétation : nous conduira à l'éternité.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

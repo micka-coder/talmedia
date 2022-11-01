@@ -20,5 +20,5 @@ La méthode d'abattage] qui rend la vache rousse valide rend la génisse invalid
 ### michna 7
 Temed : Avant qu'il n'ait fermenté, il ne peut pas être acheté avec l'argent de la deuxième dîme et il rend un mikvé invalide ; Après qu'il ait fermenté, il peut être acheté avec l'argent de la deuxième dîme et il ne rend pas un mikvé invalide. Les frères qui sont partenaires [dans leur héritage] : Lorsqu'ils sont tenus de payer le kalbon, ils sont exemptés de la dîme du bétail, et lorsqu'ils sont tenus de payer la dîme du bétail, ils sont exemptés du kalbon. Quand il y a [le pouvoir] de vendre, il n'y a pas d'amende, et quand il y a une amende, il n'y a pas de pouvoir de vendre. Lorsqu'il y a un droit de refus, il ne peut y avoir de halizah, et lorsqu'il peut y avoir une halizah, il n'y a plus de droit de refus. Lorsque le shofar est soufflé, il n'y a pas de havdalah, et lorsqu'il y a habdalah, le shofar n'est pas soufflé. Ainsi, si une fête tombe la veille de Chabbat, on souffle dans le shofar mais il n'y a pas de havdalah ; si elle tombe le lendemain de Chabbat, il y a havdalah mais on ne souffle pas dans le shofar. Comment récite-t-on la havdalah [lors d'une fête qui suit Chabbat] ? "Qui fait la distinction entre le saint et le saint." Rabbi Dosa dit : "Qui fait la distinction entre le jour le plus saint et le jour le moins saint."
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -438,4 +438,4 @@
 <b>Ma langue proclamera</b> Heb.  תען. Chaque [expression de]  עַנִיָה " est une expression d'une voix forte, et le "père" de toutes ces expressions est (Deut. 27:14) : "Et les lévites proclameront (וענו-) et diront [à tout Israël à voix haute]."
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

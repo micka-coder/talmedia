@@ -63,4 +63,4 @@ La Gemara demande : <b>Peut-être</b> que c'était un démon <b>et qu'il a menti
 Quant à la mission de l'ange, la Guemara explique que l'ange <b>a dit à</b> Josué : <b>Hier,</b> c'est-à-dire durant l'après-midi, <b>tu as négligé l'offrande quotidienne de l'après-midi</b> à cause de l'imminence de la bataille, <b>et maintenant,</b> la nuit, <b>tu as négligé l'étude de la Torah,</b> et je suis venu te réprimander. Josué <b>s'adressa à lui : Pour lequel de ces</b> péchés <b>ses-tu venu ? Il lui répondit : Je suis venu maintenant,</b> indiquant que négliger l'étude de la Torah est plus grave que de négliger de sacrifier l'offrande quotidienne. Josué <b>immédiatement</b> se détermina à rectifier le tir, comme le précise le verset : <b>"Et Josué logea cette nuit-là"</b> (Josué 8:9) <b>"au milieu de la vallée</b> [<b><i>ha'emek</i></b>]" (Josué 8:13), et <b>Rabbi Yoḥanan dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

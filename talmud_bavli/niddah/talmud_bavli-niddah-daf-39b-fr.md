@@ -33,4 +33,4 @@ Rav Huna, fils de Rav Yehoshua, <b>dit à</b> Rav Pappa : Ce ne sont <b>pas</b> 
 La Guemara note : <b>Et de même, lorsque Ravin et tous</b> les <b>marins sont venus</b> d'Eretz Yisraël en Babylonie et ont transmis des déclarations de Rabbi Yoḥanan, <b>ils ont dit</b> cette déclaration de Rabbi Yoḥanan <b>conformément</b> à l'explication de <b>Rav Huna, fils de Rav Yehoshua.</b><br/>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara applique cette discussion au sujet mentionné précédemment. <b>Acco
 <b>Cependant, selon Rabbi Yéhouda, qui a dit</b> que le mot "ou" <b>vient</b> enseigner que les <b>matières sont</b> à comprendre <b>comme elles sont écrites, d'où tire-t-il</b> en ce qui concerne <b>toutes les interdictions</b> de manger <b>mentionnées dans la Torah qu'il est interdit</b> d'en tirer <b>un bénéfice</b> également ? La Gemara répond : <b>Il le déduit</b> d'un autre verset. Il est dit à propos d'un animal atteint d'une maladie qui le fera mourir dans les douze mois [<i>tereifa</i>] : "Et vous serez pour Moi des hommes sacrés, c'est pourquoi vous ne mangerez pas de la chair déchirée des bêtes des champs ; <b>vous la jetterez aux chiens"</b> (Exode 22:30).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

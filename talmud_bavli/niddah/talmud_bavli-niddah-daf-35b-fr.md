@@ -84,4 +84,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une <i>baraita</i>, qui tr
 En outre, la phrase <b>"Sa</b> maladie menstruelle, elle sera impure"</b> sert <b>à inclure les nuits;</b> bien que le verset dise : "Comme pendant les jours", elle est impure pendant la nuit aussi. Enfin, <b>"sa</b> maladie menstruelle, elle sera impure"</b> sert <b>à inclure une femme qui accouche en tant que <i>zava</i>,</b> enseignant <b>qu'elle doit observer sept jours purs.</b> La Guemara analyse cette <i>baraita</i> : <b>Accordé,</b> la <i>baraita</i> est claire <b>selon Rav, qui a dit</b> il y a <b>une source,</b> car c'est <b>à cause de cette</b> raison qu'une femme qui accouche en tant que <i>zava</i> <b>exige sept jours purs.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

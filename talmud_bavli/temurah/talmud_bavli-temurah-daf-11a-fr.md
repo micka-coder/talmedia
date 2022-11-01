@@ -45,4 +45,4 @@ Rabbi Meir ajoute : <b>Et</b> Rabbi Eliezer tient <b>conformément</b> à l'avis
 § La mishna enseigne que selon les rabbins, on ne peut pas substituer des membres non sacrés à des animaux entiers consacrés, mais <b>Rabbi Yosei dit</b> qu'on peut substituer de cette manière. Il prétend : <b>Mais n'est-ce pas</b> ainsi <b>en ce qui concerne les animaux sacrifiés</b>, que si <b>on dit : La</b> patte arrière de cet</b> animal est un holocauste, l'animal entier est un holocauste ? Il devrait en être de même pour la substitution.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

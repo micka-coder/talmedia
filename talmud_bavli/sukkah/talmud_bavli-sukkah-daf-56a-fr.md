@@ -57,4 +57,4 @@ La procédure standard était que les membres de <b>la veille entrante</b> <b>di
 La mishna poursuit : <b>Si un jour est arrivé.</b> Pendant le reste des jours de l'année, la veille entrante prend six pains et la veille sortante prend six pains. Rabbi Yehuda dit : La montre entrante prend sept pains et la montre sortante en prend cinq.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

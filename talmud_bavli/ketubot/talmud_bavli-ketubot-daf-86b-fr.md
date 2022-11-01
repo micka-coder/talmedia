@@ -48,4 +48,4 @@ Si une femme dispensée de serment par son mari <b>se rend de la tombe de son ma
 <strong>GEMARA:</strong> La Gemara demande : <b>Quel est le but d'un serment ?</b> Quel serment peut-il lui administrer qui l'a poussé à ajouter cette condition à son contrat de mariage ? <b>Rav Yehuda dit</b> que <b>Rav a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

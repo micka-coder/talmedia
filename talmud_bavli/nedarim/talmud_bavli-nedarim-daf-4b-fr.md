@@ -30,4 +30,4 @@ La Gemara demande : <b>Si oui, c'est</b> la même chose que <b>la première</b> 
 <b>Au contraire, Shmuel</b> a en fait <b>dit</b> comme suit : <b>La raison est</b> que <b>il a dit : </b> Je suis avoué de toi en ce qui concerne <b>ce</b> que <b>je mange</b> de <b>toi,</b> ou en ce qui concerne <b>ce</b> que <b>je goûte</b> de <b>toi;</b> c'est pour cette raison <b>qu'il lui est interdit</b> de bénéficier de son compagnon, <b>et que son compagnon est autorisé</b> à bénéficier de lui, car cette formulation indique qu'il applique son vœu uniquement à lui-même.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

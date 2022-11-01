@@ -27,4 +27,4 @@ La Guemara conteste l'interprétation du différend par Rabbi Ami : <b>Et selon<
 La Guemara répond : <b>Il s'agit ici</b> d'un cas <b>où</b> le <i>yavam</i> <b>se tenait</b> au tribunal <b>en jugement</b> après que la femme ait exigé qu'il l'épouse <b>et qu'il ait été obligé</b> par le tribunal de fournir <b>sa subsistance. Et</b> ceci est <b>conforme</b> à ce que <b>Rav Pineḥas</b> a déclaré <b>au nom de Rava, qui a dit : Toute</b> femme <b>qui fait des vœux,</b> ce qu'elle <b>fait</b> est subordonné <b>au consentement de son mari.</b> Puisque dans ces circonstances le <i>yavam</i> doit subvenir aux besoins de la <i>yevama</i> qu'il a fiancée, il est autorisé à annuler ses vœux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

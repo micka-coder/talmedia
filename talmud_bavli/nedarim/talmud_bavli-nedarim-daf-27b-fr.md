@@ -27,4 +27,4 @@ La Gemara conclut : <b>Et la <i>halakha</i></b> dans ces cas est la suivante : <
 <strong>MISHNA :</strong> <b>On peut faire un vœu aux meurtriers,</b> c'est-à-dire, les personnes soupçonnées de tuer d'autres personnes pour des questions monétaires ; <b>ou aux voleurs [<i>ḥaramin</i>] ; ou aux collecteurs d'impôts</b> qui veulent collecter l'impôt, <b>que</b> le produit en sa possession <b>est <i>teruma</i> bien qu'il ne soit pas <i>teruma</i>. </b> On peut aussi leur faire un vœu <b>que</b> le produit en sa possession <b>appartient à la maison du roi, alors qu'il n'appartient pas à la maison du roi.</b> On peut faire un faux vœu pour se sauver ou sauver ses biens, car une déclaration de ce genre n'a pas le statut de vœu. <b>Beit Shammai disent : On peut faire un vœu</b> dans un tel cas, bien qu'il n'ait aucune intention que ses paroles soient vraies, <b>en utilisant tous</b> les moyens de faire un vœu ou de faire une interdiction afin de tromper ces personnes,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

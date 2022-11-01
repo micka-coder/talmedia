@@ -48,4 +48,4 @@ Rav Naḥman <b>dit à</b> l'agent : Le principe en ce qui concerne un mandatair
 La Guemara analyse la <i>baraita</i> : <b>Par rapport à quoi</b> Rabbi Yehuda HaNasi et Rabban Shimon ben Gamliel <b>sont-ils en désaccord ? Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il <b>a dit : Ils ne sont pas d'accord</b> sur le fait que l'on acquiert ou non des <b>lettres en transférant</b> le document d'un détenteur du document à un autre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

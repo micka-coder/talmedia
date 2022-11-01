@@ -39,4 +39,4 @@ La Guemara demande : <b>Comment pourrait-on faire cela,</b> c'est-à-dire modifi
 <b>Rav a dit : Ils ont trouvé un verset, et l'ont interprété de manière homilétique</b> et ont agi en conséquence :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

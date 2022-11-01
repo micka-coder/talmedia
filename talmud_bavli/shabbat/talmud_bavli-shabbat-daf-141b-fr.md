@@ -51,4 +51,4 @@ La Guemara en déduit : <b>La raison</b> pour laquelle il est permis est uniquem
 La Gemara répond : <b>Ce</b> <i>baraita</i> <b>est</b> l'avis de <b>Rabbi Yehuda au nom de Rabbi Eliezer,</b> et ce n'est pas une clarification de l'avis des sages. Bien que Rabbi Eliezer considère que la chaussure n'est pas encore achevée, néanmoins, Rabbi Yehuda dit au nom de Rabbi Eliezer qu'il est permis de la porter. <b>Comme cela a été enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit au nom de Rabbi Eliezer : S'il était</b> déjà <b>libre</b> et ne nécessite plus de forme, <b>il est permis</b> de le déplacer, puisqu'il est un récipient achevé et n'a plus besoin de la forme pour le façonner.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

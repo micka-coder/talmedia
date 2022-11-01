@@ -45,4 +45,4 @@
 <b>Pendant de nombreux jours, Yehoshua.</b> Ce verset a été dit pour critiquer Yehoshua, qui avait l'intention de retarder la conquête du pays, afin de rallonger ses jours, car il est dit : "Et tu le leur répartiras."<sup>6</sup><i class="footnote">Il a fallu sept ans à Yehoshua pour conquérir tout le pays. Nos Sages disent qu'il aurait pu conquérir le pays plus rapidement. Il n'était pas nécessaire que cela prenne sept ans. Yehoshua était réticent à achever la conquête du pays et à le diviser entre les tribus. Il avait peur de mourir une fois qu'il l'aurait achevée. Il savait que sa mission dans la vie était d'amener les Bnei Israël en Eretz Israël et de les y installer. Une fois sa mission accomplie, sa vie n'aurait plus de but. Voir <i>Devorim 31:7</i> Parce qu'il était réticent à achever la conquête, D.ieu le punit, et dès que la répartition des terres fut achevée, il mourut. Il était alors âgé de cent dix ans. Sans cela, il aurait vécu dix ans de plus, jusqu'à cent vingt ans comme son maître, Moshé.</i> Extrait du <i>Midrash Tanchumah.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

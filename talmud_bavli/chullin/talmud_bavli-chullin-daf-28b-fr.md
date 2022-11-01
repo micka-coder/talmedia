@@ -57,4 +57,4 @@ La Guemara en déduit : <b>Mais s'il était possible de mesurer précisément</b
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une autre preuve contraire à l'avis du Rav à partir d'une <i>baraïta</i> : Si l'on <b>coupe la moitié</b> de la <b>canalisation et interrompt</b> l'abattage...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

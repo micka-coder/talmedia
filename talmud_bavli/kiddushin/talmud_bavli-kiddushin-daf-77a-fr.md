@@ -54,4 +54,4 @@ Si un grand prêtre s'engage dans des rapports sexuels avec une femme qui était
 La Guemara procède à la clarification de cette <i>baraïta</i>. <b>Le Maître a dit</b> dans la <i>baraita</i> : Si un grand prêtre a des rapports sexuels avec <b>une veuve, une veuve, une veuve, il est passible</b> de recevoir <b>une seule</b> série de coups de fouet. La Gemara demande : <b>Quelles sont les circonstances de cette veuve ? Si nous disons qu'il a eu des relations sexuelles</b> avec trois veuves : <b>Avec la veuve de Reuven, et avec la veuve de Shimon, et avec la veuve de Levi, pourquoi est-il passible</b> de recevoir <b>une seule</b> série de coups de fouet ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La mishna poursuit : <b>Et non seulement ces</b> témoins se voient accorder deu
 <b>Comme l'a dit Rabbi Yoḥanan : Quel est</b> le sens de ce <b>qui est écrit : "La domination et la crainte sont avec Lui, Il fait la paix dans Ses hauts lieux"</b> (Job 25.2) ? Cela signifie que <b>le soleil n'a jamais vu le côté concave</b> <b>de la nouvelle <b>lune</b> ni</b> le côté concave</b> <b>d'un arc-en-ciel,</b> tous deux toujours tournés vers l'opposé du soleil. Il n'a jamais vu <b>le côté concave</b> <b>de la lune, car</b> la lune serait <b>désirée</b> par un sentiment d'insuffisance si son côté concave faisait face au soleil. Par conséquent, le soleil ne voit que la rondeur complète de son côté convexe. De cette façon, Il fait la paix dans Ses hauts lieux entre le soleil et la lune. De plus, le soleil n'a jamais vu <b>le côté concave</b> <b>d'un arc-en-ciel, afin que les adorateurs du soleil ne disent pas,</b> comme si le soleil était un dieu,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -61,4 +61,4 @@
 <b>dix hommes</b> des soixante-dix nations. Cela équivaut à sept cents pour chaque coin. Pour les quatre coins du tallith, il y aura deux mille huit cents.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

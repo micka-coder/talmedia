@@ -57,4 +57,4 @@ La Guemara explique : Rabbi Chimon devait enseigner les deux cas de manière exp
 <b>Rav Mari a dit</b> une résolution différente de la contradiction entre les déclarations de Rabbi Shimon :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

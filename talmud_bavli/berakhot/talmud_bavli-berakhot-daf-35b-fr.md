@@ -69,4 +69,4 @@ Precedemment, la Gemara a cite la <i>halakha</i> selon laquelle on recite la ben
 <b>Il s'agit plutot d'un cas ou <b>il mange</b> l'huile <b>en</b> y trempant du <b>pain</b>. <b>Si oui,</b> le <b>pain est primaire et</b> l'huile <b>secondaire, et nous avons appris</b> dans une mishna : <b>C'est le principe : Tout</b> aliment <b>premier et</b> consomme <b>avec</b> un aliment <b>secondaire, on recite une benediction sur l'aliment</b> premier, et cette benediction <b>exempte le secondaire</b> de l'obligation de reciter une benediction avant de le consommer. Une benediction ne doit etre recitee que sur le pain, pas sur l'huile. <b>Il s'agit plutot d'un cas <b>ou il la boit au moyen d'un <i>anigeron</i>, comme l'a dit Rabba bar Shmuel : <i>Anigeron</i></b> est <b>l'eau</b> dans laquelle une <b>betterave</b> a ete bouillie, <b><i>ansigeron</i></b> est <b>l'eau</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

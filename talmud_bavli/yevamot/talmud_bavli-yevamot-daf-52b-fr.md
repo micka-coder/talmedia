@@ -39,4 +39,4 @@ En ce qui concerne la <i>halakha</i> des fiançailles après <i>ḥalitza</i>, l
 <b>Rava a dit : S'il lui a dit :</b> Sois fiancée à moi <b>avec des fiançailles léviriennes, tout le monde s'accorde à dire que c'est effectif,</b> et elle est acquise. <b>Et de quoi s'agit-il ici ?</b> C'est un cas <b>où il lui a dit : Sois fiancée à moi avec le lien de lévirat,</b> et le litige est le suivant : <b>Rabbi</b> Yehuda HaNasi <b>tient</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

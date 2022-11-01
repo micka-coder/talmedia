@@ -54,7 +54,7 @@ La Guemara demande : <b>Cela marche bien selon celui qui dit :</b> En ce qui con
 La Gemara <b>souleve une objection : Si</b> les gens <b>voyaient que</b> une femme <b>entrait avec un</b> homme <b>dans la réclusion,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Parce que si</b> ce n'était pas <b>ainsi,</b> c'est <b>difficile,</b> car il y aurait une contradiction entre une <b><i>halakha</i></b> et une autre <b><i>halakha</i>. Puisque,</b> d'une part, <b>on maintient</b> un principe dans la décision halakhique selon lequel <b>la <i>halakha</i></b> est <b>conforme</b> à l'avis du <b>Rav Naḥman en droit civil ; et,</b> d'autre part, <b>dans ce</b> cas impliquant les revendications de la mariée et du marié <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : La <i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabban Gamliel. Au contraire,</b> ne peut-on <b>pas conclure de</b> cette apparente contradiction que la question doit être comprise <b>comme nous l'enseignons,</b> que l'avis de Rav Naḥman peut être concilié avec l'avis de Rabban Gamliel ? La Guemara affirme : En effet, <b>concluez-en</b> que c'est le cas.
 
@@ -110,4 +110,4 @@ La Guemara demande : <b>Cela marche bien selon celui qui dit :</b> En ce qui con
 La Gemara <b>souleve une objection : Si</b> les gens <b>voyaient que</b> une femme <b>entrait avec un</b> homme <b>dans la réclusion,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

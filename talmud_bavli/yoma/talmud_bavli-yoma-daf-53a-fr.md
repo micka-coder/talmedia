@@ -75,4 +75,4 @@ La Guemara répond : Ils n'ont pas été punis pour leur entrée dans le lieu sa
 <b>Et lorsque Rabbi Elazar voulait partir, il marchait à reculons jusqu'à ce qu'il disparaisse de la vue de Rabbi Yoḥanan,</b> et alors seulement il marchait normalement, afin de ne pas tourner le dos à son maître. La Guemara relate en outre : <b>Lorsque Rava prenait congé de Rav Yosef, il marchait à reculons,</b> sans prêter attention aux obstacles sur son chemin, <b>jusqu'à ce que ses jambes soient meurtries et que le seuil de la maison de Rav Yosef soit ensanglanté</b> par les blessures de Rava.
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

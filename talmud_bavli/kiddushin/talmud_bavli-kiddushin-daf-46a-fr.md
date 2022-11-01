@@ -33,4 +33,4 @@ La Guemara poursuit en demandant : <b>Et</b> elle est fiancée <b>même</b> si <
 <b>Rava dit : Concluez trois</b> conclusions <b>à partir</b> de cette déclaration <b>de Rabbi Ami : Concluez-en</b> que dans le cas de <b>celui qui fiance</b> une femme <b>avec un prêt, elle n'est pas fiancée,</b> puisqu'elle n'est pas fiancée avec une datte qu'elle a déjà mangée. <b>Et en conclure</b> que dans le cas de <b>celui qui fiance</b> une femme <b>en</b> pardonnant <b>un prêt et</b> en lui donnant <b>une <i>peruta</i>, son esprit</b> est concentré <b>sur la <i>peruta</i></b> bien que la dette soit beaucoup plus importante, et elle sera fiancée. Dans ce dernier cas, bien que la valeur des dattes qu'elle a mangées soit supérieure à la valeur de la dernière datte, qui valait simplement une <i>peruta</i>, elle est néanmoins fiancée.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

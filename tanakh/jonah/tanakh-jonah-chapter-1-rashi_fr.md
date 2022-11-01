@@ -51,7 +51,7 @@
 <b>Et ils firent des vœux</b> - qu'ils feraient du prosélytisme.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -104,4 +104,4 @@
 <b>Et ils firent des vœux</b> - qu'ils feraient du prosélytisme.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

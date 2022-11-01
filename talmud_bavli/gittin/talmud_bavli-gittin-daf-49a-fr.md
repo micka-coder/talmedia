@@ -36,4 +36,4 @@ La Guemara explique cette suggestion : <b>Comme Rabbi Akiva tient conformément<
 La Guemara rejette cette suggestion : <b>S'il en est ainsi</b> que c'est là le désaccord, alors <b>quel est le sens</b> de la déclaration de Rabbi Akiva : <b>Le verset ne vient</b> que pour permettre aux personnes lésées de percevoir une compensation sur des terres de qualité supérieure ? Cela indique que Rabbi Akiva n'est pas d'accord sur la manière de comprendre ce verset. <b>Et en outre,</b> si le sujet est le trésor du Temple, <b>quelle est la signification de : <b>Et</b> au moyen d'une <b>déduction <i>a fortiori</i></b> on peut déduire que le trésor du Temple des biens <b>consacrés</b> perçoit des terres de qualité supérieure. <b>Et par ailleurs, le Rav Ashi n'a-t-il pas dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Le <i>baraita</i> continue : Il faut un verset pour enseigner cette <i>halakha</
 En contradiction avec ce raisonnement, <b>le verset indique,</b> en ce qui concerne le bouc : " Il l'offrira en sacrifice pour le péché " pour indiquer que la loterie en fait un sacrifice pour le péché ; désigner verbalement le bouc avec le statut de sacrifice pour le péché n'en fait pas un sacrifice pour le péché.
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

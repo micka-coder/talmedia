@@ -20,5 +20,5 @@ Si une femme fait une fausse couche la veille du quatre-vingt-unième jour : Bet
 ### michna 7
 Si une femme a eu cinq écoulements génitaux douteux ou cinq naissances douteuses, elle ne doit apporter qu'une seule offrande, et elle peut manger les sacrifices [immédiatement], et elle n'est pas tenue d'apporter les autres [offrandes]. Si une femme a eu cinq naissances certaines, ou cinq écoulements génitaux certains, elle apporte une offrande et peut alors manger des sacrifices [immédiatement], et elle est tenue d'apporter les autres offrandes. Il arriva un jour à Jérusalem que le prix d'une paire de colombes s'éleva à un denar d'or.  Rabban Shimon ben Gamaliel a dit : Par ce sanctuaire, je ne m'endormirai pas ce soir avant qu'elles ne coûtent qu'un denar [d'argent] ! Puis il entra dans la cour et enseigna : si une femme a eu cinq naissances ou cinq écoulements génitaux déterminés, elle ne doit apporter qu'une seule offrande, et elle peut alors manger des sacrifices, et elle n'est pas tenue d'apporter les autres [offrandes]. Le prix d'une paire d'oiseaux s'élevait alors à un quart de denar [d'argent] chacun.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -96,4 +96,4 @@ Et חֶלְיָתָה est un terme arabe qui signifie bijou.
 <b>Et je la sèmerai pour Moi dans le pays</b> Comme celui qui sème une se'ah afin de rassembler de nombreux korim, ainsi de nombreux prosélytes s'ajouteront à eux. [extrait de Pesachim 87b]
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

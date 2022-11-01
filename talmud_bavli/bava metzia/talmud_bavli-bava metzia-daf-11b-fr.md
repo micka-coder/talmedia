@@ -33,7 +33,7 @@ La Guemara rejette le raisonnement de Rava : <b>Mais</b> cela <b>n'est pas le ca
 <b>Au contraire, le Rav Ashi dit</b> que la distinction entre les cas de donation et d'acte de divorce doit être expliquée comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>et le lieu de</b> la dîme <b>lui est loué.</b> Rabbi Yehoshua lui a versé une somme symbolique pour louer le champ, qui est vraisemblablement devenu l'équivalent de sa cour, et a ainsi acquis la dîme. <b>Et un autre dixième que je mesurerai à l'avenir</b> et que je séparerai de mes produits comme la dîme du pauvre <b>est donné à Akiva ben Yosef afin qu'il l'acquière pour les pauvres, et sa place lui est louée.</b>
 
@@ -68,4 +68,4 @@ La Guemara rejette le raisonnement de Rava : <b>Mais</b> cela <b>n'est pas le ca
 <b>Au contraire, le Rav Ashi dit</b> que la distinction entre les cas de donation et d'acte de divorce doit être expliquée comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

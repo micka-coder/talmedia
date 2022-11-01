@@ -33,4 +33,4 @@ Le <i>baraita</i> poursuit : <b>Et si l'on consacrait, ou estimait, ou dédiait<
 La Gemara conteste : <b>Si c'est le cas,</b> alors <b>un premier-né ne doit pas non plus être consacré,</b> car cela aussi pourrait conduire à une mésaventure. La Gemara répond : La <b>question</b> de la consécration d'un <b>premier-né dépend-elle de nous ? </b> L'animal est automatiquement <b>consacré dès</b> sa sortie de <b>l'utérus.</b> La Gemara répond que <b>c'est</b> ce que dit le questionneur : Vendons les oreilles</b> de tous les animaux premiers-nés <b>aux Gentils</b> avant leur naissance, afin <b>qu'ils ne soient pas consacrés dès le départ.</b> Un animal premier-né qui appartient conjointement à un Juif et à un Gentil ne devient pas consacré comme premier-né.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

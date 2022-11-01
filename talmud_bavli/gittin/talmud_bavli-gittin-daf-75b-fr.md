@@ -60,4 +60,4 @@ La Guemara répond : <b>Voici ce que</b> la mishna <b>dit</b> selon l'avis du Ra
 La Gemara <b>souleve une objection</b> à l'opinion de Rav Ashi à partir de la dernière clause de la mishna : Si un mari a dit à sa femme : <b>Voici ton acte de divorce à la condition que tu serves</b> mon <b>père</b> pendant <b>deux ans,</b> ou : Voici votre acte de divorce <b>à la condition que vous soigniez mon fils</b> pendant <b>deux ans,</b> et <b>le fils est mort ou le père a dit : Je ne veux pas que tu me serves,</b> alors même si le père <b>n'a pas</b> dit cela <b>en colère,</b> ce <b>n'est pas</b> un <b>acte de divorce valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara commente : <b>Et</b> la déclaration de Rav Ḥisda <b>est en désacc
 <b>Le verset parle plutôt du vol d'un converti,</b> qui est traité comme un nouveau-né et considéré comme n'ayant aucun lien avec ses parents naturels ou ses proches. S'il n'a pas engendré d'enfants après sa conversion, il est un homme sans aucun lien de parenté, et donc s'il meurt, les biens qui lui ont été volés doivent être rendus à un prêtre.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

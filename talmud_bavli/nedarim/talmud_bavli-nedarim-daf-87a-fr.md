@@ -30,4 +30,4 @@ La Guemara conclut : <b>Et la <i>halakha</i></b> est : Le statut juridique d'une
 <strong>GEMARA:</strong> <b>De quelle opinion</b> est exprimée dans <b>la mishna ?</b> La Gemara répond : Elle suit l'opinion de <b>Rabbi Yishmael, telle qu'elle est enseignée</b> dans une <i>baraita</i> : Le verset concernant les vœux qui dit : <b>"Son mari peut le maintenir, ou son mari peut l'annuler"</b> (Nombres 30:14), peut être expliqué comme suit . Si une femme <b>dit : La dégustation de ces figues et de ces raisins est <i>konam</i> pour moi,</b> et que son mari <b>soutient</b> son vœu <b>en ce qui concerne les figues, l'ensemble</b> du vœu <b>est soutenu.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

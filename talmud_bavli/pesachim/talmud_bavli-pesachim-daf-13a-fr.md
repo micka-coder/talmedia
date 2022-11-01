@@ -51,4 +51,4 @@ De même, les <b>collecteurs de</b> nourriture pour <b>l'assiette de charité,</
 <b>Abaye lui dit : N'a-t-on pas dit à propos de cette</b> mishna que <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Les sages <b>ont enseigné</b> qu'on ne peut les toucher <b>que</b> si .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

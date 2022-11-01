@@ -51,4 +51,4 @@ La Gemara rejette cette possibilité : <b>Vous</b> pouvez <b>même dire</b> que 
 Par conséquent, l'explication précédente doit être rejetée. <b>C'est plutôt le raisonnement de Rabbi</b> Yehuda HaNasi : Il est dit dans le verset suivant : <b>"Celui que le tribunal condamnera"</b> (Exode 22:8) au pluriel, ce qui signifie qu'il doit y avoir <b>deux</b> juges. Par conséquent, <b>il est dit : "Le tribunal,"</b> dans le verset <b>suivant et il est dit : "Le tribunal,"</b> dans le verset <b>au-dessus. De même qu'en bas</b> il est question de <b>deux</b> juges, puisque le mot : "Condamnera", est écrit au pluriel, <b>de même au-dessus</b> il est question de <b>deux</b> juges, soit un total de quatre. <b>Et</b> comme <b>un tribunal ne peut</b> être composé d'un <b>nombre pair</b> de juges, <b>ils leur en ajoutent un autre, de sorte qu'il y a cinq</b> juges <b>ici.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

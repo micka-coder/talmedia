@@ -39,4 +39,4 @@ La Guemara remet en question l'explication de Rav Mesharshiyya : Pourquoi s'inqu
 La Guemara remet en question l'explication de Rav Ashi : <b>Et le propriétaire a-t-il la permission de séparer</b> le <b><i>teruma</i> de la dîme</b> de la dîme du Lévite ? Le Lévite est celui qui est tenu de séparer le <i>teruma</i> de la dîme et de le remettre à un prêtre. La Guemara répond : <b>Oui;</b> la <i>baraita</i> <b>est</b> conforme à l'avis de <b>Abba Elazar ben Gamla. Comme il est enseigné</b> dans un <i>baraita</i> : <b>Abba Elazar ben Gamla dit :</b> Le verset stipule concernant le <i>teruma</i> de la dîme : <b>"Et le don que tu as mis à part [<i>terumatkhem</i>] te sera compté,</b> comme si c'était le grain de l'aire de battage" (Nombres 18:27).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara rejette cette idée : <b>De quoi</b> cette conclusion découle-t-elle
 <b>Rav Pappa a plutôt dit :</b> Ceci n'est <b>pas difficile. Cette</b> mishna est conforme à l'opinion de <b>Beit Shammai, et cette</b> mishna est conforme à l'opinion de <b>Beit Hillel. Comme nous l'avons appris</b> dans une mishna que <b>Beit Shammai disent :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

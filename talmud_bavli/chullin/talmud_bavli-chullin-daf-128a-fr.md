@@ -60,4 +60,4 @@ Sur la base de cette mishna, <b>Abaye soulève un dilemme</b> selon l'avis de Ra
 La Guemara relate un autre dilemme basé sur l'opinion de Rabbi Shimon. <b>Rabbi Yirmeya dit :</b> Les Sages ont <b>dit</b> que <b>celui qui se prosterne devant la moitié d'une calebasse,</b> en l'adorant comme une divinité, <b>rend</b> cette moitié de la calebasse <b>interdite,</b> c'est-à-dire qu'il est interdit d'en tirer un bénéfice, car elle a été adorée comme une idole. L'autre moitié, en revanche, n'est pas interdite. Sur la base de cette décision, <b>Rabbi Yirmeya soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

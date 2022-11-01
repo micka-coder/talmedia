@@ -57,4 +57,4 @@ La malédiction de ceux qui <b>"tombent par l'épée"</b> s'est accomplie parmi 
 La malédiction de ceux qui <b>"manquent de pain"</b> s'est accomplie parmi les descendants de Salomon <b>à Jeconiah, comme il est écrit</b> à son sujet : <b>"Et quant à son allocation de nourriture, il y avait une allocation de nourriture continuelle qui lui était donnée par le roi,</b> une portion quotidienne pour chaque jour, tous les jours de sa vie" (II Rois 25:30). <b>Rav Yehuda dit</b> que <b>Rav dit : Ceci</b> explique l'adage <b>qu'on dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

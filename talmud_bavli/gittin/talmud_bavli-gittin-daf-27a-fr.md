@@ -27,4 +27,4 @@ La Guemara relate : <Rabba a effectué une action, c'est à dire.., a émis une 
 A propos de cette question, la Gemara relate que <b>Rabbi Zeira soulève une contradiction</b> entre <b>la mishna et une <i>baraita</i> et</b> y <b>répond</b> ensuite : <b>Nous avons appris</b> dans la mishna : A l'égard d'un agent <b>qui apporte un acte de divorce et que celui-ci</b> a été <b>perdu chez lui, s'il le retrouve immédiatement</b> alors l'acte de divorce est <b>valide. Et dans le cas contraire,</b> il est <b>invalide. Et</b> il <b>souleve une contradiction</b> d'une <i>baraita</i> qui dit : Si l'on <b>trouve l'acte de divorce d'une femme sur la place du marché,</b> alors <b>lorsque le mari admet</b> qu'il l'a rédigé et remis, celui qui l'a trouvé doit <b>le rendre</b> <b>à la femme.</b> Si <b>le mari n'admet pas</b> cela, alors il ne doit <b>pas le rendre</b>, <b>ni à cet</b> homme <b>ni à cette</b> femme. On peut déduire de là : <b>Mais</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

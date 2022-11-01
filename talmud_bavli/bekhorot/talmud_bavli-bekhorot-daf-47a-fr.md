@@ -69,4 +69,4 @@ La Guemara note : <b>Cela marche bien selon</b> l'avis de <b>Mar, fils de Rav Yo
 La Gemara répond : <b>En fait,</b> la mishna ne fait pas référence à la fille d'un prêtre mais à une femme <b>qui est tombée enceinte d'un prêtre.</b> Par conséquent, son fils est exempt de rachat, <b>et</b> pourtant <b>elle</b> elle-même est <b>une femme israélite. Et pourquoi</b> la mishna <b>l'appelle-t-elle</b> la fille d'un <b>prêtre [<i>kohenet</i>] ? Parce que son fils est un prêtre.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

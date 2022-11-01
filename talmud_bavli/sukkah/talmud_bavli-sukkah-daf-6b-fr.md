@@ -51,4 +51,4 @@ D'autre part, Rabbi Shimon soutient : La vocalisation</b> de la Torah <b>fait au
 <b>Rav Kahana et Rav Asi ont dit au Rav :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

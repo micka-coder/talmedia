@@ -58,5 +58,5 @@
 ### passuk 18
 <b>Tous ceux qui étaient venus à la porte de sa ville.</b> [C'est-à-dire] parmi eux tous et en présence de tous, il lui donna la possession. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

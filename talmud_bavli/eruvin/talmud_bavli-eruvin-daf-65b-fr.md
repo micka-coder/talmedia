@@ -63,4 +63,4 @@ La Guemara relate un incident similaire : <b>Rabbi Ḥanina bar Yosef et Rabbi �
 <b>Rabbi Ḥanina bar Yosef a dit : Louons,</b> tandis que <b>Rabbi Asi a dit : Ne louons pas. Rabbi Ḥiyya bar Abba leur a dit : Appuyons-nous</b> maintenant <b>sur les paroles de</b> l'<b>Aîné,</b> Rabbi Ḥanina bar Yosef, <b>et louons.</b> Plus tard, <b>ils sont venus interroger Rabbi Yoḥanan</b> à ce sujet, et <b>il leur a répondu :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

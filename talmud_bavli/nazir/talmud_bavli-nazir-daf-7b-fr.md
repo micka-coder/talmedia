@@ -18,4 +18,4 @@ La Gemara commente : A cet égard, <b>Rav se tient en accord avec</b> l'opinion 
 <b>Et les rabbins disent : Il n'a pas besoin d'acheter un chemin,</b> car on suppose que de la même manière qu'il a conservé ses droits sur le puits ou la citerne, il a également conservé le droit de traverser le reste de la propriété afin d'accéder au puits ou à la citerne. <b>Et Rabbi Akiva concède cela lorsqu'il lui dit</b> dans le document de vente : <b>En dehors de ceux-ci,</b> c'est-à-dire le puits et la citerne, <b>qu'il n'a pas besoin d'acheter un chemin.</b> Le raisonnement de Rabbi Akiva est le suivant : Puisque le vendeur a inutilement souligné que le puits et la citerne ne sont pas inclus dans la vente, il a dû avoir l'intention de se réserver ainsi le droit d'accès. Cela prouve que, selon Rabbi Akiva, si l'on ajoute une clause superflue, on doit avoir eu un sens spécifique à l'esprit, et quelque chose doit être déduit de sa déclaration. Le Rav suit un raisonnement similaire en ce qui concerne le cas d'un nazirite.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

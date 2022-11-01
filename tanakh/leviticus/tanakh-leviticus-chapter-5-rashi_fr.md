@@ -94,5 +94,5 @@
 <b>Et son cinquième. </b> La Torah a inclus plusieurs cinquièmes pour un seul principal, car s'il a nié [l'obligation] du cinquième, a prêté serment et [ensuite] a admis [l'obligation], il doit apporter un cinquième supplémentaire de ce cinquième, et ainsi de suite jusqu'à ce que le principal sur lequel il prête serment soit inférieur à la valeur d'un sou. 
 <b>À qui appartient l'objet,</b> à qui <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> appartient l'argent. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

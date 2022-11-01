@@ -35,5 +35,5 @@ Celui qui vend un produit en Syrie et déclare : "Il a été cultivé en terre d
 ### michna 12
 Si un am haaretz dit à un chaver : "Achète-moi un paquet de légumes", ou : "Achète-moi un pain", le chaver peut l'acheter sans vérifier [s'il a été dîmé], et il est exempté [de la dîme]. Mais si le chaver dit : "Celui-ci, je l'achète pour moi et celui-là pour mon ami", et qu'ils se sont mélangés, il doit payer la dîme [des deux], même s'il y avait cent [pour le am haaretz].
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -78,4 +78,4 @@ La Guemara énonce <b>un moyen mnémotechnique</b> pour les prochaines déclarat
 La Gemara conteste cette affirmation : <b>Mais que</b> le <i>tanna</i> <b>compte</b> cette interdiction <b>parmi</b> les <b>sept</b> noahides <b>mitzvot.</b> La Gemara explique : <b>Quand</b> le <i>tanna</i> <b>compte</b> les sept mitzvot, il ne compte que celles qui exigent que l'on <b>s'assoie et s'abstienne d'agir,</b> c'est-à-dire celles qui comportent une interdiction d'accomplir une certaine action. <b>Il ne compte pas</b> les mitzvot qui exigent que l'on <b>se lève et fasse une action.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Abaye a répondu : <b>Selon votre raisonnement, il s'agit de seize</b> actions, 
 Rav Mattana <b>a dit à</b> Abaye : <b>Ce n'est pas difficile,</b> comme <b>d'accord</b>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

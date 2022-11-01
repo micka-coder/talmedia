@@ -42,4 +42,4 @@ Si le <i>yavam</i> <b>consomme le mariage lévirat avec elle, alors</b> son stat
 La Gemara explique : <b>Et Ulla soutient</b> qu'un <b>lien de lévirat</b> formé <b>avec une femme fiancée lui confère</b> un statut équivalent à celui d'une <b>femme</b> au sujet de laquelle il y a une <b>incertitude</b> qu'elle soit <b>fiançée,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

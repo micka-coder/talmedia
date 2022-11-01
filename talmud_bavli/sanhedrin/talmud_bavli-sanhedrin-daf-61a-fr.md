@@ -51,4 +51,4 @@ La Guemara explique : Dans un cas <b>où</b> ceux à qui l'incitateur a parlé l
 En conséquence, sur quel principe Rabbi Meir et Rabbi Yehuda sont-ils en désaccord ? Ils sont en désaccord en ce qui concerne</b> le cas de celui qui <b>incite</b> les autres à l'adorer, et</b> les autres lui <b>disent : Oui,</b> nous t'adorerons. <b>Un</b> Sage, Rabbi Meir, <b>soutient</b> que lorsque <b>quelqu'un incite</b> les autres <b>à</b> adorer <b>Il,</b> ils sont aptes à <b>l'écouter, et</b> la réponse : <b>Oui, ce qu'ils lui disent, est sincère. Et un</b> Sage, Rabbi Yehuda, <b>soutient</b> que lorsque <b>on incite</b> les autres <b>à</b> adorer <b>Him,</b> ils ne sont <b>pas</b> aptes à <b>l'écouter,</b> car <b>ils se disent</b> à eux-mêmes :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

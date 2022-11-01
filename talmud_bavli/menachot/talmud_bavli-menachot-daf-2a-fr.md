@@ -21,4 +21,4 @@ La Guemara ajoute : <b>Si tu le souhaites, propose un argument logique</b> pour 
 <b>Et si vous le souhaitez, citez un verset : "Ce qui est sorti de tes lèvres, tu l'observeras et tu le feras ; selon ce que tu as voué comme offrande à l'Éternel ton Dieu,</b> ce que tu as promis de ta bouche" (Deutéronome 23:24). La Guemara analyse le verset : Est-ce <b>une offrande de cadeau</b> ? <b>C'est une offrande de vœu</b>. Pourquoi le verset l'appelle-t-il d'abord <b>une offrande de vœu</b> <b>et</b> ensuite <b>une offrande de don</b> ? <b>Au contraire,</b> le verset enseigne que <b>si vous avez agi conformément à la manière dont vous avez fait votre vœu,</b> c'est-à-dire si vous avez sacrifié l'offrande pour elle-même, votre obligation d'accomplir votre <b>vœu sera</b> remplie ; <b>mais si</b> vous n'avez <b>pas</b> agi conformément à votre vœu, elle ne remplit pas l'obligation encourue par le vœu, et <b>serait</b> considérée comme <b>une offrande de don</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

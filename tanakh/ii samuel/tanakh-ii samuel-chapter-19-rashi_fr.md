@@ -118,7 +118,7 @@
 <b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonathan, "accablé".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Mon fils, mon fils.</b> Huit fois.<sup>1</sup><i class="footnote">David a dit le mot <span>בְּנִי</span> huit fois, cinq fois dans ce verset et trois autres fois plus tard au verset 5. </i> Nos rabbins ont dit,<sup>2</sup><i class="footnote">Sotah 10b.</i> Sept de ces fois pour le sortir des sept niveaux de la Géhenne et une pour l'amener dans le Monde à venir.
 
@@ -238,4 +238,4 @@
 <b>Les paroles des hommes de Yéhouda l'ont emporté.</b> Langage similaire à "Améliorer".<sup>10</sup><i class="footnote">Tsaphania 2:1.</i> Les paroles des hommes de Yéhouda étaient plus logiques et elles l'ont emporté parce qu'ils ont montré [comme preuve] la lettre que David leur avait envoyée [disant] "Pourquoi seriez-vous les derniers à demander" que le roi revienne etc.". C'est ce qui est expliqué dans la Agadah. Certains expliquent <span>וַיִקֶשׁ</span> pour dénoter dur et fort et c'est la traduction de Yonathan, "accablé".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

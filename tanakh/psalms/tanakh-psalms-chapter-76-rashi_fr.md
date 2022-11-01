@@ -42,4 +42,4 @@
 <b>Il abattra l'esprit</b> l'esprit d'orgueil des princes et diminuera leur arrogance.  יבצֹר  signifie "Il diminuera", comme (Gen. 11:6) : "Ne sera-t-il pas retenu (יבצר) d'eux ?"
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

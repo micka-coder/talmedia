@@ -54,4 +54,4 @@ Et le sens d'une instance du terme <b>revisiter</b> est dérivé d'une autre ins
 Il a encore été enseigné dans la <i>baraita</i> : <b>A Rosh HaShana, Joseph est sorti de prison.</b> La Gemara demande : <b>D'où dérive-t-on</b> cela ? <b>Comme il est écrit : <b>Sonnez un <i>shofar</i> à la Nouvelle Lune, à l'heure couverte de notre jour de fête. Car c'est une loi pour Israël, un jugement du Dieu de Jacob" (Psaumes 81:4""5). Il s'agit d'une référence à Rosh HaShana, la seule fête qui a lieu au moment de la Nouvelle Lune, lorsque la lune est couverte et ne peut être vue.
 
 >Crédit : édition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

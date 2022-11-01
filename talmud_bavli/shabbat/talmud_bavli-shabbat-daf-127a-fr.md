@@ -45,4 +45,4 @@ Nous avons appris dans la mishna : On peut déplacer les paniers de produits <b>
 La Gemara demande : <b>Est-ce le cas ? Et n'avons-nous pas appris</b> dans une mishna : <b>Voici</b> les <b>matières qu'une personne accomplit et dont elle jouit des bénéfices dans ce monde, et</b> néanmoins <b>le principal existe pour elle pour le Monde à Venir, et ce sont : Honorer son père et sa mère, et les actes de bonté aimante, et apporter la paix entre une personne et une autre, et l'étude de la Torah est égale à tous ces éléments.</b> Par déduction : <b>Ces</b> questions, <b>oui,</b> on jouit de leurs bénéfices dans ce monde et le principal existe pour lui dans le Monde-à-Venir ; <b>les autres questions, non.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

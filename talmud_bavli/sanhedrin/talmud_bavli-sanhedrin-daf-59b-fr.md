@@ -75,4 +75,4 @@ En rapport avec cette histoire, on rapporte que <b>Rabbi Zeira a demandé à Rab
 § Dans la <i>baraita</i> qui énumère les mitzvot noahides (56a), il est indiqué que <b>Rabbi Shimon dit</b> que les descendants de Noé ont été <b>également</b> commandés <b>en ce qui concerne</b> l'interdiction de se livrer à la <b>sorcellerie.</b> La Gemara demande : <b>Quel est le raisonnement</b> derrière l'opinion <b>de Rabbi Shimon ?</b> La Gemara répond : <b>Comme il est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

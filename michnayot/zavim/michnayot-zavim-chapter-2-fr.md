@@ -11,5 +11,5 @@ Celui qui a eu [une décharge de] sperme ne se souille pas à cause de la zivah 
 ### michna 4
 Un zav souille les objets sur lesquels il se couche (ou s'assoit) de cinq manières, de sorte qu'ils souillent les personnes et les vêtements : en se tenant debout, en s'asseyant, en s'allongeant, en se suspendant ou en s'appuyant. Ce sur quoi il s'allonge souille une personne de sept manières, de sorte qu'elle souille [à son tour] les vêtements : en se tenant debout, en s'asseyant, en s'allongeant, en se suspendant ou en s'appuyant dessus, ou en le touchant ou en le portant.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

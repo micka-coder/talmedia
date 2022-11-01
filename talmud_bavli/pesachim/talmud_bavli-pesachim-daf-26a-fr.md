@@ -54,4 +54,4 @@ Après cette discussion tangentielle sur les lois de l'usage abusif des biens co
 La Gemara conteste : <b>Si donc,</b> que ce verset signifie qu'elle n'a pas effectué de travail du tout, alors il devrait s'appliquer <b>même à la première clause.</b> Même lorsqu'elle bat le grain contre la volonté du propriétaire, elle a quand même effectué un travail et devrait être rendue disqualifiée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

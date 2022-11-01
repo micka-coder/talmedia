@@ -30,4 +30,4 @@ La Gemara pose la question sous l'autre angle : <b>Au contraire, que</b> direz-v
 Cette contestation est rejetée : <b>Qu'est-ce</b> que <b>cette comparaison</b> ? <b>Accordé,</b> une forme de <b>fiançailles est différente de</b> l'autre <b>fiançailles,</b> c'est-à-dire qu'il y a une différence entre les fiançailles standard avec le consentement du père et les fiançailles par désignation, qui sont effectuées à l'initiative du maître. Après ce type de fiançailles, le père peut, en effet, la vendre une seconde fois. <b>Mais</b> en ce qui concerne un mode de réalisation du <b>mariage</b> par rapport <b>à</b> un autre mode de réalisation du <b>mariage,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

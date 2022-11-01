@@ -33,4 +33,4 @@ Rabba a répondu : Puisqu'on <b>peut dire ceci et</b> on <b>peut dire cela,</b> 
 <b>Rabbi Yoḥanan a soulevé une objection à Rabbi Shimon ben Lakish</b> à partir d'une <i>baraita</i> : Il y avait <b>un incident à Bnei Brak impliquant quelqu'un qui a vendu</b> certains <b>des biens de son père</b> dont il avait hérité, <b>et il est mort, et</b> les <b>membres de</b> sa <b>famille sont venus et ont contesté</b> la vente, <b>en disant : Il était mineur au moment de</b> sa <b>mort,</b> et donc la vente n'était pas valable. <b>Et ils vinrent demander à Rabbi Akiva : Quelle est</b> la <i>halakha</i> ? Est-il permis d'exhumer le cadavre pour <b>l'examiner</b> et vérifier si l'héritier était mineur ou non au moment de sa mort ? Rabbi Akiva <b>leur a dit :</b> Il n'est <b>pas permis</b> que <b>vous le déshonoriez</b> au nom d'une revendication pécuniaire. <b>Et de plus, les signes</b> indiquant la puberté <b>sont susceptibles de changer après la mort,</b> et donc rien ne peut être prouvé en exhumant le corps.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

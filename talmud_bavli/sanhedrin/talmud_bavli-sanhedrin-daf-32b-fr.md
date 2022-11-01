@@ -54,4 +54,4 @@ La Gemara reprend l'objection de Rabba : <b>Voici</b> ce que <b>je dis : Si</b> 
 La Guemara commente : <b>Il est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'explication <b>de Abaye et de Rava. Rabbi</b> Yehuda HaNasi <b>Dit :</b> Le prêtre qui administre le rite de la <i>sota</i> à la <i>sota</i> lui dit : <b>"Si aucun homme n'a couché avec toi et si tu ne t'es pas égarée</b> vers l'impureté alors que tu étais sous la coupe de ton mari, tu seras libérée de cette eau d'amertume qui provoque la malédiction. Mais si tu t'es égarée sous ton mari..." (Nombres 5:19-20). Le prêtre énonce d'abord le scénario dans lequel la femme est innocente d'adultère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

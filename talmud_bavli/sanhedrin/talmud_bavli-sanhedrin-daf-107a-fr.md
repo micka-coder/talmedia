@@ -54,4 +54,4 @@ Le verset dit : <b>"Et je serai dégagé d'une grande transgression"</b> (Psaume
 <b>Rav Yehuda dit</b> que <b>Rav dit :</b> Pendant <b>six mois, David a été affligé de la lèpre et la Présence Divine l'a abandonné et</b> les membres du <b>Sanhedrin se sont dissociés</b> de lui. Il était affligé de la lèpre, comme il est dit : "Purgez-moi avec de l'hysope et je serai pur ; lavez-moi et je serai plus blanc que neige"</b> (Psaumes 51, 9), indiquant qu'il avait besoin d'être purifié comme un lépreux. <b>La Présence divine l'a abandonné, comme il est dit : "Rends-moi la joie de Ton salut, et soutiens-moi avec un esprit volontaire"</b> (Psaumes 51,14). <b>Et</b> les membres du <b>Sanhedrin se sont dissociés</b> de lui, comme il est dit : "Que ceux qui te craignent se tournent vers moi,</b> et ceux qui ont connu tes témoignages" (Psaumes 119:79). <b>D'où déduit-on</b> que cela a duré <b>six mois ?</b> On le déduit <b>comme il est écrit : "Et les jours où David régna sur Israël furent de quarante ans;</b>".
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

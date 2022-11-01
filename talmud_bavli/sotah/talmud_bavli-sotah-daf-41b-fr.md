@@ -45,4 +45,4 @@ La Guemara cite <b>un moyen mnémotechnique</b> pour les déclarations de Rabbi 
 <b>Et Rabbi Elazar dit : Quiconque flatte un autre finit par tomber entre ses mains. Et s'il ne tombe pas entre ses mains, il tombe entre les mains de ses enfants. Et s'il ne tombe pas entre les mains de ses enfants, il tombe entre les mains de ses petits-enfants, comme il est dit : "Alors le prophète Jérémie dit à Hanania... Amen, que le Seigneur fasse ainsi, que le Seigneur accomplisse tes paroles"</b> (Jérémie 28:5-6). Il s'agissait d'une forme de flatterie, car Jérémie n'a pas dit explicitement que Hanania était un faux prophète. <b>Et il est écrit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

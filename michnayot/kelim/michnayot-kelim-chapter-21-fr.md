@@ -8,5 +8,5 @@ Celui qui touche le joug, la barre transversale, le collier ou les cordes épais
 ### michna 3
 Celui qui touche le manche d'une scie à l'une ou l'autre de ses extrémités devient impur ; [S'il a touché] sa corde, son cordon, sa traverse ou ses pièces latérales, l'étau d'un charpentier ou le manche d'une perceuse à archet, il reste pur. Rabbi Judah dit : de même, celui qui touche le cadre d'une grande scie reste pur. Celui qui touche la corde de l'arc ou l'arc, même s'il a été tendu, il reste propre. Un piège à taupe est propre. Rabbi Judah dit : lorsqu'il est étiré, les parties séparées sont [considérées comme] reliées.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

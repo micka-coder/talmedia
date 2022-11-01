@@ -33,4 +33,4 @@ De même, si quelqu'un <b>a apporté ses produits dans la cour du propriétaire 
 De même, si quelqu'un <b>a apporté son bœuf dans la cour du propriétaire de la maison sans</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ Si un homme a été jeté dans une fosse et a crié : "Celui qui entend sa voix 
 ### michna 7
 Si un homme dit à deux personnes : "Donne un get à ma femme", ou à trois personnes : "Ecris un get et donne-le à ma femme", elles doivent l'écrire et le donner. S'il a dit à trois personnes : "Donne un get à ma femme", elles peuvent dire à d'autres d'écrire le get car il les a transformées en tribunal, ce sont les paroles de Rabbi Meir. Et voici la halakha que Rabbi Hanina, un homme d'Ono, a rapportée de prison :  "J'ai reçu une tradition selon laquelle si un homme dit à trois personnes, "Donne un get à ma femme", elles peuvent dire aux autres de l'écrire, car il les a transformées en tribunal. Rabbi Yose a dit : Nous avons dit au messager, nous avons aussi une tradition selon laquelle même s'il disait à la grande cour de Jérusalem, "Donne un get à ma femme", ils doivent apprendre [à écrire] et écrire le get et le donner. Si un homme dit à dix personnes : "Ecris un get", l'une d'elles écrit, et deux signent comme témoins. [S'il dit :] " Écrivez tous ", un seul écrit et tous signent. Par conséquent, si l'un d'entre eux meurt, le get n'est pas valable.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

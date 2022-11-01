@@ -60,7 +60,7 @@ Celui qui embauche <b>un Gentil qui réside en Eretz Yisrael et observe les sept
 <strong>GEMARA:</strong> La Gemara demande : <b>De qui</b> l'opinion est exprimée dans <b>la mishna ?</b> Ce n'est <b>pas</b> celle de <b>la première <i>tanna</i> de</b> la <i>baraita</i>, qui interprète la phrase : <b>"De tes frères"</b> (Deutéronome 24:14), <b>et</b> ce n'est <b>pas Rabbi Yosei, fils de Rabbi Yehuda.</b> La Guemara clarifie : <b>Qu'est-ce</b> que cette <i>baraita</i> dont il est question ici ? La Gemara explique : <b>Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et celui-là</b>, l'intermédiaire, est exempté <b>parce que son travail n'est pas</b> effectué <b>pour lui.</b> La Gemara demande : <b>Quelles sont les circonstances</b> de ce cas ? <b>Si</b> l'intermédiaire leur <b>dit : Votre salaire</b> m'incombe <b>à moi, son salaire lui incombe</b> en effet <b>à lui,</b> car celui qui a embauché les ouvriers en porte l'entière responsabilité. <b>Comme il est enseigné</b> dans un <i>baraita</i> : En ce qui concerne <b>celui qui engage un ouvrier pour effectuer</b> un travail <b>dans son propre</b> champ, <b>et</b> l'employeur a par inadvertance <b>montré</b> à l'ouvrier un champ <b>appartenant à un autre</b> dans lequel il devrait travailler, l'employeur <b>doit donner</b> à l'ouvrier <b>son salaire complet ; et</b> en outre, l'employeur <b>reprend au propriétaire</b> du champ dans lequel il a travaillé la valeur de <b>l'avantage</b> que ce propriétaire <b>a reçu de</b> l'ouvrier. L'employeur est en droit de réclamer au propriétaire du champ le bénéfice que ce propriétaire a tiré du travail, mais pas la totalité du salaire de l'ouvrier. Cela indique que celui qui dit : Ton salaire m'incombe, est responsable de l'arrangement.
 
@@ -122,4 +122,4 @@ Celui qui embauche <b>un Gentil qui réside en Eretz Yisrael et observe les sept
 <strong>GEMARA:</strong> La Gemara demande : <b>De qui</b> l'opinion est exprimée dans <b>la mishna ?</b> Ce n'est <b>pas</b> celle de <b>la première <i>tanna</i> de</b> la <i>baraita</i>, qui interprète la phrase : <b>"De tes frères"</b> (Deutéronome 24:14), <b>et</b> ce n'est <b>pas Rabbi Yosei, fils de Rabbi Yehuda.</b> La Guemara clarifie : <b>Qu'est-ce</b> que cette <i>baraita</i> dont il est question ici ? La Gemara explique : <b>Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

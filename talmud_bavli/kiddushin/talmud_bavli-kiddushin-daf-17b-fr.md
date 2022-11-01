@@ -57,4 +57,4 @@ A propos de la même question, il est enseigné : <b>Par la loi de la Torah et p
 La Guemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>les Sages sont contents de lui ?</b> La Gemara répond : Ceci n'est <b>pas difficile. Ici,</b> il s'agit d'un converti <b>dont la conception et la naissance n'étaient pas en sainteté</b> du peuple juif, c'est-à-dire que son père était un gentil à sa naissance et que par la suite le fils s'est converti. Dans ce cas, il n'y a pas de liens légaux entre le père et le fils, et donc celui qui doit de l'argent au père n'est pas tenu de payer le fils.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

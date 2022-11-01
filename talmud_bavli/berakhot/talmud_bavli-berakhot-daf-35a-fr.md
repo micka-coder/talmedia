@@ -63,4 +63,4 @@ Le Gemara est perplexe : <b>Il doit aller voir un Sage ; que va-t-il lui faire ?
 De meme, <b>Rav Yehuda</b> dit que <b>Shmuel a dit : Celui qui tire un benefice de ce monde sans benediction, c'est comme s'il jouissait d'objets consacres au ciel, comme il est dit : "La terre et tout ce qu'elle contient est au Seigneur,</b> le monde et tous ceux qui y vivent" (Psaumes 24:1). Rabbi Levi a exprime ce concept differemment. <b>Rabbi Levi a souleve une contradiction : Il est écrit : "La terre et tout ce qu'elle contient est au Seigneur", et il est écrit</b> ailleurs : <b>"Les cieux sont au Seigneur et la terre qu"?il a donnee aux hommes"</b> (Psaumes 115:16). Il y a manifestement une contradiction quant a savoir a qui appartient la terre. Il resout lui-meme la contradiction : Ce n'est <b>pas difficile</b>. Ici,</b> le verset qui dit que la terre appartient au Seigneur fait reference a la situation <b>avant qu'une benediction</b> soit recitee,
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

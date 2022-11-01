@@ -63,4 +63,4 @@
 <b>Pour ma poursuite de la bonté</b> Parce que nous nous attachons au Saint, béni soit-il, et à ses commandements.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

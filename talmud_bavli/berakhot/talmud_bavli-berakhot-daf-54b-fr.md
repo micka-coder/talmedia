@@ -69,4 +69,4 @@ Incidemment a la declaration precedente du Rav Yehuda, qui organisait plusieurs 
 La Gemara demande : <b>Et celui qui prolonge sa priere ; est-ce une vertu ? Rabbi Hiyya bar Abba n'a-t-il pas dit</b> que <b>Rabbi Yohanan a dit :</b>
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

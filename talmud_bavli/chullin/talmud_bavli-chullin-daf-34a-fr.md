@@ -36,4 +36,4 @@ Rabbi Eliezer a remis en question le segment suivant de la décision de Rabbi Ye
 Rabbi Yehoshua <b>a dit à</b> Rabbi Eliezer : <b>J'ai moi aussi affirmé</b> que celui qui mange des aliments présentant une impureté de troisième degré assume une impureté de deuxième degré vis-à-vis des aliments sacrifiés <b>uniquement en ce qui concerne</b> celui qui mange des aliments non sacrés qui ont été préparés au niveau de pureté du <b><i>teruma</i>, car son</b> état de <b>pureté</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

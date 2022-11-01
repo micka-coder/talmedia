@@ -51,4 +51,4 @@ La Guemara a déclaré que l'eau détachée de sa source et l'eau encore <b>atta
 La Guemara rejette cette affirmation : <b>Expliquez cette</b> déclaration comme faisant référence <b>au sang.</b> Rabbi Yosei, fils de Rabbi Ḥanina ne faisait pas référence à tous les liquides dans le Temple, mais seulement au sang. <b>Comme Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit : D'où</b> provient-il <b>en ce qui concerne le sang des offrandes consacrées</b> <b>qu'il ne rend pas</b> le produit <b>susceptible</b> d'impureté ? <b>Comme il est dit :</b> "Tu ne mangeras sûrement pas le sang ; <b>tu le verseras sur la terre comme de l'eau"</b> (Deutéronome 12:16). Les Sages ont dérivé de ce verset : <b>Le sang versé comme de l'eau,</b> c'est-à-dire le sang d'un animal domestique non sacré qui se déverse lorsqu'il est abattu et qui n'est pas reçu dans un récipient comme le sang sacrificiel prend le statut juridique de l'eau et <b>cède</b> produit <b>susceptible</b> d'impureté rituelle.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -28,4 +28,4 @@
 <b>Soulèvement mortel.</b> Tous les soulèvements [mentionnés dans les Écritures] sont causés par le tonnerre. L'origine en est la suivante : "Ce jour-là, Hachem tonna avec un grand bruit contre les Philistins, les faisant paniquer.<sup>3</sup><i class="footnote">Dessous 7:10.</i> Il est expliqué ainsi dans la Aggadah des trente-deux règles de R. Eliezer, le fils de R. Yose Haglili.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

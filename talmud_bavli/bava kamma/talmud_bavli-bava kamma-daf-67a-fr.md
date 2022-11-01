@@ -39,4 +39,4 @@ La Guemara répond : <b>Dans ce cas,</b> si le verset enseigne seulement que <i>
 <b>Ulla dit : D'où</b> provient-il <b>que le <b>désespoir</b> du propriétaire de récupérer son objet volé <b>n'entraîne pas</b> le voleur à l'<b>acquérir</b> ? <b>Comme il est dit</b> dans la critique du peuple juif pour avoir apporté des animaux inférieurs en offrande : <b>"Et vous avez apporté ce qui a été volé, et le boiteux, et le malade"</b> (Malachie 1:13). De la juxtaposition de ces cas, on peut déduire que <b>un animal volé</b> <b>est semblable à un animal boiteux</b> : <b>Tout comme un animal boiteux</b> <b>n'a aucune rectification du tout</b> en ce qui concerne sa disqualification en tant qu'offrande,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

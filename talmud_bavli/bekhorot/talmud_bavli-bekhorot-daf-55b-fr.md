@@ -30,4 +30,4 @@ La Guemara note : <b>Et</b> cette déclaration <b>de</b> Shmuel, selon laquelle 
 <strong>GEMARA:</strong> La Gemara demande : <b>D'où vient cette matière</b> ? <b>Rav Kahana répond que le verset dit :</b> "Tu ne tarderas pas à offrir de la plénitude de ta récolte, et de l'écoulement de tes presses. <b>Le premier-né de tes fils, tu me le donneras. Tu feras de même avec tes bœufs et avec tes brebis :</b> Sept jours, il restera avec sa mère ; le huitième jour, tu me le donneras" (Exode 22, 28-29).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

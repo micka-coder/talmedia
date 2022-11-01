@@ -42,4 +42,4 @@ La Gemara demande : <b>Si</b> il est <b>donc</b> qu'un quart-<i>kav</i> de grain
 La Guemara conteste cette réponse : <b>Si oui,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

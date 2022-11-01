@@ -156,5 +156,5 @@
 ### passuk 64
 <b>Parmi ce [recensement], il n'y avait pas d'homme, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cependant, contre les femmes, le décret des espions ne fut pas émis, car elles chérissaient la terre. Les hommes dirent : " désignons un chef et nous retournerons en Égypte " ! <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> tandis que les femmes ont dit : "donne-nous la possession" ! C'est pourquoi le chapitre des filles de Tzelofchad est adjacent ici. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

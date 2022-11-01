@@ -18,4 +18,4 @@ La Guemara en déduit cependant que même Ravin soutient qu'une frontière ou un
 La <i>baraita</i> continue. <b>Rabbi Yosei dit :</b> Si cela a été fait <b>dans un laps de temps de conscience,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

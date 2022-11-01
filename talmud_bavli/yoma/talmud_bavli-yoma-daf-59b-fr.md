@@ -12,4 +12,4 @@ La Gemara demande : <b>D'où proviennent ces questions,</b> qu'il n'y a pas de m
 La Guemara demande : <b>Mais</b> si l'on compare le statut du sang avant l'expiation à son statut après l'expiation, on peut <b>dire</b> le contraire : <b>De même qu'avant l'expiation, il est sujet à un mauvais usage</b> des objets consacrés, <b>de même, après l'expiation, il est sujet à un mauvais usage</b> des objets consacrés. La Guemara rejette cette affirmation : Cela ne peut être le cas, car il existe un principe général : <b>Il n'y a rien dont la mitzva a été accomplie qui soit</b> encore <b>sujet à un mauvais usage</b> des biens consacrés. La Guemara demande : <b>Et</b> il n'y a <b>pas</b> de tel cas ? <b>Mais il y a</b> le cas de l'<b>enlèvement des cendres</b> des offrandes brûlées sur l'autel. Ces cendres doivent être enterrées, et pourtant tout bénéfice qui en est tiré est un abus de biens consacrés, malgré le fait que leur mitzva ait déjà été accomplie.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -81,4 +81,4 @@ La Gemara répond : <b>On le déduit de ce qui est enseigné</b> dans une <i>bar
 La Gemara demande : Ce n'est pas simplement <i>ala</i> qui est écrit là ; <b>le serment d'une <i>ala</i> est écrit là.</b> Apparemment, <i>ala</i> seule ne signifie pas serment. La Guemara explique que <b>ceci</b> est ce que le <i>tanna</i> <b>dit :</b> "Et il entend la voix d'une <b>ala</i>" ; <i>ala</i> est</b> utilisée <b>uniquement</b> lorsqu'elle est accompagnée <b>d'un serment. Et de même, il est dit : "Et le prêtre administrera à la femme le serment de malédiction."</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

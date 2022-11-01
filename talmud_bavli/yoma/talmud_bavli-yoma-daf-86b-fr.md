@@ -57,4 +57,4 @@ De plus, ils ont dit : <b>On expose les hypocrites en raison</b> de la <b>décr�
 <b>Lorsque Rava allait juger, il disait ceci</b> de lui-même :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

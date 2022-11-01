@@ -51,4 +51,4 @@ La Guemara conclut : <b>Mais</b> en fait la <b><i>halakha</i></b> n'est <b>pas c
 <strong>MISHNA :</strong> Dans le cas d'un créancier <b>dont le billet à ordre s'est effacé,</b> il doit <b>produire des témoins</b> qui se souviennent des détails du document pour témoigner <b>à son sujet. Et</b> ils <b>se présentent devant le tribunal, et ils ratifient</b> son billet à ordre <b>pour lui,</b> en déclarant : Le <b>billet à ordre d'untel a été effacé,</b> et il a été déclaré qu'un prêt de tel montant a eu lieu <b>à telle date,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

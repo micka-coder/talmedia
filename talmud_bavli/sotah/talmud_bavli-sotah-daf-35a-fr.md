@@ -69,4 +69,4 @@ La Guemara remet en question cette affirmation : <b>Si c'est le cas, partout où
 § Lorsque les Philistins ont retourné l'Arche pendant la période de Samuel, il est dit : <b>"Et il frappa les hommes de Beit Shemesh parce qu'ils avaient regardé l'Arche du Seigneur"</b> (I Samuel 6:19). La Gemara demande : <b>Parce qu'ils ont regardé</b> sur elle, <b>Dieu les a frappés</b> ? Pourquoi leur action a-t-elle justifié cette punition ? <b>Rabbi Abbahou et Rabbi Elazar</b> sont en désaccord quant à l'interprétation du verset. <b>L'un dit</b> qu'ils ont été punis parce que <b>ils moissonnaient</b> leurs récoltes <b>et se prosternaient</b> en même temps ; ils ne se sont pas arrêtés de travailler par révérence pour l'Arche. <b>Et on dit</b> que <b>ils ont aussi prononcé</b> des <b>mots dénigrants :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

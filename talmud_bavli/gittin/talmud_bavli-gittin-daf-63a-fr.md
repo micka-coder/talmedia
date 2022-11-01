@@ -51,4 +51,4 @@ La Guemara demande : L'avis du <b>Rabbi</b> Yehuda HaNasi <b>est</b> apparemment
 La Gemara déclare : <b>Venez</b> et <b>entendez</b> une résolution de ce dilemme à partir de la mishna. En ce qui concerne <b>quelqu'un qui dit</b> à un autre : <b>Recevoir cet acte de divorce pour ma femme, ou : Remettez cet acte de divorce à ma femme</b> en tant que mon mandataire, si le mari <b>souhaite rétracter</b> sa désignation et annuler le mandat, <b>il peut le rétracter</b> jusqu'à ce qu'il parvienne à la main de sa femme. Cependant, en ce qui concerne <b>une femme qui a dit</b> à un agent : <b>Recevez mon acte de divorce pour moi,</b> et que le mari a remis l'acte de divorce à son agent, si le mari <b>souhaite rétracter</b> sa décision de divorcer de sa femme à la réception de l'acte de divorce par l'agent, <b>il ne peut pas le rétracter</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

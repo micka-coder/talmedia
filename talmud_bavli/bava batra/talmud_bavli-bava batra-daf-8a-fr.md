@@ -54,4 +54,4 @@ On rapporte que <b>Rabba imposa</b> une contribution à une certaine <b>charité
 Accessoirement à cette histoire, la Gemara relate que <b>Ifera Hurmiz, la mère du roi Shapur,</b> roi de Perse, <b>envoya une bourse [<i>arneka</i>]</b> pleine <b>de dinars à Rav Yosef. Elle lui dit</b> : <b>Laisse</b> cet argent être utilisé <b>pour une grande mitsva. Rav Yosef s'assit et considéra</b> la question : <b>Que</b> voulait dire Ifera Hurmiz lorsqu'elle a attaché une condition au don, en disant qu'il devait être utilisé pour <b>une grande mitzva</b> ? Abaye lui a répondu : De ce que Rav Shmuel bar Yehuda a enseigné,</b> que <b>on n'impose pas une obligation de charité</b> <b>aux orphelins même pour</b> le plaisir de <b>rédemander des captifs, apprenez de ceci</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

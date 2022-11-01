@@ -72,4 +72,4 @@ Nous avons appris dans notre mishna : <b>Les béliers peuvent sortir <i>levuvin<
 La Gemara demande : <b>D'où</b> peut-on <b>déduire que ce</b> mot <b><i>sheḥuzot</i> est un terme d'exposition ?</b> La Gemara répond : <b>Comme il est écrit</b> dans la description d'une femme méchante : <b>"Et voici qu'il rencontra une femme</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

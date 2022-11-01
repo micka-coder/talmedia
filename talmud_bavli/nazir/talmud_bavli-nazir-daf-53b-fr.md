@@ -33,4 +33,4 @@ Ceci est <b>comme il est enseigné</b> dans un <i>baraita</i> : <b>"Et quiconque
 Les Sages déduisent en outre de l'expression "celui qui est tué par l'épée" que le statut juridique d'une <b>épée</b> métallique en termes de son degré d'impureté rituelle <b>est comme</b> celui de <b>une personne qui est tuée,</b> c'est-à-dire qu'un instrument métallique, par exemple une épée, qui a été rendu impur par contact avec un cadavre est impur au même degré de gravité que le cadavre lui-même. <b>"Ou celui qui meurt de lui-même" ; il s'agit d'un membre qui a été tué,</b> c'est-à-dire sectionné, <b>d'un cadavre</b> et qui est recouvert de suffisamment de chair pour qu'il guérisse s'il était vivant. <b>"Ou un os d'homme" ; il s'agit d'un quart-</b><i>kav</i> <b>d'os. "Ou une tombe" ; il s'agit d'une tombe scellée,</b> qui transmet l'impureté lorsqu'il y a moins d'un pouce de large entre le cadavre et son couvercle.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

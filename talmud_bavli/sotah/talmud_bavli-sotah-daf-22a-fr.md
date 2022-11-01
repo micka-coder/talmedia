@@ -39,4 +39,4 @@ La Gemara demande : <b>Qu'est-ce que</b> signifie <b>un enfant dont les mois</b>
 <b>Rabbi Abba dit : C'est un étudiant qui n'a pas</b> encore <b>atteint</b> la capacité <b>d'émettre</b> des <b>décisions halakhiques, et</b> pourtant <b>il émet des décisions</b> et est donc comparé à un enfant né prématurément. C'est <b>comme le dit Rabbi Abbahou</b> que <b>Rav Huna dit</b> que <b>Rav dit : Quel</b> est le sens de ce <b>qui est écrit : "Car elle a renversé beaucoup de blessés, et une armée puissante est tous ses morts"</b> (Proverbes 7:26) ? <b>"Car elle a terrassé [<i>hippila</i>] de nombreux blessés" ; ceci</b> fait référence à <b>un érudit de la Torah qui n'a pas</b> encore <b>atteint</b> la capacité <b>de rendre des décisions, et</b> pourtant <b>il rend des décisions. "Et une armée puissante [<i>ve'atzumim</i>] sont toutes ses victimes" ; ceci</b> fait référence à <b>un érudit de la Torah qui a atteint</b> la capacité <b>d'émettre des décisions, mais n'émet pas de décisions</b> et empêche les masses d'apprendre la Torah correctement.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

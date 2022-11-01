@@ -57,4 +57,4 @@ La Guemara est perplexe devant la formulation de ce dernier enseignement : <b>Pe
 La Gemara demande : Quant à celui dont les testicules <b>ont été perforés, est-il incapable d'avoir des enfants,</b> de sorte qu'il devrait avoir le statut de celui dont les testicules ont été écrasés ? <b>N'y a-t-il pas eu</b> un incident où <b>un certain homme grimpait sur un palmier,</b> <b>d'où l'importance d'avoir des enfants.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

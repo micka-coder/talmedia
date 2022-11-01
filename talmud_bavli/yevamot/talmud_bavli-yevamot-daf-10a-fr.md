@@ -36,4 +36,4 @@ Rav Kahana <b>dit à</b> Rav Ashi : La mishna <b>traite des cas de <b>frères l�
 <b>Comme l'a enseigné Lévi</b> dans son <i>baraita</i> : En ce qui concerne le cas de <b>sa mère, parfois elle exempte sa femme rivale, et à</b> d'autres <b>temps elle n'exempte pas sa femme rivale</b>. <b>Comment cela ? </b> Si <b>sa mère était mariée à son père et</b> après le décès de ce dernier, elle s'est illicitement <b>mariée</b> au frère <b>paternel de son fils, qui</b> est ensuite <b>décédé, c'est</b> un cas de : <b>Sa mère qui n'exempte pas sa femme rivale.</b> La raison en est que son mariage avec son frère ne prend pas du tout effet, car il était interdit sous peine de <i>karet</i>. Ce mariage n'ayant jamais eu lieu, seule l'autre épouse, dite rivale, est considérée comme une épouse du frère, et elle peut contracter un lévirat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara demande : <b>Selon l'avis de qui</b> cette déclaration est-elle confo
 La Guemara <b>souleve une objection</b> à partir d'une mishna (<i>Tamid</i> 28b) qui décrit le service quotidien : <b>Ses frères prêtres,</b> membres de la famille patrilinéaire, <b>virent que</b> le prêtre qui enlevait les cendres <b>descendait</b> de l'autel avec le bac à charbon dans les mains, <b>et ils coururent et arrivèrent</b> au Bassin. <b>Ils se hâtèrent et sanctifièrent leurs mains et leurs pieds</b> avec l'eau <b>du Bassin.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

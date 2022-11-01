@@ -110,4 +110,4 @@
 <b>et ne te [repose]</b> תּוֹסַף est dérivé de יסף, comme (Gen.38:26), "et il ne cessa (יָסַף) d'être intime avec elle" (regrettera en français), regrettera. [Dans l'expression] אַל-תּוֹסַף, le "sammech" est voyellé avec un "pattah" à cause de l'accent de pause, comme dans (Gen. 49:4), "Tu ne gagneras pas de supériorité (תּוֹתַר) " ; (Ruth 2:14), "et elle laissa de côté (וַתּתַר)," et beaucoup d'autres comme cela.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -9,4 +9,4 @@
 De même, <b>celui qui fait vœu</b> que le <b>vin</b> lui est interdit <b>pour</b> il lui est permis de</b> manger <b>un plat cuit qui a la saveur du vin.</b> Cependant, si <b>il a dit : Le vin est <i>konam</i></b> pour moi, et pour <b>cette</b> raison <b>je</b> ne le <b>goûterai</b>, <b>et</b> le vin <b>est tombé dans un plat cuit, si</b> le plat <b>contenu</b> une quantité de vin <b>qui lui donne</b> une <b>saveur, il est interdit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

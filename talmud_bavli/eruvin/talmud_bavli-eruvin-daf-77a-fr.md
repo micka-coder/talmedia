@@ -54,4 +54,4 @@ La Gemara explique : <b>De quoi s'agit-il ici ?</b> Nous avons affaire <b>à un 
 La Guemara conteste davantage cette explication : <b>Et si</b> le bassin <b>a un rebord, qu'en est-il ? N'avons-nous pas appris</b> dans une mishna : En ce qui concerne <b>celui qui enterre un navet ou un radis</b> dans le sol <b>sous une vigne</b> pour le mettre en sécurité, <b>quand</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

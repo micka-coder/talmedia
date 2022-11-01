@@ -24,4 +24,4 @@ La Gemara demande : Ces <b>deux</b> <i>halakhot</i> ne se contredisent-elles pas
 <b>Rava a dit :</b> En ce qui concerne le cas d'un document de bourse présenté à l'appui d'une réclamation contre des orphelins, <b>la <i>halakha</i></b> est que le demandeur <b>prête serment</b> que l'argent ne lui a jamais été rendu <b>et</b> perçoit ensuite la moitié</b> de la somme inscrite dans le document, conformément aux juges d'Eretz Yisrael. La Guemara relate que deux générations plus tard, <b>Mar Zutra a dit : La <i>halakha</i></b> est <b>conforme</b> à l'avis des <b>juges de l'exil. Ravina dit à Mar Zutra : Rava n'a-t-il pas dit</b> que le demandeur <b>fait un serment et perçoit la moitié</b> de la somme ? Mar Zutra lui <b>dit :</b> En ce qui concerne l'avis <b>des juges de l'exil, nous</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

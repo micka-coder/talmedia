@@ -36,4 +36,4 @@ La Guemara s'interroge : <b>Mais elle doit aussi enquêter sur sa</b> lignée ; 
 <b>Rav Adda bar Ahava a enseigné</b> qu'il faut enquêter sur <b>quatre mères qui ont douze ans,</b> en ajoutant deux générations supplémentaires de mères de chacun des parents de la femme. <b>Il a été enseigné dans une <i>baraita</i> : Quatre mères qui ont seize ans.</b> La Gemara demande : <b>Accordé, selon le Rav Adda bar Ahava,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

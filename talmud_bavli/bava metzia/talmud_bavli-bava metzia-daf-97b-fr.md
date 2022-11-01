@@ -24,4 +24,4 @@ La Guemara réfute cette assertion : Tout <b>comme le dit Rav Naḥman</b> dans 
 La Gemara demande : <b>Quelles sont les circonstances</b> d'une <b>affaire de serment ?</b> La Gemara explique : Ceci <b>conformément</b> à la déclaration <b>de Rava,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

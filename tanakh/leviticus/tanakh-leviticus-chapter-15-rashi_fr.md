@@ -100,5 +100,5 @@
 ### passuk 33
 <b>Et pour celui qui a une décharge,</b> [c'est-à-dire] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>celui qui a eu deux apparitions, et celui qui a eu trois apparitions, dont la règle est expliquée ci-dessus. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

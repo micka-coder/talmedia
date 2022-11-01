@@ -45,4 +45,4 @@ La Gemara rejette cet argument : <b>D'où</b> sait-on que cela est correct ? <b>
 <b>Au contraire, il est clair</b> que c'est <b>comme il a répondu au début,</b> que notre mishna <b>est</b> conforme à l'avis de <b>Yosef ben Ḥonai.</b> Par conséquent, en semaine, l'offrande est brûlée immédiatement, et le Chabbat, conformément à l'avis de Rabbi Yehoshua, on ne devient pas redevable d'apporter un sacrifice pour le péché.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

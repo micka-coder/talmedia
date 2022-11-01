@@ -37,4 +37,4 @@
 <b>afin que...il ne s'approche pas de toi</b> Afin qu'il ne s'approche pas de toi pour te faire du mal pendant que tu le panses, avec mors et bride (lorsqu'il est toiletté, pour fermer sa bouche. Lorsqu'il est toilettépendant que vous l'étrillez et le brossezvous devez fermer sa bouche avec un mors et une bride afin qu'il ne s'approche pas de vous).  בלימה " est une expression de fermeture dans la langue de la Mishna : Sa bouche est fermée (בלום), ses pieds sont fermés (מבלמות), dans le Tractate Bechoroth (40b). (Menachem a associé  לבלום, et aussi  בלימה " [Job 26:7] comme expression de réguler [p. 45]).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

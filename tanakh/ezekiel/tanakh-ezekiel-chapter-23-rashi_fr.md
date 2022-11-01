@@ -180,4 +180,4 @@
 <b>Et ils mettront sur vous leur débauche</b> Vos juges mettront sur vos têtes le jugement de vos débauches.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

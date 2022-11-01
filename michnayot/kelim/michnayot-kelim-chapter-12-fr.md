@@ -23,5 +23,5 @@ Si un dinar avait été invalidé puis adapté pour être accroché au cou d'une
 ### michna 8
 Un canif, un stylo, un plomb, un poids, des plaques de pressage, une tige de mesure et une table à mesurer sont susceptibles d'impureté. Tous les récipients en bois non finis sont également susceptibles d'être impurs, à l'exception de ceux en buis. Rabbi Judah dit : un récipient fait d'une branche d'olivier est également propre, à moins qu'il n'ait été chauffé au préalable.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

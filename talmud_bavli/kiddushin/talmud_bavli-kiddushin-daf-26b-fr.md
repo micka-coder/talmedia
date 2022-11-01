@@ -33,4 +33,4 @@ La Gemara demande : N'y a-t-il pas d'autre moyen d'effectuer cette acquisition ?
 <b>Venez</b> et <b>entendez</b> une preuve tirée de la mishna suivante (<i>Ma'aser Sheni</i> 5:9) : Il y eut <b>un incident impliquant Rabban Gamliel et</b> d'autres <b>Vieux qui voyageaient sur un bateau. Rabban Gamliel dit aux Anciens : Un dixième</b> de produit <b>que je vais mesurer</b> et séparer <b>à l'avenir</b> du produit de mes champs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

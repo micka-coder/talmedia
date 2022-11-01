@@ -45,7 +45,7 @@ La Gemara explique : <b>Grâce, selon celui qui a dit</b> que le <b>dispute</b> 
 La Gemara demande : <b>Mais</b> si c'est effectivement le cas, et qu'il est évident que quelqu'un est venu et a pris l'argent, quel est le raisonnement de Rabbi Yehuda HaNasi' ? La Guemara explique : <b>Et Rabbi</b> Yehuda HaNasi aurait pu <b>vous dire : Les poches aussi, parfois</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Cependant, lors de la Fête</b> elle est <b>interdite, car parfois</b> ceux qui lui semblaient <b>gras se trouveront</b> <b>minces, et les minces</b> se trouveront <b>gras, et il</b> <b>déplacera un objet qui ne lui convient pas,</b> transgressant ainsi l'interdiction de déplacer les objets <i>muktze</i>. <b>Alternativement, il arrive qu'on les trouve</b> tous <b>minces, et il les laissera</b> tous, <b>et il en viendra à négliger les réjouissances de la Fête.</b> Si toutefois on annonce la veille : Je prendrai celui-ci et celui-là, il ne prendra en effet que ces oisillons, augmentant ainsi sa joie de la Fête.
 
@@ -92,4 +92,4 @@ La Gemara explique : <b>Grâce, selon celui qui a dit</b> que le <b>dispute</b> 
 La Gemara demande : <b>Mais</b> si c'est effectivement le cas, et qu'il est évident que quelqu'un est venu et a pris l'argent, quel est le raisonnement de Rabbi Yehuda HaNasi' ? La Guemara explique : <b>Et Rabbi</b> Yehuda HaNasi aurait pu <b>vous dire : Les poches aussi, parfois</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -102,5 +102,5 @@
 <b>Yisraël se prosterna.</b> Quand c'est le temps du renard, prosternez-vous devant lui. 
 <b>A la tête du lit.</b> Il se tourna vers la Présence divine [la <i>Shechinah</i>]. C'est de là qu'ils [les Sages] ont tiré que la <i>Shechinah</i> se trouve au-dessus de l'appui-tête d'un malade. Autre interprétation de עַל רֹאשׁ הַמִּטָּה : car son lit [conjugal] était parfait et aucune de ses progénitures n'était méchante. Témoin le fait que Yoseif était un roi qui était aussi un captif parmi les païens, pourtant, il était inébranlable dans sa droiture. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

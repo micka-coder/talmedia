@@ -84,4 +84,4 @@ Abaye explique la difficulté qui découle de cette <i>baraita</i> : <b>Mais n'e
 La Guemara soulève une difficulté : <b>De quelle</b> manière avez-vous interprété</b> la <i>baraita</i> qui traite de la consécration de la tête d'un esclave ? Vous l'avez interprété <b>comme</b> traitant d'un cas d'<b>objets consacrés</b> dans le but d'acheter des offrandes pour <b>l'autel.</b> Mais si c'est le cas, <b>dit cette dernière clause : En outre, même</b> s'il <b>dit :</b> La <b>tête de cette vache</b> est un <b>bien consacré, le trésor du Temple</b> <b>a</b> la propriété <b>seulement</b> de la <b>tête de la vache.</b> Selon cette interprétation, qu'il s'agit d'objets consacrés pour l'autel, <b>pourquoi</b> la tête seule est-elle consacrée ? <b>Laissons</b> sa <b>sainteté s'étendre à toute la</b> vache. <b>N'est-il pas enseigné</b> dans un <i>baraita</i> : Dans un cas où <b>on dit :</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara soulève une difficulté : <b>Mais le Maître n'a-t-il pas dit : Gran
 La Guemara répond : <b>Rav bar Shabba a interprété</b> cette déclaration <b>avant Rav Kahana:</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

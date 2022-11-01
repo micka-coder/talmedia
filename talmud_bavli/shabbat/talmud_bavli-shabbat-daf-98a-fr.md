@@ -15,4 +15,4 @@ La Gemara demande : <b>Enfin, quelle était la profondeur d'une poutre ? </b> El
 <b>Rav Kahana a dit :</b> Lorsque nous avons dit que le dessous du wagon était considéré comme un domaine public, cette déclaration ne faisait pas référence au moment où les poutres étaient empilées dessus. Lorsque le wagon était vide et constitué des <b>cadres</b> qui maintenaient les poutres en place, le dessous du wagon était un domaine public non couvert. La Guemara demande : Mais <b>Où</b> ils auraient <b>placé</b> les cadres ? <b>Au sommet</b> du <b>wagon</b> alors que les poutres étaient déjà empilées dessus et que le <b>wagon lui-même</b> était déjà <b>couvert</b> par les poutres, comme indiqué plus haut (<i>ge'onim</i>).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

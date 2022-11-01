@@ -48,4 +48,4 @@ Il est écrit à propos de la réaction de David après qu'il ait appris la mort
 Il y est écrit : <b>"Or Absalom, de son vivant, avait pris et élevé pour lui</b> le pilier, qui est dans la vallée du roi ; car il disait : Je n'ai pas de fils pour garder le souvenir de mon nom" (II Samuel 18:18). La Gemara demande : <b>Qu'a</b> Absalom <b>pris ? Reish Lakish répond : Il s'est engagé dans une mauvaise transaction pour lui-même</b> en acceptant un mauvais conseil pour lequel il a été puni. Le verset continue : <b>"Le pilier, qui est dans la vallée du roi [<i>be'emek hammelekh</i>]." Rabbi Ḥanina bar Pappa dit :</b> Cela fait allusion au pilier qui se trouve <b>dans le profond [<i>amukka</i>] conseil du Roi [<i>melekh</i>] de l'univers,</b> car Dieu avait déjà décrété à la suite de l'incident avec Bethsabée que cela se produirait.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

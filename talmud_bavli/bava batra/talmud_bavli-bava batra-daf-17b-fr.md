@@ -48,4 +48,4 @@ La Guemara est perplexe face à cet échange : <b>Et celui qui l'a demandé, pou
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de la mishna : <b>On doit éloigner le résidu solide</b> des produits qui ont été pressés débarrassés de leur huile, <b>et</b> du fumier animal, et</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

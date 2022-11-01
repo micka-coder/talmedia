@@ -78,4 +78,4 @@ La Gemara répond : Aucune preuve ne peut être apportée d'ici, car <b>Je dirai
 Par rapport à la question précédente, <b>Rabbi Zeira soulève un dilemme :</b> Par rapport à <b>l'holocauste d'un autel privé</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

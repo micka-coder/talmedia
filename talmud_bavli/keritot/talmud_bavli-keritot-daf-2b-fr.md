@@ -96,4 +96,4 @@ La Guemara porte son attention sur l'autre opinion : <b>Et</b> en ce qui concern
 La Gemara demande en outre : <b>Et</b> en ce qui concerne <b>les rabbins,</b> concernant cette mention de <b>"sa sœur" dans la dernière clause du verset, qu'en font-ils ? </b> La Gemara répond : <b>Ils exigent</b> elle...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

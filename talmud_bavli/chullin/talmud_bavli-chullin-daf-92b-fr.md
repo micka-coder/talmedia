@@ -42,4 +42,4 @@ La Guemara rejette ce défi : Il ne serait <b>pas entré dans votre esprit</b> q
 La Gemara relate que <b>Rabba</b> raclait</b> chaque reste de graisse blanche sur le rein. De la même manière, <b>Rabbi Yoḥanan</b> le <b>rappelait</b> loin du rein. En revanche, <b>Rabbi Asi</b> la <b>coupait</b> de la surface du rein mais ne grattait pas le reste. <b>Abaye a dit : Il va de soi</b> que la <i>halakha</i> <b>est conforme</b> à l'opinion <b>de Rabbi Asi, car Rabbi Abba a dit</b> que <b>Rav Yehuda a dit</b> que <b>Shmuel a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

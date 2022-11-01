@@ -45,4 +45,4 @@ La Gemara cite une preuve supplémentaire. <b>Venez</b> et <b>entendez</b> ce qu
 La Gemara demande : <b>Si donc</b> qu'il s'agit d'un cas où l'on a établi le feuillage comme une cloison complète, <b>laissez-le déplacer</b> des objets <b>dans toute</b> la zone sous l'arbre, puisqu'il s'agit d'un domaine privé. <b>Pourquoi,</b> alors, <b>le Rav Huna, fils du Rav Yehoshua, a-t-il dit : On</b> peut <b>porter</b> sous cet arbre.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

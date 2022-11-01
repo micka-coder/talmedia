@@ -33,4 +33,4 @@ La Guemara répond : Ce n'est pas une preuve, puisque <b>en fait, je</b> pourrai
 La Guemara exprime sa surprise : <b>Quelle que soit la façon dont on</b> regarde la déclaration de Rabbi Yoḥanan, elle est difficile. <b>Si</b> cette décharge <b>néglige</b> les jours purs tout comme le cas d'un <i>zav</i> qui avait une décharge pendant ses sept jours, <b>elle devrait nier tous</b> ses jours purs, pas seulement le dernier. <b>Si elle n'annule pas</b> les jours purs, puisqu'elle n'est pas considérée comme une décharge au cours de ses sept jours mais plutôt, comme la première observation d'une nouvelle <i>ziva</i>, elle ne devrait <b>pas en annuler</b> aucune, <b>et pas</b> même <b>son propre jour.</b> Quelle est donc la logique de la décision de Rabbi Yoḥanan selon laquelle elle annule un seul jour ? <b>Disons</b> plutôt que Rabbi Yoḥanan a dit ce qui suit : Elle ne <b>néglige</b> pas du tout, <b>et pas</b> même <b>son propre jour,</b> puisque cette décharge est considérée comme la première d'une nouvelle série.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

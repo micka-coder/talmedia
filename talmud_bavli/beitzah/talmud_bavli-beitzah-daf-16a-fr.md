@@ -54,4 +54,4 @@ La Guemara demande : <b>Qu'est-ce qui est différent</b> du <b>pain</b> qui le r
 La Gemara conteste : <b>Il est évident</b> que c'est le cas, il n'est pas nécessaire de l'enseigner. La Gemara répond : La justification pour l'enseigner est <b>de peur que vous ne disiez</b> que .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

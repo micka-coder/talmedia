@@ -75,4 +75,4 @@ Rav Ḥisda <b>dit à</b> Rabbi Ḥiyya bar Avin : La résolution de ce dilemme 
 <b>Et Rava dit</b> en explication de cette dérivation dans le <i>baraita</i> que le terme <b>"l'holocauste"</b>, avec l'article défini, fait référence au <b>premier holocauste</b> de la journée, qui est l'offrande quotidienne. Par conséquent, on ne peut pas sacrifier les offrandes supplémentaires avant l'offrande quotidienne.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

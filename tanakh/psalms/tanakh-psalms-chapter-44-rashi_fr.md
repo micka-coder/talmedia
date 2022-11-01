@@ -66,4 +66,4 @@
 <b>et rachète-nous pour l'amour de ta bonté</b> Nous ne venons pas avec la puissance de nos actes, mais nous faisons [cela] pour l'amour de ta bonté.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

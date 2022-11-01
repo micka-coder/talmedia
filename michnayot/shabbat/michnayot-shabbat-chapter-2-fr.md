@@ -21,4 +21,4 @@ Cette mishna conclut le traitement aggadique du sujet de l'allumage des lumière
 Il y a trois choses qu'une personne doit dire dans sa maison la veille de Chabbat à la tombée de la nuit et pas avant. La mishna donne des précisions : Il doit demander aux membres de sa famille : "Avez-vous payé la dîme pour la récolte qui l'exige ? Avez-vous placé les eirouv pour joindre les cours et joindre les frontières de Chabbat ? Si vous l'avez fait, allumez la lampe en l'honneur de Chabbat. Les Sages ont énoncé un principe : si le vendredi arrive le moment où l'on ne sait pas si la nuit est tombée et si elle n'est pas encore tombée, on ne peut pas prélever la dîme de la récolte qui n'a pas encore été prélevée, on ne peut pas immerger des récipients rituellement impurs dans un bain rituel pour les rendre rituellement purs et on ne peut pas allumer les lampes de Chabbat. Cependant, on peut prélever la dîme d'un produit dont la dîme est douteuse et qui doit être prélevé en raison d'un simple soupçon. Et on peut placer un eirouv et isoler l'eau chaude qui sera utilisée le Chabbat.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

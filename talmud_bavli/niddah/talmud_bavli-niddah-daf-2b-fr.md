@@ -54,4 +54,4 @@ La Guemara répond : <b>Rabbi Ḥanina de Sura dit : Qui</b> est le <i>tanna</i>
 La mishna poursuit : <b>Rabbi Shimon dit :</b> Si les objets impurs ont été immergés dans un bain rituel qui était <b>dans le domaine public,</b> ils sont réputés <b>purs.</b> Mais s'ils ont été immergés dans un bain rituel qui était <b>dans un domaine privé,</b> le statut de tout <i>teruma</i> qui les a touchés est <b>suspendu,</b> c'est-à-dire qu'il n'est ni consommé ni brûlé. Rabbi Shimon soutient que même dans le cas d'un bain rituel, les objets ne sont pas rétroactivement considérés comme définitivement impurs. Leur statut est plutôt incertain, tout comme dans le cas du tonneau.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -55,4 +55,4 @@
 <b>Si une telle [personne] entre dans ma maison.</b> Ceci est sous la forme d'une question ; c'est [c'est-à-dire, le '<span>ה</span>] donc ponctué par un <span>חֲטַף פַּתָּח</span> et [le <span>ז</span>] n'est pas ponctué par un <span>דָגֵּשׁ</span>.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

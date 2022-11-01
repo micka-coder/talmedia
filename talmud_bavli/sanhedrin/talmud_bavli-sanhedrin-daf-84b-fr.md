@@ -57,4 +57,4 @@ La Gemara demande : <b>Cela marche bien selon celui qui a dit</b> que celui qui 
 La Gemara répond : <b>Qui as-tu entendu dire</b> que <b>ceux qui sont destructeurs en</b> causant <b>une blessure</b> sont <b>liables</b> d'être exécutés s'il y a un élément constructif dans leur action ? <b>C'est Rabbi Shimon,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

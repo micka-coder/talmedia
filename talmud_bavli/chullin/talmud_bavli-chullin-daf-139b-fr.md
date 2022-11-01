@@ -63,4 +63,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> ce qui est énoncé dans l
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> ce qui est...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

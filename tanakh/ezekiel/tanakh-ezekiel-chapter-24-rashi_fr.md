@@ -93,4 +93,4 @@
 <b>Et vous parlerez et ne serez plus muets</b> Parce que je vous ai dit (3:26) : "et vous deviendrez muets, et vous ne serez plus, etc.". Désormais, ils verront que tes paroles sont vraies, et tu ne seras plus muet pour leur prophétiser.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

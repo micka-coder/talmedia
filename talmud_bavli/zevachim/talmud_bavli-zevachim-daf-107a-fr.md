@@ -60,4 +60,4 @@ La Guemara démontre qu'il n'y a aucune raison d'avoir supposé que l'on serait 
 Et si l'on suggère de le <b>dériver</b> <b>par une comparaison avec l'aspersion</b> du sang à l'extérieur du Temple, car on est responsable de l'aspersion du sang alors que ce n'est qu'un des rites sacrificiels de l'offrande qui aurait dû être accompli à l'intérieur du Temple, on peut le réfuter : <b>Qu'est-ce qui est notable</b> dans l'aspersion ? </b> Il est notable <b>en ce qu'un non-prêtre</b> qui asperge du sang dans le Temple est <b>responsable</b> d'être puni de la <b>mort</b> de la main du Ciel <b>pour</b> cet acte. Les cas de la mishna ne partagent pas cette rigueur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

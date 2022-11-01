@@ -45,4 +45,4 @@ La Guemara développe : Comme indiqué précédemment, <b>de quel</b> cas unique
 <b>Rava de Barnish dit à Rav Ashi : Et réfutons</b> cette dérivation de la manière suivante : <b>Quel est</b> le dénominateur commun entre les lévites et le nazirite ? <b>Leur dénominateur commun est le suivant</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

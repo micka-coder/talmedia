@@ -54,4 +54,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre l'avis de
 § La Guemara relate une interprétation homilétique alternative du verset discuté ci-dessus. <b>Rav Shmuel bar Naḥmani dit</b> que <b>Rabbi Yonatan dit : "Heureux l'homme qui n'a pas marché dans le conseil des méchants"</b> (Psaumes 1:1) ; <b>cette</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara explique que <b>C'est</b> ce que dit la dernière clause de la mishna
 La Guemara suggère en outre : <b>Venez</b> et <b>entendez</b> une preuve issue d'une <i>baraïta</i> : Si l'on a loué un âne <b>pour apporter un <i>letekh</i>,</b> c'est-à-dire quinze <i>se'a</i>, <b>de blé, mais qu'il a apporté</b>...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

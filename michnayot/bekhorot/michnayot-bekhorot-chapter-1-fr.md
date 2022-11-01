@@ -20,5 +20,5 @@ Si l'on met de côté [un agneau] pour le rachat du premier-né d'un âne et qu'
 ### michna 7
 S'il ne souhaite pas le racheter, il lui brise le cou par derrière avec un grand couteau et l'enterre. La mitsva de rachat a la priorité sur la miztzah de briser le cou, car il est dit : "Et si tu ne le rachètes pas, tu dois lui briser le cou" (Exode 13:13). La mitsva de désignation a la priorité sur la mitsva de rachat, car il est dit : "Celui qui s'est fiancé à elle, doit la laisser racheter "(Exode 21:8). La mitzvah de yibbum est antérieure à la mitzvah de halitzah. Il en était ainsi au début, lorsqu'ils avaient l'intention d'accomplir la mitzvah. Mais maintenant qu'ils n'ont pas l'intention d'accomplir la mitzvah, les [sages] ont dit : la mitzvah de la halitzah est prioritaire sur la mitzvah de yibbum. La mitzvah de rachat [d'un animal impur dont la valeur a été consacrée au Temple] incombe au propriétaire. Il a la priorité sur tout autre homme, car il est dit : "S'il n'est pas racheté, il sera vendu selon votre estimation "(Lévitique 27:27).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

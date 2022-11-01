@@ -48,4 +48,4 @@ La Guemara demande : <b>Ce <i>am ha'aretz</i>,</b> qui s'est adressé à son pro
 <b>Ravina a dit : La première clause</b> fait référence <b>à un <i>am ha'aretz</i> qui a parlé à un <i>ḥaver</i>,</b> tandis que <b>la dernière clause</b> fait référence <b>à un <i>ḥaver</i> qui a parlé à un <i>am ha'aretz</i>, et un autre <i>ḥaver</i> l'a entendu</b> parler, et la discussion ne porte pas sur celui qui ramasse les figues mais sur la question de savoir si le second <i>ḥaver</i> peut prendre part aux figues si elles lui sont offertes. La Guemara explique le désaccord selon cette compréhension : <b>Rabbi</b> Yehuda HaNasi
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

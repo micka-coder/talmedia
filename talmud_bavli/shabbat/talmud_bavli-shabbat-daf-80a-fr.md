@@ -36,4 +36,4 @@ Nous avons appris dans la mishna : La mesure qui détermine la responsabilité d
 Nous avons appris dans la mishna : La mesure qui détermine la responsabilité pour l'exécution de <b>bran</b> est <b>équivalente</b> à celle que l'on utilise <b>pour placer sur l'ouverture du creuset d'un raffineur d'or.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

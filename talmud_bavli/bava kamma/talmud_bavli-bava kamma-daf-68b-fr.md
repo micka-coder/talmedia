@@ -57,4 +57,4 @@ La Guemara développe. <b>Comme le dit Rava :</b> Si le tribunal dit à un voleu
 <b>Puisque</b> le tribunal <b>a rendu une décision définitive dans</b> cette <b>affaire, et qu'il</b> a ensuite <b>abattu ou vendu</b> l'animal, <b>il est considéré comme un voleur, et un voleur ne paie pas</b> le <b>quadruple ou quintuple paiement. </La différence entre un voleur, pour lequel la Torah prescrit le double paiement et le paiement quadruple ou quintuple, et un brigand, qui n'encourt pas ces obligations, est que le voleur agit furtivement, alors que le brigand utilise effrontément la force pour prendre un objet à son propriétaire. Une fois qu'un tribunal a obligé un voleur à restituer un objet et qu'il a défié cette sentence, il est considéré comme un voleur, et donc le paiement quadruple ou quintuple et son expiation ne lui sont pas applicables.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -20,5 +20,5 @@ D'où apportaient-ils le vin ? Les rangs Keruhim et Attulim sont alpha leur vin.
 ### michna 7
 On ne mettait pas [le vin] dans de grands fûts mais dans de petits tonneaux. Et on ne remplissait pas les tonneaux à ras bord pour que son parfum se répande. On ne doit pas prendre le vin à l'embouchure du tonneau à cause de l'écume, ni celui du fond à cause de la lie ; mais on ne doit le prendre qu'au tiers ou au milieu du tonneau. Comment était-il testé ?  Le trésorier du temple s'asseyait à proximité, son bâton à la main ; lorsque l'écume jaillissait, il frappait avec son bâton. Rabbi Yose bar Judah dit : le vin sur lequel il y a de l'écume n'est pas valable, car il est écrit : "Ils seront pour vous sans défaut, ainsi que leur minhah" et "Ils seront pour vous sans défaut, ainsi que leurs libations" (Nombres 28:19-20,.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

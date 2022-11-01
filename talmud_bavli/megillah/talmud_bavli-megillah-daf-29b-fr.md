@@ -87,4 +87,4 @@ La Gemara demande : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <b
 § Un différend amoraïque <b>a été énoncé :</b> Si le Chabbat durant lequel la portion de <i>Shekalim</i> doit être lue <b>se produit le</b> Chabbat durant lequel la portion hebdomadaire régulière est <b>""Et tu commanderas"</b> (Exode 27:20""30:10), que faut-il faire ? <b>Rabbi Yitzḥak Nappaḥa a dit : Six</b> personnes <b>lisent depuis</b> la portion <b>"Et tu ordonneras", jusqu'à</b> mais sans inclure la portion hebdomadaire de <b>"Quand tu fais le compte"</b> (Exode 27:20""30:10), <b>et une</b> personne lit la portion de <i>Shekalim</i> <b>de "Quand tu fais le compte", jusqu'à</b> mais sans inclure le verset : <b>"Et tu feras</b> une cuve en cuivre" (Exode 30:11""16). <b>Abaye dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

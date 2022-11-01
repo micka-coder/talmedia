@@ -42,4 +42,4 @@ La mishna clarifie : <b>Quel est</b> l'animal sacrificiel <b>qui avait une péri
 A propos de cette question, la Gemara relate que <b>bar Kappara dit à bar Pedat : Fils de ma sœur, examine</b> le sujet de la question <b>que tu me poseras demain en salle d'étude.</b> La question portait sur l'interprétation de la déclaration de Rabbi Yehoshua : Tout animal sacrificiel qui avait une période d'aptitude pour les prêtres. Était-ce l'<b>aptitude</b> d'abattage</b> que <b>nous avons apprise,</b> c'est-à-dire qu'à condition d'avoir été abattu correctement, même si l'offrande a été disqualifiée par la suite, elle n'est plus soumise aux <i>halakhot</i> de mauvais usage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

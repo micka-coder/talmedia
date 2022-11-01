@@ -51,4 +51,4 @@ La Guemara discute de <b>la question</b> de la déclaration ci-dessus <b>même. 
 Ulla <b>lui dit : Selon mon</b> avis, ce n'est <b>pas difficile, et selon l'avis du Rav Yehuda's</b>, ce n'est <b>pas difficile. Selon mon</b> avis, ce n'est <b>pas difficile</b> parce que je tiens que le concept de <b>voyage lointain</b> ne s'applique qu'<b>à celui qui est rituellement pur, et le</b> principe d'un <b>voyage lointain</b> ne s'applique <b>pas</b> à celui qui est rituellement impur. </b> Si quelqu'un est rituellement impur au moment de l'abattage, son obligation est immédiatement reportée au second <i>Pesaḥ</i> indépendamment du fait qu'il deviendra rituellement pur à temps pour manger l'offrande à la tombée de la nuit.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

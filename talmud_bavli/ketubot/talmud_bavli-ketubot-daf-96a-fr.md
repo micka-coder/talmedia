@@ -48,4 +48,4 @@ La Guemara discute de la formulation de la déclaration de Rabbi Yosei ben Zimra
 <b>Rabbi Yoḥanan soulève un dilemme :</b> Si les <b>orphelins disent : Nous lui avons donné</b> sa subsistance, <b>et elle dit : Je n'en ai pris aucune, à qui</b> incombe-t-il <b>d'apporter des preuves</b> pour étayer son argument ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

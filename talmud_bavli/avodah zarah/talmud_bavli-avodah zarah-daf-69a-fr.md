@@ -39,4 +39,4 @@ La Gemara soulève une difficulté : <b>Si c'est le cas,</b> dans <b>la dernièr
 <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

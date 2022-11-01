@@ -42,4 +42,4 @@ La Gemara demande : <b>Accordé,</b> en ce qui concerne les malédictions <b>qui
 La Guemara note que <b>Rabbi Zeira a dit : La <i>halakha</i></b> est qu'en ce qui concerne <b>le lieu où l'on conclut</b> la lecture <b>le matin du Chabbat,</b> c'est à partir de <b>là</b> qu'on <b>continue à <b>lire dans l'office de l'après-midi</b> du Chabbat. <b>Et</b> de ce même endroit <b>ils</b> continuent à <b>lire le lundi</b> matin, <b>et le jeudi</b> matin, <b>et le Chabbat à venir.</b> La Gemara demande : Si c'est le cas, <b>qu'il</b> simplement <b>dire : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yehuda.</b> Pourquoi devait-il énoncer explicitement toute la <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

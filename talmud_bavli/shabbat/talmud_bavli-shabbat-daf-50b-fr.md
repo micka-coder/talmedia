@@ -54,4 +54,4 @@ La Guemara rapporte plusieurs règles concernant le fait de placer un objet dans
 <b>Rav Mordekhai a dit à Rava : Rav Ketina a soulevé une réfutation concluante</b> des opinions de Rav Huna et Shmuel à partir de ce que nous avons appris dans une mishna : En ce qui concerne <b>celui qui cache un navet ou un radis</b> dans le sol <b>sous une vigne</b> pour le mettre en sécurité, <b>si certaines de ses feuilles se montraient,</b> permettant un accès pour arracher le navet ou le radis du sol, <b>il n'a pas à s'inquiéter;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

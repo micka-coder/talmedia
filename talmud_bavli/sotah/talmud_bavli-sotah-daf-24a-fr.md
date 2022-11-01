@@ -45,4 +45,4 @@ La Guemara explique la dispute : Un <b>Sage,</b> Rabbi Yonatan, estime que le li
 La Guemara demande : <b>Et Rabbi Yonatan,</b> qui exclut à la fois une femme fiancée et une veuve en attente de son <i>yavam</i> de boire l'eau amère, <b>que fait-il de ce</b> terme <b>"tout homme" ?</b> Que sert-il à inclure ? La Guemara répond : Rabbi Yonatan <b>l'exige</b> afin <b>d'inclure la femme d'un sourd-muet et la femme d'un imbécile, ainsi que la femme de</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

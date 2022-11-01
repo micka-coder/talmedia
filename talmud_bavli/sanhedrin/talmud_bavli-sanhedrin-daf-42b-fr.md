@@ -48,4 +48,4 @@ La Guemara explique : Néanmoins, la <i>baraïta</i> <b>préfère</b> comparer u
 La Gemara soulève une objection : <b>Ce</b> verset supplémentaire <b>est nécessaire</b> pour nous enseigner <b>sur l'application</b> des instructions de Dieu, c'est-à-dire que le peuple juif a effectivement exécuté l'ordre de Dieu, mais ce verset ne doit pas être compris comme faisant référence à un camp supplémentaire. La Guemara répond : <b>L'exécution</b> des instructions de Dieu <b>est écrite explicitement,</b> comme il est dit dans la suite du verset :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

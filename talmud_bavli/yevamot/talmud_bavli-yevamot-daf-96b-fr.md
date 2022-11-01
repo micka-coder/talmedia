@@ -54,4 +54,4 @@ Rabbi Ami et Rabbi Asi ont cité cette <i>baraita</i> pour laisser entendre à R
 Plus tard, après s'être calmé, <b>il dit à</b> Rabbi Ami et Rabbi Asi : <b>Pourquoi ne savez-vous pas m'apaiser comme notre collègue ben Idi ?</b> La Guemara demande : <b>Et Rabbi Yoḥanan, quelle est la raison</b> pour laquelle <b>il était si en colère</b> à ce sujet ? La Guemara répond que c'est <b>comme le dit Rav Yehuda</b> que <b>Rav a dit : Quel est</b> le sens de ce <b>qui est écrit : "Je demeurerai dans Ta tente dans les mondes"</b> (Psaumes 61.5), littéralement, pour toujours ? <b>Et est-il possible pour une personne de vivre dans deux mondes</b> simultanément ? <b>Au contraire, David a dit devant le Saint, Béni soit-Il : Maître de l'Univers, qu'il en soit ainsi de Ta volonté</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

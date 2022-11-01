@@ -39,4 +39,4 @@ La Guemara répond : Le <i>tanna</i> de la mishna <b>a dit</b> ce qu'il a dit <b
 <b>Ce jour-là,</b> lorsque l'incident fut connu, suggérant que même Hillel avait accepté l'avis de Shammai, <b>Beit Shammai prit le dessus sur Beit Hillel, et ils cherchèrent à établir la <i>halakha</i></b> à cet égard <b>conformément à leur</b> avis. <b>Mais un certain Ancien parmi les disciples de Shammaï l'Ancien était là, et Bava ben Buta</b> était <b>son nom, qui savait que</b> la <b><i>halakha</i> est conforme</b> à l'opinion de <b>Beit Hillel</b> à ce sujet. <b>Et il envoya</b> pour...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

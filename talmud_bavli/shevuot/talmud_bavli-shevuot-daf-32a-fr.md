@@ -75,4 +75,4 @@ La Gemara développe : <b>Tout concède à l'égard d'un témoin</b> dans le cas
 <b>Et tous concèdent en ce qui concerne les témoins</b> dans le cas <b>d'un <i>sota</i> que</b> chaque témoin est <b>exempté</b> de la responsabilité en raison d'un faux serment de témoignage. Ceci fait référence <b>au</b> cas des <b>témoins d'avertissement,</b> qui témoignent que le mari jaloux a averti sa femme de ne pas s'isoler avec un certain homme, <b>car</b> chaque témoin <b>est</b> la <b>cause d'une cause</b> de perte financière, et non une cause directe de cette perte. Pour perdre le paiement de son contrat de mariage, en plus des témoins d'avertissement, des témoins de réclusion seraient également nécessaires, après quoi soit un témoin attesterait qu'elle a eu des rapports sexuels, soit elle devrait boire l'eau amère d'une <i>sota</i>, l'un ou l'autre confirmant qu'elle a eu une relation adultère.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

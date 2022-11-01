@@ -48,4 +48,4 @@ La Guemara discute de la déclaration de Shmuel. <b>Ravina dit à Rav Ashi : Est
 Ravina <b>lui a dit : Mais</b> il y avait <b>des incidents quotidiens</b> de ce type, <b>et Shmuel percevait</b> des acheteurs <b>même l'enrichissement qui atteignait les épaules.</b> Rav Ashi <b>lui a dit : Ceci</b> n'est <b>pas difficile.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

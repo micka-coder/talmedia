@@ -66,7 +66,7 @@ La mishna enseigne : <b>Et</b> tout être vivant <b>qui ne travaille pas mais</b
 § La mishna enseigne : <b>Que doit-on</b> faire <b>avec l'argent</b> reçu de la vente de l'animal ? <b>Rabbi Tarfon dit : </b> Celui qui le trouve <b>peut l'utiliser ;</b> donc, si l'argent est perdu, il est tenu de payer une restitution pour sa perte. Rabbi Akiva dit : Il ne peut pas utiliser l'argent. Par conséquent, s'il est perdu, il n'est pas tenu de payer la restitution. La Guemara analyse la dispute tannaïtique : Rabbi Tarfon et Rabbi Akiva <b>désaccord</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 car peut-être que celui qui l'écoute finira par le confondre</b> avec la première</b> fête du pèlerinage ? La Gemara répond : Confondre la deuxième Fête avec la première n'est pas un problème, car de toute façon, <b>le trouveur ne va-t-il pas <b>arriver</b> à la <b>troisième Fête de pèlerinage,</b> donnant ainsi au propriétaire une autre occasion de récupérer son objet perdu ?
 
@@ -134,4 +134,4 @@ La mishna enseigne : <b>Et</b> tout être vivant <b>qui ne travaille pas mais</b
 § La mishna enseigne : <b>Que doit-on</b> faire <b>avec l'argent</b> reçu de la vente de l'animal ? <b>Rabbi Tarfon dit : </b> Celui qui le trouve <b>peut l'utiliser ;</b> donc, si l'argent est perdu, il est tenu de payer une restitution pour sa perte. Rabbi Akiva dit : Il ne peut pas utiliser l'argent. Par conséquent, s'il est perdu, il n'est pas tenu de payer la restitution. La Guemara analyse la dispute tannaïtique : Rabbi Tarfon et Rabbi Akiva <b>désaccord</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

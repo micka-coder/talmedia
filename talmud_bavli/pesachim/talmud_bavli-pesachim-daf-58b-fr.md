@@ -42,4 +42,4 @@ Le <i>baraita</i> poursuit : <b>Et d'où vient</b> <b>que rien n'est sacrifié a
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>L'offrande quotidienne précède</b> l'offrande de <b>l'agneau pascal, l'agneau pascal précède</b> l'après-midi la combustion de l'<b>encens,</b> et la combustion de l'<b>encens précède</b> l'allumage des <b>lampes</b> du candélabre du Temple.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

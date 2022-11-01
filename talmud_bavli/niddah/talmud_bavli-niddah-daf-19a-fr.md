@@ -75,4 +75,4 @@ La Gemara répond : <b>Si tu veux, dis</b> que les Beit Shammai <b>n'acceptent p
 La Gemara explique : <b>Il y a</b> une différence pratique <b>entre eux</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

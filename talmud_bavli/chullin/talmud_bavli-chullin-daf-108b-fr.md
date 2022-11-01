@@ -42,4 +42,4 @@ La Guemara demande : <b>Quel est le sens de la clause : Où <b>on n'a pas remué
 La Guemara répond : De toute évidence, Rabbi Yehuda HaNasi <b>soutient</b> qu'un article <b>qui peut être essoré</b> reste <b>prohibé.</b> Une fois que le premier morceau de viande absorbe le lait, il est considéré comme non cachère en soi, et même après que le lait lui-même soit annulé, la saveur de la viande interdite rend le reste des morceaux prohibés. La saveur de la viande ne peut pas être annulée par l'autre viande dans le pot, car une substance en contact avec le même type de substance n'est pas annulée, selon l'opinion de Rabbi Yehuda.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

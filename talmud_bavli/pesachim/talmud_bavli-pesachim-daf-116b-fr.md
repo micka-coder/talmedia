@@ -39,4 +39,4 @@ La Gemara rejette cette difficulté : <b>Comment peut-on</b> ces cas, les verset
 La mishna déclare : <b>C'est pourquoi nous sommes obligés</b> de remercier.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

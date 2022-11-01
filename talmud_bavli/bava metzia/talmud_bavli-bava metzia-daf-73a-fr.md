@@ -36,4 +36,4 @@ De même, <b>Rava a dit à ceux qui gardent les champs [<i>bagei</i>]</b> jusqu'
 Rava <b>leur dit :</b> Au contraire, <b>vous êtes</b> ceux qui <b>agissent illégalement,</b> car en vérité toute <b>la terre est liée au métayer</b> jusqu'à ce qu'il finisse de la travailler et d'en récolter tout ce qu'il peut. <b>Si vous retirez</b> les métayers du champ <b>en Nisan, vous leur faites perdre une grande</b> affaire, car ils n'ont pas assez de temps pour récolter tous les produits du champ. <b>Je les attends jusqu'à Iyyar, et</b> de cette manière <b>je leur permets de profiter d'une grande</b> affaire. Par conséquent, j'agis conformément à la <i>halakha</i> et je reçois une rémunération convenable pour avoir loué le champ pour la durée appropriée, alors que vous privez les métayers de ce qui leur est dû, même si vous recevez une rémunération directe moindre.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

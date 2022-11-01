@@ -48,4 +48,4 @@ La Guemara relate que <b>Rabbi Yitzḥak bar Yosef marchait après Rabbi Yirmeya
 <b>Rava a dit : Lorsque nous marchions après le Rav Naḥman au marché</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

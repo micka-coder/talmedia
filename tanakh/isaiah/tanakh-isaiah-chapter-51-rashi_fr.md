@@ -91,7 +91,7 @@
 <b>Baisse-toi et laisse-nous traverser</b> sur ton dos.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Regardez le rocher d'où vous avez été taillés</b> de lui.
 <b>et au trou de la fosse</b> Heb. מַקֶּבֶת. Avec lesquels ils pénètrent (נוֹקְבִין) et taillent les fosses. <b>Tu as été creusé</b> avec lequel tu as été creusé.
@@ -184,4 +184,4 @@
 <b>Baisse-toi et laisse-nous traverser</b> sur ton dos.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -39,4 +39,4 @@ Ceci est <b>conforme à ce qu'a dit Rav Naḥman :</b> Si quelqu'un <b>a fixé u
 <b>Rava dit : Parfois la petite cloison</b> conduit <b>à l'interdiction. Quelles sont les circonstances</b> de ce cas ? Il s'agit d'un cas <b>où la cloison <b>a été érigée</b> face au <b>jardin de sa maison</b> et les côtés faisant face aux autres toits ont été scellés. La raison en est <b>que</b> par ses actions <b>il a dit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

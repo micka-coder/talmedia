@@ -48,4 +48,4 @@ Si <b>Reuven est venu</b> à une femme <b>et l'a fiancée</b> en disant qu'elle 
 <b>Dit-on</b> que <b>ce qu'il a interdit</b> initialement <b>il</b> ensuite <b>permis,</b> lui permettant d'épouser n'importe qui, y compris Reuven et Shimon, auquel cas la rupture est complète ? <b>Ou peut-être que ce qu'il a interdit</b> initialement <b>il</b> a ensuite <b>permis,</b> lui permettant d'épouser Reuven et Shimon, <b>et ce qu'il a permis</b> initialement <b>il</b> a ensuite <b>interdit,</b> c'est-à-dire qu'il ne l'a autorisée qu'à Reuven et Shimon, excluant tous les autres hommes ? <b>Si vous dites</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

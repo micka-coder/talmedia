@@ -39,4 +39,4 @@ S'il y a une <b>fille de lévite fiancée à un prêtre</b> ou <b>grossie d'un p
 <strong>GEMARA:</strong> La mishna affirme qu'une femme israélite fiancée à un lévite ne peut pas prendre part aux dîmes. La Guemara est perplexe face à cette décision : <b>Et qu'elle</b> même <b>être</b> une <b>étrangère</b> complète qui n'est pas lévite ; <b>une étrangère ne peut-elle pas prendre part aux dîmes ?</b> Contrairement à la <i>teruma</i>, aucune sainteté particulière ne se rapporte aux dîmes ; elles sont simplement la possession du lévite. Quelle différence cela fait-il, alors, qu'elle soit lévite ou non ? <b>Rav Naḥman dit</b> que <b>Shmuel a dit :</b> Conformément à <b>quel</b> avis <b>cette mishna</b> ? <b>C'est</b> en accord avec l'opinion de <b>Rabbi Meir, qui a dit</b> que la <b>première dîme est interdite aux étrangers,</b> c'est-à-dire aux non-Lévites, <b>comme cela est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

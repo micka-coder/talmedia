@@ -39,4 +39,4 @@ La Guemara objecte que cette explication n'est pas tenable : <b>Selon Rabbi</b> 
 <b>Au contraire, quel</b> est le sens de la déclaration : <b>La pension alimentaire n'est pas</b> traitée <b>comme une stipulation dans le contrat de mariage ?</b> Cette affirmation a des implications en ce qui concerne <b>ce qui est enseigné</b> dans une <i>baraita</i> : Dans le cas de <b>quelqu'un qui dit</b> dans son testament que <b>ses filles ne doivent pas être entretenues par son patrimoine, on ne l'écoute pas,</b> car il n'est pas dans ses prérogatives d'abroger cette obligation. Mais s'il dit que <b>ses filles ne doivent pas être soutenues par ses biens,</b> on <b>l'écoute, car le statut juridique de la dot n'est pas comme celui d'une stipulation du contrat de mariage.</b> La responsabilité de fournir un soutien est une ordonnance qui incombe au père ou à ses héritiers, et ils peuvent choisir de rejeter cette responsabilité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

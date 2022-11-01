@@ -48,4 +48,4 @@ La Guemara rapporte d'autres déclarations de Rabbi Ḥanina : En ce qui concern
 A propos de Rabbi Pineḥas ben Ya'ir, la Guemara note que <b>ils ont dit à propos de Rabbi Pineḥas ben Ya'ir : Durant</b> tous <b>ses jours, il n'a jamais rompu</b> le pain et récité une bénédiction <b>sur un morceau de pain qui n'était pas le sien, et depuis le jour où il a atteint la cognition, il n'a pas bénéficié</b> même <b>du repas de son père,</b> car il s'est détourné du bénéfice de tous.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -45,4 +45,4 @@ En ce qui concerne la richesse de Korah, la Gemara cite le verset : <b>Les riche
 <b>Nous avons appris</b> dans une mishna <b>là,</b> dans <i>Sukka</i> : Dans <b>un lieu où ils avaient l'habitude</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ Cependant, <b>si tous</b> les contrats de mariage <b>ont été établis le même
 <strong>GEMARA:</strong> La Gemara demande : <b>Par rapport à quoi</b> le premier <i>tanna</i> et ben Nanas <b>sont-ils en désaccord ? Shmuel répond :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Rabbi Yoḥanan a continué à répondre aux questions de Rabbi Ḥiyya bar Abba
 Rabbi Yoḥanan leur a alors expliqué : <b>Pourquoi les Gentils</b> sont éthiquement <b>contaminés ?</b> C'est parce qu'ils <b>ne se sont pas tenus sur le Mont Sinaï. Comme lorsque</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

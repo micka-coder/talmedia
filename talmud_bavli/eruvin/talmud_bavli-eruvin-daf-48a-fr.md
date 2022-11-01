@@ -75,4 +75,4 @@ La mishna a enseigné : Si les résidents des deux cours extérieures ont établ
 <b>Et Rav Sheshet dit : Même si l'on dit que</b> les habitants de chacune des cours extérieures ont <b>placé leurs <i>eirouv</i> dans la cour centrale</b>, elles ne sont toujours pas considérées comme une seule cour, car nous avons affaire <b>à un cas où ils ont placé</b> chaque <i>eirouv</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

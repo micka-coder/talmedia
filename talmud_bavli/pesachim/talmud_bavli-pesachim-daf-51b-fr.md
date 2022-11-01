@@ -24,4 +24,4 @@ Nous avons appris dans la mishna en ce qui concerne l'abstention de l'exécution
 Après avoir discuté des rigueurs résultant des coutumes, la Gemara s'étend sur le deuxième jour d'une fête observée en Diaspora. <b>Rav Safra dit à Rabbi Abba :</b> Les communautés dans une situation <b>comme nous, qui,</b> sur la base de calculs, connaissent déjà <b>la détermination du mois</b> et ne sont plus préoccupées de peur que la Fête ne soit observée le mauvais jour, clairement, le deuxième jour d'une Fête,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

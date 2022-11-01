@@ -39,4 +39,4 @@ Rava <b>lui a dit : Si tu as appris</b> cette <i>baraita</i> de cette manière, 
 <b>Rabba bar Ḥanan dit à Abaye : Si oui,</b> selon ton avis, <b>on trouve</b> une différence de <i>halakha</i> entre <b>un long</b> chemin <b>et un court</b> chemin <b>en ce qui concerne une femme en période de menstruation.</b> S'il s'est retiré par le court chemin, c'est-à-dire, sans attendre, il a commis une transgression, et s'il s'est retiré par le chemin long, c'est-à-dire après avoir attendu, il n'a pas commis de transgression.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,7 +72,7 @@
 <b>Pour autant que</b> comme עַל-אֲֹשֶר en raison de quoi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -146,4 +146,4 @@
 <b>Pour autant que</b> comme עַל-אֲֹשֶר en raison de quoi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

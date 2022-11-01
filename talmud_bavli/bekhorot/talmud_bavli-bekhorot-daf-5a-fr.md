@@ -60,4 +60,4 @@ La Guemara rejette également cette preuve : <b>Mais peut-être</b> le verset se
 <b>Au contraire, le Rav Ḥisda dit</b> l'affirmation selon laquelle un <i>maneh</i> du Sanctuaire était deux fois plus grand qu'un <i>maneh</i> standard est dérivée <b>d'ici : "Et le shekel sera de vingt <i>gera</i> ; vingt shekels, vingt-cinq shekels, dix, et cinq shekels, seront votre <i>maneh</i>"</b> (Ezéchiel 45:12). Dans ce verset, Ezéchiel définit les différents poids utilisés dans le Temple et précise que chaque sicle d'argent est constitué de vingt <i>gera</i>. De plus, la combinaison de vingt, vingt-cinq, dix et cinq sicles donne une somme totale de soixante sicles, qui est la valeur d'un <i>maneh</i>. Un <i>maneh</i>, à son tour, est équivalent à cent dinars.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

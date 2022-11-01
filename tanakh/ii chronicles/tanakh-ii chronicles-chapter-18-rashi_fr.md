@@ -96,4 +96,4 @@
 <b>S'est tenu debout dans le char</b> Il s'est dépensé et s'est levé pour que les Israélites ne se rendent pas compte qu'il était blessé et fuient, car le début de la défaite est la fuite.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

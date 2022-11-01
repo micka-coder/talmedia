@@ -33,4 +33,4 @@ La largeur standard d'un <b>chemin privé</b> est de <b>quatre coudées.</b> Si 
 <b>Rav Zevid a dit au nom de Rava :</b> Bien que généralement on puisse le faire, dans ce cas les Sages ont émis <b>un décret</b> l'interdisant, <b>de peur qu'il ne leur donne un itinéraire détourné</b> qui allongera la distance que le public devra parcourir. <b>Rav Mesharshiyya dit au nom de Rava</b> que la décision de la mishna ne s'applique que <b>lorsqu'il</b> leur <b>donne effectivement une route détournée</b> au lieu de la voie droite initiale. Mais on peut échanger une voie publique contre une voie tout aussi droite, en s'appropriant l'original pour son usage personnel.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

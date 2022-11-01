@@ -60,4 +60,4 @@ La Gemara remet maintenant en question le premier avis : <b>Mais Rabbi Ḥiyya n
 <b>Rava a soulevé un dilemme devant Rav Naḥman :</b> Dans un cas où <b>cinq</b> personnes <b>poursuivaient</b> une autre <b>et lui disaient : Rends-nous notre dépôt, notre gage, et l'objet volé, et l'objet perdu qui sont en ta possession,</b> et le défendeur <b>a dit à l'un d'eux : </b> Sur mon <b>serment, votre dépôt, votre gage, votre objet volé et votre objet perdu</b> ne sont <b>pas en ma possession, et ni</b> sont <b>les vôtres, et ni</b> sont <b>les vôtres, et ni</b> sont <b>les vôtres, et ni</b> sont <b>les vôtres, quelle est</b> la <i>halakha</i> ? Est-il <b>responsable</b> d'un seul <b>un</b> serment pour chacun des quatre prétendants à qui il a dit : Et les vôtres non plus, puisque ces serments sont considérés comme des serments généraux ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

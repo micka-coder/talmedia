@@ -38,4 +38,4 @@
 <b>Le Seigneur s'est assis [trônant] lors du déluge</b> seul dans Sa grandeur, et maintenant aussi, le Seigneur s'assied seul pour toujours, "mais les idoles disparaîtront complètement," (comme dans Isa. 2:18), cependant à Son peuple Il donnera la force et une bénédiction de paix. Nos Sages, cependant, ont expliqué dans le Midrash Psaumes (29:2) que les nations ont été effrayées et effarouchées, et qu'elles sont venues à Balaam et lui ont dit : "Quel est le bruit de l'agitation que nous avons entendu ? Il va faire venir un déluge sur le monde ?" Il leur répondit : "Il a déjà juré qu'il ne ferait pas venir un déluge. Le bruit de l'agitation que vous avez entendu est plutôt dû au fait que le Saint, béni soit-Il, donne une Torah à Son peuple.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

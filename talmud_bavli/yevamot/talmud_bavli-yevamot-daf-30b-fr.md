@@ -42,4 +42,4 @@ La Guemara objecte : Pourtant <b>il s'agit d'une rigueur qui pourrait entraîner
 <b>Alternativement, il arrive qu'un autre homme vienne fiancer</b> la parente interdite <b>elle-même</b> avec <b>une fiance</b> dont le statut est <b>certain, et puisque le Maître</b> a rendu <b>interdit</b> à <b>l'épouse rivale de contracter un mariage lévirat,</b> les gens diraient <b>dire</b> que la fiance <b>du premier</b> homme, c'est-à-dire, le frère décédé, était une <b>fiançailles pleinement effectives, et</b> que les fiançailles <b>du second</b> homme <b>n'étaient pas</b> une <b>fiançailles valide.</b> Si elle était mariée au premier homme, alors elle est interdite au second en tant qu'épouse de cet homme, et les fiançailles ne peuvent prendre effet avec elle. Cependant, puisque le statut de ses fiançailles avec le premier homme était incertain, alors elle est aussi considérée comme possiblement fiancée au second homme et nécessiterait un divorce de lui aussi. Par conséquent, on peut trouver une situation qui conduirait les gens à penser que la femme d'un homme est en fait autorisée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara demande : <b>Mais que</b> le bouc <b>atteste même pour d'autres tran
 La Gemara dit : <b>Nous avons trouvé</b> une source enseignant que les <b>chèvres des</b> <b>Nouvelles Lunes</b> expient pour la souillure du Temple ou de ses aliments sacrificiels. <b>D'où tirons-nous</b> que les <b>chèvres des Fêtes</b> expient aussi pour de tels cas ? <b>Et si vous voulez dire</b> que <b>ceci</b> peut <b>également</b> être dérivé <b>conformément à ce</b> que les Sages <b>de l'école de Rabbi Yishmael ont enseigné,</b> cette suggestion <b>peut être réfutée</b> comme suit : <b>Si</b> on essaie de la dériver <b>par le biais</b> d'une comparaison avec les chèvres <b>de</b> la <b>Nouvelle Lune,</b> la comparaison est viciée, <b>car</b> ces chèvres sont plus <b>fréquentes</b> que celles des Fêtes. Et <b>si</b> vous essayez de le dériver <b>par le biais</b> d'une comparaison avec le bouc <b>de Yom Kippour,</b> cette comparaison est également viciée, <b>car</b> ce bouc <b>a</b> une expiation plus <b>extensive,</b> puisqu'il expie tous les péchés. <b>Et si vous disiez :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

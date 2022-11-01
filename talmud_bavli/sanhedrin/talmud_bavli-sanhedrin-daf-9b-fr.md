@@ -27,4 +27,4 @@ Mais si celui qui a été sodomisé témoigne que l'accusé l'a sodomisé <b>ave
 Et de la même manière, <b>Rava dit:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

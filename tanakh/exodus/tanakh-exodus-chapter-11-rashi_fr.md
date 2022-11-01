@@ -35,5 +35,5 @@
 ### passuk 10
 <b>Moshé et Aharon avaient fait, etc.</b> Cela a déjà été écrit pour nous concernant toutes les merveilles, et n'est répété ici que pour servir d'introduction à la section qui suit. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

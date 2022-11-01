@@ -54,4 +54,4 @@ La Guemara répond : <b>C'est différent là,</b> en ce qui concerne le <i>log</
 <b>Rabbi Yoḥanan a dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara soulève un défi supplémentaire à l'opinion de Shmuel. S'il tient 
 En outre : Le terme <b>un</b> se réfère à une transgression à part entière du Chabbat, par exemple, celui qui avait l'intention et a écrit un nom complet, <b>Shimon.</b> Le terme <b>de un</b> se réfère à un cas où il n'a effectué qu'une partie de la transgression, par exemple, celui qui a écrit...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

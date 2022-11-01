@@ -42,4 +42,4 @@ Lorsqu'Alexandre s'apprêtait à se séparer des anciens du Néguev, <b>il leur 
 Alexandre <b>fit cela et partit</b> en campagne. <b>Il arriva dans une certaine ville dont toute</b> la population était constituée de <b>femmes,</b> et <b>il voulut livrer bataille contre elles.</b> Les femmes <b>lui dirent :</b> Il n'est pas dans ton intérêt de nous combattre. <b>Si tu nous tues,</b> les gens <b>pourront dire :</b> Alexandre <b>tue les femmes;</b> et <b>si nous te tuons,</b> les gens <b>pourront dire :</b> Alexandre est le <b>roi que les femmes ont tué</b> dans la bataille. Au lieu de les combattre, Alexandre <b>leur a dit : Apportez-moi du pain. Elles lui apportèrent du pain d'or, sur une table d'or.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

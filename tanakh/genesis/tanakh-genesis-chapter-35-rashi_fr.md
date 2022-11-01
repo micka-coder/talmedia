@@ -91,5 +91,5 @@
 ### passuk 29
 <b>Yitshak a expiré.</b> L'Écriture n'est pas [nécessairement] dans l'ordre chronologique : la vente de Yoseif a précédé la mort de Yitshak, de douze ans. [Quand Yaakov est né, Yitshak avait soixante ans, comme il est dit : " Et Yitshak avait soixante ans " : "Et Yitshak avait soixante ans, etc." et Yitshak est mort quand Yaakov avait 120 ans. Si l'on déduit 60 de 180 ans, il reste 120 ans. Yoseif a été vendu à l'âge de 17 ans, et cette année-là était la 108e année de Yaakov. Comment cela se fait-il ? Il avait 63 ans lorsqu'il a été béni. Il s'est ensuite caché pendant quatorze ans dans la maison d'Eiver, ce qui fait un total de soixante-dix-sept ans. Il a ensuite travaillé quatorze ans pour trouver une épouse. A la fin de ces quatorze années, Yoseif est né, comme il est écrit : "Ce qui fait un total de quatre-vingt-onze ans plus dix-sept ans [de la vie de Yoseif] avant qu'il ne soit vendu, soit un total de 108 ans. (Ceci peut également être dérivé des Écritures, ainsi : Entre le moment où Yoseif a été vendu et celui où Yaakov est arrivé en Égypte, vingt-deux ans se sont écoulés, comme il est dit : "Yossef avait trente ans, etc." plus les sept années d'abondance et les deux années de famine, ce qui fait 22 ans. Et il est écrit : " Les années de ma résidence temporaire sont de 130 ans ", ce qui fait que Yaakov a 108 ans à sa vente [celle de Yoseif]). 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

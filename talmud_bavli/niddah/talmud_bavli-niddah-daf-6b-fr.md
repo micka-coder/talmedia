@@ -45,4 +45,4 @@ Le <i>baraita</i> développe : <b>Avant d'être pétri, il peut être préparé<
 Il est <b>enseigné</b> dans un <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

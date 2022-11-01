@@ -17,5 +17,5 @@ Il [l'aîné rebelle] n'a pas été exécuté par son tribunal local ni par le t
 ### michna 6
 "Celui qui prophétise au nom d'une idole ": c'est celui qui dit : "Ainsi a été déclarée l'idole", même s'il a dirigé l'enseignement pour déclarer l'impur, impur, ou le pur, pur. "Qui a des relations sexuelles avec une femme mariée" après son entrée dans la maison de son mari pour le mariage, bien qu'elle n'ait pas eu de relations sexuelles avec son mari, celui qui a des relations avec elle est étranglé. "Témoins qui ont faussement attesté [de l'adultère de] la fille d'un prêtre, et celui qui a eu des relations sexuelles avec elle", car tous les faux témoins sont amenés à rencontrer la même mort [qu'ils ont cherché à imposer], sauf les témoins qui ont faussement attesté [de l'adultère de] la fille d'un prêtre, et celui qui a eu des relations sexuelles avec elle.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara demande : <b>Quel</b> est le <i>halakha</i> en ce qui concerne la zone
 § <b>Rav Yehuda dit</b> que <b>Shmuel dit :</b> On est <b>responsable</b> d'entrer dans la cour du Temple en état d'impureté <b>rituelle uniquement en ce qui concerne</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

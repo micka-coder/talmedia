@@ -42,4 +42,4 @@ La Guemara demande : A <b>Qui est</b> la phrase dans le <i>baraita</i> : <b>Cert
 La Guemara commente : <b>Rav Aḥa bar Rava a enseigné</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

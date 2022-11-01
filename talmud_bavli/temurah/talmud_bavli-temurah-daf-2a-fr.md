@@ -33,4 +33,4 @@ La Guemara note : <b>Et</b> quant à <b>Rabbi Yehuda, il n'accepte pas</b> que l
 La Guemara demande : <b>Et quel est le raisonnement</b> de <b>Rabbi Meir, qui a dit</b> que <b>un héritier</b> peut <b>effectuer une substitution ?</b> La Gemara répond : Rabbi Meir pourrait <b>vous dire</b> que la répétition du verbe dans le verset : "Et <b>si jamais il remplace [<i>hamer yamir</i>]</b> animal par animal" (Lévitique 27:10), sert <b>à inclure l'héritier.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

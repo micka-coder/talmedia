@@ -36,4 +36,4 @@ La Gemara répond : <b>Ils exigent ce</b> verset <b>comme une interdiction de co
 La Gemara demande : <b>Et</b> concernant <b>les rabbins,</b> que tirent-ils de ce verset ? La Guemara répond : <b>Ce</b> verset <b>est nécessaire</b> selon les rabbins.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

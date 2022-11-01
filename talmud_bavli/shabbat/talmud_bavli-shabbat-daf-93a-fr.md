@@ -24,4 +24,4 @@ Nous avons appris précédemment que <b>le Maître a dit :</b> Dans un cas où <
 <b>Au contraire, n'est-ce pas</b> que les vêtements situés sous les pattes de l'animal restent rituellement purs <b>parce que nous disons :</b> Un objet <b>qui assiste</b> est <b>insubstantiel ?</b> Chaque pied ne fait qu'aider à supporter le poids du <i>zav</i>. De même, <b>Rav Pappi a dit au nom de Rava : Nous avons, nous aussi, appris</b> le soutien de cette <i>halakha</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

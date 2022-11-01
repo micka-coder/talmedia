@@ -51,4 +51,4 @@ Le mort n'y reste suspendu que très peu de temps, <b>et</b> ensuite <b>ils le d
 Après que le transgresseur exécuté a été descendu, il est enterré, <b>et on ne l'enterrait pas dans son <b>plateau funéraire ancestral</b>. Au contraire, deux cimetières ont été établis pour</b> l'enterrement des personnes exécutées par <b>la cour : L'un pour ceux qui étaient tués</b> par décapitation <b>ou étranglement, et l'autre pour ceux qui étaient lapidés ou brûlés.</b> Une fois que <b>la chair</b> du défunt <b>se décomposait, on rassemblait ses os et on les enterrait à leur</b> propre <b>place</b> dans sa parcelle funéraire ancestrale. <b>Et</b> peu après l'exécution, <b>les proches</b> du transgresseur exécuté <b>venaient s'enquérir du bien-être des juges et du bien-être des témoins, comme pour dire : Nous n'avons aucune</b> rancune <b>contre vous, car vous avez jugé un jugement vrai.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -75,7 +75,7 @@ Les Sages <b>Disent</b> pour défendre l'avis de Rav Sheshet : <b>De quoi avons-
 La Guemara ajoute : <b>Sachez</b> que celui qui refuse la possession d'un objet uniquement pour pouvoir le restituer plus tard n'est pas considéré comme un voleur, <b>comme le dit Rav Idi bar Avin : Celui qui nie</b> une prétention <b>concernant le fait d'avoir contracté <b>un emprunt est apte à témoigner,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Si le brigand <b>a fait</b> un faux <b>serment concernant</b> le vol du pain levé, <b>qu'est-ce que</b> le <i>halakha</i> ? <b>Disons-nous</b> que <b>puisque, s'il</b> était <b>volé</b> au voleur, celui-ci <b>devrait payer</b> la valeur initiale du pain <b>à</b> la victime du vol, puisqu'il ne peut plus dire : Ce qui est à toi est devant toi, et donc <b>il a refusé</b> une créance de <b>monnaie à</b> la victime du vol et doit par conséquent payer le cinquième supplémentaire et apporter une offrande de culpabilité ? <b>Ou peut-être</b> disons-nous que <b>maintenant, de toute façon, elle repose</b> en la possession du voleur <b>et elle est</b> considérée comme de la <b>mère poussière,</b> puisqu'il est interdit d'en tirer un bénéfice, et qu'à ce titre <b>il n'a pas nié</b> une prétention de <b>monnaie,</b> et les <i>halakhot</i> concernant un faux serment ne s'appliquent pas.
 
@@ -152,7 +152,7 @@ Les Sages <b>Disent</b> pour défendre l'avis de Rav Sheshet : <b>De quoi avons-
 La Guemara ajoute : <b>Sachez</b> que celui qui refuse la possession d'un objet uniquement pour pouvoir le restituer plus tard n'est pas considéré comme un voleur, <b>comme le dit Rav Idi bar Avin : Celui qui nie</b> une prétention <b>concernant le fait d'avoir contracté <b>un emprunt est apte à témoigner,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Si le brigand <b>a fait</b> un faux <b>serment concernant</b> le vol du pain levé, <b>qu'est-ce que</b> le <i>halakha</i> ? <b>Disons-nous</b> que <b>puisque, s'il</b> était <b>volé</b> au voleur, celui-ci <b>devrait payer</b> la valeur initiale du pain <b>à</b> la victime du vol, car il ne peut plus dire : Ce qui est à toi est devant toi, et donc <b>il a refusé</b> une créance de <b>monnaie à</b> la victime du vol et doit par conséquent payer le cinquième supplémentaire et apporter une offrande de culpabilité ? <b>Ou peut-être</b> disons-nous que <b>maintenant, de toute façon, elle repose</b> en la possession du voleur <b>et elle est</b> considérée comme de la <b>mère poussière,</b> puisqu'il est interdit d'en tirer un bénéfice, et qu'à ce titre <b>il n'a pas nié</b> une prétention de <b>monnaie,</b> et les <i>halakhot</i> concernant un faux serment ne s'appliquent pas.
 
@@ -229,4 +229,4 @@ Les Sages <b>Disent</b> pour défendre l'avis de Rav Sheshet : <b>De quoi avons-
 La Guemara ajoute : <b>Sachez</b> que celui qui refuse la possession d'un objet uniquement pour pouvoir le restituer plus tard n'est pas considéré comme un voleur, <b>comme le dit Rav Idi bar Avin : Celui qui nie</b> une prétention <b>concernant le fait d'avoir contracté <b>un emprunt est apte à témoigner,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Gemara demande : <b>Lequel</b> d'entre eux <b>est</b> dérivé du <b>verset e
 Et il n'y a pas besoin d'une dérivation en ce qui concerne leur obligation de jeûner à <b>Yom Kippour,</b> car cela peut être <b>dérivé de</b> ce <b>que Rabbi Yehuda</b> a dit que <b>Rav a dit, comme Rabbi Yehuda a dit</b> que <b>Rav a dit, et cela a été de même enseigné dans l'école de Rabbi Yishmael : Le verset dit :</b> "Quand <b>un homme ou une femme</b> commet un péché quelconque qu'une personne commet, pour commettre une faute contre l'Eternel, et que cette âme est coupable" (Nombres 5:6).
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

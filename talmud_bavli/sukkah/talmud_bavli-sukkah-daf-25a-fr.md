@@ -33,4 +33,4 @@ La Gemara répond : Néanmoins, il existe une distinction entre les cas. <b>Ici,
 § La Gemara demande : <b>Et</b> le principe halakhique selon lequel <b>celui qui est engagé dans une mitzva est dispensé</b> d'accomplir une autre <b>mitzva découle-t-il de là ? Il est dérivé de là, car il est enseigné</b> dans une <i>baraita</i> qu'il est écrit : <b>"Il y avait certains hommes qui étaient impurs par le cadavre d'une personne</b> et ils ne pouvaient pas observer le <i>Pesaḥ</i> ce jour-là" (Nombres 9:6). Avant de poursuivre la discussion, le <i>baraita</i> cherche à clarifier en ce qui concerne <b>ces hommes</b> qui sont devenus impurs : <b>Qui étaient-ils ?</b> Le <i>baraita</i> répond : <b>Ils étaient les porteurs du cercueil de Joseph',</b> que le peuple juif a apporté avec lui dans le désert. C'est <b>la déclaration de Rabbi Yosei HaGelili.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

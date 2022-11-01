@@ -17,5 +17,5 @@ S'il se tenait à l'extérieur d'un four et qu'il tendait la main vers une fenê
 ### michna 6
 Un flacon contenant des eaux de hatat qui a touché [un récipient] contenant de la nourriture consacrée ou de la teroumah : celui contenant les eaux de hatat devient impur, mais celui contenant la nourriture consacrée ou la teroumah reste pur. S'il a tenu les deux récipients, un dans chacune de ses deux mains, les deux deviennent impurs. S'ils étaient tous deux enveloppés dans des papiers séparés, ils restent purs. Si le récipient contenant les eaux de hatat était enveloppé dans un papier alors que celui contenant la teroumah était tenu dans sa main, les deux deviennent impurs. Si celui contenant la teroumah était enveloppé dans un papier tandis que celui contenant les eaux de hatat était tenu dans sa main, les deux restent purs. Rabbi Joshua dit : celui qui contient les eaux de hatat devient impur. Si les deux étaient posés sur le sol et qu'il les touchait, celui des eaux de hatat devient impur mais celui de la nourriture consacrée ou de la teroumah reste pur. S'il les a déplacé [sans les toucher] : Rabbi Joshua dit qu'elle [le flacon des eaux de hatat] est impure, et les sages statuent qu'elle est pure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

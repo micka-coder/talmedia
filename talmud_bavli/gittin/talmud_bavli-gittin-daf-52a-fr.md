@@ -72,4 +72,4 @@ Si <b>les orphelins ont donné de l'argent pour</b> l'achat d'un <b>produit</b> 
 <b>Rav Sheisha, fils de Rav Idi, leur dit : Ce serait mauvais pour</b> les orphelins s'ils étaient traités de cette manière,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

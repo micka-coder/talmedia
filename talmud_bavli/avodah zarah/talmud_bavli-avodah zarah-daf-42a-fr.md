@@ -66,4 +66,4 @@ Rabbi Yoḥanan <b>souleve</b> une autre <b>objection à</b> l'avis de Reish Lak
 La Guemara répond : <b>Là, c'est différent, car le principal</b> objet d'adoration de <b>l'idole,</b> l'arbre, existe encore <b>entièrement intact</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

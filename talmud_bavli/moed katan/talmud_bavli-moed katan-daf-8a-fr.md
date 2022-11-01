@@ -60,4 +60,4 @@ Il est enseigné dans la mishna que l'on ne peut pas susciter de lamentation ou 
 <b>Et Shmuel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

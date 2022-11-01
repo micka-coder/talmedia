@@ -95,5 +95,5 @@
 <b>Je retirerai alors Ma Main. </b> [Onkelos traduit :] וְאַעְדֵי יָת דִּבְרַת יְקָרִי - "Je retirerai la direction de Ma Gloire", [Signification : ] "Quand J'enlèverai la guidance de Ma Gloire de devant ta face" - s'en éloigner [alors -] 
 <b>Tu verras Mon Dos.</b> Il lui montra le <i>tephillin</i>-nœud [derrière la Tête].
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

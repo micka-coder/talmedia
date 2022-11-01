@@ -23,5 +23,5 @@ Les récipients en métal restent impurs et deviennent propres même lorsqu'ils 
 ### michna 8
 Une clé en forme de genou qui a été cassée au niveau du genou est pure. Rabbi Judah dit qu'elle est impure parce qu'on peut ouvrir avec elle de l'intérieur. Une clé en forme de gamma qui a été cassée au niveau de son bras le plus court est pure. Si elle a conservé les dents et les espaces, elle reste impure. Si les dents manquent, elle est encore impure à cause des interstices ; si les interstices sont bouchés, elle est impure à cause des dents. Si les dents manquaient et que les interstices étaient bouchés, ou s'ils se confondaient, il est pur. Si, dans une passoire à moutarde, trois trous de son fond ont été fusionnés, la passoire est propre. Un entonnoir de moulin en métal est impur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

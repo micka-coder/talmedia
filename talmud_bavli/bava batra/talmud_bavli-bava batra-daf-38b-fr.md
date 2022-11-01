@@ -24,4 +24,4 @@ La Guemara explique : <b>Comme l'a dit Rav Anan :</b> Ceci <b>m'a été expliqu�
 § La Guemara présente une série de disputes concernant ce qui est considéré comme une protestation valide. <b>Quelle manière</b> de déclaration constitue <b>une protestation ? Rav Zevid a dit :</b> Si le propriétaire dit en termes généraux : <b>Quelqu'un est un voleur, ce n'est pas</b> une <b>protestation valable,</b> mais s'il dit : <b>Untel est un brigand car</b> il <b>détient ma terre par le brigandage,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

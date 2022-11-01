@@ -48,4 +48,4 @@ La Guemara répond <b>qu'il y a une différence entre ces deux catégories en ce
 La Guemara propose une autre solution à la question. <b>Venez</b> et <b>entendez, car Rabbi Elazar a soulevé</b> le <b>dilemme suivant :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

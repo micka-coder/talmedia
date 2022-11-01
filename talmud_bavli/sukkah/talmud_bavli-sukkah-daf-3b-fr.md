@@ -39,4 +39,4 @@ Le principe selon lequel les entrées sont prises en compte dans la division d'u
 § En ce qui concerne la <i>halakha</i> de la mishna selon laquelle une <i>sukka</i> de plus de vingt coudées de hauteur est impropre, la Gemara déclare : Si la <i>sukka</i> <b>était haute de plus de vingt coudées et que l'on vient diminuer</b> sa hauteur <b>en</b> plaçant des <b>coussins et des couvertures</b> sur le sol, <b>ce n'est pas une diminution</b> de portée halakhique. Elle ne rend pas la <i>sukka</i> convenable, car dans ce cas, on craint que la literie ne soit abîmée et on n'a donc pas l'intention de la laisser là très longtemps.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

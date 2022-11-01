@@ -26,5 +26,5 @@ La chambre à feu était voûtée et c'était une grande pièce entourée de sai
 ### michna 9
 Il y avait là [dans la chambre du feu] un endroit d'une coudée carrée sur lequel se trouvait une dalle de marbre. Dans celle-ci était fixé un anneau et une chaîne à laquelle étaient accrochées les clés. À l'heure de la fermeture, le prêtre soulevait la dalle par l'anneau et prenait les clés de la chaîne. Puis le prêtre fermait à clé à l'intérieur pendant que le lévite dormait à l'extérieur. Lorsqu'il avait fini de fermer, il remettait les clés sur la chaîne et la dalle à sa place, il y mettait son vêtement et y dormait. Si l'un d'eux avait une émission séminale, il sortait par l'escalier en colimaçon qui passait sous le Birah, et qui était éclairé par des lampes des deux côtés, jusqu'à ce qu'il atteigne le lieu de bain. Rabbi Eliezer ben Jacob dit : il descendait par l'escalier en colimaçon qui passait sous le Hel et il sortait par la porte Taddi.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

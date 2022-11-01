@@ -45,4 +45,4 @@ La Guemara poursuit l'analyse de la <i>baraita</i>. <b>D'où dérive-t-on</b> <b
 La Guemara demande : D'où vient que pour la participation à un <b>teruma</b> <i>rituellement pur</b>, <b>oui,</b> le prêtre impur est responsable, mais que pour la participation à un <b>teruma</b> <i>impur</b>, <b>non,</b> le prêtre n'est pas responsable ? Il est dérivé <b>comme le dit Shmuel</b> que <b>Rabbi Eliezer dit : D'où vient</b> qu'un prêtre impur qui prend part à un <i>teruma</i> impur n'est pas</b> puni <b>par la mort</b> de la main du Ciel ? Elle est tirée d'un verset, <b>comme il est dit</b> dans ce verset : <b>"Et y mourir s'ils la profanent"</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

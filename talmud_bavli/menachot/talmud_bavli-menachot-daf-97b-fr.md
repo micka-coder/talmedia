@@ -57,4 +57,4 @@ La Guemara développe : C'est <b>comme nous l'avons appris</b> dans une mishna (
 <b>Au contraire,</b> le verset doit être interprété différemment : <b>"Le fond sera d'une coudée"</b> cela fait référence <b>à la hauteur de</b> la base. <b>"La largeur d'une coudée,"</b> ceci se réfère à la largeur du rebord qui l'entoure, où le mur de l'autel est <b>inséré</b> d'une coudée. <b>"Sa bordure par son bord tout autour</b> sera d'une seule travée".
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

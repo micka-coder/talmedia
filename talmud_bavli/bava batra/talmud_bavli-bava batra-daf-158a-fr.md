@@ -6,4 +6,4 @@
 <b>Beit Shammai dit : Ils divisent</b> le bien en litige entre eux. <b>Et Beit Hillel disent :</b> Les <b>biens garantis</b> que la femme a apportés avec elle au mariage conservent <b>leur</b> statut de propriété antérieur.</b> La somme du <b>contrat de mariage</b> reste <b>en possession des héritiers du mari,</b> puisque le contrat de mariage est perçu sur les biens du mari. <b>Les biens qui sont apportés et retirés</b> du mariage <b>avec elle,</b> c'est-à-dire les biens en usufruit qui restent en possession de la femme pendant son mariage, restent <b>en possession des héritiers du <b>père de la femme</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

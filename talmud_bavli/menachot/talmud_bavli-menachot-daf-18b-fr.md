@@ -45,4 +45,4 @@ La Gemara demande : <b>Quel est le raisonnement des rabbins,</b> qui soutiennent
 La Gemara demande : <b>Et</b> que dirait <b>Rabbi Shimon</b> en réponse ? Il dirait que lorsqu'il est dit : <b>"Les fils d'Aaron,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

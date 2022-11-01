@@ -30,4 +30,4 @@ Rav Anan <b>dit à</b> Rav Naḥman : <b>Mais est-ce que</b> le voisin n'a pas <
 La Guemara relate un incident similaire : <b>Un torrent</b> d'eau <b>s'est engouffré</b> dans le champ de <b>Rav Kahana,</b> enlevant le mur qui marquait la limite entre son terrain et celui de son voisin. Rav Kahana <b>est retourné</b> et a reconstruit le <b>mur,</b> le plaçant par inadvertance <b>dans une terre qui n'était pas la sienne.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

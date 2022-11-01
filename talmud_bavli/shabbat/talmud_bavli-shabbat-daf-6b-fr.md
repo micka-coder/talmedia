@@ -36,4 +36,4 @@ Il a également été enseigné dans la <i>Tosefta</i> que <b>le Maître a dit :
 Rav Ashi a dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

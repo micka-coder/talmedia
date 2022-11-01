@@ -27,4 +27,4 @@ Sur la base de la déclaration de Ulla, <b>Abaye dit à Rav Yosef : Un trou</b> 
 Rav Adda bar Mattana <b>souleve</b> une autre <b>objection</b> à l'avis de Rava à partir de ce qui a été enseigné dans une autre <i>baraita</i>, qui traite des lois de jonction des frontières :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

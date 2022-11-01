@@ -23,4 +23,4 @@
 <b>Jérusalem deviendra des tas</b> Heb. עִיּין. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

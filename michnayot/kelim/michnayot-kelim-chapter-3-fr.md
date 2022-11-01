@@ -23,5 +23,5 @@ Un chaudron qui était garni de mortier ou d'argile de potier : Ce qui touche le
 ### michna 8
 Une jarre qui a été percée et dont le trou a été bouché avec plus de poix que nécessaire : Ce qui touche la partie nécessaire est impur, Mais ce qui touche la partie non nécessaire est pur. De la poix qui a coulé sur une jarre, ce qui la touche est pur. Un entonnoir en bois ou en terre qui a été bouché avec de la poix : Rabbi Elazar ben Azariah dit qu'il est impur. Rabbi Akiva dit qu'il est impur s'il est en bois et propre s'il est en terre. Rabbi Yose dit que les deux sont propres.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara demande : <b>Et Rav Yosef,</b> comment réagirait-il à cela ? Rav Yos
 La Guemara examine la déclaration de Rami bar Ḥama' citée au cours de la discussion précédente. Quant à la question <b>elle-même : Rami bar Ḥama dit</b> que <b>Rav Huna a dit :</b> En ce qui concerne <b>un poteau latéral qui dépasse du mur</b> du côté <b>d'une ruelle</b> dans l'entrée de la ruelle,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

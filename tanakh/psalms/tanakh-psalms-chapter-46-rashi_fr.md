@@ -39,4 +39,4 @@
 <b>Je serai exalté parmi les nations</b> Je serai exalté par ma vengeance que j'exercerai sur ces nations.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

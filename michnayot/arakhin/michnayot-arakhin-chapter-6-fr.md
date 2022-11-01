@@ -14,5 +14,5 @@ S'il avait beaucoup d'outils d'une sorte et peu d'une autre sorte, on ne lui dir
 ### michna 5
 Que l'on consacre ses biens ou que l'on s'évalue soi-même, il [le Sanctuaire] n'a aucun droit sur le vêtement de sa femme ou celui de ses enfants, ni sur les vêtements teints qu'il a fait teindre pour leur usage, ni sur les sandales neuves qu'il a achetées pour leur usage. Bien qu'ils aient dit : "Les esclaves sont vendus avec leurs vêtements pour augmenter leur valeur", car lorsqu'un vêtement de trente deniers est acheté pour lui, sa valeur est augmentée d'un maneh. De même pour une vache, si on la fait attendre jusqu'au jour du marché, elle prend de la valeur, et de même pour une perle, si on l'apporte dans une grande ville, elle prend de la valeur. Néanmoins, le Sanctuaire ne peut revendiquer la valeur d'une chose qu'en son lieu et en son temps.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

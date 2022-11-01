@@ -12,4 +12,4 @@ Après la mort de leur père, <b>ils se sont présentés devant Reish Lakish</b>
 <b>Rabbi Abbahou a dit :</b> Cette question <b>m'a été expliquée personnellement par Rabbi Yoḥanan.</b> Tout dépend de la description du terrain par le mari. Si <b>il a dit</b> qu'il lui donne une terre <b>pour</b> sa <b>sustentation, il a</b> ainsi <b>augmenté</b> les sources de <b>sustentation</b> disponibles <b>pour elle.</b> Il continuera à lui fournir sa subsistance, mais si cette quantité est insuffisante, il a également mis de côté une surface de terre spécifiquement à cet effet. Cependant, si <b>il lui a dit</b> qu'il désigne la terre <b>comme</b> sa <b>sustentation, il a</b> ainsi <b>fixé</b> cette parcelle de terre comme la seule source de <b>sustentation</b> disponible <b>pour elle,</b> et elle ne peut en prendre plus.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

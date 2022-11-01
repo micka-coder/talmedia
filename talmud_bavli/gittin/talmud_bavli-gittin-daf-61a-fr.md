@@ -39,4 +39,4 @@ La Guemara répond : Aussi bien dans <b>la première clause que</b> dans <b>la d
 <b>Et</b> la Guemara <b>souleve une contradiction</b> d'une autre <i>baraita</i> (<i>Tosefta</i>, <i>Demai</i> 4:29) :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

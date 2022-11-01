@@ -48,4 +48,4 @@ On <b>ne doit pas tamiser les haricots moulus</b> pour en retirer les déchets, 
 La mishna enseigne : <b>Et on ne peut pas réduire</b> le prix des articles en dessous du <b>taux</b> du marché. Et les rabbins disent :</b> S'il souhaite le faire, il faut s'en <b>souvenir positivement.</b> La Guemara demande : <b>Quelle est la raison de l'avis</b> des <b>Rabbis,</b> qui non seulement approuvent la pratique mais font même l'éloge de la personne, en disant qu'il faut se souvenir d'elle positivement ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

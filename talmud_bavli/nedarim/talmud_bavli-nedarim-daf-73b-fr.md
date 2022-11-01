@@ -15,4 +15,4 @@ Si la femme <b>a accompli six mois</b> d'attente du mariage <b>sous l'égide du 
 <b>Et</b> peut-être <b>vous n'avez pas entendu Rabbi Eliezer</b> énoncer son opinion selon laquelle une femme fiancée est considérée comme mariée <b>uniquement en ce qui concerne les vœux.</b> Peut-être Rabbi Eliezer tient-il <b>comme ce</b> que <b>Rav Pineḥas</b> a dit <b>au nom de Rava, qui a dit : Toute</b> femme <b>qui fait un vœu, fait un vœu</b> subordonné <b>au consentement de son mari,</b> puisqu'il assure sa subsistance. Peut-être Rabbi Eliezer accorde-t-il à son fiancé l'autorité sur ses vœux uniquement parce qu'elle fait des vœux en pensant à son consentement, puisqu'il est maintenant obligé de subvenir à ses besoins. <b>Mais</b> en ce qui concerne le <b><i>teruma</i>,</b> Rabbi Eliezer pourrait considérer que <b>même</b> s'il s'agit d'un <b><i>teruma</i> selon la loi rabbinique, elle ne peut pas en prendre part</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

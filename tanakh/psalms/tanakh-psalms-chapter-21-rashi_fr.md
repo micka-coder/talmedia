@@ -48,4 +48,4 @@
 <b>Exalte-toi, Seigneur, de ta force</b> sur ceux qui s'élèvent [contre Toi], et laisse-nous chanter et psalmodier.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

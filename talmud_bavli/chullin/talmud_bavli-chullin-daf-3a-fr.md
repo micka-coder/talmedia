@@ -39,4 +39,4 @@ Et il enseigne : Telle est la <i>halakha</i> à l'égard de toutes les personnes
 § <b>Rav Ashi dit</b> en résolution de la contradiction apparente dans la mishna que <b>ceci</b> est ce que la mishna <b>enseigne : Tout le monde abat, et même un transgresseur juif [<i>meshummad</i>].</b> La Gemara demande : <b>Un transgresseur de quelle</b> sorte ? La Gemara répond : C'est celui dont la transgression consiste à <b>manger</b> des <b>carcasses d'animaux non abattus pour</b> satisfaire son <b>appétit,</b> c'est-à-dire pour sa commodité. <b>Et</b> la décision de la mishna est <b>conforme</b> à la déclaration <b>de Rava, car Rava dit :</b> Dans le cas d'un <b>transgresseur juif</b> dont la transgression consiste à <b>manger</b> des carcasses d'animaux non abattus pour</b> satisfaire son <b>appétit,</b> s'il cherche à abattre un animal,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -33,4 +33,4 @@ La Guemara limite davantage le différend : <b>Et selon Rabbi Yehuda, qui a dit<
 Sur la base de cette compréhension du litige, <b>Abaye</b> tient <b>conformément</b> à l'opinion de <b>Rabbi Yehuda.</b> En d'autres termes, dans un cas où il n'est pas possible d'éviter complètement la situation, même si l'on a l'intention, il est permis.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

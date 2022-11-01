@@ -51,4 +51,4 @@ La Gemara demande : <b>Mais n'avez-vous pas dit</b> qu'il existe un <b>décret r
 La Guemara répond : <b>C'est ce que</b> le <i>tanna</i> du <i>baraita</i> <b>dit : Et si vous disiez</b> qu'il faut <b>être rigoureux avec elle et l'éloigner</b> de son nouveau mari, pour contrer cette affirmation, le <i>tanna</i> ajoute : Ceci <b>est</b> parce que les Sages <b>n'ont pas exigé qu'il dise : C'était écrit en ma présence et c'était signé en ma présence,</b> afin <b>d'être rigoureux avec elle. Au contraire,</b> ils ont exigé que l'agent fasse cette déclaration afin de <b>être indulgent avec elle.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ Heb. חִתִּיתָם, lur defre[n]emant en vieux français, leur terreur.
 <b>une non-entité</b> [Heb. בַּלָהוֹת.] Jonathan a expliqué בַּלָהוֹת [comme] comme si vous n'existiez pas, et les exégètes l'expliquent comme un mot pour un endroit où les satyres et les démons dansent.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -57,4 +57,4 @@ La Gemara répond : <b>Oui,</b> le plus grand des juges doit également annoncer
 La Gemara répond : <b>Une affaire de tribunal est différente, car</b> son administration incombe <b>au plus grand</b> juge. <b>Comme nous l'avons appris</b> dans une mishna (29a) : <b>Quand ils avaient fini</b> de délibérer sur <b>l'affaire, ils faisaient entrer</b> les plaideurs. <b>Le plus grand des juges</b> disait : Untel, vous êtes exempté</b> de payer ; ou bien : <b>Untel, vous êtes tenu</b> de payer.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

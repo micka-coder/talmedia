@@ -42,4 +42,4 @@ Abaye <b>souleve</b> une autre <b>objection</b> à partir d'une <i>baraita</i> s
 La Guemara revient à sa discussion sur la déclaration de Rabbi Abbahou concernant le sens du mot trempé dans le verset : " Il s'abstiendra de boire du vin et des boissons fortes, il ne boira pas de vinaigre de vin, ni de vinaigre de boisson forte, et il ne boira rien de trempé dans du raisin ", et si une substance permise se combine ou non avec une substance interdite. La Guemara demande : <b>Et</b> est-ce que <b>cette parole</b> : <b>trempé, vient</b> enseigner <b>que</b> les mélanges sont interdits dans ce cas ? Ce verset <b>est nécessaire pour</b> dériver <b>ce qui a été enseigné</b> dans une <i>baraita</i> ailleurs : <b>D'un trempage,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

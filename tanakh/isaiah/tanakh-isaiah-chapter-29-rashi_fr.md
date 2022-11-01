@@ -95,7 +95,7 @@
 <b>et les râleurs apprendront l'instruction</b> (וְרוֹגְנִים) une expression similaire à (Deut. 1:27) "Et vous avez râlé (וַתְּרָגְנוּ) dans vos tentes." Ceux qui se plaignaient et râlaient à propos des paroles des prophètes apprendront l'instruction.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Malheur, Ariel</b> Jonathan rend : Autel du Seigneur. Ezéchiel, lui aussi, l'a appelé ainsi, comme il est dit (43 : 16) : "Et l'autel (וְהָאֲרִיאֵל) de douze [coudées] de longueur", [à cause du feu céleste qui reposait comme un lion au sommet de l'autel, comme nous l'avons appris dans le Tractate Yoma (21b)]. Nos Sages, cependant, l'ont expliqué en référence au heichal (le Temple proprement dit), qui était étroit par l'arrière et large à l'avant.
 <b>La ville où David a campé</b> L'autel qui a été construit dans la ville où David a campé [de Jonathan].
@@ -192,4 +192,4 @@
 <b>et les râleurs apprendront l'instruction</b> (וְרוֹגְנִים) une expression similaire à (Deut. 1:27) "Et vous avez râlé (וַתְּרָגְנוּ) dans vos tentes." Ceux qui se plaignaient et râlaient à propos des paroles des prophètes apprendront l'instruction.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

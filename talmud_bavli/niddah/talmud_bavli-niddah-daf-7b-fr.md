@@ -60,4 +60,4 @@ Ce sont les quatre cas à propos desquels Shmuel a dit que la <i>halakha</i> est
 La Guemara demande : <b>Et n'y a-t-il rien d'autre</b> qui puisse être ajouté à la liste des cas dans lesquels la <i>halakha</i> est conforme à l'avis de Rabbi Eliezer ? <b>Mais n'y a-t-il pas</b> un autre cas <b>que nous avons appris</b> dans une mishna (<i>Yevamot</i> 109a) : Deux frères ont épousé deux sœurs, l'une majeure et l'autre mineure. Si le mari de la majeure décède, l'obligation de lévirat selon la Torah s'applique à l'autre frère, ce qui n'est pas abrogé par l'interdiction rabbinique de la <i>yevama</i> comme sœur de sa femme mineure. Dans un tel cas, <b>Rabbi Eliezer dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

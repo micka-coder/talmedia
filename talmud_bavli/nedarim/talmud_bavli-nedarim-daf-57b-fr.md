@@ -24,4 +24,4 @@ La Gemara rejette cette résolution : Il n'y a pas de preuve de la décision dan
 <b>Au contraire,</b> la preuve peut être citée à partir de <b>cette</b> source ; <b>car il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit :</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

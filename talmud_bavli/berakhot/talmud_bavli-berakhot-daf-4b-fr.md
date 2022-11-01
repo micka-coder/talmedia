@@ -84,4 +84,4 @@ Cette discussion dans la Guemara se termine par une <i>Tosefta</i> qui arrive a 
 Concernant la declaration de Rabbi Yehoshua ben Levi, <b>Rabbi Nahman a dit :</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

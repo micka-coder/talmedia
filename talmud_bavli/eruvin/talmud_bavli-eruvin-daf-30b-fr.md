@@ -57,4 +57,4 @@ La Guemara explique : <b>A propos de quoi sont-ils en désaccord ? Un Sage,</b> 
 <b>Et</b> en ce qui concerne <b>ce qui a été enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

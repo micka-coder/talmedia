@@ -76,7 +76,7 @@
 <b>Si Tu avais fendu les cieux</b> et étais descendu pour nous sauver maintenant comme Tu es descendu pour nous sauver de la main des Egyptiens, alors, les montagnes dégoutteraient devant Toi de peur et de tremblement.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Qui vient d'Edom</b> Le prophète prophétise au sujet de ce que le Saint, béni soit-Il, a dit qu'Il est destiné à se venger d'Edom, et Lui, personnellement, tuera leur prince céleste, comme la matière qui est dite (supra 34, 5) : " Car mon épée s'est rassasiée dans le ciel. " Et ensuite, (ibid.) " elle descendra sur Édom ", et l'on reconnaîtra à la colère de Son visage qu'Il les a tués par un grand massacre, et le prophète parle dans l'expression des guerres d'êtres humains, vêtus de vêtements, et quand ils tuent une tuerie, le sang gicle sur leurs vêtements, car telle est la coutume de l'Écriture ; il parle de la Shechinah anthropomorphiquement, pour transmettre à l'oreille ce qu'elle peut entendre. Comp. (Ezek. 43:2) "Sa voix est comme la voix des grandes eaux". Le prophète compare Sa voix puissante à la voix des grandes eaux pour transmettre à l'oreille selon ce qu'il est possible d'entendre, car on ne peut comprendre et écouter l'ampleur de la puissance de notre Dieu pour nous la faire entendre telle quelle.
 <b>Qui est-ce qui vient d'Edom</b> Israël dit : "Qui est-ce, etc." Et Il vient avec des vêtements souillés, colorés de sang, et tout ce qui répugne par son odeur et son aspect correspond à l'expression de חִמּוּץ, souiller.
@@ -154,4 +154,4 @@
 <b>Si Tu avais fendu les cieux</b> et étais descendu pour nous sauver maintenant comme Tu es descendu pour nous sauver de la main des Egyptiens, alors, les montagnes dégoutteraient devant Toi de peur et de tremblement.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

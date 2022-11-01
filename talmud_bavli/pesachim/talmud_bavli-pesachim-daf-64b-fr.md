@@ -57,4 +57,4 @@ Il a également été précisé dans la mishna que <b>le prêtre qui était le p
 La Gemara demande : <b>D'où dérive-t-on</b> que leur sang <b>exige</b> l'aspersion sur l'autel sur un côté qui a une <b>base</b> ? Rabbi Elazar dit : Ceci est dérivé</b> par le biais d'une analogie verbale entre le mot <b>aspersion</b> utilisé ici et le mot <b>aspersion</b> utilisé <b>en ce qui concerne un holocauste. Ici, il est écrit : "Tu aspergeras leur sang sur l'autel" ; là , il est écrit</b> par rapport à un holocauste : "Il l'égorgera sur le côté de l'autel, vers le nord, devant le Seigneur ; <b>et les fils d'Aaron, les prêtres, en aspergeront le sang tout autour de l'autel"</b> (Lévitique 1:11). <b>De même que</b> le sang d'un <b>holocauste doit</b> être aspergé sur l'autel à un endroit où il y a <b>une base, de même,</b> le sang d'un <b>agneau de Pâques doit</b> être aspergé à un endroit où il y a <b>une base.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

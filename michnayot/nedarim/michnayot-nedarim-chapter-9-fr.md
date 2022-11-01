@@ -29,5 +29,5 @@ On libère les vœux d'une personne [par référence] à son propre honneur et �
 ### michna 10
 "Konam, si j'épouse cette femme laide et qu'elle devient belle, cette femme noire et qu'elle devienne claire, cette femme petite et qu'elle devienne grande, il lui est permis de l'épouser, non pas parce qu'elle était laide et qu'elle est devenue belle, ou noire et qu'elle est devenue claire, petite et qu'elle est devenue grande, mais parce que le vœu a été fait par erreur. Et c'est ainsi qu'il arriva à quelqu'un qui fit le vœu de ne pas profiter de la fille de sa sœur, et elle fut emmenée dans la maison de Rabbi Ishmael et on la rendit belle. Rabbi Ishmael lui dit : "Mon fils !  Il répondit : " Non ", et Rabbi Ismaël la lui permit. A cette heure, Rabbi Ismaël pleura et dit : "Les filles d'Israël sont belles, mais la pauvreté les défigure." Et lorsque Rabbi Ismaël mourut, les filles d'Israël élevèrent une complainte en disant : "Les filles d'Israël pleurent Rabbi Ismaël." Et c'est ainsi qu'il est dit aussi de Saül : "Filles d'Israël, pleurez Saül" (II Samuel 1:24).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

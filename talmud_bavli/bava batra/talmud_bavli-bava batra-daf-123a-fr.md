@@ -63,4 +63,4 @@ Laban a en effet tenté de faire épouser Léa à Jacob au lieu d'épouser Rache
 § La Guemara poursuit sa discussion sur la famille de Jacob. <b>Abba Ḥalifa Karoya demanda à Rabbi Ḥiyya bar Abba : Dans le total</b> des membres de la famille de Jacob qui sont descendus en Egypte, <b>tu trouves soixante-dix,</b> comme indiqué dans le verset : "Toutes les âmes de la maison de Jacob, qui sont venues en Égypte, étaient soixante-dix" (Genèse 46:27). En revanche, <b>dans leur liste individuelle</b>, lorsque les membres de la famille de chacun de ses fils sont énumérés par leur nom, <b>on trouve soixante-dix moins un.</b> Comment résoudre ce problème ? Rabbi Ḥiyya bar Abba <b>lui a dit : Une sœur jumelle</b> <b>était</b> née <b>avec Dinah, comme il est écrit : "Et [<i>ve'et</i>] sa fille Dina"</b> (Genèse 46:15). Le terme <i>et</i> implique une personne supplémentaire non spécifiée. Abba Ḥalifa Karoya a répondu : <b>Si c'est le cas,</b> il faudrait dire qu'une <b>sœur jumelle</b> <b>était</b> née <b>avec Benjamin, comme il est écrit:</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

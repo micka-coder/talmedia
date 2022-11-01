@@ -33,4 +33,4 @@ Rav Ḥisda <b>lui a répondu : Oui,</b> bien que ce facteur à lui seul n'atté
 Rabba <b>souleva</b> une autre <b>objection à son égard : Les pains de proposition</b> dans le Temple.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

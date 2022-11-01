@@ -72,4 +72,4 @@ Rava <b>dit à</b> Rav Ilish : <b>Il va de soi</b> que puisque la <b>possession 
 § <b>Rami bar Ḥama soulève un dilemme :</b> Quel niveau de responsabilité supporte <b>un mari</b> <b>en ce qui concerne l'usufruit</b> <b>de sa femme ? </b> Il s'agit d'un bien appartenant à la femme que le mari a le droit d'utiliser et de jouir de ses bénéfices pendant qu'ils sont mariés, mais qui lui est rendu à la fin du mariage.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -63,4 +63,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre</b> ces d
 La Guemara demande : Quant à <b>Rabbi Zeira, quelle est la raison</b> pour laquelle il <b>n'a pas énoncé</b> son avis <b>conforme</b> à l'avis de <b>Rabba,</b> dont l'explication est plus simple ? La Gemara répond : Il aurait pu vous <b>dire : Les côtés</b> d'un bateau ne sont pas considérés comme des cloisons appropriées,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Rabbi Akiva suggère une autre preuve : <b>Alternativement, si tu dis</b> que l'
 § <b>Nous avons appris</b> dans une mishna <b>ailleurs</b> (<i>Bikkurim</i> 1:3) : <b>On ne peut apporter des prémices que des sept espèces</b> avec lesquelles Eretz Yisrael est loué dans le verset : "Un pays de blé et d'orge, de vignes, de figues et de grenades, un pays d'huile d'olive et de miel" (Deutéronome 8:8). <b>Mais</b> on peut <b>ne pas</b> .
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

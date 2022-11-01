@@ -73,4 +73,4 @@
 <b>Viendront</b> Arriveront, et alors j'irai sur un chemin dont je ne reviendrai pas.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

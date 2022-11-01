@@ -21,4 +21,4 @@ La Gemara répond : Le <i>baraita</i> fait référence à un cas <b>où</b> le v
 La Guemara soulève une autre difficulté. <b>Venez</b> et <b>entendez : Celui qui engage un ouvrier</b> en hiver ou au printemps <b>pour travailler pour lui à la récolte, pour</b> un <b>dinar par jour,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

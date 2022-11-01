@@ -45,4 +45,4 @@ La Guemara répond : <b>Il était nécessaire</b> pour la <i>baraita</i> d'ensei
 § <b>Rabbi Yoḥanan dit :</b> En ce qui concerne <b>un animal</b> qui appartient <b>à deux partenaires,</b> si l'un des partenaires <b>consacre sa moitié</b> de l'animal, <b>et qu'ensuite il acquiert l'autre moitié</b> de l'animal auprès de son partenaire <b>et la consacre,</b> l'animal <b>est consacré mais n'est pas sacrifié. </b> Lorsqu'il a initialement consacré sa moitié de l'animal, l'animal n'était pas apte au sacrifice, car seule la moitié était consacrée. Bien que l'animal soit maintenant entièrement consacré, il ne peut plus jamais devenir apte au sacrifice, puisqu'il a été disqualifié une fois. Et cet animal <b>renonce</b> à un animal non sacré contre lequel il est échangé pour qu'il soit consacré comme <b>un substitut, et son substitut</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

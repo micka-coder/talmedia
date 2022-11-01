@@ -48,4 +48,4 @@ La Guemara note que ceci est <b>similaire</b> à <b>ce que Abaye a dit : Ces pet
 § <b>Il a été affirmé</b> que les <i>amora'im</i> ne sont pas d'accord : <b>Si l'on couvre un portique qui a des poteaux</b> sur son côté ouvert, la <i>sukka</i> est <b>adaptée. </b> Si l'on couvre un portique <b>qui n'a pas de poteaux</b> sur son côté ouvert, <b>Abaye dit :</b> La <i>sukka</i> est <b>adaptée,</b> et <b>Rava dit :</b> La <i>sukka</i> est <b>inadaptée.</b> La Gemara développe : <b>Abaye a dit : </b> Le <i>sukka</i> est <b>conforme,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

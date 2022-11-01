@@ -66,4 +66,4 @@ La Guemara détermine le nombre d'années à partir du moment où l'Arche a ét�
 La Guemara explique que <b>ces vingt années</b> sont calculées comme suit : <b>Dix ans que Samuel a régné seul,</b> depuis la mort d'Eli jusqu'au couronnement de Saül, <b>et</b> un <b>an que Samuel et Saül ont régné,</b> c'est-à-dire que Saül a régné pendant un an du vivant de Samuel, <b>et deux</b> ans <b>que Saül a régné</b> seul après la mort de Samuel. <b>Et</b> en plus de ces treize années, il y eut les <b>sept</b> années <b>du règne de David</b> à Hébron, avant les années de son règne à Jérusalem.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

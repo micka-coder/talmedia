@@ -224,4 +224,4 @@
 <b>Et il nomma, sur les affaires des capitales de Babylone</b> Il nomma, sur toutes les nécessités du royaume, Hanania Mishael et Azaria.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

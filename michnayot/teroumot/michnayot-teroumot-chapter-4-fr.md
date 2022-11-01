@@ -38,5 +38,5 @@ Deux paniers ou deux piles et une seah de teroumah est tombée sur l'une d'elles
 ### michna 13
 Rabbi Yose a dit : Un cas est arrivé une fois devant Rabbi Akiva concernant cinquante fagots de légumes dans lesquels était tombé un fagot de même taille dont la moitié était de la teroumah. Et j'ai dit devant lui, que cela peut être élevé, non pas parce que la teroumah peut être élevée en cinquante et un, mais parce qu'il y avait cent deux moitiés.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

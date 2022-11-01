@@ -17,5 +17,5 @@ Un prêtre ordinaire ne doit pas épouser une femme incapable de procréer, sauf
 ### michna 6
 Un homme ne doit pas s'abstenir de procréer, sauf s'il a déjà des enfants. Beth Shammai dit : deux mâles, et Beth Hillel dit : un mâle et une femelle, car il est dit : "Il les créa mâle et femelle" (Genèse 5:2). Si un homme a épousé une femme et a vécu avec elle pendant dix ans et qu'elle n'a pas eu d'enfant, il ne peut pas s'abstenir [plus longtemps du devoir de propagation]. S'il a divorcé d'elle, il lui est permis d'en épouser un autre, et le second mari peut également vivre avec elle pendant dix ans. Si elle a fait une fausse couche, [la période de dix ans] est comptée à partir du moment de la fausse couche. L'homme a le devoir de se reproduire, mais pas la femme. Rabbi Yohanan ben Beroka dit : Il est dit à propos des deux : "Et Dieu les bénit et leur dit : "Soyez féconds et multipliez" (Genèse 1:28).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

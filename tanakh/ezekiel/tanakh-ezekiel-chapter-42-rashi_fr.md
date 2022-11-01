@@ -79,4 +79,4 @@
 <b>Pour séparer</b> le peuple entre le saint qui était à l'intérieur, et le profane qui était à l'extérieur. J'ai trouvé l'achèvement de toute mesure. (Ce texte n'apparaît pas dans les autres éditions).
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -48,7 +48,7 @@ Les Sages <b>Disent</b> en réponse : <b>Comment peut-on</b> ces cas <b>être co
 § La Gemara cite un autre dilemme soulevé par Rava. <b>Et Rava dit :</b> Les Sages <b>ont dit</b> que si un <b>voleur</b> un autre de <b>pain levé, et que Pessa'h s'est écoulé dessus,</b> et qu'il est donc interdit d'en tirer un bénéfice, le voleur <b>peut dire à</b> la victime : <b>Ce qui est à toi est devant toi. Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il s'agit ici d'un cas <b>dans lequel</b> le père a déjà <b>été jugé</b> et a été obligé de payer. Dans un tel cas, la dette est considérée comme un prêt avec un billet à ordre, que le créancier peut recouvrer auprès des héritiers du débiteur. La Gemara rejette cette idée : <b>Si</b> il s'agit d'un cas <b>dans lequel</b> le père avait déjà <b>été jugé</b> et était obligé de payer, alors l'héritier, qui a fait un faux serment et a avoué par la suite, devrait <b>payer même</b> le <b>un cinquième</b> supplémentaire <b>aussi,</b> car cela s'apparenterait à n'importe quelle obligation monétaire ; mais la <i>baraita</i> juge qu'il n'est obligé de payer que le principal. <b>Rav Huna, fils de Rav Yehoshua, a dit :</b> L'héritier est exonéré <b>parce qu'on ne paie pas</b> le paiement supplémentaire d'<b>un cinquième</b> <b>pour le refus de</b> une dette qui est garantie par <b>un privilège foncier.</b>
 
@@ -98,7 +98,7 @@ Les Sages <b>Disent</b> en réponse : <b>Comment peut-on</b> ces cas <b>être co
 § La Gemara cite un autre dilemme soulevé par Rava. <b>Et Rava dit :</b> Les Sages <b>ont dit</b> que si un <b>voleur</b> un autre de <b>pain levé, et que Pessa'h s'est écoulé dessus,</b> et qu'il est donc interdit d'en tirer un bénéfice, le voleur <b>peut dire à</b> la victime : <b>Ce qui est à toi est devant toi. Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il s'agit ici d'un cas <b>dans lequel</b> le père a déjà <b>été jugé</b> et a été obligé de payer. Dans un tel cas, la dette est considérée comme un prêt avec un billet à ordre, que le créancier peut recouvrer auprès des héritiers du débiteur. La Guemara rejette cette idée : <b>Si</b> il s'agit d'un cas <b>dans lequel</b> le père avait déjà <b>été jugé</b> et était obligé de payer, alors l'héritier, qui a fait un faux serment et a avoué par la suite, devrait <b>payer même</b> le <b>un cinquième</b> supplémentaire <b>aussi,</b> car cela s'apparenterait à n'importe quelle obligation monétaire ; mais la <i>baraita</i> juge qu'il n'est obligé de payer que le principal. <b>Rav Huna, fils de Rav Yehoshua, a dit :</b> L'héritier est exonéré <b>parce qu'on ne paie pas</b> le paiement supplémentaire d'<b>un cinquième</b> <b>pour le refus de</b> une dette qui est garantie par <b>un privilège foncier.</b>
 
@@ -148,7 +148,7 @@ Les Sages <b>Disent</b> en réponse : <b>Comment peut-on</b> ces cas <b>être co
 § La Gemara cite un autre dilemme soulevé par Rava. <b>Et Rava dit :</b> Les Sages <b>ont dit</b> que si un <b>voleur</b> un autre de <b>pain levé, et que Pessa'h s'est écoulé dessus,</b> et qu'il est donc interdit d'en tirer un bénéfice, le voleur <b>peut dire à</b> la victime : <b>Ce qui est à toi est devant toi. Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 Il s'agit ici d'un cas <b>dans lequel</b> le père a déjà <b>été jugé</b> et a été obligé de payer. Dans un tel cas, la dette est considérée comme un prêt avec un billet à ordre, que le créancier peut recouvrer auprès des héritiers du débiteur. La Gemara rejette cette idée : <b>Si</b> il s'agit d'un cas <b>dans lequel</b> le père avait déjà <b>été jugé</b> et était obligé de payer, alors l'héritier, qui a fait un faux serment et a avoué par la suite, devrait <b>payer même</b> le <b>un cinquième</b> supplémentaire <b>aussi,</b> car cela s'apparenterait à n'importe quelle obligation monétaire ; mais la <i>baraita</i> juge qu'il n'est obligé de payer que le principal. <b>Rav Huna, fils de Rav Yehoshua, a dit :</b> L'héritier est exonéré <b>parce qu'on ne paie pas</b> le paiement supplémentaire d'<b>un cinquième</b> <b>pour le refus de</b> une dette qui est garantie par <b>un privilège foncier.</b>
 
@@ -198,4 +198,4 @@ Les Sages <b>Disent</b> en réponse : <b>Comment peut-on</b> ces cas <b>être co
 § La Gemara cite un autre dilemme soulevé par Rava. <b>Et Rava dit :</b> Les Sages <b>ont dit</b> que si un <b>voleur</b> un autre de <b>pain levé, et que Pessa'h s'est écoulé dessus,</b> et qu'il est donc interdit d'en tirer un bénéfice, le voleur <b>peut dire à</b> la victime : <b>Ce qui est à toi est devant toi. Rava soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

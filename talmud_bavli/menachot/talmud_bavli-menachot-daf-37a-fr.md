@@ -24,4 +24,4 @@ La Guemara note que l'opinion de Rav Ashi, selon laquelle la <i>halakha</i> selo
 La Gemara demande : <b>C'est le cas ? Mais Rami bar Ḥama enseigne : Puisqu'il est dit</b> en ce qui concerne le rachat du premier-né : <b>"Le premier-né de l'homme, tu le rachèteras"</b> (Nombres 18, 15), <b>J'ai</b> envie de <b>dériver</b> que <b>même</b> s'il a été ravagé,</b> par exemple par un animal, <b>dans les trente</b> jours de sa naissance, on doit le racheter. Pour contrer cela, <b>le verset indique :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

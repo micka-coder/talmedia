@@ -21,4 +21,4 @@ La <i>baraita</i> continue : <b>Et bien qu'il n'y ait pas</b> de <b>preuve absol
 La Guemara relate que <b>Rava buvait du vin toute la journée de la veille de Pessah, de manière</b> à <b>éveiller son appétit</b> pour lui permettre <b>de manger plus de <i>matza</i> le soir. Rava a dit : D'où est-ce que je dis que le vin aiguise</b> l'appétit ? <b>Comme nous l'avons appris</b> dans une mishna :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

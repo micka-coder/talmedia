@@ -84,4 +84,4 @@ La Gemara répond : <b>Oui, comme Shmuel l'a dit à Rav Yehuda : Grande dent, qu
 La Guemara présente une interprétation différente de la mishna : <b>Rabbi Elazar a dit au nom de Rav :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

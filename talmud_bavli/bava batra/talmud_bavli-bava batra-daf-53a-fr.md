@@ -24,4 +24,4 @@ De la même manière, la Guemara demande : <b>Quelles sont les circonstances</b>
 § La Gemara cite une autre déclaration de la même <i>amora</i> concernant la prise de possession. <b>Et Rav Asi dit</b> que <b>Rabbi Yoḥanan dit :</b> S'il y avait <b>deux champs avec une frontière entre eux,</b> et que l'on <b>prenne possession de l'un des</b> champs afin de <b>l'acquérir,</b> il l'a <b>acquis.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -29,5 +29,5 @@ Une femme a été emprisonnée par des non-juifs : si c'est pour de l'argent, el
 ### michna 10
 Les personnes suivantes sont censées témoigner, une fois adultes, de ce qu'elles ont vu lorsqu'elles étaient mineures : Une personne est censée dire : "Voici l'écriture de mon père", "Voici l'écriture de mon professeur", "Voici l'écriture de mon frère" ; "Je me souviens que cette femme sortait avec une hinuma et la tête découverte" ; "Cet homme sortait de l'école pour s'immerger afin de manger de la teroumah "; "Il avait l'habitude de prendre une part avec nous à l'aire de battage "; "Cet endroit était un bet haperass [champs qui pourrait contenir des ossements d'un cadavre humain] "; "Jusqu'ici, nous allions à Shabbat "; Mais on ne croit pas un homme quand il dit : "Untel avait un chemin à cet endroit "; "Cet homme avait un endroit où se tenir debout et faire son éloge funéraire à cet endroit".
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

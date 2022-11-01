@@ -73,7 +73,7 @@
 <b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayamim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayamim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avraham, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -148,4 +148,4 @@
 <b>Yozochor, fils de Shimos, et Yehozovod, fils de Shomeir.</b> Dans le Divrei Hayamim, il est écrit : "[Zovod, fils de] Shimos l'Amonite et Yehozovod, fils de Shimris le Moavite."<sup>17</sup><i class="footnote">II Divrei Hayamim 24:26. Ces hommes sont énumérés comme étant ceux qui se sont rebellés contre Yehoash.</i> Pourquoi l'Écriture a-t-elle précisé ? Pour nous enseigner que le Saint, Béni soit-Il, le requalifie par le biais de personnes aux traits similaires aux siens. Que les Amonites et les Moavites ingrats, qui ont ignoré la faveur de notre père Avraham, qu'il a faite pour Lot, (qu'il a combattu avec les rois pour le sauver, pourtant ils ont engagé Bilaam pour maudire ses descendants), et il requalifiera Yoash qui a ignoré la faveur de Yehoyoda, et a tué Zecharyohu son fils, comme il est expliqué [dans l'Écriture].<sup>18</sup><i class="footnote">Ibid. v. 21-22. </i> Ce Midrash se trouve dans Sifrei.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

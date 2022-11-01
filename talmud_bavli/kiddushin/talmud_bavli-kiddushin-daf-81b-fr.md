@@ -45,4 +45,4 @@ La Gemara a déclaré que selon Shmuel, il est interdit d'être seul <b>même av
 La Gemara relate : <b>Le Rav Aḥa bar Abba arriva chez le Rav Ḥisda, son gendre. Il prit la fille de sa fille et la plaça sur ses genoux.</b> Rav Ḥisda <b>lui dit : Le Maître ne pense-t-il pas qu'elle</b> pourrait déjà être <b>favorisée ? </b> Rav Aḥa <b>lui a dit :</b> Si c'est vrai, <b>tu as transgressé</b> la décision <b>du Rav, car Rav Yehuda dit</b> que <b>Rav dit, et certains disent</b> que cela a été dit par <b>Rabbi Elazar : Il est interdit à un homme de fiancer sa fille lorsqu'elle est mineure, jusqu'à ce qu'elle grandisse et dise : je veux</b> me marier avec <b>untel ou untel,</b> car sinon elle pourrait rejeter le mari désigné et finalement pécher en commettant un adultère. Rav Ḥisda a répondu : <b>Le maître a de même transgressé</b> les paroles <b>de Shmuel. Comme le dit Shmuel : On ne peut pas se servir d'une femme,</b> alors comment peux-tu la tenir sur tes genoux ? <b>Il lui a répondu : Je tiens conformément à une autre</b> déclaration <b>de Shmuel, car Shmuel dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

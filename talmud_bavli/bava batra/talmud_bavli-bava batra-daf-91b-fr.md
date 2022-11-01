@@ -51,4 +51,4 @@ Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>du 
 La suite du verset : <b>"Tu feras sortir les vieux produits avant les nouveaux", enseigne qu'il y aura des entrepôts pleins de vieux</b> produits <b>et des aires de battage pleines de nouveaux</b> produits, <b>et le peuple juif dira : Comment parviendrons-nous</b> à <b>sortir ce</b> produit de l'entrepôt <b>avant que ce</b> produit n'y soit apporté ? <b>Rav Pappa a dit : Tout</b> ce qui est <b>ancien est de qualité supérieure</b> au nouveau, <b>sauf les dattes, les liqueurs et les petits poissons,</b> qui sont meilleurs quand ils sont frais.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

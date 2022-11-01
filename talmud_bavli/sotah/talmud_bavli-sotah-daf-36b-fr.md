@@ -69,4 +69,4 @@ Des années plus tard, <b>lorsque</b> Joseph <b>dit à</b> Pharaon : <b>"Mon pè
 § <b>Quel est l'incident où <b>Judah</b> a sanctifié le nom de Dieu en public ? <b>Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Meir disait : Lorsque le peuple juif se tenait au bord de la</b> mer Rouge, les tribus se disputaient entre elles. Celle-ci disait : Je vais dans la mer en premier, et celui-là disait : Je vais dans la mer en premier.</b> Alors, en <b>sautant</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

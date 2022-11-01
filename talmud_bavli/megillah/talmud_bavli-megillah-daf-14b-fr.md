@@ -39,4 +39,4 @@ De plus, <b>Rav Naḥman a dit : Huldah était une descendante de Josué.</b> Un
 Rav Naḥman a répondu à Eina l'Ancien et <b>lui a dit : Eina l'Ancien, et certains disent</b> qu'il lui a dit : <b>Pot noirci,</b> c'est-à-dire mon collègue en Torah, qui a peiné et s'est noirci le visage dans l'étude de la Torah, <b>de moi et de toi l'affaire peut être conclue,</b> c'est-à-dire que l'explication réside dans une combinaison de nos deux déclarations. <b>Parce que</b> Rahab <b>se convertit et épousa Josué,</b> et donc Huldah descend à la fois de Josué et de Rahab. La Guemara soulève une difficulté : <b>Mais Josué a-t-il eu des descendants ? Mais n'est-il pas écrit</b> dans la liste généalogique de la tribu d'Ephraïm : <b>"Nun son fils, Josué son fils"</b> (IÂ Chroniques 7:27) ? La liste ne continue pas plus loin, ce qui implique que Josué n'avait pas de fils. La Guemara répond : En effet, <b>il n'a pas eu de fils,</b> mais <b>il a eu des filles.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

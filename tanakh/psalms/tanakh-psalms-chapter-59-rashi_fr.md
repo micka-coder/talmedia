@@ -56,4 +56,4 @@
 <b>Ma force ! A Toi</b> A Toi, qui es ma force et ma forteresse, à Toi je chanterai.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

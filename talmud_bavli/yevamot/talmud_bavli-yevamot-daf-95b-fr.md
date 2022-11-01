@@ -42,4 +42,4 @@ Rabbi Yitzḥak Nappaḥa poursuit son interprétation. <b>Et Rabbi Yosei dit à
 <b>Abaye dit à</b> Rav Yosef : <b>Et d'où</b> savez-vous <b>que lorsque Shmuel a dit</b> que <b>la <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yosei, il parlait de</b> l'explication de <b>Rabbi Yitzḥak Nappaḥa</b> concernant l'avis de Rabbi Yosei ? <b>Peut-être parlait-il de</b> l'explication de <b>Rabbi Ami,</b> que Rabbi Yosei fait référence à la différence entre celui qui s'est marié par permission du tribunal et celui qui l'a fait sur la base du témoignage de témoins. <b>Et même</b> si l'on accepte l'affirmation selon laquelle le jugement de Shmuel entérine l'interprétation <b>de Rabbi Yitzḥak Nappaḥa, d'où</b> savez-vous qu'il faisait référence à la clause : <b>Une personne qui disqualifie ?</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

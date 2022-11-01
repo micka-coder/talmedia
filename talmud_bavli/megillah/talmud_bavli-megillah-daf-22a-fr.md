@@ -75,4 +75,4 @@ La Guemara commente : <b>Aussi, il est raisonnable</b> de supposer que <b>Rav li
 La Gemara demande : <b>Si c'est le cas, il aurait dû également réciter une bénédiction après</b> sa lecture, car le texte rabbinique impose à ceux qui lisent de la Torah de réciter des bénédictions avant et après leur lecture. La Guemara répond : La raison pour laquelle les Sages ont exigé que tous les lecteurs récitent des bénédictions à la fois avant et après leur lecture était d'éviter les malentendus tant de la part de ceux qui entrent dans la synagogue au milieu de la lecture que de ceux qui partent tôt. Mais <b>C'était différent là où le Rav était présent, car</b> les gens <b>entraient</b> dans la synagogue au milieu de la lecture,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

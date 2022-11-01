@@ -66,4 +66,4 @@ La Guemara rapporte une autre discussion : <b>Qui</b> est la <i>tanna</i> qui a 
 La Gemara demande : <b>Si c'est dans</b> un cas impliquant <b>le public, pourquoi la viande n'est-elle pas consommée dans</b> un état d'<b>impureté ?</b> Lorsque la majorité du public est impure, il peut sacrifier et même consommer l'agneau pascal. La Guemara répond que cette interdiction est due à un <b>décret rabbinique de peur que les propriétaires ne deviennent impurs après l'aspersion</b> du sang, <b>et qu'ils disent : L'année dernière, ne sommes-nous pas devenus impurs, et</b> néanmoins <b>nous avons mangé</b> l'agneau pascal ? <b>Maintenant aussi, nous mangerons. Et ils ne sauront pas que l'année dernière, lorsque le sang a été aspergé, les propriétaires étaient</b> déjà <b>impurs,</b> et donc l'offrande pouvait être consommée en état d'impureté. <b>Maintenant, les propriétaires étaient purs</b> lorsque le sang a été aspergé et ne sont devenus impurs qu'après, et un agneau pascal sacrifié en état de pureté ne peut être consommé en état d'impureté, même si tout le monde est impur.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

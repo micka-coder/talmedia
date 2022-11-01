@@ -17,4 +17,4 @@
 <b>Ceux qui attendent le matin</b> Ils regardent en avant et de manière répétée pour une fin après une autre fin. (J'ai trouvé ça.)
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Et</b> en ce qui concerne <b>Rabbi Elazar, quel est le ra
 <b>Il est enseigné</b> dans une <i>baraita</i> que les <i>tanna'im</i> étaient en désaccord sur ce point : <b>Rabbi Eliezer dit : En Tishrei, le monde a été créé ; en Tishrei, les Patriarches sont nés ; en Tishrei, les Patriarches sont morts ; à Pessah, Isaac est né ; à Rosh HaShana, Sarah, Rachel et Hannah ont été rappelées</b> par Dieu et ont conçu ; <b>à Rosh HaShana, Joseph est sorti de prison ;</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara relate qu'une <b>certaine</b> armée royale vint à Pumbedita,</b> et
 La Guemara commente : Il est <b>évident</b> que <b>si la membrane extérieure</b> <b>est perforée mais que la membrane intérieure</b> <b>n'est pas perforée, la membrane intérieure</b> <b>protège</b> le poumon, et l'animal est casher. Ceci est <b>conforme</b> à la déclaration <b>de Rabba, car Rabba dit : Cet</b> animal avec <b>un poumon dont</b> la membrane externe <b>a été enlevée,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

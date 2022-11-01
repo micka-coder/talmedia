@@ -138,4 +138,4 @@
 <b>Béni soit le Seigneur pour toujours</b> Pour tout ce qu'il a fait pour nous.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

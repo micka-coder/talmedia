@@ -39,4 +39,4 @@ Maintenant que la source a été établie, la Gemara demande : <b>Et</b> peut-ê
 La Gemara demande : <b>Si c'est le cas, un gentil ou un esclave</b> qui a eu des rapports sexuels avec une femme juive <b>n'aurait pas dû la disqualifier</b> pour se marier à la prêtrise, car ils ne peuvent pas l'épouser. La Gemara répond : <b>Ils la disqualifient</b>, <b>comme cela</b> a été dérivé <b>par Rabbi Yishmael, comme l'a dit Rabbi Yoḥanan au nom de Rabbi Yishmael : D'où</b> est-il dérivé à l'égard d'un Gentil ou d'un esclave qui a eu des rapports sexuels avec une femme israélite, ou avec une prêtresse, ou une femme lévite, qu'ils l'ont disqualifiée ? Comme il est dit : "Mais si une fille de prêtre est veuve, ou divorcée,</b> et n'a pas d'enfant, et qu'elle retourne dans la maison de son père, comme dans sa jeunesse, elle pourra manger du pain de son père" (Lévitique 22:13).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

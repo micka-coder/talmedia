@@ -81,4 +81,4 @@ Rava lui <b>dit : Si une personne se rend</b> humble <b>comme ce désert,</b> qu
 <b>Rabbi Ḥiyya bar Abba a dit que Rabbi Yoḥanan a dit : Quel est</b> le sens de <b>ce qui est écrit : "Celui qui garde le figuier mangera son fruit"</b> (Proverbes 27:18) ? <b>Pourquoi les questions de Torah ont-elles été comparées à un figuier ? Tout comme ce figuier,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

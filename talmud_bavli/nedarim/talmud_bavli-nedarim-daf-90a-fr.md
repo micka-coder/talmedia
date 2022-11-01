@@ -24,4 +24,4 @@ La Guemara réfute cet argument : <b>Et sait-il si tel</b> vœu <b>est premier</
 <b>Ravina a dit : Mareimar m'a dit : Voici</b> ce que <b>votre père a dit au nom de Rav Pappi:</b> Le <b>dispute</b> entre Rabbi Natan et les Rabbins est <b>en ce qui concerne l'annulation</b> uniquement, car Rabbi Natan considère qu'un mari ne peut annuler un vœu qu'une fois que celui-ci a pris effet, alors que les Rabbins considèrent qu'un mari peut annuler un vœu même si celui-ci n'a pas encore pris effet. <b>Mais en ce qui concerne une demande</b> faite à une autorité halakhique de dissoudre un vœu, <b>tout le monde,</b> aussi bien Rabbi Natan que les rabbins, <b>sont d'accord,</b> qu'il <b>peut dissoudre</b> le vœu <b>même si le vœu n'a pas</b> encore <b>pris effet. Comme il est écrit : "Il ne profanera pas sa parole"</b> (Nombres 30:3), que Ravina expose comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

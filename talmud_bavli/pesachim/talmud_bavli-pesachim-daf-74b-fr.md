@@ -39,4 +39,4 @@ La Guemara soulève une autre discussion concernant le sang absorbé par la vian
 <b>Mar bar Ameimar a dit à Rav Ashi :</b> La pratique de mon <b>père,</b> Ameimar, était qu'en ce qui concerne le <b>vinaigre dans lequel il avait trempé</b> la viande <b>une fois</b> pour garder son sang, <b>il ne tremperait pas</b> la viande <b>dans celui-ci à nouveau.</b> Il ne pouvait plus garder le sang dans la viande. La Gemara demande : En <b>quelle</b> manière le vinaigre qui a été utilisé une fois est-il <b>différent du vinaigre faible, dans lequel on trempe</b> la viande sans craindre qu'il ne soit pas capable de garder le sang dans la viande ? La Guemara explique : <b>Là, le</b> <b>videur de la viande.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -15,4 +15,4 @@ La Gemara demande : <b>Mais ceci n'est-il pas enseigné en même temps que</b> l
 § La mishna affirme que s'il a dit : <b>Ces jeunes arbres sont</b> comme <b>une offrande</b> jusqu'à ce qu'ils soient coupés, ils ne sont pas soumis à la possibilité de rachat. La Gemara demande : <b>Et</b> ils ne sont pas soumis à la rédemption <b>pour toujours ? Bar Padda répond : </b> S'il les <b>rappelle, ils redeviennent consacrés,</b> car ils n'ont pas encore été coupés. <b>Si</b> il <b>les rachète</b> à nouveau, <b>ils redeviennent consacrés, jusqu'à ce qu'ils soient coupés</b>. Une fois <b>qu'ils sont abattus</b>, <b>il les rachète une fois et c'est suffisant. Et Ulla a dit : Une fois qu'ils sont coupés</b> on n'a <b>pas</b> besoin de les <b>remettre à nouveau</b> car ils ne sont plus consacrés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

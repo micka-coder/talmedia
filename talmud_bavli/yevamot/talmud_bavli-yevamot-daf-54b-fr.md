@@ -78,4 +78,4 @@ La <i>halakha</i> dans ce cas est qu'il lui est <b>permis</b> d'épouser ses <b>
 <b>Et si</b> la première épouse est effectivement décédée, <b>et qu'il a eu des rapports avec la deuxième</b> femme <b>après le décès de la première</b>, il lui est <b>permis</b> d'épouser <b>les deuxième et quatrième</b> femmes, qui ne sont pas apparentées entre elles, <b>et ils exemptent leurs épouses rivales</b> du lévirat s'ils pratiquent le lévirat ou la <i>ḥalitza</i>, <b>et</b> il lui est <b>interdit</b> d'épouser <b>les troisième et cinquième</b> femmes, car ce sont les sœurs de ses précédentes épouses, qui sont encore vivantes, et par conséquent ces mariages sont nuls.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

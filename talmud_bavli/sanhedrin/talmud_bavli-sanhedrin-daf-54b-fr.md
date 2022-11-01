@@ -69,4 +69,4 @@ La Gemara demande : <b>A propos de quel</b> principe <b>Rav et Shmuel <b>sont en
 <b>Il est enseigné</b> dans un <i>baraita</i> <b>conformément</b> à l'avis <b>du Rav :</b> Celui qui a des rapports homosexuels avec <b>un mâle âgé de neuf ans et un jour,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

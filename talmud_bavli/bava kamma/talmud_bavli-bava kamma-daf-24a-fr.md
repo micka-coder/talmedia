@@ -45,4 +45,4 @@ Si <b>le troisième groupe</b> de témoins a également été <b>déterminé com
 La Guemara clarifie : <b>Si l'on dit</b> que le but du témoignage est de <b>rendre le bœuf averti,</b> la <i>halakha</i> présentée dans cette <i>baraita</i> <b>fonctionne bien,</b> car selon cette opinion, on peut dire que tous les témoins sont venus le même jour sur l'ordre de la victime présumée du troisième incident, et donc qu'ils étaient tous certainement au courant du témoignage de chacun. Par conséquent, le premier groupe de témoins partage la responsabilité du témoignage du dernier groupe, car ils sont tous co-témoins dans l'effort pour que le bœuf soit prévenu.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

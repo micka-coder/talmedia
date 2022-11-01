@@ -30,4 +30,4 @@
 <b>Les enfants de la mère qui est morte</b> Les enfants de celle qui a été tuée à cause de Toi ; enmorinede en vieux français, voué à la mort. Il y a un exemple dans le langage des Sages : "Il est préférable que les Juifs mangent la chair de bêtes mourantes abattues plutèt que de manger la chair des carcasses d'animaux mourants." Cela signifie la chair d'un animal mourant qui a été abattu, dans le traité Kiddushin (21b).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ Rabbi Eliezer <b>lui dit : Le juge a toute ma confiance</b> pour statuer correct
 <b>Lorsque</b> Rabbi Eliezer</b> rentra chez lui, ses étudiants entrèrent pour le consoler</b> d'avoir été accusé d'hérésie, ce qu'il prit comme un signe de péché, <b>et il n'accepta pas</b> leurs paroles de <b>consolation. Rabbi Akiva lui dit : Mon maître, permets-moi de dire une chose de</b> tout <b>ce que tu m'as enseigné.</b> Rabbi Eliezer <b>lui dit : Parle.</b> Rabbi Akiva <b>s'adresse à lui : Mon maître, peut-être</b> quelque déclaration de <b>hérésie est venue avant toi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

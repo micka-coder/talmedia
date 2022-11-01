@@ -42,4 +42,4 @@ Le <i>baraita</i> poursuit : <b>Dîtes-vous</b> qu'il est impur <b>même si</b> 
 La Guemara demande : <b>Et là,</b> s'agissant de rendre un aliment impur dans son espace aérien, <b>d'où déduit-on</b> que l'aliment devient impur même s'il n'est pas entré en contact avec le récipient impur ? <b>Rabbi Yonatan a dit : La Torah a témoigné au sujet d'un récipient en terre cuite</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve que le peuple ju
 Elie <b>dit à</b> l'enfant : <b>De quelle famille es-tu ?</b> L'enfant <b>lui répondit : Je suis de telle et telle famille.</b> Elie <b>lui dit : N'y a-t-il pas</b> quelqu'un <b>qui reste de cette famille ?</b> L'enfant <b>lui a dit : Non</b> il ne reste personne <b>en dehors de moi.</b> Elie <b>lui dit : Si je t'enseigne quelque chose par laquelle tu vivras, l'apprendras-tu</b> ? L'enfant <b>lui répondit : Oui.</b> Elie lui <b>dit : Dis chaque jour "Ecoute Israël, le Seigneur est notre Dieu, le Seigneur est Un"</b> (Deutéronome 6:4). L'enfant lui <b>dit : </b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

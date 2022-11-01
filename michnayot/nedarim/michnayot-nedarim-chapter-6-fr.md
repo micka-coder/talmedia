@@ -29,5 +29,5 @@ Celui qui fait vœu de s'abstenir de vin est autorisé à boire du vin de pomme 
 ### michna 10
 Du chou, il est interdit de manger des asperges ; des asperges, il est permis de manger du chou. Du gruau, il est interdit de manger du potage de gruau ; Rabbi Yose le permet ; du potage de gruau, il est permis de manger du gruau. Du gruau, est interdit l'ail ; Rabbi Yose le permet ; de l'ail, il est permis le gruau. Les gâteaux de lentilles sont interdits ; Rabbi Yose les autorise ; les gâteaux de lentilles sont autorisés. Si quelqu'un dit : "Konam, si je mange du blé [ou] des blés", la farine et le pain lui sont interdits. Si je mange du gruau, il est interdit de manger du cru et du cuit. Rabbi Judah dit : Si quelqu'un dit : "Konam, si je mange du gruau ou du blé", il peut le mâcher cru.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

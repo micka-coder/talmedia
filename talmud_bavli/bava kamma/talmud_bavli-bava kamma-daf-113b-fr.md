@@ -63,4 +63,4 @@ Rava ajoute : Si les enclos étaient <b>en dehors des</b> <b>limites de la ville
 § A propos de la discussion sur les transactions légales entre Juifs et Gentils, la Gemara relate : <b>Rava a déclaré, et certains disent</b> que c'est <b>Rav Huna</b> qui a déclaré : Tous ceux qui montent en Eretz Israël et tous ceux qui descendent en Babylonie sont d'accord pour dire que dans le cas d'un juif qui a connaissance d'une preuve concernant la revendication légale d'un gentil, et</b> le Gentil <b>n'a pas exigé de lui</b> qu'il témoigne, <b>et</b> le Juif est néanmoins <b>allé et a témoigné pour lui dans un tribunal Gentil, contre son compatriote Juif, nous l'excommunions. Quelle est la raison</b> pour laquelle nous l'excommunions ? C'est <b>parce qu'ils, </b> les tribunaux de gentils, <b>exproprient de l'argent</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

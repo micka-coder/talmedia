@@ -54,4 +54,4 @@ La Guemara poursuit en expliquant pourquoi on ne peut pas déduire que l'on est 
 La Guemara explique pourquoi la dérivation par rapport à l'interdiction n'est pas valable. <b>Selon celui qui dit</b> que l'exécution par <b>brûlure est</b> plus <b>sévère</b> que l'exécution par lapidation, la dérivation <b>peut être réfutée :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

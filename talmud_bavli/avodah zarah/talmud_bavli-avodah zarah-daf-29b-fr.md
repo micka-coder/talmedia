@@ -45,4 +45,4 @@ La Gemara demande : <b>Et d'où dérive l'interdiction de <b>un cadavre lui-mêm
 <b>Rabbi Ile'a dit : Nous avons appris</b> que le <b>vin cuit appartenant à des Gentils et qui était à l'origine</b> du <b>vin non cuit est interdit.</b> La Gemara demande à nouveau : N'est-ce pas évident ? </b> Juste <b>parce que</b> le vin <b>était cuit,</b> son interdiction doit-elle être levée ? Rav Ashi a dit : Cela vient nous apprendre</b> que <b>notre vin cuit</b> qui est <b>en possession d'un Gentil n'a pas besoin d'un sceau dans un sceau</b> pour qu'il reste autorisé à la consommation. Au contraire, un seul sceau est suffisant. Le Rav Ashi développe : <b>Si</b> l'inquiétude est <b>due à</b> une <b>libération idolâtre,</b> les Gentils ne doivent <b>pas offrir de libations</b> de vin cuit. <b>Et si</b> c'est <b>du à</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

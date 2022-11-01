@@ -45,4 +45,4 @@ La Gemara demande : <b>Et</b> est-ce qu'il n'y a <b>aucun</b> cas d'un objet qui
 Les Sages <b>disent</b> en réponse : Ceci n'est pas une preuve, car <b>là aussi,</b> dans le cas du sang <b>il est</b> soumis aux <i>halakhot</i> de <b>mauvais usage initialement.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

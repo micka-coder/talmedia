@@ -63,4 +63,4 @@ Un autre dilemme : Si <b>on presse ensemble</b> les ouvertures de <b>deux utéru
 Rabbi Zeira explique comment ce dilemme peut résoudre le dilemme de Rabbi Yirmeya : Ce <b>dilemme n'a été soulevé qu'en ce qui concerne</b> un cas où la section <b>brisée</b> <b>est plus grande que la section debout</b>, <b>car il y a</b> au moins une partie de l'utérus encore <b>soutenue</b> et donc on peut envisager la possibilité qu'elle puisse consacrer le fœtus. <b>Mais un dilemme n'a pas été soulevé en ce qui concerne</b> le cas où les parois <b>étaient amincies,</b> car dans ce cas il est évident que le fœtus n'est pas consacré, puisqu'il ne reste rien pour le consacrer.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

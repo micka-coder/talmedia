@@ -75,5 +75,5 @@
 ### passuk 20
 <b>Et l'appela : "Le Tout-Puissant est le Dieu d'Israël."</b> Non pas que l'autel ait été appelé "Dieu d'Israël", mais, plutôt, puisque Dieu avait été avec lui et l'avait sauvé, il donna à l'autel un nom rappelant le miracle afin que la louange de Dieu soit rappelée en appelant [l'autel] par [ce] nom. C'est-à-dire : "Celui qui est tout-puissant, Dieu, il est Dieu pour moi, dont le nom est Yisrael". Nous trouvons quelque chose de similaire concernant Moshé : " Et il appela son nom ה' נִסִי . " Non pas que l'autel ait été appelé Dieu, mais, plutôt, en souvenir du miracle, il a nommé l'autel pour rappeler la louange de Dieu, c'est-à-dire : " Dieu est mon miracle. " Nos Sages interprètent que c'est Dieu qui a appelé Yaakov- אֵל . Les paroles de la Torah sont comme un marteau qui fend la pierre [en ce sens] qu'elles peuvent être divisées en de nombreuses interprétations. Mais, je n'ai l'intention que de donner l'explication claire de l'Écriture. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

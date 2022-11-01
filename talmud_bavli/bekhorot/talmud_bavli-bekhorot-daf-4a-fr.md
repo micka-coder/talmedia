@@ -39,4 +39,4 @@ La Gemara répond que <b>le verset dit : "Les Lévites"</b> (Nombres 3:45), pour
 La Gemara demande : <b>D'où dérive-t-on</b> que les <b>prêtres,</b> dont Aaron, étaient également soumis à cette <i>halakha</i> ? La Guemara répond : C'est <b>conformément</b> à la déclaration <b>de Rabbi Yehoshua ben Levi, car Rabbi Yehoshua ben Levi dit : A vingt-quatre endroits</b> de la Bible <b>les prêtres sont appelés Lévites, et ceci en fait partie : "Mais les prêtres, les Lévites, les fils de Zadok"</b> (Ezéchiel 44:15). On déduit de ce verset que les prêtres sont inclus dans la catégorie des Lévites même lorsqu'ils ne sont pas mentionnés explicitement.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

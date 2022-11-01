@@ -81,4 +81,4 @@ Sur la base de cette interprétation, la phrase "pour un agneau [<i>mihyot miseh
 En revanche, <b>Rava dit</b> que <b>Rav Naḥman</b> dit : Ce <b>dispute</b> s'applique dans un cas <b>où les animaux</b> ont fait l'objet de bestialité alors qu'ils étaient non sacrés, car Rabbi Eliezer soutient</b> que même le sacrifice de cette progéniture est considéré comme dégradant pour les animaux sacrifiés, et la <b>dégradation</b> des animaux sacrifiés <b>est significative,</b> et donc ils sont interdits. <b>Et les rabbins soutiennent</b> que <b>puisque</b> leur statut <b>a été changé</b> par leur consécration, <b>ils sont permis. Mais</b> dans un cas où les animaux <b>ont fait l'objet de bestialité alors qu'ils</b> avaient déjà le statut d'animaux <b>sacrificiels</b>, <b>tout le monde s'accorde</b> à dire qu'ils sont <b>interdits.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@
 <b>jour après jour</b> chaque jour. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

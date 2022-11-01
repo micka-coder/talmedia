@@ -30,4 +30,4 @@ La Guemara <b>souleve une contradiction</b> à partir de la mishna suivante (<i>
 <b>Rabbi Yoḥanan dit:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

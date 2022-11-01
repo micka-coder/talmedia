@@ -122,5 +122,5 @@
 ### passuk 31
 <b>Pour, même leurs fils.</b> "Même" inclut leurs pères et mères. R' Akiva a dit : " J'ai vu un païen attacher son père <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> devant son chien, qui l'a ensuite mangé. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

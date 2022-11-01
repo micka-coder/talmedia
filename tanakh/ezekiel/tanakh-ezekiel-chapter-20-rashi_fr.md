@@ -118,4 +118,4 @@
 <b>et tu te querelleras</b> Heb. וּנְקֹטֹתֶם, une expression de querelle (קְטָטָה). Une autre explication, suivant le Targum : וְתִּידַנְקוּן, et Jonathan rend ainsi (9:4) הַנֶאֱנָחִים : " et ceux qui gémissent ", demonir en ancien français, fondre.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ Rabbi Yishmael, fils de Rabbi Yoḥanan ben Beroka, <b>dit alors : Qu'il soit m�
 Rabbi Shimon <b>alors dit : Nous</b> devons <b>dériver</b> la <i>halakha</i>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

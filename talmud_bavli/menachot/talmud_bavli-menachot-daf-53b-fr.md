@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais</b> même selon l'avis des rabbins, qui considèrent
 § <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>On ne doit pas faire lever</b> les offrandes de repas qui viennent comme du pain levé.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

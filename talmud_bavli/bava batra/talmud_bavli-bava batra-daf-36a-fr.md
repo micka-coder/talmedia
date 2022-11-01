@@ -42,4 +42,4 @@ La Gemara conteste : <b>Mais il y a le matin et le soir</b> à considérer, lors
 La Gemara demande : <b>Et</b> comment pouvez-vous <b>comprendre</b> leurs opinions de cette manière ? Si oui, <b>selon Rabbi Akiva, pourquoi spécifiquement</b> exiger un <b>mois complet ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

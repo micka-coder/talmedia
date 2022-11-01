@@ -45,4 +45,4 @@ En ce qui concerne <b>Rabbi Akiva,</b> il est <b>comme il est enseigné</b> dans
 <b>Rav Aḥa bar Ya'akov s'oppose à</b> l'affirmation de Rabbi Yoḥanan selon laquelle toutes les disputes ci-dessus sont basées sur la question de savoir si le texte consonantique traditionnel ou le texte vocalisé de la Torah fait autorité : <b>Y a-t-il</b> un Sage <b>qui n'accepte pas</b> le principe que la <b>vocalisation</b> de la Torah <b>fait autorité ? Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : Le verset dit : "Tu ne feras pas cuire un chevreau <b>dans le lait de sa mère [<i>baḥalev</i>]"</b> (Exode 23:19). On <b>pourrait</b> penser que le verset doit être lu comme interdisant la cuisson du chevreau <b>dans la graisse [<i>beḥelev</i>]</b> de la mère, et il n'y a pas d'interdiction de cuire la viande avec le lait.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

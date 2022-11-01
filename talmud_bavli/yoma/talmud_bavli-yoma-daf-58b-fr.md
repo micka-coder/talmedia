@@ -45,4 +45,4 @@ La Guemara rejette cette suggestion : <b>Non, tout le monde est d'avis</b> que l
 <b>Et pourquoi ne le fait-il pas</b> ainsi ; pourquoi le Grand Prêtre ne commence-t-il pas l'aspersion sur l'un des coins occidentaux ? Cela est <b>du à</b> ce <b>qui est écrit : "Il sortira vers l'autel,"</b> ce qui signifie qu'il ne commence pas <b>jusqu'à ce qu'il sorte de</b> la zone de l'autel <b>entière. Et puisqu'il présente</b> le sang <b>à ce coin</b> à l'extérieur de l'autel, <b>il vient ensuite à ce coin</b> du côté ouest <b>où il aurait dû présenter</b> le sang <b>en premier.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

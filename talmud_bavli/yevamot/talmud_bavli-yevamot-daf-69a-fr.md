@@ -57,4 +57,4 @@ Il est enseigné dans la <i>baraita</i> en discussion que <b>Rabban Shimon ben G
 <strong>MISHNA : </strong>Dans le cas de <b>celui qui viole</b> une femme sans l'épouser ; <b>ou celui qui séduit</b> une femme sans l'épouser ; <b>ou d'un imbécile</b> qui a des rapports sexuels avec une femme, même s'il l'a épousée, s'ils ne sont pas prêtres <b>ils ne disqualifient pas</b> la fille d'un prêtre de participer au <i>teruma</i>, <b>et</b> s'ils sont prêtres <b>ils ne permettent pas</b> à une femme israélite <b>de participer</b> au <i>teruma</i>. <b>Et s'ils ne sont pas aptes à entrer</b> dans l'assemblée d'<b>Israël</b> par le mariage, <b>ils disqualifient</b> la fille d'un prêtre de prendre part au <i>teruma</i>. <b>Comment cela ? </b> Si <b>c'est un Israélite qui a engagé</b> des <b>rapports extra-maritaux avec la fille d'un prêtre, elle peut participer au <i>teruma</i>,</b> car cet acte de rapport sexuel ne la disqualifie pas.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

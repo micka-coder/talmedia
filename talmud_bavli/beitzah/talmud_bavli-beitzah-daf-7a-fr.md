@@ -60,4 +60,4 @@ La Guemara conteste cette affirmation : <b>Si c'est le cas,</b> dans le cas de <
 La Guemara demande : <b>Jusqu'à quel endroit</b> exactement est-il considéré qu'il y a un mâle avec lui ; Quelle doit être la proximité d'un coq pour que ce principe prenne effet ? <b>Rav Gamda dit au nom du Rav :</b> Le mâle doit être <b>n'importe où</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

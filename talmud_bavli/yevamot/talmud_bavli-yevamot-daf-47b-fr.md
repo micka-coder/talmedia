@@ -57,4 +57,4 @@ La <i>baraita</i> continue : Ceci s'applique <b>aussi bien pour un converti que 
 <b>Rabbi Shimon ben Elazar dit : Même si elle n'a pas accepté sur elle</b> le joug des mitzvot, la nécessité du processus peut encore être contournée si <b>il la force</b> <b>et l'immerge dans un but d'esclavage, puis il l'immerge à nouveau dans un but d'émancipation et</b> ainsi <b>l'émancipe,</b> la rendant juive. Rabbi Shimon ben Elazar estime que l'immersion d'un esclave en vue de son émancipation est effective même si l'esclave n'accepte pas sur lui le joug des mitzvot.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

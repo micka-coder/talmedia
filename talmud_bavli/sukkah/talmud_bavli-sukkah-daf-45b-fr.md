@@ -39,4 +39,4 @@ La Gemara demande plus loin : <b>Et ceux <b>qui voient</b> la Présence Divine �
 La Guemara <b>souleve une objection</b> basée sur une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

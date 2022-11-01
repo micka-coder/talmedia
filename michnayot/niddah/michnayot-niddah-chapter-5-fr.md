@@ -26,5 +26,5 @@ Quels sont les signes [d'une bogeret] ? Rabbi Yose le Galiléen dit : l'appariti
 ### michna 9
 Si une femme à l'âge de vingt ans n'a pas produit deux poils [pubiens], elle doit apporter la preuve qu'elle a vingt ans et [une fois que cela prouvé elle] est [considéré comme] une aylonit [femme atteint d'impubérisme], [et de ce fait] elle n'accomplit pas la halitzah ou le yibbum. Si un homme à l'âge de vingt ans n'a pas produit deux poils [pubiens], il doit apporter la preuve qu'il a vingt ans et il devient [ensuite] confirmé comme saris [homme atteint d'impubérisme], [de ce fait] il n'accomplit pas la halitzah ou le yibbum, ce sont paroles de Bet Hillel. Bet Shammai disent : l'un et l'autre à l'âge de dix-huit ans. Rabbi Eliezer dit : dans le cas de l'homme, il faut retenir les paroles de Bet Hillel, tandis que dans celui de la femme, il faut retenir les paroles de Bet Shammai, en effet une femme devient pubère plus tôt qu'un homme.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

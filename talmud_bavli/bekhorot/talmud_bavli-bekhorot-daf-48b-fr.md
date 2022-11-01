@@ -57,4 +57,4 @@ Si <b>une</b> femme <b>avait</b> auparavant <b>donné naissance et qu'une autre 
 Il en est <b>aussi</b> vrai dans un cas où ils ont donné leur argent de rachat à <b>un prêtre : Ce</b> père <b>allera voir</b> le prêtre <b>et</b> le prêtre <b>le rejettera,</b> en prétendant que son fils est encore vivant, <b>et ce</b> père <b>allera voir</b> le prêtre <b>et il le rejettera</b> aussi, pour les mêmes raisons. <b>Shmuel dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

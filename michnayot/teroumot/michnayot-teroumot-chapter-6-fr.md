@@ -17,5 +17,5 @@ Ils ne peuvent pas effectuer le remboursement à partir de glanages, de gerbes o
 ### michna 6
 Rabbi Eliezer dit : ils peuvent faire le remboursement d'une espèce pour une autre, à condition que ce soit d'une espèce supérieure pour une espèce inférieure. Rabbi Akiva dit : on ne peut rembourser que d'une même espèce. Ainsi, si un homme a mangé des concombres cultivés une année avant la septième année, il doit attendre ceux qui ont poussé après la fin de la septième année et rembourser avec eux. La même source qui pousse Rabbi Eliezer à être indulgent pousse Rabbi Akiva à être strict, car elle dit : "Et il donnera au prêtre la chose sainte (hakadesh)" (Lévitique 22:14), [impliquant,] tout ce qui est susceptible de devenir "kodesh", les mots de Rabbi Eliezer. Mais Rabbi Akiva dit : "Et il donnera au prêtre la chose sainte (kodesh)", [impliquant] la même sorte de chose sainte que celle qu'il a mangée.
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

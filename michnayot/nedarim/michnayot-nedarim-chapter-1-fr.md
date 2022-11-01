@@ -11,5 +11,5 @@ Si l'on dit : "Je ne mangerai pas de nourriture non-consacrée chez toi", "Pas c
 ### michna 4
 Si quelqu'un dit : "Un korban", "un holocauste total", "une offrande de repas", "une offrande pour le péché", "une offrande d'action de grâce", "une offrande de paix, sera ce que je mangerai de toi", il est lié [par son vœu]. Rabbi Juda l'a permis. S'il dit : "Le korban", "comme un korban", "korban", doit être ce que je mange de toi", il est lié [par son vœu]. S'il dit : "Ce que je ne mangerai pas de toi devrait être un korban", Rabbi Meir l'interdit. Si quelqu'un dit à son compagnon : "Que ma bouche qui parle avec toi soit konam", "Mes mains qui travaillent pour toi "[ou] "Mes pieds qui marchent avec toi", il lui est interdit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

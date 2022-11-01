@@ -29,5 +29,5 @@ Si quelqu'un est venu avec tout son corps blanc, et sur celui-ci il y avait de l
 ### michna 10
 Il y a quelqu'un qui montre sa néga [au prêtre] et gagne ainsi un avantage, tandis qu'il y a quelqu'un qui montre et perd. Comment cela ? Si quelqu'un a été certifié impur et que les signes de son impureté ont disparu, et qu'avant qu'il puisse le montrer au prêtre, le nega s'est déclaré et a recouvert toute sa peau, il est pur ; alors que s'il l'avait montré au prêtre, il aurait été impur. S'il avait une tache lumineuse dans laquelle il n'y avait rien d'autre, et qu'avant qu'il puisse la montrer au prêtre, elle a éclaté et a recouvert toute sa peau, il est impur ; alors que s'il l'avait montrée au prêtre, il aurait été pur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

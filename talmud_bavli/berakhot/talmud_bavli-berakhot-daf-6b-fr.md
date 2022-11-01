@@ -111,4 +111,4 @@ En ce qui concerne la fin de ce verset, la Guemara demande : <b>Qu'est-ce qui es
 <b>Et Rabbi Helbo dit</b> que <b>Rav Huna a dit : Celui qui est conscient qu'une autre</b> personne <b>a l'habitude de le saluer</b> est non seulement oblige de lui rendre sa salutation, mais <b>il</b> doit <b>le saluer en premier, comme il est dit : "Recherche la paix et poursuis-la"</b> (Psaumes 34:15). <b>Si</b> l'autre personne lui <b>etendait</b> son <b>salut et qu'il ne repondait pas, il est appele voleur, comme il est dit : "C'est vous qui avez mange la vigne, le butin des pauvres est dans vos maisons"</b> (Isaie 3:14). La seule facon de voler un indigent qui ne possede rien est de lui enlever sa dignite en refusant de lui rendre son salut.
 
 >Credit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -54,4 +54,4 @@ La Gemara <b>souleve une objection</b> d'une <i>baraïta</i> : Si quelqu'un <b>s
 § <b>Rabbi Abba</b> a envoyé plusieurs jugements d'Eretz Yisrael <b>à Rav Yosef bar Ḥama,</b> dont le suivant : Dans le cas de <b>une personne qui dit à une autre : Tu as volé mon esclave, et il dit</b> en réponse : <b>Je ne l'ai pas volé</b>, et lorsque le premier demande : Si oui, <b>quelle est la nature de sa</b> présence <b>dans ta</b> possession, ce dernier répond : <b>Vous me l'avez vendu,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

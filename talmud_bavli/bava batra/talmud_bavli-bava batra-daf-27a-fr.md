@@ -21,4 +21,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une preuve supplémentaire
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve issue d'une mishna (<i>Pe'a</i> 3:6). <b>Rabbi Akiva dit :</b> Le propriétaire d'une <b>terre de n'importe quelle</b> taille <b>est obligé en <i>pe'a</i> et en prémices, et</b> un prêteur <b>peut rédiger un document qui empêche l'année sabbatique d'abroger une dette impayée [<i>prosbol</i>] pour</b> cette terre, de sorte que les prêts qu'il a accordés ne seront pas annulés à la clôture de l'année sabbatique,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

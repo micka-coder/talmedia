@@ -81,7 +81,7 @@ Les frères de Rabba ont encore écrit dans leur lettre : <b>Et bien que tu sois
 Les frères de Rabba lui ont donné d'autres conseils dans leur lettre : En ce qui concerne <b>toute assise sans appui,</b> c'est-à-dire un objet sur lequel s'appuyer, <b>la position debout est plus confortable que cette</b> position. La Guemara demande : Peut-il <b>entrer dans votre esprit</b> que <b>la position debout</b> est meilleure que la position assise ? <b>N'avez-vous pas dit que la position debout est néfaste en ce qui concerne les troubles cardiaques</b> ? <b>Plutôt,</b> par rapport à la position <b>assise</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>"Ils seront emmenés en Babylonie et ils y resteront jusqu'au jour où je les rappellerai, dit l'Éternel"</b> (Jérémie 27, 22). En se basant sur ce verset, Rav Yehuda a estimé que puisque l'exil babylonien a été imposé par décret divin, la permission de quitter la Babylonie pour Eretz Yisrael ne pouvait être accordée que par Dieu. La Guemara demande : <b>Et</b> comment <b>Rabbi Zeira</b> interprète-t-il ce verset ? La Guemara répond que Rabbi Zeira soutient que <b>ce</b> verset <b>est écrit à propos</b> des <b>vases de service du Temple,</b> et qu'il ne fait pas référence au peuple juif, comme le dit le verset précédent : "Ainsi parle le Seigneur des armées, le Dieu d'Israël, au sujet des vases qui restent dans la maison du Seigneur" (Jérémie 27, 21). Par conséquent, Rabbi Zeira a cherché à monter en Eretz Yisrael.
 
@@ -164,4 +164,4 @@ Les frères de Rabba ont encore écrit dans leur lettre : <b>Et bien que tu sois
 Les frères de Rabba lui ont donné d'autres conseils dans leur lettre : En ce qui concerne <b>toute assise sans appui,</b> c'est-à-dire un objet sur lequel s'appuyer, <b>la position debout est plus confortable que cette</b> position. La Guemara demande : Peut-il <b>entrer dans votre esprit</b> que <b>la position debout</b> est meilleure que la position assise ? <b>N'avez-vous pas dit que la position debout est néfaste en ce qui concerne les troubles cardiaques</b> ? <b>Plutôt,</b> par rapport à la position <b>assise</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

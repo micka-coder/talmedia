@@ -32,5 +32,5 @@ Une tache brillante de la taille d'un haricot fendu s'est étendue, et dans l'é
 ### michna 11
 Une tache brillante de la taille d'un haricot fendu et il n'y avait rien d'autre, et ensuite est apparue une tache brillante de la taille d'un demi haricot fendu ayant deux poils, celle-ci est déclarée impure. Car ils ont dit : si la tache brillante a précédé le poil blanc, il est impur ; si le poil blanc a précédé la tache brillante, il est pur ; et si c' y a un doute, il est impur. Rabbi Joshua considère cette question comme insoluble.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

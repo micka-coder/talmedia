@@ -45,4 +45,4 @@ La Guemara explique qu'il y a effectivement un élément nouveau à la <i>halakh
 Si la <i>sukka</i> <b>était inférieure à dix millièmes de pouce</b> de hauteur <b>et qu'il creusait</b> une zone <b>à l'intérieur</b> de la <i>sukka</i> <b>afin de compléter</b> la hauteur requise de la <i>sukka</i> <b>à dix</b> millièmes de pouce, <b>si, du bord de la <b>zone creusée</b> au mur, il y a</b> une distance de <b>trois pouces, elle est impropre,</b> car, dans ce cas, le bord de la zone creusée n'est pas joint au mur de la <i>sukka</i>. Par conséquent, même si l'espace intérieur a une hauteur de dix coudées, ses murs n'ont pas la hauteur requise pour être considérés comme une <i>sukka</i> apte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

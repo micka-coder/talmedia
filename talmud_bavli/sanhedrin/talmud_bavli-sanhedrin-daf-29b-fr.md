@@ -66,4 +66,4 @@ La Guemara relate que <b>On a demandé aux scribes d'Abaye</b> s'ils étaient au
 La Gemara raconte : Il y avait <b>un certain</b> document d'<b>admission dans lequel</b> il <b>était écrit</b> qu'il s'agissait d'un <b>reportage des débats</b> qui ont eu lieu en présence des témoins,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

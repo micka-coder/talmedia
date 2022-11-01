@@ -45,4 +45,4 @@ La Guemara clarifie : <b>Une objection de quel</b> type ? <b>Si nous disons</b> 
 De même, si le <b>propriétaire</b> d'un objet en cours d'<b>achat</b> est confronté à deux personnes, chacune prétendant avoir acheté l'objet, il est <b>réputé crédible pour dire : J'ai vendu à celui-là</b>, <b>et je n'ai pas vendu à celui-là</b>. <b>Dans quel</b> cas <b>cette déclaration est-elle dite ? Lorsque l'objet</b> acheté est</b> encore <b>dans</b> la <b>possession du vendeur. Mais si l'objet <b>acheté n'est pas en sa possession, il n'est pas jugé crédible</b> pas plus qu'un simple témoin ne l'est.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

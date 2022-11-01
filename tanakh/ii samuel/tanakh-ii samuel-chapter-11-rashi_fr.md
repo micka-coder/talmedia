@@ -58,7 +58,7 @@
 <b>Tu dois l'encourager [Yoav].</b> David [alors] dit au messager : " Encourage Yoav par des paroles consolantes afin que son cœur ne faiblisse pas ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Au moment [de l'année] où les rois sortent.</b> Il y a une période de l'année où il est d'usage que les troupes sortent, lorsque la terre est pleine de croissance et que les chevaux trouvent dans les champs des produits à manger.
 
@@ -118,4 +118,4 @@
 <b>Tu dois l'encourager [Yoav].</b> David [alors] dit au messager : " Encourage Yoav par des paroles consolantes afin que son cœur ne faiblisse pas ".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

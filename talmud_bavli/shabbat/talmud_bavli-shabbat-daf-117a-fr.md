@@ -21,4 +21,4 @@ Nous avons appris dans la mishna : <b>Et où peut-on les secourir ?</b> Dans une
 <b>Abaye dit à</b> Rabba : Selon <b>votre</b> avis <b>aussi,</b> selon <b>l'avis</b> des <b>Rabbins</b> cités dans la mishna qui sont d'accord avec Rabbi Yehuda et permettent le port dans une ruelle fermée, laissons <b>nous</b> aussi <b>sauver les aliments et les boissons</b> en les portant <b>là.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,7 +42,7 @@ La Gemara relate une histoire similaire : Il y avait <b>un certain</b> homme <b>
 <b>Rav Ashi s'assit et posa une difficulté à</b> la proposition des héritiers. <b>Les gens se réfèrent-ils à deux moitiés d'un palmier</b> comme à un <b>palmier entier ou non ?</b> Si la déclaration du père mourant peut raisonnablement être interprétée comme se référant à ces deux moitiés, elle est désavantagée, car la charge de la preuve repose sur le demandeur. Alternativement, si c'est une explication déraisonnable de ses souhaits, ils doivent lui donner un arbre entier. Quelle alternative est correcte ? <b>Rav Mordekhai a dit à Rav Ashi : Avimi de Hagronya a dit ce qui suit au nom de Rava : Les gens font</b> en fait <b>référer deux moitiés d'un palmier comme</b> un <b>palme entier.</b> Par conséquent, les héritiers peuvent accomplir le souhait mourant de leur père en donnant à la fille les deux moitiés dont ils ont hérité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Cependant, les juges signent un document même s'ils ne l'ont pas lu,</b> puisqu'ils ne font que certifier les signatures sans se rapporter du tout au contenu du document.
 
@@ -86,4 +86,4 @@ La Gemara relate une histoire similaire : Il y avait <b>un certain</b> homme <b>
 <b>Rav Ashi s'assit et posa une difficulté à</b> la proposition des héritiers. <b>Les gens se réfèrent-ils à deux moitiés d'un palmier</b> comme à un <b>palmier entier ou non ?</b> Si la déclaration du père mourant peut raisonnablement être interprétée comme se référant à ces deux moitiés, elle est désavantagée, car la charge de la preuve repose sur le demandeur. Alternativement, si c'est une explication déraisonnable de ses souhaits, ils doivent lui donner un arbre entier. Quelle alternative est correcte ? <b>Rav Mordekhai a dit à Rav Ashi : Avimi de Hagronya a dit ce qui suit au nom de Rava : Les gens font</b> en fait <b>référer deux moitiés d'un palmier comme</b> un <b>palme entier.</b> Par conséquent, les héritiers peuvent accomplir le souhait mourant de leur père en donnant à la fille les deux moitiés dont ils ont hérité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

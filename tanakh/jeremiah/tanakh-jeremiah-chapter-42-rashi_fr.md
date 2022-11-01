@@ -29,7 +29,7 @@
 <b>Le son de la corne</b> que les guetteurs font retentir pour avertir le peuple.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -60,4 +60,4 @@
 <b>Le son de la corne</b> que les guetteurs font retentir pour avertir le peuple.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara revient sur le sujet de la pluie. <b>Rabbi Yitzḥak a dit : Même</b
 <b>Et Rabbi Yoḥanan dit : Quel est</b> le sens de ce <b>qui est écrit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

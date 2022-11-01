@@ -51,4 +51,4 @@ La mishna poursuit : <b>Rabbi Eliezer dit :</b> Mon opinion peut être déduite 
 La mishna continue : Les rabbins lui <b>dirent :</b> Ta déduction n'est <b>pas</b> correcte.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -51,4 +51,4 @@ La Gemara rejette cette suggestion : Cela ne peut être le cas, car <b>le verset
 <b>Ravina a dit : Les versets ne sont nécessaires ni</b> pour la <i>halakha</i> que <b>une personne</b> peut manger <b>des produits détachés</b>, <b>ni</b> pour la <i>halakha</i> que <b>un bœuf</b> doit être autorisé à manger <b>des produits attachés</b>, <b>car il est écrit : "Tu ne muselleras pas un bœuf dans son battage"</b> (Deutéronome 25, 4).
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ La contradiction est la suivante : <b>Mais Rav a-t-il dit</b> que <b>une offrand
 <b>Un</b> indique que <b>l'espace aérien intérieur</b> <b>de ce,</b> c'est-à-dire, un récipient en terre cuite, rend les aliments impurs, <b>mais pas l'intérieur d'un autre</b> type de récipient, qui ne transmet l'impureté que par contact ; et <b>l'autre</b> instance indique que <b>son intérieur, mais pas l'intérieur de son intérieur,</b> impureté, <b>et</b> que <b>même un récipient</b> purifié par <b>rincage,</b> s'il est placé dans le récipient en terre, <b>protège</b> les aliments qui s'y trouvent de devenir impurs. Par conséquent, il est dérivé d'un verset qu'à l'intérieur d'un récipient en terre, d'autres récipients qui ne sont pas de son type peuvent bloquer la transmission de l'impureté. Puisque cette halakha est dérivée d'un verset écrit dans ce contexte, il n'y a aucune raison de supposer qu'une <i>halakha</i> similaire s'appliquerait à l'abattage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

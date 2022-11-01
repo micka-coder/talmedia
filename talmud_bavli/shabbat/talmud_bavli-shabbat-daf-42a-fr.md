@@ -24,4 +24,4 @@ La Gemara répond : <b>Pensez-vous</b> que <b>Rabbi Shimon</b> ben Menasya <b>fa
 <strong>MISHNA:</strong> Dans le prolongement de la discussion sur les récipients où l'interdiction de cuire s'applique même si les récipients ne sont pas réellement sur le feu lui-même, la mishna établit : <b>Un faitout [<i>ilpas</i>] et une marmite qui ont été retirés</b> du feu alors qu'ils étaient encore <b>bouillants,</b> même s'ils ont été retirés avant Chabbat, <b>on ne peut y placer des épices</b> le Chabbat même. Même si la marmite n'est pas réellement posée sur le feu, les épices y sont tout de même cuites car la marmite est un récipient primaire, c'est-à-dire un récipient dont le contenu a été cuit sur le feu.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

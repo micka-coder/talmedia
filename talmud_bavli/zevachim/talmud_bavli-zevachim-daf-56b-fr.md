@@ -39,4 +39,4 @@ Les <i>halakha</i> <b>diffèrent quant à leur consommation. L'offrande du premi
 La Gemara demande : <b>D'où dérive-t-on</b> que leur sang doit être placé de manière à aller <b>sur la base</b> de l'autel ? <b>Rabbi Eliezer répond :</b> Ceci est <b>dérivé</b> par analogie verbale, le sens du mot <b>"aspersion"</b> énoncé ici étant dérivé <b>du</b> sens du mot <b>"aspersion"</b> énoncé en ce qui concerne <b>un holocauste.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

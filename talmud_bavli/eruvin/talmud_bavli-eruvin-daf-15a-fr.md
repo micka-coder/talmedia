@@ -60,4 +60,4 @@ La Gemara suggère : <b>Devons-nous dire</b> que <b>Abaye et Rava sont en désac
 <strong>MISHNA:</strong> <b>On peut construire des poteaux latéraux à partir de n'importe quoi, même une créature vivante,</b> à condition qu'elle ait été correctement attachée à l'entrée de la ruelle, <b>et Rabbi Meir interdit</b> d'utiliser une créature vivante comme poteau latéral. La mishna poursuit avec une dispute similaire : Même une créature vivante <b>participe à l'impureté rituelle</b> si elle est utilisée comme <b>couverture d'une tombe.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

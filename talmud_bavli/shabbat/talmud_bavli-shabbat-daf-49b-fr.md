@@ -45,4 +45,4 @@ Nous avons appris dans la mishna : On peut isoler un aliment <b>dans une toison 
 <b>Un certain Sage</b> pour qui c'était <b>son premier jour</b> dans cette salle d'étude <b>a soulevé une objection à Rava</b> à partir de notre mishna : <b>On peut isoler</b> un aliment <b>dans une toison de laine, et on ne peut pas le déplacer</b>. <b>Comment,</b> alors <b>agit-il</b> s'il a isolé de la nourriture dans une toison de laine et qu'il souhaite maintenant retirer le pot ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

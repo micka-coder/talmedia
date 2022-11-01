@@ -48,4 +48,4 @@ La Guemara <b>souleve une objection : La seule</b> différence <b>entre le Neuvi
 <b>Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

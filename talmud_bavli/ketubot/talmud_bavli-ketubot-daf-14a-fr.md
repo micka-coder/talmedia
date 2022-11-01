@@ -30,7 +30,7 @@ La contradiction entre une déclaration <b>de Rabbi Yehoshua et</b> une autre d�
 § A propos de la veuve, <b>les rabbins ont enseigné : Quelle est la veuve</b> dont le défunt mari était membre <b>d'une <b>famille sacerdotale de lignée douteuse</b> et qui est apte à épouser un prêtre ? C'est celle qui s'est mariée dans <b>toute</b> famille <b>qui n'a pas</b> le statut d'inapte, <b>ni en raison</b> d'un statut incertain de <b><i>mamzer</i>, ni en raison</b> d'un statut incertain de <b>Gibéonite, ni en raison</b> d'un statut incertain d'<b>esclaves des rois,</b> qui forceraient les femmes juives, même les filles de prêtres, à les épouser. <b>Rabbi Meir a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Oui,</b> elle a conçu <b>à partir de</b> relations avec <b>moi. Rav Yosef dit :</b> La décision ici est claire, car <b>à l'égard de quelle</b> suspicion devons-nous <b>nous préoccuper ? D'abord, il concède</b> qu'il est le père. <b>Et par ailleurs, Rav Yehuda n'a-t-il pas dit</b> que <b>Shmuel a dit : La <i>halakha</i></b> est <b>conforme</b> à l'opinion de <b>Rabban Gamliel,</b> et même s'il n'a pas admis que l'enfant était le sien, on accorde de la crédibilité à la demande de la femme ?
 
@@ -62,4 +62,4 @@ La contradiction entre une déclaration <b>de Rabbi Yehoshua et</b> une autre d�
 § A propos de la veuve, <b>les rabbins ont enseigné : Qui est la veuve</b> dont le défunt mari était membre <b>d'une famille sacerdotale <b>de lignée douteuse</b> et qui est apte à épouser un prêtre ? C'est celle qui s'est mariée dans <b>toute</b> famille <b>qui n'a pas</b> le statut d'inapte, <b>ni en raison</b> d'un statut incertain de <b><i>mamzer</i>, ni en raison</b> d'un statut incertain de <b>Gibéonite, ni en raison</b> d'un statut incertain d'<b>esclaves des rois,</b> qui forceraient les femmes juives, même les filles de prêtres, à les épouser. <b>Rabbi Meir a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

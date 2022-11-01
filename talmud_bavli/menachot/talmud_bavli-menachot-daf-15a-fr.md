@@ -48,7 +48,7 @@ Rav <b>a dit à</b> Rabbi Elazar : <b>Même dans ce</b> cas, <b>les pains sont r
 La Gemara demande : <b>Et dit-on une <i>a fortiori</i></b> déduction <b>de cette manière ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant un</b>...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Les rabbins soutiennent</b> que <b>la plaque frontale effectue l'acceptation pour</b> des articles qui sont normalement <b>consommés</b> par les prêtres mais qui sont devenus rituellement impurs. Par conséquent, l'aspersion du sang dans ce cas est un acte entièrement valide qui est capable de rendre le pain pur restant permis à la consommation. <b>Et Rabbi Yehuda soutient</b> que <b>la plaque frontale n'effectue pas l'acceptation pour</b> des articles qui sont <b>consommés</b> par les prêtres et qui sont devenus impurs. En conséquence, l'aspersion du sang est inefficace pour rendre le pain pur restant permis à la consommation.
 
@@ -98,4 +98,4 @@ Rav <b>a dit à</b> Rabbi Elazar : <b>Même dans ce</b> cas, <b>les pains sont r
 La Gemara demande : <b>Et dit-on une <i>a fortiori</i></b> déduction <b>de cette manière ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant un</b> .
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

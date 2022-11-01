@@ -24,4 +24,4 @@ La Guemara répond : <b>Non,</b> il faut expliquer ce cas comme un cas <b>où l'
 <b>Ravina a soulevé une objection à Rava : Rabbi Natan dit qu'il existe un vœu qui est partiellement dissous et partiellement contraignant. Comment</b> ainsi ? Celui qui a <b>fait un vœu</b> que le bénéfice <b>de</b> tous les articles d'un <b>panier</b> lui soit interdit,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

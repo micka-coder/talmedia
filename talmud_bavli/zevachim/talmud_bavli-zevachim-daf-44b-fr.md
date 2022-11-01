@@ -51,4 +51,4 @@ Le <i>baraita</i> développe : <b>Comment cela ? </b> Si <b>il se tenait à l'ex
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

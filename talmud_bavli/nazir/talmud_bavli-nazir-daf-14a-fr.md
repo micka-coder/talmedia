@@ -18,4 +18,4 @@ La Guemara commente : Au moins <b>résolvez la première de ces questions</b>, c
 La Guemara clarifie les deux approches : <b>Rabbi Yoḥanan dit</b> qu'il <b>néglige</b> l'ensemble, puisqu'il soutient que <b>c'est un seul long</b> terme de <b>naziriteship. Reish Lakish dit que cela ne nie pas</b> les jours qu'il a observés pour son propre terme de naziréité, car <b>son</b> terme de <b>naziréité est</b> un <b>discret</b> naziréité, <b>et celui de son fils est</b> un <b>discret</b> naziréité.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

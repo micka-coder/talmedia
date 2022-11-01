@@ -98,4 +98,4 @@
 <b>Ta mission</b> Ton message ; l'esprit saint qui vient dans mon cœur pour le dire.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -50,4 +50,4 @@
 <b>"Aussi vrai que ton dieu vit, ô Dan"</b> - Un des veaux que Jéroboam a érigé à Dan.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

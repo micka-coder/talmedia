@@ -36,4 +36,4 @@ La Guemara conteste cet ajout : <b>Mais</b> s'il a vendu à l'acheteur une cave 
 La Gemara conteste une fois de plus l'ajout : <b>Mais Rav Zevid n'a-t-il pas enseigné</b> une <i>baraita</i> de l'<b>école de Rabbi Oshaya:</b> Si l'on dit à un acheteur : <b>Je vous vends une cave à vin,</b> alors il est tenu de lui <b>donner du vin qui est tous</b> de <b>bonne</b> qualité ? De même, s'il dit : <b>Je vous vends cette</b> cave à vin particulière,</b> alors il est tenu de <b>lui donner du vin qui est tout</b> de <b>bonne</b> qualité, mais l'acheteur <b>accepte sur lui dix barils d'aigreur</b> <b>pour cent</b> barils.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

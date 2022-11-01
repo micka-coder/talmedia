@@ -39,4 +39,4 @@ La <i>baraita</i> citée continue : <b>"L'offrande de culpabilité"</b> enseigne
 § <b>Rava dit :</b> Il est <b>évident pour moi</b> que...
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

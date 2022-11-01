@@ -36,4 +36,4 @@ Cependant, si quelqu'un dit à sa femme : Voici ton acte de divorce à condition
 <b>Au contraire,</b> c'est un cas <b>où</b> le grand prêtre <b>dit à</b> la seconde épouse : <b>Voici votre acte de divorce à condition que votre homologue,</b> l'autre épouse, <b>ne meure pas. Si sa contrepartie,</b> la première femme, <b>ne meurt pas,</b> la seconde femme <b>est divorcée ; et si</b> la première femme <b>mort, est-ce que</b> la seconde femme <b>vit</b> et n'est pas divorcée ? La Gemara demande : <b>Et peut-être que son homologue mourra au milieu du</b> <b>service de Yom Kippour, et il deviendra clair</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

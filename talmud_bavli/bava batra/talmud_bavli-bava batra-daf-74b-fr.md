@@ -39,4 +39,4 @@ La Gemara demande : <b>Là aussi,</b> en ce qui concerne le léviathan, <b>qu'Il
 <b>Lorsque Rav Dimi est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yonatan dit : Dans le futur, Gabriel accomplira</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

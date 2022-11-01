@@ -60,4 +60,4 @@ La Gemara répond : <b>Abaye</b> n'a-t-il pas déjà <b>interprété</b> cette <
 <b>Rabbi Yehuda dit : Les chèvres peuvent sortir</b> le Chabbat avec leurs mamelles <b>liées pour sécher</b> leur réserve de lait et interrompre leur lactation, afin de faciliter la conception. Dans ce cas, elles sont liées par un nœud serré et permanent, et il n'y a aucune inquiétude à avoir de peur qu'il ne tombe dans le domaine public. <b>Cependant,</b> elles peuvent <b>ne pas</b> sortir avec les mamelles liées <b>pour</b> conserver leur <b>lait,</b> car dans ce cas elles sont liées de manière lâche.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

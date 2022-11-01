@@ -48,4 +48,4 @@ Il est dit dans la mishna : <b>Comment</b> est-il dérivé que la récitation lo
 <b>Et Rabbi Yehuda</b> fait dériver cette <i>halakha</i> <b>du</b> fait que le verset aurait pu utiliser la forme plus courte du mot <b>so [<i>ko</i>],</b> et utilise au contraire la forme plus longue du mot <b>so [<i>kakha</i>].</b> Il fait donc dériver les deux <i>halakhot</i> de ce mot. <b>Et les rabbins n'apprennent rien de</b> la différence entre <b><i>ko</i></b> et <b><i>kakha</i>.</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

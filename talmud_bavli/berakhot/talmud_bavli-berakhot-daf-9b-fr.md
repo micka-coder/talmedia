@@ -93,4 +93,4 @@ Ici aussi, la Guemara note que le calcul semble inexact : <b>Ce sont cent trois<
 Une preuve supplementaire que ces deux chapitres constituent une seule portion est citee a partir de ce que <b>Rabbi Shmuel bar Nahmani a dit</b> que <b>Rabbi Yohanan a dit:</b>.
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

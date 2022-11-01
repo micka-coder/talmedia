@@ -90,4 +90,4 @@ Et de même, <b>les Sages ne savaient pas ce que signifie</b> le mot <i>matatei<
 Au sujet de la lecture de la Meguila avec des interruptions, <b>les Sages ont enseigné</b> la <i>baraita</i> suivante : <b>Si l'on lit la Megilla par intervalles,</b> en faisant des pauses et en reprenant à intervalles, <b>il a rempli</b> son obligation.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

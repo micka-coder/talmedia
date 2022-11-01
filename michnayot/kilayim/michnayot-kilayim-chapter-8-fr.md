@@ -17,5 +17,5 @@ Les mules de parenté incertaine sont interdites [entre elles], mais un ramakh e
 ### michna 6
 Le bœuf sauvage [il est dans la catégorie de] behemah. Mais Rabbi Yose dit : [il est dans la catégorie] de hayyah. Le chien [il est dans la catégorie de] hayyah. Mais Rabbi Yose dit : [il est dans la catégorie] de behemah. Le porc [il est dans la catégorie de] béhémah. L'âne sauvage [il est dans la catégorie de] hayyah. L'éléphant et le singe [ils sont dans la catégorie de] hayyah. Il est permis à un être humain de dessiner, de labourer ou de conduire avec l'un d'entre eux.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

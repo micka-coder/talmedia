@@ -36,4 +36,4 @@ La Guemara demande : Selon l'avis de Rabbi Eliezer, <b>Quelle est la raison</b> 
 § Nous avons appris dans la mishna : A Yom Kippour, <b>celui qui mange</b> un aliment du <b>volume d'une grosse datte</b> est responsable. <b>Rav Pappa a demandé :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

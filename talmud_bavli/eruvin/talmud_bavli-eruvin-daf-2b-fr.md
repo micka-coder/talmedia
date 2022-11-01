@@ -48,4 +48,4 @@ La Gemara répond : <b>Comme c'est la raison uniquement selon Rav,</b> qui souti
 La Guemara soulève une difficulté supplémentaire : <b>Cependant, si</b> c'est <b>ainsi,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

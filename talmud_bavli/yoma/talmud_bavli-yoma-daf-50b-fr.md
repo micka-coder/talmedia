@@ -45,4 +45,4 @@ La Guemara demande : <b>Si c'est le cas,</b> on peut <b>aussi</b> dire que le <b
 La Guemara poursuit : <b>D'où</b> est-ce que je sais qu'il en est ainsi ? <b>Du</b> fait <b>qu'il est enseigné : </b> Il y a <b>une rigueur</b> qui s'applique <b>à la substitution</b> au-delà des rigueurs qui s'appliquent à l'offrande initiale, en <b>ce que</b> la sainteté de la <b>substitution prend effet</b> même <b>sur un animal souillé de façon permanente, et</b> le substitut <b>ne peut pas quitter</b> son statut sanctifié et assumer un statut <b>non sacré</b> pour sa laine <b>à tondre et à travailler. Et s'il vous venait à l'esprit de dire : <b>Qu'est-ce que</b> le <b>sacrifice</b> mentionné ici, il s'agit de la <b>catégorie</b> générale des <b>sacrifices;</b> cela ne peut être le cas, car <b>il existe</b> un exemple d'offrande à laquelle ces <i>halakhot</i> s'appliquent également,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

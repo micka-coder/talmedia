@@ -51,4 +51,4 @@ La Gemara demande : <b>N'avez-vous pas dit qu'il existe un âne sauvage,</b> don
 § La mishna dit : <b>Les signes d'un animal non domestiqué</b> ont été énoncés dans la Torah. A ce propos, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Ce sont les signes d'un animal non domestiqué.</b> La Gemara interjette : Pourquoi a-t-on besoin de signes pour un animal non domestiqué ? <b>Un animal non domestiqué [<i>ḥayya</i>] est inclus</b> dans la catégorie d'un <b>animal domestiqué [<i>behema</i>] en ce qui concerne les signes,</b> comme l'indique le verset : "Voici les êtres vivants [<i>ḥayya</i>] que vous pouvez manger parmi tous les animaux [<i>behema</i>] qui sont sur la terre. Tout ce qui se sépare du sabot" (Lévitique 11:2-3). <b>Rabbi Zeira a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

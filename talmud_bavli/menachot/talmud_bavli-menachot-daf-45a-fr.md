@@ -66,4 +66,4 @@ A ce sujet, <b>les Sages ont enseigné</b> dans une <i>baraita</i> : Le verset d
 <b>Au contraire,</b> le verset enseigne <b>que si</b> les trésoriers du Temple <b>avaient</b> des fonds suffisants pour les <b>nombreux taureaux</b> qui doivent être sacrifiés ce jour-là <b>mais qu'ils n'avaient pas</b> également <b>des fonds suffisants pour les <b>libérations qui les accompagnent, ils devaient apporter un taureau et ses libations, et ils ne devaient pas tous les sacrifier sans libations. Et</b> de même, <b>si</b> les trésoriers du Temple <b>avaient</b> des fonds suffisants pour...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

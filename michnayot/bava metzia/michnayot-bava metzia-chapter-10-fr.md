@@ -17,5 +17,5 @@ Si le mur de quelqu"un était près du jardin de son compagnon et qu"il s"est é
 ### michna 6
 S'il y avait deux jardins [en terrasses] l'un au-dessus de l'autre et que des légumes poussaient entre eux : Rabbi Meir dit :  "Ils appartiennent au jardin supérieur."Rabbi Juda dit :  Rabbi Meir a dit : "Ils appartiennent au jardin inférieur :  Rabbi Meir dit : "Si [le propriétaire du] jardin supérieur voulait enlever sa terre, il n'y aurait pas de légumes" : Rabbi Juda a dit : "Si [le propriétaire du] jardin inférieur voulait remplir son jardin [de terre], il n'y aurait pas de légumes. Rabbi Meir a dit :  "Puisque chacun est capable de contrecarrer l'autre, nous devrions nous demander d'où ces légumes tirent leur vie "Rabbi Shimon a dit :  Rabbi Shimon a dit : "Ce que le propriétaire du jardin supérieur peut prendre en étendant la main lui appartient, et le reste appartient au propriétaire du jardin inférieur.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

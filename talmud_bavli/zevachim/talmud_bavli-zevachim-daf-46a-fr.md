@@ -48,4 +48,4 @@ La Gemara répond : L'un de ces termes sert <b>à exclure</b> le sang <b>de</b> 
 § <b>Rabbi Yoḥanan dit : Pourquoi ai-je</b> besoin de <b>trois</b> mentions de <b><i>karet</i> à l'égard de</b> celui qui mange des <b>offrandes de paix</b> en état d'impureté rituelle ? Les trois versets sont : "Mais l'âme qui mange de la chair du sacrifice d'offrandes de paix, qui appartient au Seigneur, ayant son impureté sur elle, cette âme sera retranchée [<i>venikhreta</i>] de son peuple" (Lévitique 7 : 20) ; "Et si quelqu'un touche un objet impur, qu'il s'agisse de l'impureté de l'homme, d'un animal impur ou de toute chose impure et détestable, et mange de la chair du sacrifice d'actions de grâces qui appartient à l'Éternel, cette âme sera retranchée de son peuple" (Lévitique 7 : 21) ; et : "Quiconque de toute votre descendance, parmi vos générations, s'approche des objets sacrés que les enfants d'Israël consacrent au Seigneur, ayant sur lui son impureté, cette âme-là sera retranchée de devant Moi ; Je suis le Seigneur" (Lévitique 22:3).
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -69,4 +69,4 @@ Rabbi Yoḥanan <b>a dit à</b> Rabbi Shimon ben Lakish : Il est rendu susceptib
 Rabbi Yoḥanan explique son objection : <b>Selon mon</b> avis, <b>comme je le dis</b>, la mère et le fœtus <b>sont deux entités ; </b> c'est <b>pour cette raison</b> que seulement si le <i>ben pekua</i> lui-même <b>a été rendu susceptible</b> d'impureté en entrant en contact avec l'eau de la rivière, <b>oui,</b> il peut être rendu impur en entrant dans un cimetière, alors que si <b>il n'a pas été rendu susceptible</b> d'impureté par ces eaux, <b>non,</b> il ne devient pas impur en entrant dans un cimetière. <b>Mais selon votre</b> avis, dans lequel vous avez dit</b> que la mère et le fœtus ensemble <b>sont une seule entité,</b> pourquoi est-il nécessaire qu'il soit passé par une rivière ? <b>Il était</b> déjà <b>rendu susceptible</b> d'impureté <b>par le sang de sa mère</b> qui s'est répandu sur le corps de la mère lorsqu'elle a été abattue.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

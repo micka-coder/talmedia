@@ -39,4 +39,4 @@ La Guemara demande : On peut <b>dire que l'on a entendu Rabbi Yéhouda</b> expri
 La Gemara demande : <b>Est-ce le cas ? Mais lorsque Ravin vint</b> d'Eretz Yisrael en Babylonie, il rapporta que <b>Rabbi Yoḥanan dit : Rabbi Akiva juge</b> que l'on est <b>obligé</b> dans la séparation des <i>pe'a</i> de chaque rangée <b>même lorsque</b> il a fauché du fourrage à pleine maturité dans des sections <b>alternatives</b> de son champ <b>pour</b> les besoins de stockage dans <b>un entrepôt.</b> Selon Ravin, Rabbi Akiva considère que le fait de faucher même du fourrage à pleine maturité n'est pas considéré comme le début du processus de fauchage de tout le champ, mais seulement de la rangée individuelle. Par conséquent, on doit séparer le <i>pe'a</i> de chaque rangée. Ceci est en contradiction avec l'opinion de Rabbi Meir selon laquelle la récolte du fourrage qui a poussé d'un tiers est considérée comme une fauche.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

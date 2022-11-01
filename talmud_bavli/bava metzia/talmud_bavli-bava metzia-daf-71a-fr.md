@@ -60,4 +60,4 @@ La Guemara discute de la deuxième difficulté de Rabbi Yehuda HaNasi : <b>Le <i
 A propos de ce verset <b>les Sages ont enseigné : "Tu ne dois pas prendre d'intérêt ou d'augmentation de sa part", mais tu peux te porter garant pour lui</b> pour une transaction impliquant un intérêt.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

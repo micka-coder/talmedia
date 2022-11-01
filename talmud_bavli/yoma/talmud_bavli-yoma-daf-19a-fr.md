@@ -39,4 +39,4 @@ La Guemara rejette ce raisonnement : <b>Pourquoi ne pas</b> lui imposer ? Au con
 § Il a été enseigné dans la mishna que les Anciens <b>lui ont dit : Mon maître, Grand Prêtre.</b> Nous sommes des agents de la cour, et vous êtes notre agent et l'agent de la cour. La Gemara suggère : <b>Disons que c'est une réfutation concluante de</b> l'opinion de <b>Rav Huna, fils de Rav Yehoshua, car Rav Huna, fils de Rav Yehoshua, a dit : Ces prêtres</b> qui sacrifient les offrandes <b>sont les agents du Miséricordieux.</b> Ce ne sont pas des agents représentant le peuple juif mais des agents représentant Dieu, car Il leur a ordonné d'accomplir ce service. Des preuves sont citées à l'appui de cette opinion : <b>Ainsi, si vous dites qu'ils sont nos agents,</b>
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

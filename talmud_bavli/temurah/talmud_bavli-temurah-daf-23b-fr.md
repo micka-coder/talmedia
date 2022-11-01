@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais comment pouvez-vous dire</b> qu'on pourrait penser q
 La Guemara conclut : <b>Apparemment, Rabbi Shimon soutient</b> que les fonds excédentaires qui étaient destinés aux offrandes pour le péché sont alloués aux <b>offrandes</b> communales. La déclaration de Rabbi Ami est donc inutile, même selon l'opinion de Rabbi Shimon. La Guemara répond : Il <b>était nécessaire</b> pour Rabbi Ami d'enseigner ce <i>halakha</i>, comme il pourrait <b>entrer dans votre esprit de dire : Lorsque Rabbi Shimon soutient</b> que le surplus d'argent qui était destiné à une offrande pour le péché est alloué pour les <b>offrandes de cadeaux</b> communales, cela ne s'applique que <b>dans</b> un cas où le surplus provient <b>d'un seul ensemble</b> d'argent, par exemple, on a alloué des fonds pour acheter une chèvre et le prix des chèvres s'est déprécié, et donc il y a maintenant un surplus de l'argent qui a été mis de côté.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

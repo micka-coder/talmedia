@@ -72,4 +72,4 @@ La Gemara répond : <b>Nous exigeons</b> que l'on tire la <b>valeur d'une <i>per
 La Gemara demande : <b>Mais la <b>offrande de culpabilité</b> pour l'abus de biens consacrés, qui est énumérée dans la mishna, n'est-elle pas <b>une interdiction</b> pour <b>laquelle la violation intentionnelle</b> <b>de celle-ci</b> rend passible de recevoir seulement des coups de fouet, pas de <i>karet</i> ? <b>Et</b> néanmoins la <i>tanna</i> de la mishna <b>l'enseigne</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

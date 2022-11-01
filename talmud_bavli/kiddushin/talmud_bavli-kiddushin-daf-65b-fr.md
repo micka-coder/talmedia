@@ -39,4 +39,4 @@ La Gemara relate : <b>Mar Zutra et Rav Adda l'Ancien, les fils de Rav Mari bar I
 <b>Et Abaye</b> dit en outre <b>que <b>si un témoin dit à</b> quelqu'un :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

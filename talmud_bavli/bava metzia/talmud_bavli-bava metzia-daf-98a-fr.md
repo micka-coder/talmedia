@@ -27,4 +27,4 @@ La Guemara développe : On peut interpréter <b>la première clause</b> comme fa
 On peut interpréter <b>cette dernière clause</b> comme faisant référence à un cas <b>où</b> il s'est emparé de <b>quatre</b> vaches, comme suit : Le cas est <b>que</b> le propriétaire <b>dit au bailli</b> : <b>Je t'ai donné quatre vaches, trois par emprunt</b> et <b>une par location. Et</b> je prétends que <b>ces trois qui</b> étaient <b>empruntées</b> sont celles qui sont <b>mortes. Et</b> il lui <b>dit,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

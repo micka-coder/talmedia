@@ -71,7 +71,7 @@
 <b>Sur la tête[s] des méchants</b> Sur la tête des païens.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -144,4 +144,4 @@
 <b>Sur la tête[s] des méchants</b> Sur la tête des païens.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

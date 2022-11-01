@@ -48,4 +48,4 @@ La Guemara répond : Il est préférable d'assimiler <i>Chavouot</i> à Pessah e
 La Guemara demande : <b>Mais</b> si tel est le cas, <b>en regard de quelle <i>halakha</i> le Miséricordieux a-t-il écrit la fête de <i>Sukkot</i></b> dans ce verset ? La Gemara explique : C'est <b>pour tirer une analogie</b> de <i>Sukkot</i> <b>à la fête de Pessah</b> par rapport à une autre question :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

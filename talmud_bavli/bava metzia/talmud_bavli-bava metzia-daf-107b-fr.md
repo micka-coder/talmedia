@@ -48,7 +48,7 @@ La Gemara relate un autre incident : <b>Rabba bar Rav Huna possédait une certai
 La Guemara répond : <b>Ceci</b> il <b>était la forêt de la maison de Parzak, le général, et</b> il était évident qu'ils ne prêteraient aucune attention à un savant juif. Rabba bar Rav Huna a donc <b>dit : Si</b> les ouvriers de l'officier perse <b>coupent, je couperai</b> aussi, <b>et si</b> ils ne coupent <b>pas, pourquoi devrais-je couper</b> sans but ? <b>Puisque si</b> les tireurs peuvent <b>étirer leurs cordes, ils peuvent aller</b> le long de ce côté de la rivière,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 Quoi qu'il en soit, il est évident que le Rav approuve celui dont la propriété est située près d'une ville. Comment cela s'accorde-t-il avec sa déclaration selon laquelle il faut craindre le mauvais œil lorsque le champ d'une personne est vu par des gens ? La Gemara répond : Ce n'est <b>pas difficile. Cette</b> déclaration fait référence à <b>un mur et</b> à une <b>partition supplémentaire [<i>ritka</i>] qui entourent</b> le terrain et l'empêchent d'être atteint par le mauvais œil. <b>Cette</b> déclaration fait référence à un cas <b>où un mur et</b> une <b>partition supplémentaire ne l'entourent pas.</b>
 
@@ -98,4 +98,4 @@ La Gemara relate un autre incident : <b>Rabba bar Rav Huna possédait une certai
 La Guemara répond : <b>Ceci</b> il <b>était la forêt de la maison de Parzak, le général, et</b> il était évident qu'ils ne prêteraient aucune attention à un savant juif. Rabba bar Rav Huna a donc <b>dit : Si</b> les ouvriers de l'officier perse <b>coupent, je couperai</b> aussi, <b>et si</b> ils ne coupent <b>pas, pourquoi devrais-je couper</b> sans but ? <b>Puisque si</b> les tireurs peuvent <b>étirer leurs cordes, ils peuvent aller</b> le long de ce côté de la rivière,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

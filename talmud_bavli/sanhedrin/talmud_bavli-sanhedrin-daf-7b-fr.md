@@ -57,4 +57,4 @@ Le verset suivant indique : <b>"Tu ne respecteras pas [<i>takiru</i>] les gens d
 <b>L'hôte du Rav [<i>ushpizekhaneih</i>],</b> chez qui il séjournait occasionnellement, <b>se présenta devant lui pour un jugement.</b> Le Rav <b>dit à</b> l'hôte : <b>N'êtes-vous pas mon hôte ?</b> Il <b>lui répondit : Oui,</b> je le suis. L'hôte lui <b>dit alors : J'ai</b> un différend avec un autre qui a besoin d'un <b>jugement.</b> Rav <b>lui a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Si <b>il y avait une chèvre attachée</b> à la pile de grains, <b>et</b> qu'il
 <b>Les Sages ont enseigné :</b> En ce qui concerne celui <b>qui allume une pile et qu'il y avait des récipients à l'intérieur</b> qui ont été <b>brûlés, Rabbi Yehuda dit :</b> Celui qui a allumé le feu <b>paye</b> une compensation <b>pour tout ce qui était à l'intérieur, mais les rabbins disent : Il ne paie</b> une indemnité que pour la valeur d'un <b>pile de blé ou d'un tas d'orge,</b> et il ne paie pas d'indemnité pour les récipients. <b>Et</b> le tribunal <b>considère l'endroit</b> où se trouvaient <b>les récipients</b> <b>comme s'il était rempli de grains,</b> et calcule le montant de l'indemnité en conséquence.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

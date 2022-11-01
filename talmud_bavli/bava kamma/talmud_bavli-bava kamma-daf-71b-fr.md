@@ -57,4 +57,4 @@ Rav Naḥman <b>lui a dit : En effet,</b> la mishna aurait pu mentionner ce cas.
 Cette discussion entre Rava et Rav Naḥman a eu lieu le soir. <b>Le</b> <b>matin suivant,</b> Rav Naḥman s'est rétracté et a <b>dit à</b> Rava : <b>Le Miséricordieux déclare : "Cinq bœufs", et</b> cela signifie que <b>même cinq demi-bœufs</b> sont inclus. Rav Naḥman explique son changement d'avis : <b>Et</b> la raison pour laquelle <b>je ne vous ai pas dit</b> ceci <b>à vous</b> hier <b>nuit</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

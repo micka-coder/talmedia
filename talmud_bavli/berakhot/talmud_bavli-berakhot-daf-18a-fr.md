@@ -42,4 +42,4 @@ La Guemara relate que <b>Rabbi Hiyya et Rabbi Yonatan se promenaient dans un cim
 Rabbi Yonatan <b>lui a dit : Est-ce que</b> les morts <b>savent tant de choses ? N'est-il pas dit : "Et les morts ne savent rien"</b> (Ecclesiaste 9:5) ? Rabbi Hiyya <b>lui repondit : Si tu as lu</b> le verset, <b>tu ne l'as pas</b> lu <b>une deuxieme fois, et si tu</b> l'as lu <b>une deuxieme fois, tu ne l'as pas</b> lu <b>une troisieme fois, et si tu</b> l'as lu <b>une troisieme fois, on ne te l'a pas explique</b> correctement. Le sens du verset : "Car les vivants savent qu'ils vont mourir, et les morts ne savent rien et n'ont plus de recompense, car leur memoire a ete oubliee" (Ecclesiaste 9:5) : <b>Parce que les vivants savent qu'ils mourront, ce sont les justes, qui meme dans leur mort sont appeles vivants.</b> Une allusion a ceci est <b>comme il est dit :" Et Benayahu, fils de Yehoyada, fils d'un vaillant homme de Kabzeel, qui avait fait des exploits, il frappa les deux autels de Moab ; il descendit aussi et tua un lion au milieu d'une fosse en temps de neige"</b> (II Samuel 23:20).
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

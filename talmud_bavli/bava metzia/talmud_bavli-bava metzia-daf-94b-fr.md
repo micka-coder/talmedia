@@ -75,4 +75,4 @@ La Guemara explique : <b>Comme il est enseigné</b> dans une <i>baraita</i> : A 
 <b>Rabbi Yonatan dit :</b> Il n'y a pas besoin de cette dérivation, car l'expression "son père et sa mère" <b>indique</b> que l'on est responsable si l'on maudit <b>les deux ensemble, et elle</b> indique également <b>qu'on est responsable si l'on maudit l'un ou l'autre <b>l'un ou l'autre</b> d'entre eux <b>seul,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

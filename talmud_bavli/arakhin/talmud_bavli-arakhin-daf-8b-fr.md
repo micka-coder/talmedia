@@ -51,4 +51,4 @@ La Guemara explique le lien entre les deux disputes : <b>Rabba</b> tient <b>conf
 <strong>GEMARA:</strong> La Gemara demande : <b>Quel</b> est le sens de la déclaration de la mishna selon laquelle <b>il n'a pas semblé</b> opportun d'établir <b>plus de huit ? Rav Huna répond : Il ne semblait pas</b> approprié <b>aux Sages de prolonger plus de huit</b> mois dans une année et de les établir comme des mois complets de trente jours. La Gemara demande : <b>Qu'y a-t-il de différent</b> à propos de <b>neuf</b> mois, en ce <b>que</b> les Sages n'ont pas <b>jugé opportun d'établir autant de mois complets dans une année ? Apparemment, les Sages étaient préoccupés par le fait que <b>si oui,</b> c'est-à-dire s'il y avait autant de mois complets,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

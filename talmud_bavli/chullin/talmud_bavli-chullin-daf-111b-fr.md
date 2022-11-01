@@ -57,4 +57,4 @@ Un <b>Sage dit à son collègue : Orphelin!</b> Étudiant sans maître ! <b>Ton 
 La Guemara note : <b>Et cette déclaration</b> s'applique uniquement à <b>un radis,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

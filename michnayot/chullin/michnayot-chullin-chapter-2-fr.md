@@ -29,5 +29,5 @@ Il est interdit d'égorger [de façon à ce que le sang coule] dans la mer, dans
 ### michna 10
 Si quelqu'un a abattu [un animal non consacré en dehors de la cour du Temple] pour qu'il soit une olah ou un shelamim ou un asham pour un péché douteux ou comme une Pessah ou une todah, l'abattage est invalide. Mais Rabbi Shimon le déclare valide. Si deux personnes tiennent un couteau et abattent [un animal non consacré en dehors de la cour du Temple], l'une déclarant qu'il s'agit de l'un des cas susmentionnés et l'autre ayant l'intention de le faire dans un but légitime, l'abattage est invalide. Si l'on égorge [un animal non consacré en dehors du tribunal du Temple] pour qu'il soit une hatat ou un asham ou un premier-né ou la dîme [du bétail] ou une offrande de remplacement, l'égorgement est valide. Telle est la règle générale : si quelqu'un a abattu un animal en déclarant qu'il s'agit d'un sacrifice qui peut être apporté soit comme offrande volontaire, soit comme offrande libre, il n'est pas valide, mais s'il déclare qu'il s'agit d'un sacrifice qui ne peut être apporté ni comme offrande votive ni comme offrande libre, il est valide.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

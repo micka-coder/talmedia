@@ -97,5 +97,5 @@ de meurtriers, comme il est écrit : "Gil'ad, ville de méchants, <i data-commen
 <b>Où je réside.</b> Ne me fais pas résider dans sa souillure.
 <b>Parce que Moi, Hachem, J'habite parmi les Bnei Israël.</b> Même lorsqu'ils sont souillés, la Présence Divine repose parmi eux. 
 
->Crédit : primo.nli.org.il (metsudah)
->Licence : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>Licence : CC BY-NC

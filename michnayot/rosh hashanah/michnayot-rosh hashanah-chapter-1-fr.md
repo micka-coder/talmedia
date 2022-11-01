@@ -26,5 +26,5 @@ Et voici ceux qui ne sont pas qualifiés [pour être témoins ou juges] : Un jou
 ### michna 9
 Si quelqu'un qui a vu la nouvelle lune n'est pas en mesure de marcher [à Jérusalem] à pied, on peut l'amener sur un âne ou même dans une litière [le Chabbat]. S'ils [les témoins] risquent d'être attaqués, ils peuvent prendre des bâtons [pour se défendre]. Si la distance est grande [jusqu'à Jérusalem], ils peuvent prendre des provisions avec eux, car pour une nuit et un jour de voyage, il leur était permis de profaner le Shabbat et de sortir pour témoigner de la nouvelle lune, comme il est dit : "Ce sont les temps fixés par l'Éternel "¦ que tu annonceras à leur temps fixé" (Lévitique 23:4).
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

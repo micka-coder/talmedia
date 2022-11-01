@@ -54,4 +54,4 @@ La Gemara demande : <b>Par rapport à quel</b> principe <b>ces <i>tanna'im</i> <
 <b>Et il y a ceux qui enseignent</b> la dispute entre Rava et Rav Yosef <b>en ce qui concerne cette</b> <i>baraita</i> : Dans le cas de <b>quelqu'un qui est emmené pour être exécuté</b> après avoir été condamné par le tribunal, si <b>il a blessé un autre</b> il est <b>responsable</b> du paiement. Mais si <b>d'autres personnes l'ont blessé</b> elles sont <b>exemptées,</b> comme elles le seraient si elles avaient blessé un mort. <Rabbi Shimon ben Elazar dit : Même si</b> c'est <b>il</b> qui a <b>blessé les autres,</b> il est <b>exempté, car</b> il <b>ne peut pas être ramené pour se tenir</b> devant <b>le tribunal</b> pour le jugement, puisqu'il doit être exécuté sans délai.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

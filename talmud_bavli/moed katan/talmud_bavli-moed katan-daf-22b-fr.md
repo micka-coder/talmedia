@@ -69,4 +69,4 @@ On rapporte que le <b><i>Nasi</i> est mort,</b> et <b>Rav Ḥisda dit à Rav Ḥ
 <b>Les Sages ont enseigné</b> la <i>baraita</i> suivante : Quand <b>un Sage meurt, sa salle d'étude cesse</b> son étude régulière en signe de deuil sur lui. Lorsque <b>le président du tribunal meurt, toutes les salles d'étude de sa ville cessent</b> leur étude régulière, et tout le monde <b>entre à la synagogue et y change de place</b> en signe de deuil sur lui. <b>Ceux qui</b> habituellement <b>s'assoient au nord</b> doivent <b>s'asseoir au sud, et ceux qui</b> habituellement <b>s'assoient au sud</b> doivent <b>s'asseoir au nord.</b> Lorsque <b>un <i>Nasi</i> meurt, toutes les salles d'étude cessent</b> leur étude régulière. Le Chabbat, <b>les membres de la synagogue entrent dans la synagogue</b> pour la lecture publique de la Torah, qui nécessite une assemblée de dix personnes,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

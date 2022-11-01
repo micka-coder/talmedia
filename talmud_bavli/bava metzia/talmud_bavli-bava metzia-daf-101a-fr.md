@@ -72,7 +72,7 @@ La Guemara répond : Rav Naḥman <b>déclare</b> son avis <b>conforme</b> à l'
 La Gemara s'interroge : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <b>à propos</b> de cette affaire ? <b>Rabbi Ya'akov a dit</b> que <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>ne comprend pas les frais</b> de transformation des olives en huile.
 
@@ -146,4 +146,4 @@ La Guemara répond : Rav Naḥman <b>déclare</b> son avis <b>conforme</b> à l'
 La Gemara s'interroge : <b>Quelle</b> conclusion halakhique <b>a-t-on</b> atteint <b>à propos</b> de cette affaire ? <b>Rabbi Ya'akov a dit</b> que <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

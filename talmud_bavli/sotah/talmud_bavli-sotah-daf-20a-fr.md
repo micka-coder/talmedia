@@ -51,4 +51,4 @@ La Guemara répond : <b>Accordé,</b> la contradiction apparente entre la décla
 <b>Il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehuda dit</b> que <b>Rabbi Meir dirait : On peut mettre du sulfate de fer dans l'encre</b> qui est utilisée <b>pour tous</b> les écrits sacrés, c'est-à-dire les rouleaux de la Torah, les phylactères et les <i>mezuzot</i>,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

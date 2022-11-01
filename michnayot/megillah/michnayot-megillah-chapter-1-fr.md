@@ -32,5 +32,5 @@ Il n'y a pas de différence entre un grand autel et un petit autel, sauf pour l'
 ### michna 11
 Il n'y a pas de différence entre Silo et Jérusalem, si ce n'est qu'à Silo, les sacrifices de moindre sainteté et la seconde dîme pouvaient être consommés n'importe où à portée de vue [de la ville], alors qu'à Jérusalem [ils devaient être consommés] à l'intérieur des murs. Dans les deux endroits, les sacrifices les plus saints étaient consommés à l'intérieur des rideaux. Après la sanctification de Silo, il y a une permission [pour les autels], mais après la sanctification de Jérusalem, il n'y a pas de telle permission.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

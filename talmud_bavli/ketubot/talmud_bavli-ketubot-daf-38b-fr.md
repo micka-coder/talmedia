@@ -30,4 +30,4 @@ La Guemara demande : <b>Et selon Rabba, qui a dit</b> qu'il s'agit bien de la <i
 <b>Comme Rava a soulevé un dilemme : Y a-t-il</b> atteinte du statut de <b>femme adulte dans la tombe ou n'y a-t-il pas</b> atteinte du statut de <b>femme adulte dans la tombe ? </b> La <i>halakha</i> est que si une jeune femme est violée et que le violeur n'a pas payé l'amende jusqu'à ce qu'elle devienne une femme adulte, le violeur paie l'amende à elle et non à son père. Le dilemme de Rava se situe dans le cas où une jeune femme meurt et où son violeur n'a été condamné qu'après le temps écoulé où, si elle était vivante, elle aurait atteint le statut de femme adulte. <b>Est-ce qu'il y a</b> atteinte du statut de femme adulte dans la tombe, et</b> donc elle a droit à l'amende et <b>elle est</b> la propriété de <b>son fils</b> en tant qu'héritier de sa mère ? <b>Ou peut-être n'y a-t-il pas</b> d'accession au statut de <b>femme adulte dans la tombe, et l'amende est</b> la propriété de <b>son père,</b> puisqu'elle était une jeune femme à sa mort.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

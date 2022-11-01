@@ -66,4 +66,4 @@ La Gemara demande : <b>Mais</b> qu'en est-il des pains de mie, où lorsque</b> l
 La Guemara répond : <b>Voilà,</b> en ce qui concerne l'offrande de repas, c'est <b>différent,</b> et ce ne sont que les rites répétés qui sont indispensables, <b>comme le dit le verset : "De son gruau, et de son huile"</b> (Lévitique 2, 16), et non simplement : De son gruau et de son huile,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

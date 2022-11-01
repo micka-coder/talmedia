@@ -48,4 +48,4 @@
 <b>C'est pourquoi il releva la tête</b> Il se loua lui-même et se vanta de sa grandeur.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

@@ -27,4 +27,4 @@ La Gemara soulève un autre dilemme : si <b>son père</b> était <b>un nazirite 
 <b>Et si vous dites : Ici, les deux</b> cas sont au moins similaires en ce sens qu'ils impliquent une <b>naziritisme pur et simple,</b> et donc le fils peut faire usage de l'argent de son père, alors <b>Rav Ashi soulève</b> un <b>dilemme différent : </b> Si <b>son père</b> était <b>un nazirite impur et qu'il était un nazirite pur,</b> ou si <b>son père était un nazirite pur et qu'il était un nazirite impur, quelle</b> est la <i>halakha</i> ? Le fils peut-il se raser en utilisant l'argent laissé pour la naziréité de son père ou non ? Aucune réponse n'a été trouvée pour aucun de ces dilemmes, et la Guemara dit qu'ils <b>doivent rester</b> non résolus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

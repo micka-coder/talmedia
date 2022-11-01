@@ -24,4 +24,4 @@ Cet arabe m'a aussi <b>dit : Viens, je vais te montrer</b> l'endroit <b>où la t
 <b>Rabbi Yoḥanan raconte : Une fois, nous voyagions sur un navire et nous avons vu une certaine caisse [<i>kartalita</i>] dans laquelle étaient enchâssées des pierres précieuses et des perles, et une espèce de poisson appelée requin l'encerclait.</b> Il <b>sort,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

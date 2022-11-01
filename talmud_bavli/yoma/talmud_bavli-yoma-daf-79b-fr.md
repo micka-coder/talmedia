@@ -33,4 +33,4 @@ La Gemara rejette cette idée : <b>D'où vient votre preuve</b> ? <b>Peut-être 
 <b>Il a été enseigné</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

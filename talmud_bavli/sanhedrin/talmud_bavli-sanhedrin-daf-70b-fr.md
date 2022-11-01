@@ -51,4 +51,4 @@ La mishna enseigne que si le garçon rebelle <b>mangeait tout</b> autre <b>alime
 D'où apprend-on que le miel et le lait sont enivrants ? <b>Comme il est enseigné</b> dans une <i>baraita</i> : Si un prêtre <b>ate</b> pressé des <b>fruits de Ke'ila, ou a bu du miel ou du lait,</b> s'enivrant ainsi, <b>et qu'il</b> est ensuite <b>entré dans le Temple</b> pour accomplir le service du Temple,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

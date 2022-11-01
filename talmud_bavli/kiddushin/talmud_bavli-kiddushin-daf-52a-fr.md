@@ -33,4 +33,4 @@ La Guemara <b>souleve une objection</b> contre l'opinion de Rav selon laquelle o
 La Gemara demande : <b>Mais du</b> fait <b>que la dernière clause</b> de la <i>baraita</i> <b>enseigne : Ou s'il s'est emparé d'une <i>sela</i> d'elle, on peut en déduire que</b> dans <b>la première clause, on a affaire</b> à des biens <b>volés à autrui.</b> La Gemara explique : Il ne s'agit pas de deux cas distincts. Au contraire, le <i>tanna</i> <b>explique</b> sa déclaration précédente : Si l'on <b>bénit</b> une femme <b>avec</b> un objet pris <b>dans un vol, dans une transaction forcée, ou dans un vol ; comment ? Par exemple, s'il a saisi une <i>sela</i> de sa main et l'a fiancée avec cet objet.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -51,4 +51,4 @@ La Guemara explique : <b>Rav et Rabbi Ḥanina disent</b> que <b><i>Megillat Ta'
 La Gemara répond : <b>De quoi s'agit-il ici ?</b> Cela fait référence à une époque <b>où le Temple était debout</b> et où tous les jours énumérés dans <i>Megillat Ta'anit</i> étaient en vigueur. De temps en temps, de nouveaux jours de commémoration étaient ajoutés. Lorsque les <i>amora'im</i> ont déclaré que la <i>Megillat Ta'anit</i> était annulée, ils faisaient référence au temps qui a suivi la destruction du Temple.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

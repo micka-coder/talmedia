@@ -63,4 +63,4 @@ La Guemara demande : <b>Et</b> pourquoi <b>Ze'eiri</b> ne craint-il pas que les 
 Parmi les femmes énumérées par Rav figure <b>sa belle-fille.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

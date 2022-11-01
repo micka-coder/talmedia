@@ -42,4 +42,4 @@ La Guemara demande : <b>Et</b> comment savez-vous que telle était l'intention d
 La Gemara demande : <b>Qu'est-ce qui est différent</b> de <b>la fête</b> de <i>Soukkot</i>, <b>que l'on dit</b> <i>hallel</i> <b>tous les jours, et qu'est-ce qui est différent</b> de <b>Passover, que l'on ne dit pas</b> <i>hallel</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

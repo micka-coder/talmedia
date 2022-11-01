@@ -46,4 +46,4 @@
 <b>Et quelles implications de toute matière peuvent être comprises</b> Quelle allusion de quoi que ce soit un homme peut-il comprendre à partir de Ses actes ? Autre explication : שֶמֶץ est comme (Exod. 32:25), " au scandale (לשמצה) ", peu flatteur.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

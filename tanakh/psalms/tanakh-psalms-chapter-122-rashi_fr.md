@@ -26,4 +26,4 @@
 <b>Je vais maintenant parler</b> Moi, roi David, [je vais maintenant parler] de paix en vous.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

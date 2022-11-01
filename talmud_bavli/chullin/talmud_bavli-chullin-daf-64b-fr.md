@@ -21,4 +21,4 @@ La Guemara demande : <b>Mais n'est-il pas écrit : "Les animaux des champs m'hon
 <b>Et</b> encore, le nom <b>ici est différent</b> de ceux des autres animaux, en <b>ce que le scribe le scinde</b> <b>en deux mots :</b> <i>Bat ya'ana</i>, alors qu'il s'agit d'une seule espèce. <b>Et du</b> fait que <b>le scribe le divise</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution de ce dilem
 On peut <b>apprendre de cela</b> que le mari <b>se fonde sur</b> la <b>déclaration de l'agent.</b> Puisque le mari avait l'impression erronée d'interagir avec un agent de réception, il ne lui a pas donné l'instruction de remettre le document à sa femme, et donc l'acte de divorce n'a pas été transmis de la manière appropriée, c'est pourquoi elle n'est pas du tout divorcée. <b>Aussi, s'il vous vient à l'esprit que</b> le mari <b>se fie à sa déclaration, elle devrait au moins être divorcée lorsque l'acte de divorce arrive en sa possession,</b> conformément aux termes d'un agent de réception. Cela montre que la déclaration d'un agent est acceptée comme une représentation fidèle de la volonté de celui qui l'a nommé. <b>Rav Ashi a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

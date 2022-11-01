@@ -48,7 +48,7 @@ La Guemara suggère : <b>Résoudre au moins un</b> de ces dilemmes, <b>comme le 
 <b>Rav Ashi soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Trois pièces de monnaie</b> empilées <b>l'une sur l'autre ; des ballots</b> de céréales <b>dans un endroit isolé ; les pains d'un propriétaire,</b> car chacun façonne ses pains à sa manière ; <b>des toisons de laine qui sont prises dans la maison d'un artisan,</b> car chaque artisan traite la laine à sa manière ; <b>des cruches de vin ; ou des cruches d'huile. </b> Si l'on trouve l'une de ces <b>matières,</b> on est <b>obligé de proclamer</b> sa trouvaille.
 
@@ -98,4 +98,4 @@ La Guemara suggère : <b>Résoudre au moins un</b> de ces dilemmes, <b>comme le 
 <b>Rav Ashi soulève un dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

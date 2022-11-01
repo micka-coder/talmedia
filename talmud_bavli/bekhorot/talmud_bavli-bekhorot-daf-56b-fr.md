@@ -63,4 +63,4 @@ La Guemara note que cette question fait également l'objet d'un différend entre
 <b>Et Rabbi Yoḥanan dit : Même</b> si <b>ils ont divisé</b> la succession à la manière de <b>neuf</b> grandes chèvres <b>pour neuf</b> grandes chèvres <b>et dix</b> chevreaux <b>pour dix</b> chevreaux, on ne <b>dit pas</b> que <b>cela,</b> le groupe d'animaux pris par chaque frère, <b>est</b> considéré comme <b>sa part à laquelle il a droit dès le départ. </b> Par conséquent, s'ils rétablissent une association, ils sont considérés comme des associés et sont exemptés de la séparation de la dîme des animaux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

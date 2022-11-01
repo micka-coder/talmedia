@@ -24,4 +24,4 @@ La Guemara demande : <b>D'où</b> savons-nous que cela est correct ? <b>Peut-êt
 <b>Ils disent</b> en réponse : <b>S'il vous vient à l'esprit que si</b> un lépreux <b>effectue</b> son rasage <b>avec une pince à épiler ou un rabot aussi,</b> c'est <b>bien</b> et il a accompli la mitsva, alors <b>que le verset se taise</b> et s'abstient <b>de</b> la phrase supplémentaire, "sa barbe". <b>Et</b> je <b>saisirais</b> ce qui suit : <b>Et tout comme à l'égard d'un nazirite, qui accomplit une transgression</b> en se rasant les cheveux pendant sa naziréité et qui, <b>malgré cela,</b> est <b>réputé responsable</b> de l'épilation sans l'utilisation d'un rasoir, <b>ici</b> aussi, dans le cas d'un lépreux, <b>où</b> son rasage est <b>une mitzva,</b> ne s'ensuit-il pas <b>d'autant plus</b> qu'il doit être autorisé à se raser avec n'importe quel instrument ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

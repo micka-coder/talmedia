@@ -20,5 +20,5 @@ Si l'un de ces [paniers] est tombé dans le hullin, cela ne le rend pas medumma 
 ### michna 7
 S'il a utilisé un de ces [paniers] comme semence, il est exempté, et le second est traité comme s'il s'agissait de teroumah et soumis à la loi de la hallah, ce sont les paroles de Rabbi Meir. Mais Rabbi Yose l'exempte. Si une autre personne utilise la seconde comme semence, alors elle est exemptée. Si un homme utilise les deux comme semence, s'il s'agit d'une espèce dont la semence se désintègre [dans le sol], il est permis, mais s'il s'agit d'une espèce dont la semence ne se désintègre pas, il est interdit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

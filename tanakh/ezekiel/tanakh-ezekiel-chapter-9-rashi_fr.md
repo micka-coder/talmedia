@@ -30,4 +30,4 @@
 <b>plein de perversion</b> Jugements tordus.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

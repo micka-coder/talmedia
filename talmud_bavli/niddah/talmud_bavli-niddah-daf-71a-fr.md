@@ -57,4 +57,4 @@ La Guemara demande : <b>Par déduction,</b> on pourrait conclure <b>que le premi
 <b>Rabbi Yehuda dit :</b> Dans le cas de quelqu'un qui a été <b>tué duquel un quart</b><i>de log</i> de <b>sang a émergé, et il était couché dans un lit et son sang s'écoulait dans un trou</b> dans le sol, le sang dans le sol <b>est rituellement impur, parce que la goutte de mort est mélangée avec lui. Et les rabbins le jugent rituellement pur, car</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

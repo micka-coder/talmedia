@@ -72,4 +72,4 @@ Il semblerait que Rabbi Eliezer n'accepte pas ce principe, car <b>n'est-il pas e
 La Guemara concède : <b>Par contre,</b> la <i>baraita</i> doit être réinterprétée comme suit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

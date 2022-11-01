@@ -39,4 +39,4 @@ La Gemara demande : <b>Si c'est le cas,</b> et que le marié est expert en déto
 <b>Rav Ami soulève une objection</b> à partir d'une mishna (<i>Eduyyot</i> 2:5) : En ce qui concerne <b>celui qui draine un abcès le Chabbat, si</b> son intention est de <b>créer</b> une <b>ouverture</b> permanente afin que l'abcès sèche, <b>il est susceptible</b> de recevoir une punition pour avoir accompli une action similaire au travail interdit de construire le Chabbat. <b>Cependant, si</b> il a créé l'ouverture <b>pour enlever le pus,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

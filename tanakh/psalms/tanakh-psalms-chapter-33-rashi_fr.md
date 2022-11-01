@@ -35,4 +35,4 @@
 <b>Celui qui forme leurs cœurs ensemble</b> Tous leurs cœurs ensemble et connaît toutes les pensées. Nos Sages, cependant, expliquent que cela fait référence à " De sa demeure, le Créateur surveille leurs coeurs ensemble ", et ils en ont déduit que tous sont examinés d'un seul regard (Rosh Hashana 18a).
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

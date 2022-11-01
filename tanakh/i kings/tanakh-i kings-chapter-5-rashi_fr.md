@@ -98,4 +98,4 @@
 <b>Et ils préparèrent.</b> Expression de désigner.</sup>31</sup><i class="footnote">les pierres et le bois à leur position exacte. </i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

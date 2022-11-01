@@ -15,4 +15,4 @@ Raḥava a demandé : <b>Qu'est-ce qui</b> rend ce cas <b>différent</b> de la d
 Les Sages répondent : <b>Comment</b> ces cas peuvent-ils <b>être comparés ? Là,</b> où il y a <b>incertitude</b> de savoir s'il est <b>jour</b> et <b>incertitude</b> de savoir s'il est <b>nuit, la question n'est pas perceptible,</b> car personne ne voit exactement quand chaque <i>eirouv</i> a été établi. <b>Mais ici,</b> où les maisons sont clairement distinguables, <b>si par rapport à celui-ci</b> qui y a placé ses <i>eiruv</i>, c'est <b>une maison,</b> alors <b>par rapport à celui-là</b> qui l'a traversée, elle doit aussi être considérée comme <b>une maison. </b> Et <b>si, par rapport à ce</b> dernier, qui l'a traversée, c'est <b>une guérite,</b> alors <b>par rapport à ce</b> dernier, qui y a placé son <i>eiruv</i>, elle doit <b>aussi</b> être considérée <b>une guérite.</b> Par conséquent, aucun des deux n'acquiert son <i>eiruv</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -57,4 +57,4 @@ Celui qui saisit la partie essentielle du billet à ordre, qui contient la date,
 <b>Et</b> ceci est <b>également</b> vrai en général, en ce qui concerne les cas <b>où nous avons dit</b> que les deux plaideurs <b>divisent</b> la pièce litigieuse : La référence est <b>à</b> la valeur <b>monétaire</b>, et non la division de la chose réelle. <b>Aussi, si vous ne le dites pas,</b> mais que vous tenez plutôt que la chose elle-même est divisée, dans le cas de <b>deux</b> personnes qui viennent au tribunal <b>tenant un vêtement,</b> est-ce qu'elles <b>sont aussi divisées</b> le vêtement lui-même en deux ? <b>Mais</b> en faisant cela, ils le <b>ruineraient.</b> La Gemara rejette cette preuve : <b>Ceci</b> n'est <b>pas difficile,</b> car il est possible d'expliquer qu'ils ont effectivement coupé le vêtement en deux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

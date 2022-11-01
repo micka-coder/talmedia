@@ -48,4 +48,4 @@ La Guemara conteste ce point : <b>Rabbi Akivas</b> position <b>est identique a</
 La Guemara relate que dans la salle de bain de <b>Rabbas</b>, <b>les briques etaient placees a l'est et a l'ouest</b> afin de s'assurer qu'il defeque face au nord et au sud. <b>Abaye est alle</b> et <b>les placer au nord et au sud,</b> pour tester si Rabba etait particulier quant a leur orientation ou si elles avaient simplement ete placees a l'est et a l'ouest de maniere fortuite. <b>Rabba entra</b> et <b>les fixa. Il dit : Qui est celui qui me contrarie ? Je tiens conformement</b> a l'opinion de <b>Rabbi Akiva,</b> qui <b>a dit : C'est interdit partout.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ Reish Lakish a répondu : <b>Et selon votre raisonnement,</b> comment voulez-vou
 <b>Rav Sheshet dit</b> en résolution de cette contradiction : Dans la <b>dernière clause</b> de la <i>baraita</i> <b>on est arrivé</b> à une opinion différente, celle de <b>Rabbi Akiva, qui a dit : Les fiançailles avec ceux</b> qui sont interdits car ils sont <b>responsables</b> de la violation d'un <b>interdit ne sont pas valides.</b> Selon Rabbi Akiva, il n'y a pas de différence entre les interdits réguliers et les interdits qui encourent le <i>karet</i> à cet égard, car dans les deux cas, les fiançailles sont invalides. La Guemara soulève une difficulté : <b>Mais</b> si la première clause de la <i>baraita</i> est conforme à l'opinion des rabbins, tandis que la dernière clause est conforme à une opinion différente, <b>laissons</b> la mishna <b>enseigner</b> explicitement : <b>Selon la déclaration de Rabbi Akiva, elle n'a aucun droit sur lui,</b> car cela représente une opinion différente.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

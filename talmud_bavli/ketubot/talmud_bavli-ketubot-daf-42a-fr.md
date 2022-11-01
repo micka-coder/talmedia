@@ -27,4 +27,4 @@ Abaye <b>a soulevé une objection à</b> Rabba à partir de la <i>baraita</i> su
 Par conséquent, en ce qui concerne l'offrande pour un faux serment en négation d'une réclamation monétaire, <b>le verset indique :</b> "Si quelqu'un pèche, et commet une faute contre le Seigneur <b>et traite faussement son prochain dans une affaire de dépôt ou de gage ou de vol ou a opprimé son prochain, ou a trouvé ce qui était perdu et le traite faussement, et jure un mensonge"</b> (Lévitique 5:21-22). <b>De même que</b> toutes ces <b>matières</b> énumérées dans le verset <b>sont uniques</b> en ce <b>qu'il s'agit d'obligations monétaires</b> égales en valeur à la perte que l'on a causée à un autre individu, <b>de même, </b> cette <i>halakha</i> s'applique à <b>toutes</b> les obligations <b>qui sont des créances monétaires</b>, ce qui <b>exclut ces</b> paiements d'un violeur, d'un séducteur, et autres, <b>car ce sont des amendes. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

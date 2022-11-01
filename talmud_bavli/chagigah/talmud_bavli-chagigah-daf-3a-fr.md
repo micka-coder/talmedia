@@ -57,4 +57,4 @@ Voyant que Rabbi Yehoshua était heureux d'entendre cette idée, Rabbi Yoḥanan
 Rabbi Elazar a expliqué : <b>Le Saint, béni soit-Il, a dit au peuple juif : Vous avez fait de Moi une entité uniqueÂ dans le monde,</b> comme vous m'avez distingué comme séparé et unique. <b>Et</b> donc <b>Je ferai de vous une entité unique dans le monde,</b> car vous serez une nation précieuse, choisie par Dieu. <b>Vous avez fait de Moi une entité unique dans le monde, comme il est écrit : Â "Â Ecoute, Israël, le Seigneur notre Dieu, le Seigneur est un"</b> (Deutéromoine 6:4). <b>Et</b> donc <b>Je ferai de toi une entité unique dans le monde, comme il est dit:</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

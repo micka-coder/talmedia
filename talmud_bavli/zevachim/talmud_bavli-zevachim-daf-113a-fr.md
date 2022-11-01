@@ -51,4 +51,4 @@ La Gemara répond : <b>Disons</b> que Rabbi Yoḥanan <b>parle</b> en utilisant 
 Rabbi Yoḥanan en déduit : <b>D'après</b> le fait <b>que</b> Rabbi Yehoshua <b>a dit cela,</b> est-ce que cela <b>ne veut pas dire qu'il n'y a pas eu</b> de tombes perdues à Jérusalem à cause du déluge, car le déluge n'y a pas eu lieu ? Reish Lakish répond : <b>Et selon votre raisonnement, il n'y avait pas non plus ceux qui ont été tués par Nabuchodonosor,</b> dans et autour de Jérusalem, qui ont été mentionnés par Rabbi Yehoshua ? Il y en avait certainement, puisque Nabuchodonosor a tué de nombreuses personnes à Jérusalem. <b>Plutôt,</b> il y <b>avait, et</b> d'autres <b>enlevaient</b> les corps. <b>Ici aussi,</b> en ce qui concerne les morts du déluge, <b>il y avait, et</b> d'autres <b>enlevaient</b> les corps. <b>Et</b> il est possible de se demander : <b>S'ils ont été enlevés,</b> pourquoi faut-il s'inquiéter qu'il puisse y avoir une impureté à la place de la génisse rouge,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara rejette cette déduction : <b>Non,</b> on ne peut pas citer une preuve
 <b>Et</b> si tel est le cas, <b>que signifie la <i>baraita</i> lorsqu'elle affirme que celui qui tire un bénéfice d'une offrande <i>piggul</i> <b>toujours</b> reste soumis aux <i>halakhot</i> de mauvais usage ? <b>C'est</b> ce que la <i>baraita</i> <b>nous enseigne</b> par cette phrase, que la <i>halakha</i> est <b>conforme</b> à l'avis <b>du Rav Giddel, car le Rav Giddel a dit</b> que <b>Rav a dit : Le fait d'asperger</b> le sang d'une <b>offrande</b> avec une intention <b><i>piggul</i></b> ne retire pas</b> l'offrande <b>du statut d'être soumise aux <i>halakhot</i> de <b>mauvais usage,</b> dans le cas d'offrandes de l'ordre le plus sacré. <b>Et</b> de même, une telle aspersion <b>ne fait pas entrer</b> les portions sacrificielles des offrandes de moindre sainteté <b>dans</b> le statut de sujet des <i>halakhot</i> de <b>misuse.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

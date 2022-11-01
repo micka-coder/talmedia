@@ -24,4 +24,4 @@ Nous avons appris dans la mishna : On peut boire n'importe quoi le Chabbat <b>sa
 <b>Et</b> nous avons également appris l'existence d'un <b><i>kos ikarin</i></b> dans la mishna. La Gemara demande : <b>Qu'est-ce qu'un <i>kos ikarin</i> ? Rabbi Yoḥanan dit : Qu'on <b>apporte le poids d'une <i>zuz</i> de gomme d'Alexandrie, et le poids d'une <i>zuz</i> d'alun, et le poids d'une <i>zuz</i> de safran de jardin, et qu'on <b>les broie ensemble. </b> La procédure <b>pour</b> traiter <b>une <i>zava</i></b> est qu'elle doit boire ces <b>trois</b> ingrédients <b>avec du vin,</b> et elle sera guérie de son émission <b>et ne deviendra pas stérile. Pour</b> traiter la <b>jaunisse</b>, il faut boire <b>deux</b> de ces ingrédients <b>avec de la bière ; cependant, on en deviendra stérile</b>. Il a été dit que <b>pour</b> traiter <b>une <i>zava</i>,</b> elle doit boire ces <b>trois</b> ingrédients <b>avec du vin</b> et elle sera guérie de son émission <b>et ne deviendra pas stérile. Et si</b> cela n'est <b>pas efficace</b>, <b>qu'on apporte trois</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

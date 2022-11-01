@@ -24,4 +24,4 @@ Concernant la déduction selon laquelle la <i>halakha</i> selon laquelle lorsqu'
 La Guemara répond : L'obligation de mettre de côté <i>ḥalla</i> dans ce cas s'applique <b>par la loi rabbinique,</b> non par la loi de la Torah. Rava soulève une difficulté : <b>Si oui, dites la dernière clause</b> de cette même mishna : <b>Une personne peut accomplir son obligation avec</b> <i>la matza</i> de ce type de pâte <b>la première nuit de <b>Passover.</b> Puisque par la loi de la Torah cette mitzva doit être accomplie avec <i>la matza</i> faite à partir d'un grain, évidemment le principe selon lequel une substance qui confère une saveur à une plus grande quantité d'une substance différente affecte son statut s'applique par la loi de la Torah.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

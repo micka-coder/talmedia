@@ -69,4 +69,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> cette <i>halakha</i> à l'égard d
 La Guemara demande : <b>Qu'est-ce qu'une mitsva mineure</b> dans ce but ? <b>Rava bar Yitzḥak dit</b> que <b>Rav dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

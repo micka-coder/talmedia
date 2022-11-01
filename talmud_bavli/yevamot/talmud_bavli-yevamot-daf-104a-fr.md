@@ -48,4 +48,4 @@ La Gemara demande : <b>Et même si elles ne sont pas</b> toutes deux <b>libres</
 <strong>MISHNA:</strong> Si elle, c'est-à-dire, la <i>yevama</i>, <b>enlève</b> la chaussure <b>et crache</b> conformément à la <i>halakha</i> <b>mais n'a pas récité</b> le texte nécessaire, <b>sa <i>ḥalitza</i> est valide. </b> Si <b>elle a récité</b> le texte <b>et craché mais n'a pas retiré</b> la chaussure, <b>son <i>ḥalitza</i> est disqualifiée. </b> Si <b>elle a retiré</b> la chaussure <b>et récité</b> le texte <b>mais n'a pas craché, Rabbi Elazar dit : sa <i>ḥalitza</i> est disqualifiée,</b> tandis que <b>Rabbi Akiva dit : sa <i>ḥalitza</i> est valide.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

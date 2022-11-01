@@ -63,4 +63,4 @@ La Guemara demande maintenant : <b>Et d'après ce qui est initialement entré da
 La Guemara répond : <b>Voici ce qu'ils lui ont dit : Selon notre</b> propre opinion, <b>nous exigeons</b> <i>le teruma</i> qui est <b>le premier, dont les restes sont reconnaissables ; selon votre</b> opinion,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara demande : <b>Est-ce à dire que les pains d'une offrande de remercieme
 La Guemara demande : <b>Si</b> la consécration de la cour du Temple est dérivée de la consécration de Jérusalem, disons comme suit : <b>De même que là-bas,</b> en ce qui concerne la consécration d'une addition faite à Jérusalem, les pains utilisés dans la cérémonie sont <b>levés, de même ici,</b> en ce qui concerne la consécration d'une addition faite à la cour du Temple, le reste de l'offrande de repas doit être <b>levée.</b> La Gemara exprime sa surprise face à cette suggestion : <b>Et</b> comment pouvez-vous <b>comprendre</b> ceci ? <b>Est-ce qu'il y a une offrande de repas au levain ?</b> Une offrande de repas est toujours sans levain.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

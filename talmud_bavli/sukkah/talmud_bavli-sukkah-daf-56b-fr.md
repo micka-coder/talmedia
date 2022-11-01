@@ -24,4 +24,4 @@ La Guemara clarifie : <b>Accordé, selon celui qui a dit</b> que Bilga a été p
 La Gemara demande : <b>Et à cause</b> de Miriam' de <b>son père et de sa mère, doit-on pénaliser une montre entière ? Abaye a dit : Malheur au méchant, malheur à son voisin.</b> Pour conclure le tractat sur une note positive, la Gemara dit : <b>Bien pour le juste, bien pour son voisin, comme il est dit : "Tu dis du juste qu'il lui sera bon, car ils mangeront le fruit de leurs actions"</b> (Isaïe 3:10) ; les voisins d'un juste qui témoignent et reconnaissent le bien qui lui arrive bénéficieront de leur proximité avec lui.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

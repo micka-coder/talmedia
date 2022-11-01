@@ -57,4 +57,4 @@ La Guemara demande : <b>Et selon cette <i>tanna</i></b> du premier <i>baraita</i
 <b>Et Rabbi Yehoshua ben Levi dit</b> que la lecture correcte de la mishna est : <b>Ils ne sont pas en désaccord pour savoir si</b> la progéniture de la progéniture <b>est sacrifiée,</b> mais <b>plutôt</b> tous sont d'accord pour dire qu'ils <b>ne sont pas sacrifiés. Quelle en est la raison ? </b> C'est que <b>les rabbins ne sont pas d'accord avec Rabbi Eliezer seulement en ce qui concerne la progéniture, mais</b> en ce qui concerne la <b>production de la progéniture, à partir</b> du résultat de ses <b>actions</b> en ce qui concerne <b>cela,</b> c'est-à-dire, qu'il a retardé le sacrifice de l'offrande originale pendant une si longue période, <b>son intention est évidente qu'il veut élever</b> des troupeaux à partir de <b>cela.</b> Par conséquent, la <i>halakha</i> est que la progéniture de la progéniture ne peut être sacrifiée, afin de le dissuader dès le départ d'élever des troupeaux.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

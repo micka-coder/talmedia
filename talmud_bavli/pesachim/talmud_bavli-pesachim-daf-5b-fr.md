@@ -54,4 +54,4 @@ La Gemara répond : C'est <b>différent ici, car</b> le verset <b>dit : "On ne l
 <b>Certains énoncent</b> une version contraire de la discussion ci-dessus. <b>Cette</b> explication fonctionne <b>bien selon celui qui a dit :</b> Le statut juridique d'un <b>objet qui entraîne une perte monétaire</b> <b>n'est pas comme</b> celui de la <b>monnaie.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

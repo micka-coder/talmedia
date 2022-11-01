@@ -17,5 +17,5 @@ Si un homme qui était marié à quatre femmes décède, sa première femme a la
 ### michna 6
 Si un homme marié à deux femmes vend son champ, et que la première femme écrit à l'acheteur : "Je n'ai aucun droit sur toi", la seconde femme peut reprendre [le champ] à l'acheteur, et la première femme à la seconde, et l'acheteur à la première femme ; et ainsi de suite jusqu'à ce qu'elles trouvent un compromis entre elles. La même loi s'applique également à un créancier et à une femme créancière.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

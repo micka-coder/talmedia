@@ -54,4 +54,4 @@ Les Sages <b>parlent</b> de <b>tous ces</b> actes étant interdits même <b>en c
 § <b>Non fiancer</b> une femme : La Guemara demande : Pourquoi cela est-il catégorisé comme facultatif, indiquant qu'il ne s'agit pas d'une mitzva à part entière ? <b>Mais n'accomplit-on pas une</b> <b>mitzva</b> à part entière lorsqu'on se marie, car cela lui permet d'accomplir la mitsva d'être fécond et de se multiplier ? La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> que la mishna la catégorise comme facultative,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

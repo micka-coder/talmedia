@@ -39,4 +39,4 @@ La Gemara demande : <b>Mais puisque</b> Hillel <b>a appris</b> cette <b>analogie
 <b>Le Maître dit</b> plus loin dans le <i>baraita</i> : <b>Le lendemain, celui dont l'offrande pascale était un agneau planta</b> le couteau <b>dans sa laine,</b> et celui dont l'offrande pascale était une <b>chèvre le planta entre ses cornes</b> afin d'éviter de porter le couteau le Chabbat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

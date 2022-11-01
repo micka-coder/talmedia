@@ -29,5 +29,5 @@ Les colonnades ne sont pas [soumises aux lois] des lieux d'habitation non juifs.
 ### michna 10
 Dix endroits ne sont pas [soumis aux lois] des lieux d'habitation non-juifs : les tentes arabes, les cabanes de campagne (sukkot), les cabanes de campagne triangulaires, les abris à fruits, les abris d'été, une maison de gardien, les espaces ouverts d'une cour, une maison de bain, une armurerie, et l'endroit où les légions [campent].
 
->Crédit : Dr. Joshua Kulp
->License : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>License : CC BY-NC

@@ -36,4 +36,4 @@ La Gemara répond : <b>C'est</b> ce que la mishna <b>nous apprend : Que</b> celu
 La Gemara <b>souleve une objection</b> à partir d'un <i>baraita</i> : Si quelqu'un a abattu une offrande et <b>avait l'intention de placer</b> le sang <b>qui doit être</b> placé au-dessus</b> de la ligne rouge <b>en dessous</b> de la ligne rouge, ou de placer le sang qui doit être placé <b>en dessous</b> de la ligne rouge <b>au-dessus</b> de la ligne rouge, et qu'il avait l'intention de le faire <b>immédiatement,</b> c'est à dire. e., le même jour, l'offrande reste <b>adéquate.</b> Par conséquent, si <b>il avait ensuite l'intention</b> lors de l'accomplissement des autres rites...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

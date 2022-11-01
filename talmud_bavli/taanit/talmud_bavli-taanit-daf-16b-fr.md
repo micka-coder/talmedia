@@ -45,4 +45,4 @@ La Gemara répond : <b>Comme il est dit : " Lève-toi et bénis le Seigneur, ton
 § La mishna a enseigné : Rabbi Yehuda dit : L'animateur de la prière <b>n'avait pas besoin de réciter</b> les passages des <b>Remembrances</b> et des <i>Shofarot</i>. Au lieu de cela, il a récité des versets traitant de la famine et de la souffrance. <b>Rabbi Adda de Jaffa a dit : Quelle est la raison de Rabbi Yehuda ? </b> Rabbi Yehuda soutient <b>qu'on récite les Souvenirs et <i>Shofarot</i></b>.
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

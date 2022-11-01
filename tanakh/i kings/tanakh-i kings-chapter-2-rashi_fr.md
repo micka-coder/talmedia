@@ -118,4 +118,4 @@
 <b>Le royaume fut ainsi établi, etc.</b> C'est-à-dire qu'il ne fut pas puni pour toutes ces [actions].
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

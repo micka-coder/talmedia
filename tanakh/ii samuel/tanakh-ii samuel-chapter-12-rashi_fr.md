@@ -79,7 +79,7 @@
 <b>Les rues.</b> Dans la boue des rues et c'est pourquoi Yonason a [aussi] traduit : "Il les traîna dans les rues".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -160,4 +160,4 @@
 <b>Les rues.</b> Dans la boue des rues et c'est pourquoi Yonason a [aussi] traduit : "Il les traîna dans les rues".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

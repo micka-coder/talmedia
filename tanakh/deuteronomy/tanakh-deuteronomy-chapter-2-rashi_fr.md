@@ -104,5 +104,5 @@
 <b> כָּל יַד נַחַל יַבֹּק .</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Tout le long de Wadi Yabok.
 <b>Tout ce qu'Hachem notre Dieu [nous a ordonné] - </b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>de ne pas capturer, nous l'avons laissé [non capturé]. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

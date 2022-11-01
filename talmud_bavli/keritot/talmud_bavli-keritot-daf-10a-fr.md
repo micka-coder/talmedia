@@ -54,4 +54,4 @@ La Gemara explique : <b>Et voici</b> ce que dit le <i>baraita</i> <b>:</b> On <b
 <b>Abaye dit : Viens</b> et <b>entends</b> une preuve à partir d'un <i>baraita</i> qui traite d'une femme qui a donné naissance à un mâle. Le verset dit : "Et elle restera dans le sang de purification trois jours et <b>trente</b> jours" (Lévitique 12:4). On <b>pourrait</b> avoir pensé qu'elle compte les jours <b>qu'ils soient continus ou dispersés. </b> Par conséquent, <b>le verset dit :</b> "Trois <b>jours</b> et trente jours", pour enseigner que <b>comme un jour est une période de temps entièrement continue</b>, <b>de même</b> tous les <b>trente</b> jours <b>doivent</b> être <b>continus.</b> Et <b>de quel avis s'agit-il ? <b>Si nous disons</b> que c'est <b>les rabbins,</b> cela ne peut pas être correct, car <b>les rabbins sont de</b> l'avis que...
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

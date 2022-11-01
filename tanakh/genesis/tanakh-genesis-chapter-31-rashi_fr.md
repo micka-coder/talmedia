@@ -173,5 +173,5 @@
 <b>Ses frères.</b> Ici לְאֶחָיו signifie, pour ses amis qui étaient avec Lavan. 
 <b>Manger du pain [un repas].</b> La nourriture, en général, est appelée לֶחֶם - pain, comme dans : "Il fit un grand festin", [ou] "Détruisons l'arbre avec ses fruits." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

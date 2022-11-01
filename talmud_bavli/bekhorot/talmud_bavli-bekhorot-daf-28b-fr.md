@@ -51,4 +51,4 @@ La Guemara répond : Rabbi Akiva <b>énonce une</b> raison <b>et</b> ajoute <b>u
 <strong>MISHNA :</strong> Dans le cas d'un individu <b>qui se fait payer pour être celui qui examine les animaux premier-né</b> pour déterminer s'ils sont tachés, <b>on ne peut pas abattre</b> le premier-né <b>sur la base de sa</b> décision, <b>à moins qu'il n'ait été un expert</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

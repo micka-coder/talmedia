@@ -36,4 +36,4 @@ A propos des lois de deuil pour une personne intègre et un érudit de la Torah,
 <b>Et Rabbi Ḥiyya bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit :</b> Si <b>l'un des frères meurt,</b> <b>l'autre est mort.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

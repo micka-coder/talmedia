@@ -69,7 +69,7 @@ La Gemara déduit de cette <i>baraita</i> : <b>Et</b> même selon <b>Rabbi Akiva
 La Gemara conteste cette affirmation : <b>Mais le vol</b> d'un Gentil est-il autorisé ? N'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon a dit</b> que <b>Rabbi Akiva a enseigné cette question quand il venait de Zephirin : D'où vient</b> qu'il est <b>interdit</b> de <b>vendre un Gentil ?</b> C'est du fait que <b>le verset dit</b> à propos d'un Juif qui a été vendu comme esclave à un Gentil : <b>"Après avoir été vendu, il peut être racheté"</b> (Lévitique 25:48),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Part 1
 <b>Mais</b> si le défendeur <b>se trouve en ville,</b> le tribunal ne l'ostracise <b>pas</b> pour n'avoir pas répondu à une convocation transmise par l'intermédiaire d'une femme ou d'un voisin, <b>comme on dit :</b> Peut-être <b>ils ne lui ont pas parlé</b> de la convocation du tribunal, <b>comme ils se sont dit</b> : Puisque le défendeur est en ville, <b>un agent du tribunal</b> l'a déjà <b>trouvé et lui a dit.</b> Par conséquent, ces messagers officieux ne remettront pas du tout la convocation du tribunal au défendeur.
 
@@ -140,4 +140,4 @@ La Gemara déduit de cette <i>baraita</i> : <b>Et</b> même selon <b>Rabbi Akiva
 La Gemara conteste cette affirmation : <b>Mais le vol</b> d'un Gentil est-il autorisé ? N'est-il pas enseigné</b> dans une <i>baraita</i> : <b>Rabbi Shimon a dit</b> que <b>Rabbi Akiva a enseigné cette question quand il venait de Zephirin : D'où vient</b> qu'il est <b>interdit</b> de <b>vendre un Gentil ?</b> C'est du fait que <b>le verset dit</b> à propos d'un Juif qui a été vendu comme esclave à un Gentil : <b>"Après avoir été vendu, il peut être racheté"</b> (Lévitique 25:48),
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

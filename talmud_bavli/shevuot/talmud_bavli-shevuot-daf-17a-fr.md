@@ -27,4 +27,4 @@
 Rabbi Zeira explique son objection : <b>Accordé, si vous dites</b> qu'il est <b>appris</b> comme une tradition que l'on est passible de s'attarder pendant une certaine <b>mesure</b> de temps, et s'il ne s'est pas attardé pendant le temps qu'il faut pour se prosterner et quitter le Temple par le chemin le plus court, il est exempté, alors <b>on peut trouver</b> un cas où le prêtre aurait pu servir en état d'impureté sans devenir passible d'être puni de <i>karet</i>. Le cas est <b>lorsqu'il s'est dépensé</b> et qu'il est sorti très rapidement par le <b>chemin le plus court</b> après avoir <b>exécuté un service</b> en état d'impureté, de sorte que le temps total qu'il a passé dans le Temple a été inférieur au temps qu'il lui aurait fallu normalement pour saluer et sortir par le chemin le plus court. Dans ce cas, il est exempté de la peine de <i>karet</i>, et ne peut être puni que par la mort de la main du Ciel pour avoir accompli le service du Temple en étant impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

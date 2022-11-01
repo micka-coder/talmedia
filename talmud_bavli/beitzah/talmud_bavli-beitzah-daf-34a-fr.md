@@ -36,4 +36,4 @@ De même, <b>On ne peut pas tailler</b> le sommet des feuilles reliées au <b>l�
 <strong>MISHNA :</strong> <b>Et Rabbi Eliezer a encore énoncé</b> la clémence suivante : <b>Une personne peut se tenir au-dessus</b> d'objets en <b>stockage,</b> tels que des produits qu'elle a, pour une raison quelconque, précédemment mis de côté pour être utilisés,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

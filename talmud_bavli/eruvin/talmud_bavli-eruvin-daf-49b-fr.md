@@ -42,4 +42,4 @@ La manière dont sont mesurées les deux mille coudées fait l'objet d'une dispu
 Par conséquent, si <b>il vient mesurer</b> deux mille coudées <b>à partir du nord</b> de l'arbre pour savoir s'il peut ou non se rendre chez lui, en raison de l'incertitude quant à l'endroit précis où il a établi sa résidence, <b>on mesure</b> la distance <b>pour lui</b> rigoureusement <b>à partir du sud. </b> Et de même, si <b>il vient à mesurer</b> la distance de son domicile <b>par le sud, on mesure</b> la distance <b>pour lui par le nord.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

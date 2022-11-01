@@ -24,4 +24,4 @@ La Guemara répond : Il <b>est nécessaire</b> de citer les deux cas. C'est <b>p
 <b>Dans la Sourate, ils ont enseigné</b> les déclarations de Rav et de Shmuel <b>de cette manière,</b> comme indiqué ci-dessus. <b>Dans la Pumbedita, ils ont enseigné</b> leurs déclarations <b>comme ceci : Rav Yirmeya bar Abba dit :</b> Après la mort de Rav, la question suivante <b>a été envoyée de la salle d'étude de Rav à Shmuel : Que notre maître nous enseigne :</b> En ce qui concerne <b>une personne sur son lit de mort qui a écrit</b> un acte de transfert concédant <b>tous</b> de <b>ses biens à d'autres personnes, et celles-ci ont effectué un acte d'acquisition, quelle est</b> la <i>halakha</i> ? Shmuel <b>leur a répondu</b> : <b>Après</b> l'accomplissement d'un acte d'<b>acquisition</b>, <b>rien</b> ne peut effectuer une rétractation du don.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

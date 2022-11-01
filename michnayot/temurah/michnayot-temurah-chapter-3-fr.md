@@ -14,5 +14,5 @@ Mais une nedavah [offrande volontaire] ne peut-elle pas également être une ola
 ### michna 5
 Le substitut d'un premier-né et d'un animal soumis à la dîme, leurs petits et les petits de leurs petits jusqu'à la fin des temps, ils sont tous traités comme un premier-né et un animal soumis à la dîme, et sont mangés par les propriétaires lorsqu'ils sont tachés. Quelle est la différence entre la dîme d'un premier-né et d'un animal [d'une part] et les autres dédicaces [d'autre part] ? Toutes les dédicaces [souillées] sont vendues au marché, tuées au marché et pesées à la livre, mais pas un premier-né et un animal soumis à la dîme. Elles [les autres dédicaces] et leurs substituts sont rachetés, mais pas un premier-né et un animal soumis à la dîme. Elles [les autres dédicaces] viennent de l'extérieur du pays [vers le pays], mais pas un premier-né ni un animal soumis à la dîme. Si toutefois ils proviennent [de l'extérieur de la terre sainte] sans tache, ils sont offerts, s'ils sont tachés, ils sont mangés par leurs propriétaires avec leurs taches. Rabbi Shimon : quelle en est la raison ?   Parce qu'un premier-né et un animal soumis à la dîme ont un remède où qu'ils se trouvent, alors que toutes les autres dédicaces, bien qu'une tare se soit produite en elles, restent saintes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

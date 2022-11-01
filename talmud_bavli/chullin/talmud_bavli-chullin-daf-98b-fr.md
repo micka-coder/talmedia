@@ -36,4 +36,4 @@ La Gemara explique : <b>Est-ce à dire</b> que <b>nous apprenons</b> que la nour
 <b>Rava a énoncé</b> une explication alternative de ce terme : C'est-à-dire, qui apparaît dans le <i>baraita</i> à propos du bélier du nazirite : Cette limitation <b>est nécessaire uniquement pour</b> le principe selon lequel le statut halakhique de la <b>saveur</b> de l'aliment interdit est <b>comme</b> celui de sa <b>substance.</b> Si la saveur de l'aliment <b>sacrificiel</b> est absorbée par un autre aliment, cela rend cet aliment <b>interdit,</b> c'est-à-dire qu'il n'est pas annulé. Par conséquent, le <i>baraita</i> <b>nous enseigne qu'ici,</b> dans le cas du bélier du nazirite, le reste du bélier est <b>permis</b> même aux non-prêtres.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

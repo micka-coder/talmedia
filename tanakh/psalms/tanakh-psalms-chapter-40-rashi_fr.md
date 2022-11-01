@@ -63,4 +63,4 @@
 <b>Que... pense à moi</b> Heb  יחשב'. Qu'il prenne garde à moi pour penser à ma pauvreté et à mon indigence, pour me sauver. Pensa en français, penser.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -90,4 +90,4 @@ En marge de cette question de l'accomplissement d'un acte comme un signe fortuit
 <b>Celui qui désire partir en voyage et veut savoir s'il reviendra chez lui doit entrer dans une maison sombre. S'il voit</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

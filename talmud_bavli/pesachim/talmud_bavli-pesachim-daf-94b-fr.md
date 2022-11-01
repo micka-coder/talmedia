@@ -39,4 +39,4 @@ La Guemara demande : <b>Selon l'avis de qui</b> <b>est celui que Rabbi Yitzḥak
 Il a été enseigné dans la mishna que <b>Rabbi Yosei lui a dit : Par conséquent,</b> il y a un point sur la lettre <i>heh</i>. <b>Il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yosei HaGelili dit :</b> Si le verset avait dit simplement : " Un <b>voyage lointain," on</b> en <b>conclut</b> qu'il signifie la distance d'au moins <b>une marche de deux ou trois jours.</b> Cependant, <b>quand il est dit</b> plus loin : "Mais l'homme rituellement pur <b>et qui n'est pas en voyage"</b> (Nombres 9:13) et ne précise pas un voyage lointain, <b>il enseigne que depuis le seuil de la cour et au-delà est appelé un voyage,</b> et que l'exemption n'est pas limitée à celui qui est en voyage lointain comme le premier verset semblait l'impliquer.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -24,4 +24,4 @@ La Gemara demande : <b>Et partout où ils sont séparés en ce qui concerne les 
 La Gemara demande : <b>D'après</b> le fait <b>que cette dernière clause</b> se réfère à <b>un type</b> d'aliment <b>et</b> un cas où les deux moitiés d'une olive-bulk ont été préparées dans <b>deux plats,</b> comme expliqué ci-dessus,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

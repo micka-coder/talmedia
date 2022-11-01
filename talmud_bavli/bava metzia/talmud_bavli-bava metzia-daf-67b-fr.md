@@ -39,4 +39,4 @@ La Gemara relate : <b>Rav Kahana, et Rav Pappa, et Rav Ashi ne consommeraient pa
 <b>Mar Zutra a dit : L'explication</b> de la pratique <b>de celui qui consomme</b> le produit <b>avec une déduction</b> du montant du prêt est <b>comme dans</b> le cas <b>d'un champ ancestral,</b> c'est-à-dire un champ que l'on hérite de ses ancêtres au sein de ses possessions familiales en Eretz Yisrael. La Torah stipule que celui qui consacre son champ ancestral peut le racheter au trésor du Temple en échange d'une <i>sela</i>, soit quatre dinars, pour chaque année restant jusqu'au Jubilé (voir Lévitique 27:16-19). La comparaison est la suivante : En ce qui concerne <b>un champ ancestral,</b> n'est-il pas <b>non</b> le cas où <b>même s'il consomme des produits abondants</b> au fil des années, néanmoins, <b>le Miséricordieux déclare</b> dans la Torah .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

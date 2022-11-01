@@ -66,4 +66,4 @@ A la lumière de cette discussion, la Gemara demande : <b>Et que l'intention</b>
 La Guemara explique que l'on ne tire pas cette déduction <i>a fortiori</i>, car le verset <b>dit :</b> "Et si l'on en mange du tout <b>le troisième jour,</b> c'est un <i>piggul</i> ; il ne sera pas accepté" (Lévitique 19:7), et les Sages ont exposé ce verset à propos de la <i>halakha</i> d'intention lors de l'abattage d'une offrande.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

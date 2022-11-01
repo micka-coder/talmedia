@@ -45,4 +45,4 @@ La Guemara commente : <b>Selon l'avis de qui</b> cette décision ? Elle est <b>c
 <strong>GEMARA:</strong> La Gemara demande : <b>Et combien est</b> un <b>petit</b> montant ? <b>Rabbi Asi dit :</b> C'est <b>même une figue sèche, à condition qu'il l'ait mangée d'une manière digne</b> du propriétaire du produit et qu'il ne l'ait pas mangée en arrachant le produit. Il a été <b>dit</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

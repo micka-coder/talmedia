@@ -36,4 +36,4 @@ La Guemara soulève une difficulté : <b>Mais Rav Huna dit un verset</b> comme s
 Puisque Ulla soutient que les animaux consacrés pour l'autel peuvent être associés à une consécration aux prêtres, il est évident qu'il soutient également qu'ils peuvent être associés à une consécration pour l'entretien du Temple, car même Rav Huna est d'accord qu'ils peuvent être associés à une telle consécration. La Guemara demande donc : <b>Et est-ce que Ulla</b> a réellement <b>dit cela ? Mais Ulla n'a-t-il pas dit</b> que <b>celui qui associe un holocauste</b> à une consécration <b>pour l'entretien du Temple n'a que le délai</b> de...
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

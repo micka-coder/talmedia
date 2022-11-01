@@ -30,4 +30,4 @@ En revanche, la mishna relate : <b>Et lorsqu'on donna à Rabbi Tsadok moins d'un
 <strong>GEMARA:</strong> La Gemara s'interroge : La mishna cite-t-elle <b>un incident pour contredire</b> la <i>halakha</i> citée dans la mishna précédente selon laquelle on peut manger ou boire dans le cadre d'un repas occasionnel en dehors de la <i>sukka</i> ? L'incident impliquant Rabban Yoḥanan ben Zakkai et Rabban Gamliel indique que l'on ne peut rien manger en dehors de la <i>sukka</i>. La Guemara répond : La mishna est <b>incomplète,</b> car il lui manque un élément significatif, <b>et elle enseigne ce qui suit : Si l'on cherche à s'imposer une rigueur</b> et à ne rien manger en dehors de la <i>sukka</i>, <b>il</b> peut <b>être rigoureux, et il n'y a pas</b> d'élément de <b>présomption</b> dans l'adoption de cette rigueur. <b>Et</b> il y avait <b>aussi un incident</b> soutenant cette décision : <b>On apporta un plat cuisiné à Rabban Yoḥanan ben Zakkai</b> pour qu'il <b>guste, et à Rabban Gamliel</b> on apporta <b>deux dattes et un seau d'eau,</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

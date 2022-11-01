@@ -24,4 +24,4 @@ La Gemara demande : <b>Mais</b> il y a le cas de <b>la première nuit de Fête</
 Après avoir soulevé la question de l'ordre correct des bénédictions pour le <i>kiddush</i> lors d'une Fête qui a lieu juste après Chabbat, la Gemara aborde <b>la</b> question <b>même. </b> En ce qui concerne <b>une Fête qui a lieu après Chabbat, le Rav dit</b> que l'ordre correct des bénédictions suit l'acronyme <b><i>yod</i>, <i>kuf</i>, <i>nun</i>, <i>heh</i> : </b> Vin [<i>yayin</i>], <i>kiddush</i>, bougie [<i>ner</i>], et <i>havdala</i> ; <b>et Shmuel a dit</b> l'ordre approprié est <b><i>yod</i>, <i>nun</i>, <i>heh</i>, <i>kuf</i> : </b> Vin [<i>yayin</i>], bougie [<i>ner</i>], <i>havdala</i>, et <i>kiddush</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

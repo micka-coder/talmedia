@@ -66,4 +66,4 @@ En ce qui concerne une personne qui <b>mort</b> un jour de fête, <b>il les a en
 La Gemara demande : <b>Est-ce le cas ? Rabbi Yehuda bar Sheilat n'a-t-il pas dit</b> que <b>Rabbi Asi a dit : Il y eut un incident dans la synagogue</b> de la colonie de <b>Maon lors d'une Fête adjacente au Chabbat.</b> Une personne mourut,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

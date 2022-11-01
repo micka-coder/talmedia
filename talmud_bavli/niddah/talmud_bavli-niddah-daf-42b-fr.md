@@ -69,4 +69,4 @@ Rava développe : Si la carcasse d'un <b>animal rampant</b> est trouvée <b>dans
 Rava dit encore : S'il y avait la carcasse d'un <b>animal rampant dans les plis de</b> son corps, <b>et qu'il apportait</b> l'animal rampant qui se trouvait dans le pli <b>dans l'espace aérien</b> d'un grand récipient en terre, tel qu'un <b>four,</b> le four est ainsi rendu <b>impur,</b> comme l'est le <i>halakha</i> lorsqu'un animal rampant est placé dans son espace aérien. La Gemara demande : N'est-ce pas évident ? La Gemara répond : <b>Tu dis</b> que comme le <b>Miséricordieux</b> le déclare à propos de l'impureté des animaux rampants : "Et tout récipient en terre cuite dans <b>l'intérieur duquel</b> l'un d'eux est tombé, tout ce qui s'y trouve sera impur, et vous le briserez" (Lévitique 11:33), cela enseigne que l'impureté ne s'applique que si l'animal rampant est tombé à l'intérieur du récipient lui-même,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

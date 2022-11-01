@@ -36,4 +36,4 @@ La Gemara demande : <b>Disons</b> que ce qui suit <b>soutient</b> l'opinion de R
 Les Sages <b>ont dit à</b> Rabbi Yehuda : <b>Mais le nombre de tous</b> les animaux ne finit-il pas par diminuer le huitième</b> jour, puisque les autres jours on sacrifie deux béliers et quatorze moutons et que le huitième jour c'est un bélier et sept moutons ? Rabbi Yehouda <b>leur a répondu :</b> Le <b>huitième</b> jour d'assemblée <b>est une fête en soi. De même que les sept jours de la fête</b> de <i>Sukkot</i> <b>requièrent une offrande, et un chant</b> chanté par les Lévites, <b>et une bénédiction</b> unique à la fête de <i>Sukkot</i>, <b>et</b> il y a une mitzva de <b>séjourner la nuit</b> à Jérusalem après le premier jour de Fête, <b>Aussi,</b> le <b>huitième</b> jour <b>exige une offrande, et un chant</b> chanté par les Lévites, <b>et une bénédiction</b> unique au huitième jour d'assemblée, <b>et</b> il y a une mitzva de <b>séjourner la nuit</b> à Jérusalem à sa conclusion.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

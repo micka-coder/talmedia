@@ -27,4 +27,4 @@ La Gemara demande : <b>Devons-nous dire</b> que <b>la mishna est</b> en accord a
 <b>Abaye a dit : On</b> peut <b>même dire</b> que la mishna est conforme à l'avis de <b>Rabbi Meir,</b> car il y a une différence entre les cas : Dans <b>cette</b> <i>baraita</i>, il s'agit d'un cas <b>où</b> l'individu qui a fait le vœu <b>savait que l'année était prolongée,</b> c'est-à-dire déclarée comme année bissextile, et le désaccord concerne quel Adar est considéré comme principal. A l'inverse, <b>cette mishna</b> fait référence à un cas <b>où il ne savait pas</b> qu'il s'agit d'une année bissextile et qu'il y a deux mois de Adar. Par conséquent, lorsqu'il a fait référence à Adar, tous s'accordent à dire qu'il voulait parler du premier Adar.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

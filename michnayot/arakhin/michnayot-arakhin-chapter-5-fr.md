@@ -17,5 +17,5 @@ Si quelqu'un a dit :] "Ce bœuf sera un olah [un holocauste entier]", ou "Cette 
 ### michna 6
 A l'égard de ceux qui ont fait un vœu de valeur : on prend sur eux un gage. A l'égard de ceux qui sont obligés d'apporter une hatat ou un asham : ils ne prennent pas de gage. A l'égard de ceux qui sont tenus d'apporter une olah ou un shelamim : ils s'engagent. Et même s'il n'est pas expié s'il n'est pas disposé [à payer son obligation], comme il est dit : "volontairement "(Lévitique 1:3), ils le contraignent jusqu'à ce qu'il dise : "Je suis d'accord". Il en va de même pour les documents de divorce : ils le contraignent jusqu'à ce qu'il dise : "Je suis d'accord".
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

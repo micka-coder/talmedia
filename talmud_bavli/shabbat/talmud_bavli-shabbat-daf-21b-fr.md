@@ -39,4 +39,4 @@ La Gemara demande : <b>Qu'est-ce que Hanouka,</b> et pourquoi allume-t-on des lu
 En ce qui concerne l'essence de la question <b>Rav Kahana dit</b> que <b>Rav Natan bar Manyumi a enseigné au nom</b> du <b>Rabbi Tanḥum :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

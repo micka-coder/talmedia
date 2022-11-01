@@ -146,7 +146,7 @@
 <Sans personne pour éteindre... Jonathan rend : Et personne n'aura pitié d'eux.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La vision d'Isaïe, fils d'Amoz</b> dit Rabbi Levi : Nous avons une tradition de nos ancêtres selon laquelle Amoz et Amaziah, roi de Juda, étaient frères.
 <b>Ce qu'il a vu concernant Juda et Jérusalem</b> Or, n'a-t-il pas prophétisé sur de nombreuses nations, à savoir la prophétie de la Babylonie (ch. 13), la prophétie de Moab (ch. 15) ? Vous apprenez ainsi que ce n'est pas le début du Livre, et que ce n'est pas pour cette prophétie que le Livre reçoit son nom. Ainsi, nous avons appris dans la Baraitha de la Mechilta (Exod. 15 : 9,10) : "L'année de la mort du roi Ozias" (6:1) est le début du Livre, mais il n'y a pas de début et de fin dans l'ordre [c'est-à-dire que l'ordre des chapitres n'est pas une indication de l'ordre chronologique. (D'autres lisent : Il n'y a pas de début et de fin dans le Livre-Parshandatha]. Le contexte le prouve, car, le jour du tremblement de terre (voir Zach. 14:5), le jour où Ozias est devenu metzora (voir 2 Chron. 26:19), il a été dit : "Qui dois-je envoyer et qui ira pour nous ?" Et j'ai répondu : " Me voici, envoie-moi " (6, 8). Nous apprenons que c'était là le début de sa mission, et que cette prophétie a été dite ensuite. Et à ce sujet seulement, il est dit : ce qu'il a vu concernant Juda et Jérusalem, tout comme l'Écriture dit à propos de chaque nation : " la prophétie de telle ou telle nation. " Ici aussi, l'Écriture écrit : " ce qu'il a vu concernant Juda et Jérusalem. " Comme il s'agit de reproches sévères, il les appelle "chazon", qui est la plus sévère des dix expressions par lesquelles on appelle la prophétie, comme il est dit dans Gen. Rabbah (44, 7), et la preuve en est le verset (infra 21, 2) : "Une prophétie sévère (חָזוּת) m'a été racontée."
@@ -294,4 +294,4 @@
 <Sans personne pour éteindre... Jonathan rend : Et personne n'aura pitié d'eux.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

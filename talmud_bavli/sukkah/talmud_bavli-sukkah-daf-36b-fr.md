@@ -33,4 +33,4 @@ La mishna poursuit : <b>Et dans un grand</b> <i>etrog</i>, la mesure maximale es
 Les sages lui <b>Répondirent :</b> Ce n'est pas une déduction <i>a fortiori</i>, car <b>toute</b> <i>a fortiori</i> <b>inférence dont on déduit initialement qu'elle est rigoureuse, mais qu'en fin de compte</b> elle est <b>allégée, n'est pas une</b> <i>a fortiori</i> <b>inférence légitime. </b> Si, en fin de compte, la rigueur conduit à l'indulgence, c'est tout le fondement de l'inférence qui est sapé.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

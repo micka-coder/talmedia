@@ -72,4 +72,4 @@ La Guemara répond : <b>Mais</b> même sans la <i>baraita</i>, la déclaration d
 <b>Au contraire,</b> aucune de ces dérivations n'est superflue, car <b>trois versets sont écrits</b> qui enseignent au <i>halakha</i> qu'une offrande pascale qui n'est pas sacrifiée la veille de Pessah est sacrifiée comme une offrande de paix.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

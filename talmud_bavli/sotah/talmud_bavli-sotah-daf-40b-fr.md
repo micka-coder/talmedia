@@ -30,4 +30,4 @@ La Gemara répond : <b>Comme l'a dit Rav Ḥisda</b> dans un contexte similaire 
 La Guemara <b>souleve une objection</b> d'une <i>baraita</i> (<i>Tosefta</i> 7:13) : <b>Et où</b> le Grand Prêtre <b>lit-il</b> le rouleau de la Torah ? Il le lit <b>dans la <b>cour du Temple</b>. Rabbi Eliezer ben Ya'akov dit:</b> Il le lit <b>sur le Mont du Temple, comme il est dit:</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

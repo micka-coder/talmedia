@@ -78,4 +78,4 @@
 <b>Fortifiez-vous, et Il donnera du courage à votre cur</b> comme vous voyez ce qu'Il a fait pour moi, pour me sauver parce que j'espérais en Lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

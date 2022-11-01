@@ -23,5 +23,5 @@ Si le vent a soufflé des vignes [de sorte qu'elles pendent au-dessus] des cér�
 ### michna 8
 Une graine semée dans un pot de fleur perforé est interdite dans une vigne. [Dans] un pot non perforé, n'est pas interdit [comme kilayim]. Rabbi Shimon dit : les deux sont interdits mais aucun n'interdit. Celui qui porte un pot de fleurs perforé dans un vignoble, si [ce qui est semé dedans] pousse d'un deux centième, il est interdit.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

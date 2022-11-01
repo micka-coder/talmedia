@@ -60,4 +60,4 @@ La Gemara demande : <b>Cette</b> affaire <b>elle-même</b> est <b>difficile</b> 
 <b>Rav Ashi a dit :</b> Ce n'est pas la compréhension correcte de la lettre. Il s'agissait plutôt</b> d'une affaire relative aux <b>halakhot</i> d'amendes, et en Babylonie</b> les tribunaux <b>ne statuent pas</b> dans les affaires relatives aux <b>halakhot</i> d'amendes,</b> car il n'y a pas de juges ordonnés là-bas ; de tels Sages ne se trouvent qu'en Eretz Yisrael. Par conséquent, il était nécessaire d'envoyer le cas à Eretz Yisrael. <b>Et</b> le fait <b>qu'ils aient envoyé</b> la lettre à Mar Ukva en utilisant <b>cette</b> formulation, comme s'il était capable de juger l'affaire lui-même, était <b>pour faire honneur à Mar Ukva,</b> qui était un Sage et un leader. Ils lui ont laissé entendre qu'il ne pouvait pas juger ce cas et qu'il devait donc envoyer le défendeur en Eretz Yisrael.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

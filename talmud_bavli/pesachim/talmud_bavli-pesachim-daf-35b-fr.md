@@ -60,4 +60,4 @@ La Guemara répond : <b>En fait,</b> il est question d'un cas <b>où ils ont ét
 La Guemara exprime sa surprise face à cette <i>baraïta</i>. <b>Et l'interdiction du pain levé, où est-elle passée ?</b> En d'autres termes, l'interdiction : "Vous ne mangerez pas de pain levé" ne s'applique-t-il pas également aux produits non levés ? <b>Rav Sheshet a dit :</b> Conformément à <b>l'opinion de qui</b> <b>c'est</b> <i>baraita</i> ? <b>C'est</b> conformément à l'avis de <b>Rabbi Shimon, qui a dit : Une interdiction ne prend pas effet là où une autre interdiction</b> existe déjà. Aucune interdiction supplémentaire ne peut s'appliquer à un objet qui est déjà interdit, par exemple, le grain non égrené. Par conséquent, l'interdiction du pain levé ne prend pas effet sur les produits non lavés. <b>Comme il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

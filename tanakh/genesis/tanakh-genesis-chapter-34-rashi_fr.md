@@ -89,5 +89,5 @@
 <b>Une prostituée.</b> [Signification] abandonnée.
 <b>Notre soeur.</b> Onkelos le traduit par "A notre soeur". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

@@ -32,4 +32,4 @@
 <b>Parce que les fondations sont détruites</b> Si les fondations sont détruites par eux, qu'a accompli le Juste du monde ? La séquence des versets, cependant, ne concorde pas avec le Midrash.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

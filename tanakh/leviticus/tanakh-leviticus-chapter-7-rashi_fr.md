@@ -115,5 +115,5 @@
 ### passuk 37
 <b>Et pour les installations-sacrifices,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour le jour de l'installation du <i>kehunoh</i>. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

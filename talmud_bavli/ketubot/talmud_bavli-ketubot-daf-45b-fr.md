@@ -42,4 +42,4 @@ La Guemara commente : Ces <i>tanna'im</i> <b>sont en désaccord par rapport à l
 La Guemara demande : <b>Et Rabbi Yehuda soutient-il</b> qu'en ce qui concerne <b>la flagellation, il est flagellé dans tous les cas ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> que <b>Rabbi Yehuda dit :</b> Si <b>il a eu des rapports</b> avec sa femme avant de la diffamer, <b>il est flagellé;</b> mais si <b>il n'a pas eu de rapports</b> avec sa femme avant de la diffamer, <b>il n'est pas flagellé ? </b> En réponse à cette question, <b>Rav Naḥman bar Yitzḥak a dit :</b> Lorsque Rabbi Yehuda a dit qu'il <b>est flagellé</b> même s'il n'avait pas encore eu de rapports sexuels avec sa femme, il faisait référence aux <b>coups de fouet pour rébellion [<i>mardout</i>],</b> qui s'appliquent <b>selon la loi rabbinique</b>. Comme il a menti, diffamé sa femme et mis sa vie en danger en l'accusant d'un péché passible de la peine de mort, le tribunal le punit, mais cette punition ne s'applique pas par la loi de la Torah.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

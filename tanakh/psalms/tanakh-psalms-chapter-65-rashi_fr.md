@@ -51,4 +51,4 @@
 <b>et les vallées sont enveloppées de maïs</b> Grâce à la pluie, les vallées seront enveloppées de grains. Alors les créatures pousseront des cris de joie et chanteront à cause de l'abondante bénédiction.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

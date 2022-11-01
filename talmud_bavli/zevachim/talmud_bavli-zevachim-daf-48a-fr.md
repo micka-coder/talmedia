@@ -69,4 +69,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> que <b>celui qui collecte</b> le s
 La Gemara demande : <b>Nous avons constaté</b> que l'offrande doit être abattue au nord et le sang recueilli au nord <b>pour</b> accomplir la <b>mitzva</b> de manière optimale. <b>D'où vient</b> que si l'on abat l'offrande ou recueille le sang ailleurs, l'offrande est <b>disqualifiée ?</b> La Gemara répond : <b>Il est écrit</b> dans <b>un autre verset</b> qui parle d'une offrande de péché de chèvre apportée par un roi qui pèche : "Et il posera sa main sur la tête du bouc <b>et l'égorgera dans le lieu où l'on égorge l'holocauste</b> devant l'Eternel ; c'est un sacrifice pour le péché" (Lévitique 4, 24). <b>Et c'est enseigné</b> dans une <i>baraita</i> : <b>Où est égorgé l'holocauste ? Dans le nord. Ce</b> sacrifice pour le péché d'un roi doit <b>également</b> être égorgé <b>au nord</b> de la cour du Temple.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

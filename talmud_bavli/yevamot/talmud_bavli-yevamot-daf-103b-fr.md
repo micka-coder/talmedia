@@ -57,4 +57,4 @@ La Gemara demande : Si votre interprétation ci-dessus est correcte, à savoir q
 La Guemara cite la décision finale de Rava : <b>Rava dit</b> que <b>la <i>halakha</i> est la même pour une sandale en quarantaine, une sandale confirmée et une sandale de culte idolâtre,</b> c'est-à-dire, une sandale qui a été placée sur une statue de culte idolâtre ; <b>on ne doit pas accomplir <i>ḥalitza</i></b> avec elle, <b>et si elle a accompli <i>ḥalitza</i></b> avec elle, <b>son <i>ḥalitza</i> est valable. </b> Si, par contre, il portait une sandale <b>qui</b> fonctionnait comme <b>une offrande de culte idolâtre,</b> en ce sens qu'elle était apportée en cadeau à une idole ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

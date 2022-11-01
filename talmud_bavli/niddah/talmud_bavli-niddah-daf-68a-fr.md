@@ -45,4 +45,4 @@ La Gemara demande : <b>À quelle</b> clause de la mishna s'applique cette disput
 La Guemara explique leurs opinions. <b>Rav dit :</b> Cette femme est <b>un certain</b> plus grand <b><i>zava</i>, puisque dès le départ elle s'est trouvée</b> être <b>rituellement impure, et maintenant elle s'est trouvée</b> aussi <b>rituellement impure.</b> Par conséquent, elle est <b>définitivement impure. Et Levi dit :</b> Cette femme est <b>un incertain</b> plus grand <b><i>zava</i>,</b> car on peut <b>dire</b> que peut-être <b>elle a cessé</b> d'avoir des saignements <b>entre</b> le matin de son septième jour de menstruation, lorsqu'elle s'est trouvée impure pour la première fois, et plusieurs jours plus tard, à la deuxième occasion où elle s'est trouvée impure.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

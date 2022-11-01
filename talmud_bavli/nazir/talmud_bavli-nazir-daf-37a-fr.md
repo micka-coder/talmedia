@@ -48,4 +48,4 @@ La Gemara répond : <b>Plutôt,</b> la nouveauté est <b>que si l'on trempe</b> 
 La Guemara demande : <b>Et Rabbi Akiva aussi,</b> il est certainement d'accord que la <i>halakha</i> de la <b>viande</b> cuite <b>dans le lait est une nouveauté.</b> Comment peut-il déduire un principe général de ce cas ? <b>Au contraire,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

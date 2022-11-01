@@ -42,4 +42,4 @@ Les Sages <b>Disent :</b> Dans <b>toute affaire</b> qui engendrera un bénéfice
 La Gemara propose une autre suggestion : <b>Et si tu disais</b> qu'elle devrait <b>vendre</b> son contrat de mariage <b>à celui qu'elle a blessé</b> afin de recevoir l'argent <b>pour l'avantage financier,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

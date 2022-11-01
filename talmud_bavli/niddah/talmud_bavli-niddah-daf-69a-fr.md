@@ -66,4 +66,4 @@ La Guemara revient pour discuter du commentaire de Rava par rapport à la décis
 <b>Disons plutôt</b> que <b>ceci</b> est ce que signifie le <i>baraita</i> : Si une femme dit : <b>J'ai vu</b> un écoulement de sang <b>mais je ne sais pas combien</b> de jours <b>j'ai vu</b> le sang, et de même je ne sais pas <b>si j'ai vu</b> l'écoulement <b>pendant les jours de menstruation ou</b> si <b>j'ai vu</b> l'écoulement <b>pendant les jours de <i>ziva</i>,</b> dans ce cas, le tribunal lui ordonne <b>d'immerger quinze immersions. </b> La raison de ces immersions est la suivante : Si <b>elle se présente devant nous pendant le jour, nous lui donnons sept</b> immersions, à partir de cette nuit, pour enlever l'impureté <b>des menstruations.</b> N'importe laquelle de ces sept nuits peut être la nuit qui suit le dernier de ses jours de menstruation.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

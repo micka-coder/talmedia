@@ -14,5 +14,5 @@ Les vœux non spécifiés sont interprétés de manière stricte, mais s'ils son
 ### michna 5
 Si quelqu'un fait un vœu par un herem et dit : "Je n'ai fait un vœu que par un herem (un de la mer)" ; [S'il dit] "Par un korban", et dit ensuite : "Je n'ai fait un vœu que par les korbanot (cadeaux) des rois" ; [S'il dit] "Attention ! Moi-même (atzmi), je suis un korban", et ensuite il dit, "Je n'ai fait de voeu que par l'etzem (os) que je garde pour faire le voeu" ; En ce qui concerne ces [vœux], il ne faut pas s'enquérir [d'un sage pour les rompre], mais s'ils s'en enquièrent, ils sont punis et traités avec rigueur, ce sont les paroles de Rabbi Meir. Mais les Sages disent : on leur donne une ouverture pour d'autres raisons, afin qu'ils n'agissent pas à la légère avec les vœux.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

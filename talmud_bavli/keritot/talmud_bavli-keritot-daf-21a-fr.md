@@ -75,4 +75,4 @@ Le Rav a soulevé une difficulté auprès de Rabbi Ḥiyya : <b>Si donc,</b> que
 Rabbi Ḥiyya <b>a dit à</b> Rav : <b>Cette déclaration</b> s'applique <b>aux aliments en général, qui ne contiennent pas moins d'une olive-bulle d'une carcasse animale. Mais ici, où</b> l'aliment <b>contient moins d'une olive-bulk d'une carcasse animale,</b> la <i>halakha</i> est différente : <b>Puisque</b> il serait impur avec une forme sévère d'impureté rituelle <b>si l'on ajoutait à</b> la quantité de carcasse animale pour qu'il y ait un <b>boulot d'olive</b> complet, il <b>n'a pas besoin</b> de contact avec un liquide pour <b>être rendu susceptible</b> d'impureté. En tout état de cause, cette <i>halakha</i> selon laquelle moins d'une olive-bulk d'une carcasse se combine avec moins d'un œuf-bulk de nourriture pour égaler un œuf-bulk complet susceptible d'impureté alimentaire, ne s'applique qu'à la chair d'un animal,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

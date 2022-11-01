@@ -123,4 +123,4 @@
 <b>Du monde au monde</b> De ce monde au monde à venir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

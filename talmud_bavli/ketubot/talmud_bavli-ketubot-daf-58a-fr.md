@@ -33,4 +33,4 @@ La Guemara demande : <b>Quelle est</b> la différence <b>entre</b> les avis de R
 La Guemara commente : <b>Accordé, selon</b> l'avis de <b>Ulla, la première</b> décision que les Sages ont enseignée dans la version initiale de la mishna, à savoir qu'elle ne peut pas prendre part à la <i>teruma</i> dans la maison de son père immédiatement après les fiançailles, est due au fait que Ulla s'inquiétait de <b>l'éventualité</b> que quelqu'un lui <b>verse une coupe</b> de vin <i>teruma</i> alors qu'elle serait <b>dans la maison de son père. Et cette dernière</b> décision, selon laquelle elle ne peut pas prendre part au <i>teruma</i> jusqu'à ce qu'elle entre effectivement dans le dais nuptial, même après que le moment du mariage soit arrivé, est <b>due au souci de <b>abrogation.</b> Par conséquent, il y a deux raisons différentes pour les deux décisions différentes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -87,4 +87,4 @@ La Guemara objecte : <b>Mais Rabbi Elazar, fils de Rabbi Chimon, ne tient-il pas
 <b>Rabbi Yosei bar Avin dit :</b> L'interdiction d'écorcher des pieds les animaux consacrés disqualifiés est un <b>décret rabbinique, de peur que l'on</b> ne retarde l'abattage des animaux jusqu'à ce qu'il trouve quelqu'un pour acheter la peau, et ce faisant, il <b>élevera de nombreux troupeaux</b> d'animaux consacrés disqualifiés, ce qui conduira probablement à une transgression des interdictions de tondre ou de travailler les animaux consacrés disqualifiés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

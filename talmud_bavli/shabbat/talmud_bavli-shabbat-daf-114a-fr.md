@@ -36,4 +36,4 @@ Nous avons appris dans la mishna que <b>Rabbi Yishmael dit : On peut plier</b> l
 <b>Lorsque vous</b> analyserez la question, vous <b>trouverez</b> que vous pouvez <b>dire que, conformément à la déclaration de Rabbi Yishmael, les vœux et les offrandes libres sont offerts lors d'une Fête.</b> Si les sacrifices qui accomplissent les vœux peuvent être reportés à un jour de semaine mais sont néanmoins apportés lors d'une Fête, certainement les graisses de Chabbat peuvent être offertes lors d'une Fête qui la suit. <b>Et le verset est nécessaire pour</b> permettre d'offrir des graisses de Chabbat lors de <b>Yom Kippour</b> qui la suit. Cependant, <b>selon Rabbi Akiva les vœux et les offrandes volontaires ne sont pas apportés lors d'une Fête, et</b> donc <b>le verset est nécessaire pour permettre</b> de sacrifier les graisses de Chabbat <b>lors d'une Fête</b> qui la suit, mais à Yom Kippour c'est interdit. <b>Rabbi Zeira a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

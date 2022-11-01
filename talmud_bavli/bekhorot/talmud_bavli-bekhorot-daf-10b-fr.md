@@ -99,4 +99,4 @@ La Guemara répond : <b>En fait,</b> le verset <b>ne les compare pas</b> et la r
 <b>Et les rabbins</b> qui ne sont pas d'accord avec lui tiennent que <b>cette</b> verset.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

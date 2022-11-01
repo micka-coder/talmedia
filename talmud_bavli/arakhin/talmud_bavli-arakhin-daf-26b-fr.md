@@ -63,4 +63,4 @@ En revanche, disons que <b>Rabbi Yehuda et Rabbi Shimon considèrent</b> que l'<
 <b>Rav Naḥman bar Yitzḥak a dit : En général, selon Rabbi Shimon et Rabbi Yehuda, l'acquisition</b> d'un bien pour <b>son produit équivaut</b> à <b>l'acquisition du bien lui-même.</b> Par conséquent, ils exigent également la dérivation du verset pour enseigner que si le père est mort avant que le fils ne consacre le champ, celui-ci est traité comme un champ ancestral et non comme un champ acheté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

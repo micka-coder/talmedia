@@ -32,5 +32,5 @@ Le grossiste doit nettoyer ses mesures une fois tous les trente jours et le mén
 ### michna 11
 Rabban Shimon ben Gamaliel a dit :  "Quand est-ce que c'est ainsi (qu'on doit nettoyer les mesures) ?  En ce qui concerne les mesures liquides, mais en ce qui concerne les mesures sèches, ce n'est pas nécessaire. Un commerçant doit laisser la balance descendre d'un tefah [paume] [à l'avantage de l'acheteur]. S'il lui a donné une mesure exacte, il doit lui donner son surpoids, un dixième pour les mesures liquides et un vingtième pour les mesures sèches. Lorsque l'usage est de mesurer avec de petites mesures, ils ne doivent pas mesurer avec de grandes mesures et lorsque l'usage est de mesurer avec de grandes mesures, ils ne doivent pas mesurer avec de petites mesures. Si l'on a l'habitude d'aplanir [ce qui est dans la mesure], on ne doit pas l'entasser, et si l'on a l'habitude de l'entasser, on ne doit pas l'aplanir.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

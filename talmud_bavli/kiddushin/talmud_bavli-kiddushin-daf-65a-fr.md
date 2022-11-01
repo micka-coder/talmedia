@@ -69,4 +69,4 @@ Le Rav Naḥman répond : <b>Et selon votre raisonnement,</b> qu'il y avait un s
 <b>Au contraire,</b> il est clair que la mishna ne fait pas référence au cas où il y a un seul témoin, et <b>ici nous avons affaire</b> à un cas <b>où il y a des témoins de</b> leur <b>séclusion, mais il n'y a pas de témoins de</b> leur engagement dans un <b>rapport sexuel.</b> La dispute est basée sur les implications de cette réclusion. <b>Beit Shammai considèrent : </b> On ne <b>pas</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

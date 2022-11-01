@@ -42,4 +42,4 @@ Au contraire, <b>Il s'agit ici d'un miroir métallique, et</b> c'est <b>comme le
 Nous avons appris dans la mishna que <b>une personne peut tirer au sort ses enfants</b> et les membres de sa famille à table le Chabbat pour savoir qui recevra quelle portion de repas. La Guemara en déduit : <b>Avec ses enfants et les membres de sa famille, oui,</b> cela est permis, <b>mais avec une autre</b> personne, cela ne l'est <b>pas. Quelle est la raison</b> de cette situation ? La Guemara explique que c'est <b>comme Rav Yehuda</b> a dit que <b>Shmuel a dit,</b> car <b>Rav Yehuda a dit</b> que <b>Shmuel a dit : Les membres d'un groupe</b> qui mangent ensemble le Chabbat ou une Fête et <b>qui sont particuliers les uns avec les autres</b> que personne ne reçoive une plus grande portion que quelqu'un d'autre <b>sont en violation</b> des interdictions de <b>mesurer, et peser, et compter</b> les marchandises le Chabbat ou une Fête, <b>et</b> ils sont également en violation <b>de</b> l'interdiction de <b>prêter et rembourser le jour d'une Fête.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

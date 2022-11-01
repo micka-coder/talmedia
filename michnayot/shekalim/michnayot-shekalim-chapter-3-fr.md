@@ -11,5 +11,5 @@ Les membres] de la maison de Rabban Gamaliel avaient l'habitude d'entrer [dans l
 ### michna 4
 Après avoir fait la première appropriation, il couvre [ce qui reste] avec des couvertures de cuir. [Après qu'il ait fait la] deuxième appropriation, il couvre [ce qui reste] avec des couvertures de cuir. Mais après la troisième appropriation, il ne couvre pas ce qui reste. De peur qu'il n'oublie et ne fasse une [nouvelle] appropriation de shekels qui avaient déjà été appropriés. Il fera la première appropriation au nom de la Terre d'Israël, et la seconde au nom des villes environnantes, et la troisième au nom de Babylone et au nom de Médée et au nom des [autres] pays lointains.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

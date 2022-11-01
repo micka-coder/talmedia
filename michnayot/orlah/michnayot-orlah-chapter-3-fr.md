@@ -26,5 +26,5 @@ Comment cela ? Si les noix se sont fêlées, ou si les grenades ont éclaté, ou
 ### michna 9
 Orla douteuse : en terre d'Israël, c'est interdit, en Syrie, c'est permis, et en dehors de la terre, on peut descendre et acheter [à un non-Israélite] tant qu'on ne l'a pas vu cueillir. Une vigne plantée de légumes [qui sont des kilayim], et ils [les légumes] sont vendus à l'extérieur : en terre d'Israël, ils sont interdits, et en Syrie, ils sont permis ; hors du pays, on peut descendre et les acheter tant qu'on ne les a pas cueillis [de sa propre main]. Les [produits] nouveaux sont interdits par la Torah en tous lieux. Et orlah est une halachah. Et les kilayim sont un décret des scribes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

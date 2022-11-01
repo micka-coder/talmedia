@@ -36,4 +36,4 @@ La Guemara discute de la relation entre ce différend et les déclarations préc
 <b>Selon cette formulation que Abaye a énoncée : Si vous suivez</b> la <b>présomption</b> que le sang trouvé dans la section intérieure est définitivement impur, tandis que le sang trouvé dans la section extérieure est définitivement pur, cela <b>appuie</b> l'opinion du <b>Rabbi Ḥiyya,</b> dont la décision selon laquelle le sang est définitivement impur est comprise comme se référant au sang trouvé dans la section intérieure.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

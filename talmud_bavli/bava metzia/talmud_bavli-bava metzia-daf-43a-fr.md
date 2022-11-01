@@ -39,4 +39,4 @@ La Gemara développe : <b>Quelle est la raison</b> de la différence ? <b>Puisqu
 La Guemara clarifie cette difficulté : <b>Et par rapport à quel</b> cas cela fait-il référence ? <b>Si</b> c'est <b>par rapport à</b> un cas où il y a eu <b>une baisse</b> de valeur avant son enlèvement, <b>y a-t-il quelqu'un qui dit</b> que le dépositaire paie le prix inférieur ? <b>Mais n'avons-nous pas appris</b> dans une mishna : <b>Tous les voleurs paient en fonction</b> de la valeur de l'objet volé au <b>moment du vol,</b> et pas moins que cela ? <b>Et si</b> c'est <b>en ce qui concerne</b> un cas où il y avait <b>une augmentation</b> de la valeur avant son enlèvement, <b>c'est</b> l'avis de <b>Beit Shammai,</b> car celui qui détourne un dépôt paie toujours la valeur supérieure, et non l'avis de Beit Hillel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

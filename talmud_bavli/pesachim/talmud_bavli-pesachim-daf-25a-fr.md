@@ -39,4 +39,4 @@ La Gemara répond : <b>En fait,</b> il s'agit d'un cas où <b>il y a un danger, 
 <b>Lorsque Ravin est venu</b> de l'Eretz Yisrael en Babylonie, il <b>a dit</b> que <b>Rabbi Yoḥanan a dit : On</b> peut <b>se soigner avec n'importe quelle substance</b> dont on ne peut tirer de bénéfice, <b>sauf pour l'idolâtrie ou les relations sexuelles interdites</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ La Gemara conteste : <b>Dit la dernière clause</b> de la même mishna comme sui
 La Guemara demande : <b>La paille rance n'est-elle pas bonne pour l'argile</b> dans la fabrication des briques ; pourquoi peut-on supposer qu'elle sera utilisée comme combustible ? La Guemara répond : La mishna fait référence à la paille <b>qui a des épines,</b> qui ne peut être pétrie en argile. Elle ne sera certainement utilisée que pour l'allumage.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

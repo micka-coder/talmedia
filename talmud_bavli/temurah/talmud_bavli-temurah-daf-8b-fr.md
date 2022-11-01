@@ -42,4 +42,4 @@ Mar Zutra <b>leur dit : Mais ne tenez-vous pas</b> comme <b>ce que nous avons ap
 La Gemara présente <b>une version alternative</b> de cette réponse finale. <b>Ils ont dit à</b> Mar Zutra : <b>Il y a</b> l'israélite <b>ne donne pas de paiement</b> au prêtre pour qu'il accepte la responsabilité de prendre soin de l'animal. <b>Ici,</b> l'Israélite <b>donne un paiement</b> au prêtre, car nous avons acheté l'animal. Et <b>Qu'est-ce que</b> vous diriez</b> à cette revendication ? Dirais-tu que peut-être le <b>prêtre a baissé</b> le prix de l'animal <b>pour</b> nous, <b>car le prêtre pense que lorsque</b> nous <b>aurons une autre offrande de premier-né</b> nous <b>lui donnerons,</b> et que cela a donc l'apparence de l'inconvenance ? Ce n'est <b>pas</b> une préoccupation, <b>car il pense :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

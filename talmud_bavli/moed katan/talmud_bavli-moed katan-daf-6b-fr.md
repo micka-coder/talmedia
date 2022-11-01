@@ -48,4 +48,4 @@ La Guemara développe la <i>halakha</i> enregistrée dans la mishna. <b>Les Sage
 <b>Rav Yeimar bar Shelamya a dit au nom de Abaye : Et ce</b> conseil ne fonctionne que dans certaines circonstances : <b>Lorsque</b> les fourmilières <b>sont</b> situées <b>sur deux</b> côtés opposés d'une rivière, lorsqu'il n'y a pas de pont</b> reliant les deux côtés, <b>quand il n'y a pas</b> même <b>une planche</b> de pont sur l'eau, <b>et quand il n'y a pas</b> même <b>une corde</b> tendue à travers la rivière. S'il existe un lien quelconque entre les deux côtés de la rivière, les fourmis des deux nids ont toutes les chances de se reconnaître et de ne pas se battre.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

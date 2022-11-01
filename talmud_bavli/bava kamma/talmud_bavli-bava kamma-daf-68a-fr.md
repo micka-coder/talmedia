@@ -78,4 +78,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de l'opinion du 
 La Guemara ajoute : <b>Et Rabbi Elazar soutient également</b> que <b>l'obligation</b> d'un voleur de payer le quadruple ou le quintuple s'applique s'il le vend <b>après</b> le <b>désespoir</b> du propriétaire de récupérer son animal volé, <b>comme le dit Rabbi Elazar:</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

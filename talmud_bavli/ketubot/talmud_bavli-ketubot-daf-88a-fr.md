@@ -33,4 +33,4 @@ La Guemara demande : <b>De qui</b> les orphelins peuvent-ils percevoir un paieme
 § La mishna enseigne : <Rabbi Shimon dit : Chaque fois qu'elle réclame son contrat de mariage,</b> les héritiers lui font prêter serment. La Gemara demande : <b>À quelle</b> déclaration de la mishna <b>Rabbi Shimon</b> fait-il référence ? <b>Rabbi Yirmeya dit : </b> Il se réfère <b>à cette</b> déclaration : <b>Et celle qui</b> vient <b>récupérer</b> son contrat de mariage <b>alors qu'elle n'est pas en</b> <b>présence de son mari ne peut le récupérer</b> <b>que par</b> <b>un serment. </b> Cela implique que la <i>halakha</i> <b>n'est pas différente</b> si elle vient réclamer de l'argent aux orphelins <b>pour leur subsistance, et</b> elle <b>n'est pas différente</b> si elle demande le paiement <b>pour</b> son <b>contrat de mariage. Et Rabbi Shimon en vient à dire</b> que <b>quand elle réclame son contrat de mariage</b> les <b>héritiers</b> peuvent <b>lui faire prêter serment</b> qu'elle n'a rien pris des leurs.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

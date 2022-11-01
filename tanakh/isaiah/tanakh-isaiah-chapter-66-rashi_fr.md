@@ -90,7 +90,7 @@
 <b>et abhorrant</b> Heb. דֵרָאוֹן, une expression de mépris. Jonathan, cependant, le rend en deux mots : assez (דֵּי) voir (רְאִיָה), jusqu'à ce que les justes disent à leur sujet : Nous avons assez vu.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Les cieux sont Mon trône</b> Je n'ai pas besoin de votre Temple.
 <b>C'est la maison</b> qui convient à Ma Shechinah.
@@ -182,4 +182,4 @@
 <b>et abhorrant</b> Heb. דֵרָאוֹן, une expression de mépris. Jonathan, cependant, le rend en deux mots : assez (דֵּי) voir (רְאִיָה), jusqu'à ce que les justes disent à leur sujet : Nous avons assez vu.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

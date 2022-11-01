@@ -42,4 +42,4 @@ La Guemara remet en question cette affirmation : Les <b>mesures</b> sont-elles u
 La mesure halakhique déterminée par une <b>vigne est la quantité d'un quart-<i>log</i> de vin pour un nazirite.</b> Un nazirite, à qui il est interdit de boire du vin, est passible de flagellation s'il boit cette mesure.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

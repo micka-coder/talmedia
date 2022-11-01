@@ -60,7 +60,7 @@ La Gemara répond : <b>Non,</b> la mesure de trois jours <b>est nécessaire</b> 
 <b>Ceci est également enseigné</b> dans une <i>baraita</i> : Si <b>on a trouvé une cape ou une hache</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Il n'y aura pas d'indigent parmi vous"</b> (Deutéronome 15:4). Ce verset peut être compris comme un commandement, indiquant qu'il incombe à chaque individu de s'assurer qu'il ne deviendra pas nécessiteux. Par conséquent, <b>vos</b> biens <b>prennent le pas sur</b> les biens <b>de toute</b> autre <b>personne.</b>
 
@@ -122,4 +122,4 @@ La Gemara répond : <b>Non,</b> la mesure de trois jours <b>est nécessaire</b> 
 <b>Ceci est également enseigné</b> dans une <i>baraita</i> : Si <b>on a trouvé une cape ou une hache</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

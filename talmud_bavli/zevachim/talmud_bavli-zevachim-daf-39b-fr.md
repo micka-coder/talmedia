@@ -15,4 +15,4 @@ La Gemara demande à nouveau : <b>Et</b> comme le verset ne précise pas quels a
 La Guemara répond : <b>Vous devez dire</b> l'argument logique suivant : Je <b>disqualifie</b> l'offrande <b>en</b> l'absence des sept <b>aspersions, car</b> ces sept aspersions <b>sont indispensables dans tous les cas,</b> comme cela sera expliqué (40a), <b>et je rends</b> l'offrande <b>adéquate en</b> l'absence de <b>placer les mains</b> sur la tête de l'offrande <b>et</b> en l'absence du versement du <b>reste</b> du sang sur la base de l'autel, <b>comme</b> ceux-ci <b>ne sont pas indispensables dans tous les cas,</b> et il est donc raisonnable de conclure qu'ils ne sont pas indispensables ici non plus.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

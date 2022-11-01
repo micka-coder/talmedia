@@ -72,4 +72,4 @@ La Gemara demande : <b>Pourquoi ai-je</b> besoin du terme inclusif <b>"quiconque
 § Puisque les <i>halakhot</i> des descendants de Noé ont été mentionnées, une discussion complète des mitzvot noahides est présentée. <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : <b>Les descendants de Noé,</b> c'est-à-dire toute l'humanité, <b>ont reçu l'ordre</b> d'observer <b>sept mitzvot :</b> La mitzva d'établir des tribunaux de <b>jugement ; et</b> l'interdiction de <b>blesser,</b> c'est-à-dire, maudire, <b>le nom</b> de Dieu ; et l'interdiction de <b>l'adoration des idoles ;</b> et l'interdiction des <b>rapports sexuels interdits ; et</b> l'interdiction de <b>l'effusion de sang ; et</b> l'interdiction du <b>vol ; et</b> l'interdiction de manger <b>un membre d'un animal vivant</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

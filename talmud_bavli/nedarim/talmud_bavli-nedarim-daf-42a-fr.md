@@ -18,4 +18,4 @@ La Gemara demande : <b>Et</b> comment pouvez-vous <b>le comprendre</b> de cette 
 <b>Et par ailleurs, n'avons-nous pas appris</b> dans une mishna (<i>Bava Kamma</i> 108b) <b>qu'une personne</b> peut <b>rendre interdit un objet en sa possession</b> et l'interdiction reste en vigueur <b>lorsqu'il quitte sa possession ?</b> C'est <b>comme nous l'avons appris</b> dans une mishna, qu'en ce qui concerne <b>celui qui dit à son fils : Le bénéfice de mes</b> biens est <b><i>konam</i> pour toi,</b> si le père <b>décède,</b> le fils <b>l'héritera.</b> Il ne tire pas de bénéfice des biens de son père, car après la mort ils ne lui appartiennent plus. Si le père a fait le vœu de rendre le bénéfice de ses biens interdits à son fils <b>pendant sa vie et à sa mort,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

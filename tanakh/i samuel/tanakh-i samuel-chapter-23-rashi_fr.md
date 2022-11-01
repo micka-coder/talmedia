@@ -70,4 +70,4 @@
 <b>Le "rocher des divisions"</b> Le coeur de Shaoul était divisé par deux pensées,</sup>6</sup><i class="footnote">ou bien cela peut faire référence à la division parmi les troupes de Shaoul pour savoir s'il fallait poursuivre David ou combattre les Philistins.-Radak</i> soit revenir pour sauver son pays des Philistins, soit poursuivre et attraper David ; ainsi rend le Targum Yonathan.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

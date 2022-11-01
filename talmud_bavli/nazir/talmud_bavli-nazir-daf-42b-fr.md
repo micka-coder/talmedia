@@ -30,4 +30,4 @@ La Guemara demande : Si oui, en ce qui concerne <b>l'impureté et l'entrée</b> 
 Alors que <b>là,</b> où il n'est responsable qu'une seule fois, il est question de celui qui était <b>dans un champ.</b> En d'autres termes, si un nazirite a touché un cadavre dans un champ et qu'il est ensuite entré dans un enclos contenant un cadavre alors qu'il était encore en contact avec le premier cadavre, il n'est pas responsable séparément pour cette entrée, car il était déjà rituellement impur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

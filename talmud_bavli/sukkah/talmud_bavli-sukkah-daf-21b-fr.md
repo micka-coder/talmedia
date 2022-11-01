@@ -39,4 +39,4 @@ La Gemara demande : <b>Quelle est</b> la différence pratique <b>entre eux ?</b>
 <b>Abaye a dit :</b> Les Sages ont <b>enseigné</b> ce différend <b>uniquement</b> dans le cas où <b>on a appuyé</b> la couverture sur le lit. <b>Cependant,</b> si <b>on a placé la toiture au dessus du lit,</b> c'est-à-dire qu'il a fixé des poteaux au lit et que la toiture est soutenue par ces poteaux, tout le monde est d'accord pour dire que la <i>sukka</i> <b>est apte. Quelle est la raison</b> pour laquelle elle est apte ? <b>Selon celui qui a dit</b> que la <i>sukka</i> est impropre <b>parce qu'elle manque de permanence,</b> cette <i>sukka</i> <b>a une permanence</b> car même si le lit est déplacé, la toiture bougera avec lui et ne s'effondrera pas. Et <b>Selon celui qui a dit</b> que la <i>sukka</i> est impropre <b>parce qu'il la soutient avec un objet susceptible d'impureté rituelle,</b> dans ce cas <b>il ne la soutient pas avec un objet susceptible d'impureté rituelle,</b> puisque la toiture n'est pas soutenue par le lit.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

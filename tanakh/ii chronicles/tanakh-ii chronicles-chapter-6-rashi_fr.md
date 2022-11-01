@@ -128,4 +128,4 @@
 <b>Ne fais pas reculer le visage de Ton oint</b> en ne me traitant pas avec bonté, et si ce n'est pas pour moi, fais-le pour Toi.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

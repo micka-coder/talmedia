@@ -42,4 +42,4 @@ La Guemara commente : <b>Il est enseigné</b> dans un <i>baraita</i> <b>conform�
 <b>Ameimar dit : Une fosse destinée</b> à contenir de la <b>alimentation pour animaux [<i>peira desuflei</i>] a quatre coudées de chaque côté</b> afin qu'il y ait suffisamment d'espace pour que les animaux se tiennent debout. La Gemara ajoute : <b>Et nous avons dit</b> ceci <b>seulement lorsque</b> la fosse <b>n'a pas d'entrée spéciale</b> pour y accéder, mais plutôt qu'on y accède de tous les côtés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

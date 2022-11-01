@@ -24,4 +24,4 @@ En resume, <b>Rav Pappa dit</b> que <b>la <i>halakha</i></b> est : Les aliments 
 La Guemara relate que les etudiants ont demande a Ben Zoma : Pourquoi les Sages ont-ils</b> dit</b> que les aliments <b>qui viennent en raison du repas pendant le repas, ne necessitent ni une benediction avant</b> de les manger ni apres</b> de les manger ? Il leur repondit : Parce que le pain les exempte.</b> Ils demanderent : <b>Si c'est le cas, le pain devrait aussi exempter le vin.</b> Pourtant, on recite une benediction sur le vin pendant le repas. La Guemara repond : <b>Le vin est different,</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

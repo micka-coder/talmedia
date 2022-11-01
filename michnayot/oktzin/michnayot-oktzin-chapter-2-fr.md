@@ -29,5 +29,5 @@ Un concombre planté dans un pot qui a grandi jusqu'à ce qu'il soit sorti du po
 ### michna 10
 Les récipients en bouse de vache ou en terre à travers lesquels les racines peuvent pénétrer, ne rendent pas les graines sensibles. Un pot de fleurs perforé ne rend pas les graines sensibles, mais s'il n'a pas de trou, les graines deviennent sensibles. Quelle doit être la dimension du trou ? De manière à ce qu'une petite racine puisse s'y frayer un chemin. S'il est rempli de terre à ras bord, il est considéré comme un cadre sans bord.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

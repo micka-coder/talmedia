@@ -54,4 +54,4 @@ La Guemara pose la question sous un autre angle : <b>Grâce, selon celui qui dit
 La Gemara demande : <b>D'où dérive-t-on</b> <b>que</b> Daniel était <b>plus grand que lui</b> ? La Gemara répond : C'est dérivé d'un verset, <b>comme il est écrit : "Et moi, Daniel, j'ai vu seul la vision, et les hommes qui étaient avec moi n'ont pas vu la vision ; mais un grand tremblement est tombé sur eux, et ils ont fui pour se cacher"</b> (Daniel 10:7). La Gemara demande : <b>"Et les hommes qui étaient avec moi n'ont pas vu la vision" ; et qui étaient</b> ces <b>hommes ? Rabbi Yirmeya, et certains disent Rabbi Ḥiyya bar Abba, dit : Cela</b> fait référence à <b>Haggai, Zacharie et Malachie,</b> qui étaient avec lui et qui n'ont pas vu. De toute évidence, Daniel était plus grand que ces prophètes, et à plus forte raison était-il plus grand que Néhémie, qui n'a jamais eu le privilège de prophétiser.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

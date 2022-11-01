@@ -72,4 +72,4 @@
 <b>Ce qui est inscrit dans une écriture véridique</b> le document du décret est véridique, mais pas un seul des princes célestes ne s'efforce de m'assister pour tout cela, sauf etc....
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

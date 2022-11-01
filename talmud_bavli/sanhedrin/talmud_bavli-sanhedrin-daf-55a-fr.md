@@ -57,4 +57,4 @@ La Guemara demande : <b>Mais</b> en ce qui concerne les <b>arbres</b> qui sont u
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution de la mishna au dilemme concernant un animal avec lequel un gentil a commis une bestialité : <b>Alternativement,</b> c'est <b>afin que</b> cet <b>animal ne passe pas par la place du marché, et</b> ceux qui le voient <b>diront : C'est</b> l'animal <b>à cause duquel untel a été lapidé,</b> et son existence fera honte à sa mémoire. <b>Quoi, n'est-ce pas</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

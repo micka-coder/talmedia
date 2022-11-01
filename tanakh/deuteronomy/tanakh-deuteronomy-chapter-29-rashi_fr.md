@@ -87,5 +87,5 @@
 ### passuk 28
 <b>Les [questions] cachées sont celles d'Hachem, notre Dieu.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Si vous deviez demander : " Qu'est-ce que nous sommes capables de faire ? ". Vous punissez la communauté pour les pensées d'un individu, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme il est dit : "Peut-être y a-t-il, parmi vous, etc." et après : "Ils verront les fléaux de ce pays." L'homme n'est-il pas ignorant des secrets de son prochain ? Je ne vous punirai pas pour l'impénétrable, qui est celui d'Hachem notre Dieu - Il punira cet individu. Cependant, ce qui est exposé est pour nous et notre postérité, d'éradiquer le mal de notre milieu. Si nous ne parvenons pas à appliquer la justice à leur encontre, c'est la communauté qui sera punie. Il y a des points sur les nôtres et ceux de nos enfants pour enseigner <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>que, même en ce qui concerne ce qui est exposé, la communauté n'a pas été punie jusqu'à ce qu'elle ait traversé le Yarden, lorsqu'elle s'est obligée par le serment au Mont Gerizim et au Mont Eival, et est devenue responsable les uns des autres. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

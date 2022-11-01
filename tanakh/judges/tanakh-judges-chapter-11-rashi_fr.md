@@ -104,4 +104,4 @@
 <b>S'affliger.</b> Pleurer.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

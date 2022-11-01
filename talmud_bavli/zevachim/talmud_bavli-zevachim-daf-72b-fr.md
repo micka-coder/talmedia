@@ -15,4 +15,4 @@ La mishna poursuit : Des interdictions différentes s'appliquent à ces articles
 La Guemara réitère sa question : <b>Cela marche bien selon</b> l'avis de <b>Reish Lakish, mais selon</b> l'avis de <b>Rabbi Yoḥanan, que peut-on dire ? </b> Selon son avis, puisque les animaux ne sont pas vendus exclusivement à l'unité, ils ne sont pas suffisamment significatifs. Par conséquent, un animal interdit doit être annulé à la majorité simple. <b>Rav Pappa dit :</b> Selon Rabbi Yoḥanan, <b>cette <i>tanna</i>,</b> qui dit qu'un animal interdit ne peut être annulé, <b>est</b> la <i>tanna</i> <b>de</b> la <i>halakha</i> concernant <b>une <i>litra</i> de figues sèches, qui dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

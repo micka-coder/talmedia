@@ -42,4 +42,4 @@ La Gemara explique le défi à partir de cette <i>baraita</i> : <b>Et ici, où i
 La Gemara rejette ce défi : <b>Ne dites pas</b> dans la <i>baraita</i> <b>que</b> la femme a certainement <b>jeté un nouveau-né non viable dans une fosse ; dites plutôt</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

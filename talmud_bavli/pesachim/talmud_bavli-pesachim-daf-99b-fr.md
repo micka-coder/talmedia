@@ -18,4 +18,4 @@ La Gemara demande : <b>Et la veille du Shabbat adjacent au <i>minḥa</i></b> te
 <b>Mar Zutra a dit : Qui nous dira que</b> cette version du <i>baraita</i> <b>est exacte ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

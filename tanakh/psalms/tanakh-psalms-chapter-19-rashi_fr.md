@@ -51,4 +51,4 @@
 <b>être acceptable</b> Pour t'apaiser et te calmer.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

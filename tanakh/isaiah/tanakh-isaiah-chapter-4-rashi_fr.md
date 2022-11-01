@@ -35,7 +35,7 @@ Et elles se saisiront de.
 <b>et de la pluie</b> la pluie qui tombe sur les méchants, comme de la manière indiquée dans Psaumes 11:6 : "Il fait pleuvoir sur les méchants des charbons ardents".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 Et elles se saisiront de.
 <b>Maintenant, sept femmes se saisiront d'un seul homme</b> à cause des nombreuses veuves.
@@ -72,4 +72,4 @@ Et elles se saisiront de.
 <b>et de la pluie</b> la pluie qui tombe sur les méchants, comme de la manière indiquée dans Psaumes 11:6 : "Il fait pleuvoir sur les méchants des charbons ardents".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

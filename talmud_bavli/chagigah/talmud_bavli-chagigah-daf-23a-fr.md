@@ -48,4 +48,4 @@ La Guemara poursuit : <b>Accordé, selon Rabbi Yehoshua, il est</b> constaté <b
 <b>Rav a dit :</b> En effet, Rabbi Eliezer n'exige pas le coucher du soleil pour les récipients achevés dans la pureté, mais il y a néanmoins un signe démonstratif du rejet de l'opinion des sadducéens,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

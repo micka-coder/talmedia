@@ -20,5 +20,5 @@ Un homme peut imposer un vœu nazirite à son fils, mais une femme ne peut pas i
 ### michna 7
 Un homme peut se raser [avec les offrandes mises de côté pour] la naziréité de son père, mais une femme ne peut pas se raser [avec les offrandes mises de côté pour] la naziréité de son père. Comment cela ? Si le père d'un homme a été naziréen, qu'il a mis de côté une somme d'argent pour [les sacrifices de] sa naziréité et qu'il est mort, et que [le fils] a dit : " Voici, je suis naziréen à condition que je puisse me raser avec l'argent de mon père " Rabbi Yose a dit : cet argent doit être utilisé pour les offrandes volontaires, cet homme ne peut pas se raser [avec les offrandes mises de côté pour] la naziréité de son père. Qui est celui qui peut se raser [avec les offrandes mises de côté pour] la naziréité de son père ? Celui qui était nazirite avec son père, et dont le père avait mis de côté une somme forfaitaire pour ses [sacrifices] nazirites et qui est mort.  Celui-là pourra se raser [avec les offrandes mises de côté pour] la naziréité de son père.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

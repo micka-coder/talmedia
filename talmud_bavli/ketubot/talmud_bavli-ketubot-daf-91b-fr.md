@@ -54,4 +54,4 @@ La Gemara note : <b>Et nous avons dit</b> cette décision uniquement dans un cas
 La Gemara relate une discussion similaire. Rami <b>bar Ḥama dit :</b> Si <b>Reuven a vendu un champ à Shimon sans garantie, et que Shimon est venu et a revendu</b> le champ <b>à Reuven,</b> mais qu'il l'a vendu <b>avec la garantie</b> que si le champ est repris, il compensera l'acheteur pour sa perte,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

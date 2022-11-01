@@ -30,4 +30,4 @@ La Guemara poursuit la déclaration de Huna bar Natan : Et <b>J'ai dit à</b> Am
 La Guemara explique : <b>Qu'est</b> la <i>halakha</i> de <b><i>pe'a</i></b> qui est affectée par la détermination du fait qu'il s'agit d'un ou de deux champs ? <b>Comme nous l'avons appris</b> dans une mishna (<i>Pe'a</i> 2:1) : <b>Et ceux-ci servent de barrière pour</b> l'objectif de <b><i>pe'a</i>,</b> c'est-à-dire que la présence de l'un d'entre eux divise un champ de sorte que chaque section constitue un champ distinct à partir duquel la <i>pe'a</i> doit être donnée indépendamment : <b>Un ruisseau</b> qui traverse le champ ; <b>et un canal;</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

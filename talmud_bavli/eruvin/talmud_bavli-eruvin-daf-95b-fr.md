@@ -66,4 +66,4 @@ La Guemara rejette cette idée : <b>Non, tout le monde est</b> de l'avis de <b>R
 <b>Et Rabban Gamliel soutient :</b> Pour accomplir une mitzva, <b>on n'a pas besoin d'intention.</b> Par conséquent, si l'on revêt deux paires de phylactères, on remplit son obligation avec l'une d'entre elles, mais on ne viole pas l'interdiction d'ajouter aux mitzvot avec l'autre. Pour ce faire, il devrait avoir l'intention spécifique d'accomplir une seconde mitzva avec la paire supplémentaire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

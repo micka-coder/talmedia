@@ -101,4 +101,4 @@
 <b>par mes portes</b> [être] le premier à entrer dans la salle d'étude et la synagogue et [le] dernier à en sortir.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

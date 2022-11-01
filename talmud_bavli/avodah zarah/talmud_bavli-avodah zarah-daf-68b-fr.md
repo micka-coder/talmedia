@@ -54,4 +54,4 @@ Rav Sheshet a répondu : <b>Et selon votre raisonnement,</b> dans lequel vous co
 <b>Un dilemme a été soulevé devant</b> les Sages :
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

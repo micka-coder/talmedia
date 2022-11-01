@@ -18,4 +18,4 @@ La Gemara demande : <b>Lorsque</b> on <b>dit</b> qu'un objet doit être <b>comme
 La Guemara répond : <b>Toute la mishna</b> est conforme à l'opinion de <b>Rabbi Yehuda, et</b> la mishna et le <i>baraita</i> expriment les opinions de <b>deux <i>tanna'im</i> conformément</b> à l'opinion de <b>Rabbi Yehuda.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

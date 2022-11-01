@@ -74,4 +74,4 @@
 <b>Mon Dieu les rejettera</b> Ce n'est pas une malédiction mais un constat. Il est destiné à les rejeter.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

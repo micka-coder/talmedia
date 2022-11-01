@@ -27,4 +27,4 @@
 <strong>GEMARA :</strong> Dans un cas <b>où</b> l'un est <b>proche</b> de l'autre, les <i>tanna'im</i> <b>ne sont pas en désaccord sur le fait qu'il est interdit</b> qu'ils travaillent ensemble. <b>Quand ils sont en désaccord,</b> c'est dans un cas <b>où</b> l'un est <b>distant</b> de l'autre. <Rabbi Meir dit : Nous émettons un décret</b> interdisant leur travail ensemble lorsque l'un est <b>distant</b> de l'autre, <b>en raison</b> de l'interdiction de leur travail ensemble lorsque l'un est <b>proche</b> de l'autre, <b>comme il relâche pour lui la terre devant lui. Et les rabbins soutiennent : Nous n'émettons pas de décret.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

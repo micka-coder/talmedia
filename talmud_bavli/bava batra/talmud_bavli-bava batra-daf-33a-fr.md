@@ -15,4 +15,4 @@ La Gemara raconte : <b>Un parent de Rav Idi bar Avin mourut et laissa un dattier
 Rav Idi bar Avin <b>dit à</b> Rav Ḥisda : La valeur des <b>produits qu'il a consommés</b> illégalement <b>depuis le jour</b> où il a pris possession de l'arbre <b>jusqu'à maintenant doit m'être restituée.</b> Rav Ḥisda <b>dit : </b> Est-ce <b>celui-là dont on <b>dit : C'est un grand homme ? Sur qui le Maître fonde-t-il</b> sa prétention à recevoir la valeur du produit ? <b>Sur cet</b> autre parent. <b>Mais il disait</b> jusqu'à ce point : <b>Je suis plus proche</b> en relation avec le défunt que lui. Par conséquent, vous n'avez la propriété de l'arbre qu'à partir du moment de son admission, et non à partir du moment où il a pris possession de l'arbre. La Gemara commente : <b>Abaye et Rava ne tiennent pas</b> conformément à <b>cette</b> opinion <b>du Rav Ḥisda,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

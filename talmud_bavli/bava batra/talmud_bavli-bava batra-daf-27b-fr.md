@@ -69,4 +69,4 @@ La Guemara répond : Il est <b>évident que la mesure des Rabbins</b> est <b>plu
 La Guemara répond : <b>Si</b> cela est appris <b>à partir de la mishna</b> seule, <b>je dirais</b> que le souci est que <b>peut-être un corbeau pourrait apporter</b> une source d'<b>impureté</b> et se percher sur les branches de l'arbre <b>et la jeter là. Et</b> si c'était la seule préoccupation, <b>un simple épouvantail [<i>bedaḥlulei</i>] serait suffisant</b> pour faire fuir les corbeaux et empêcher ce type d'impureté. Par conséquent, le <i>tanna</i> du <i>baraita</i> <b>nous enseigne</b> que le souci est dû à l'impureté transmise dans une tente.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

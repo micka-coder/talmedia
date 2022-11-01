@@ -30,4 +30,4 @@ Nous avons appris dans la mishna que l'on peut dire aux autres : Venez et sauvez
 <strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Rav a dit:</b> Si <b>un vêtement a pris feu d'un côté, on peut placer de l'eau sur son autre côté, et si</b> en conséquence le feu <b>s'éteint, il s'éteint. </b> La Guemara <b>souleve une objection</b> basée sur la <i>Tosefta</i> suivante : Si <b>un vêtement a pris feu d'un côté, on peut l'étendre</b> <b>et s'en couvrir, et si</b> le feu <b>s'éteint, il s'éteint. Et de même,</b> si <b>un rouleau de la Torah a pris feu, on peut l'ouvrir et le lire, et si</b> le feu <b>s'éteint, il s'éteint.</b> Apparemment, il est interdit de verser réellement de l'eau, mais on peut accomplir un acte autorisé qui va accessoirement éteindre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

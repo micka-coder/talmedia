@@ -57,4 +57,4 @@ Rav Pappa poursuit : Et <b>ben Azzai dit</b> que <b>une contusion [<i>ḥabura</
 La Guemara propose une autre explication de la dispute entre Rabbi Yehuda HaNasi et ben Azzai : <b>Alternativement, tout le monde</b> est d'accord est que <b>"<i>keviyya</i>" indique</b> une blessure <b>qu'il y ait une ecchymose ou qu'il n'y ait pas d'ecchymose. Et ici,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

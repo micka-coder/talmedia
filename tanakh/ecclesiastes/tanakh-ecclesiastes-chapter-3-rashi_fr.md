@@ -101,4 +101,4 @@
 <b>Pour qui l'amènera à voir.</b> Après sa mort, ce que ses enfants auront ; s'ils réussiront eux aussi avec les richesses qu'il a accumulées et laissées pour eux, ou s'ils ne prospéreront pas.</sup>43</sup><i class="footnote">Alternativement, pour qui l'amènera à voir la récompense et le châtiment après la mort. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

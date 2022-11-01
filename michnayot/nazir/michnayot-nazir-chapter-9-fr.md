@@ -14,5 +14,5 @@ Tout doute concernant [l'affection lépreuse] au départ est propre avant qu'une
 ### michna 5
 Samuel était un naziréen, ce sont les paroles de Rabbi Nehorai, comme il est dit : "Et aucun rasoir [morah] ne viendra sur sa tête" (I Samuel 1:11).  Il est dit à propos de Samson : "Et [pas] de rasoir [morah]" (Juges 13:5) et il est dit à propos de Samuel : "Et [pas] de rasoir [morah]", tout comme "le rasoir [morah]" dans le cas de Samson [enseigne qu'il était] un naziréen, de même "le rasoir [morah]" dans le cas de Samuel [enseigne qu'il était] un naziréen. Rabbi Yose dit : mais est-ce que "Morah" ne fait pas référence à la [peur] de la chair et du sang ? Rabbi Nehorai lui dit : Mais ne dit-on pas aussi : "Et Samuel dit : "Comment puis-je aller ? Si Saul l'entend, il me tuera"" (I Samuel 16:2) [ce qui montre] qu'il avait peur de la chair et du sang ?
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

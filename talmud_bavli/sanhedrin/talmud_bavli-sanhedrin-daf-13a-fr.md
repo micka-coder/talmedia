@@ -33,4 +33,4 @@ La Guemara répond : <b>Non,</b> ces déductions ne sont pas correctes. Au contr
 Le <i>baraita</i> enseigne que <b>Rabbi Shimon dit : Même</b> si la saison <b>avant la Fête</b> de la Collecte manque son achèvement pendant <b>seize</b> jours dans le mois de Tishrei, le tribunal fait <b>intercaler</b> l'année. La Gemara demande : Si tel est le cas, <b>c'est</b> apparemment la même chose que l'avis du <b>premier <i>tanna</i>;</b> quelle est la différence entre l'avis de Rabbi Shimon et celui du premier <i>tanna</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -57,4 +57,4 @@ Dans une autre décision connexe, <b>Abaye dit : </b> Dans le cas de <b>Reuven, 
 <b>Et</b> dans une autre décision connexe, <b>Abaye dit :</b> Dans le cas de <b>Reuven, qui a vendu un champ à Shimon sans garantie,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

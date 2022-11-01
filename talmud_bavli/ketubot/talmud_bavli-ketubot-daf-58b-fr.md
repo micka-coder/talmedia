@@ -48,4 +48,4 @@ La Guemara répond : En fait, <b>de cette <i>baraita</i>, <b>on peut</b> apprend
 La Gemara répond : <b>En fait,</b> il faut expliquer qu'ils discutent d'une situation où <b>il pourvoit à sa subsistance, mais ne lui fournit pas de <i>ma'a</i> en argent pour ses besoins,</b> et c'est là leur différend : <b>Rav et Shmuel soutiennent</b> que le principal acte législatif était que <b>ils ont établi</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

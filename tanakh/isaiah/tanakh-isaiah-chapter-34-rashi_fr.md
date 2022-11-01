@@ -70,7 +70,7 @@
 <b>Et Il a tiré au sort... pour eux</b> Or le prophète dit à propos du Saint, béni soit-Il, "Et Il a tiré au sort pour eux", pour toutes ces bêtes et tous ces volatiles, que ceux-ci tomberont à leur part.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -142,4 +142,4 @@
 <b>Et Il a tiré au sort... pour eux</b> Or le prophète dit à propos du Saint, béni soit-Il, "Et Il a tiré au sort pour eux", pour toutes ces bêtes et tous ces volatiles, que ceux-ci tomberont à leur part.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

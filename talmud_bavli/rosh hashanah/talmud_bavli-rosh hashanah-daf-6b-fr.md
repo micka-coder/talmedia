@@ -54,4 +54,4 @@ La Gemara demande : <b>Mais cette</b> phrase <b>"de toi" est nécessaire</b> pou
 La Guemara commente : Les deux Sages <b>ne sont pas en désaccord. Celui-ci</b>, Rav Aḥa bar Ya'akov, qui dit que l'on compte à partir du moment où l'animal est apte à l'apaisement, parle <b>d'un premier-né sans tache</b>, qui doit être amené à l'autel pour le sacrifice.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ Si quelqu'un a perdu son sceau, ils attendent [de traiter] avec lui jusqu'au soi
 ### michna 6
 Il y avait deux chambres dans le Temple, l'une la chambre des dons secrets et l'autre la chambre des vases. La chambre des dons secrets : les personnes qui craignaient le péché y déposaient leurs dons en secret, et les pauvres qui descendaient des vertueux en étaient secrètement soutenus. La chambre des vases : quiconque offrait un vase en cadeau le jetait dedans, et une fois tous les trente jours les trésoriers l'ouvraient ; et tout vase qu'ils y trouvaient et qui était utile à la réparation du temple, ils le laissaient là, mais les autres étaient vendus et leur prix allait à la chambre de la réparation du temple.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

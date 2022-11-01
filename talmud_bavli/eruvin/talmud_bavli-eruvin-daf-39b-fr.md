@@ -36,4 +36,4 @@ La Guemara relate encore que par la suite <b>Rav Sheshet rencontra Rabba bar Shm
 <b>Rav Ashi a dit : Ameimar m'a dit que le cerf n'a pas été piégé</b> sur le Festival ;
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

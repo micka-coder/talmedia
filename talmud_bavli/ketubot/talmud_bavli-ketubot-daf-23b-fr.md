@@ -45,7 +45,7 @@ La Guemara répond : <b>Au cas où l'on dirait</b> que <b>quand elle est jugée 
 <b>Et si</b> le <i>tanna</i> <b>taugh</b> ne concernait que le cas des <b>témoins,</b> on aurait pu penser que leur revendication est jugée crédible <b>en raison</b> du fait <b>que</b> leur témoignage est pertinent <b>pour les autres. Cependant,</b> en ce qui concerne <b>lui, dont</b> le témoignage est pertinent <b>pour lui-même,</b> puisqu'il affirme avoir acheté le champ au père de l'autre,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <strong>MISHNA :</strong> Dans un cas où des témoins attestent qu'il y a <b>deux femmes qui ont été emmenées en captivité,</b> et que <b>cette</b> femme <b>dit : j'ai été emmenée en captivité mais je suis pure, et que cette</b> femme <b>dit : j'ai été emmenée en captivité mais je suis pure, elles ne sont pas jugées crédibles. Et lorsque cette</b> femme <b>témoigne à propos de cette</b> femme qu'elle est pure et vice versa, <b>elles sont jugées crédibles.</b>
 
@@ -92,4 +92,4 @@ La Guemara répond : <b>Au cas où l'on dirait</b> que <b>quand elle est jugée 
 <b>Et si</b> le <i>tanna</i> <b>taugh</b> ne concernait que le cas des <b>témoins,</b> on aurait pu penser que leur revendication est jugée crédible <b>en raison</b> du fait <b>que</b> leur témoignage est pertinent <b>pour les autres. Cependant,</b> en ce qui concerne <b>lui, dont</b> le témoignage est pertinent <b>pour lui-même,</b> puisqu'il affirme avoir acheté le champ au père de l'autre,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

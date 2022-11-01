@@ -98,4 +98,4 @@
 <b>Les pécheurs seront détruits</b> Heb.  חטאים, pécheurs [plutôt que péchés, mais voir Tal. Ber. 10a].
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

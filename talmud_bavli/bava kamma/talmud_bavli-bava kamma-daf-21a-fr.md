@@ -57,4 +57,4 @@ La Gemara suggère : <b>Devons-nous dire qu'ils sont en désaccord en ce qui con
 La Gemara rejette cette idée : <b>Rav</b> aurait pu <b>vous dire : En fait, je vais vous dire</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

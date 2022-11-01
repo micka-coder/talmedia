@@ -45,4 +45,4 @@ La Guemara répond que la déclaration de Rabbi Elazar est en fait nécessaire, 
 La Guemara objecte : <b>Et comment pouvez-vous dire cela ? Mais la dernière clause</b> de la mishna (18b) n'est-elle pas <b>enseignante : Comme le dit Rabbi Yosei :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

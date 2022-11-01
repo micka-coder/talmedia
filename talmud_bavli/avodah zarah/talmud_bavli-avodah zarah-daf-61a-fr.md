@@ -24,4 +24,4 @@ En ce qui concerne la déclaration de la mishna selon laquelle le vin n'est auto
 § <b>Les Sages ont enseigné :</b> Dans le cas d'un Juif <b>qui achète</b> une maison <b>ou de celui qui loue une maison dans la cour d'un Gentil, et</b> un Juif <b>remplit</b> la maison de tonneaux de <b>vin,</b> si un autre <b>Juif habite dans la même cour,</b> le vin est <b>permis. </b> Cette <i>halakha</i> s'applique <b>même si</b> ce Juif n'a <b>pas</b> en sa possession</b> la <b>clé</b> de la maison <b>ou un sceau</b> sur les tonneaux de vin.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

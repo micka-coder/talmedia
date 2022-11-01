@@ -45,4 +45,4 @@ Apres avoir mentionne la priere de Moise pour Myriam, la Guemara cite ce que <b>
 <b>Rabbi Shimon ben Pazi a dit</b> que <b>Rabbi Yehoshua ben Levi a dit au nom de</b> la <i>tanna</i> <b>bar Kappara : Une personne ordinaire</b> <b>[<i>hedyot</i>],</b> se conduit <b>comme nous l'avons dit;</b> elle s'incline au debut et a la fin des benedictions des Patriarches et des actions de grace et est admonestee si elle cherche a s'incliner au debut et a la fin des autres benedictions.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

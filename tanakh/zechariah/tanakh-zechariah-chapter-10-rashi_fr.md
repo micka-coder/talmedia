@@ -49,4 +49,4 @@
 <b>Toutes les profondeurs du fleuve</b> C'est-à-dire l'Egypte.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

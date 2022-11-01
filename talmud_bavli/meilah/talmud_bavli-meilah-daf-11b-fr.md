@@ -57,4 +57,4 @@ La Guemara rejette cette affirmation. Les Sages <b>disent</b> en réponse : <b>N
 <strong>GEMARA:</strong> La mishna enseigne que les cendres de l'autel intérieur ne sont pas sujettes à un mauvais usage une fois qu'elles ont été déplacées à l'endroit où sont déposées les cendres levées de l'autel extérieur. La Guemara demande : <b>Accordé</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

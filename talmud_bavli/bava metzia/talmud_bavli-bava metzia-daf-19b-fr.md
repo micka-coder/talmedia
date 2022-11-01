@@ -54,7 +54,7 @@ Dans ce cas, l'acte ne peut pas être restitué, <b>car on dit</b> que <b>peut-�
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Ce</b> <i>halakha</i> s'applique <b>dans</b> un cas de cadeau offert par <b>une personne en bonne santé, et ce</b> <i>halakha</i> s'applique <b>dans</b> un cas de cadeau offert par <b>une personne sur son lit de mort.</b>
 
@@ -110,4 +110,4 @@ Dans ce cas, l'acte ne peut pas être restitué, <b>car on dit</b> que <b>peut-�
 <b>Rava a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Guemara répond : La première <i>tanna</i> convient que si la toiture de la 
 La Guemara suggère : <b>Disons</b> que la <i>Tosefta</i> suivante <b>appuie</b> l'avis du Rav Ḥisda. Si <b>on a couvert</b> la <i>sukka</i> <b>conformément à ses exigences halakhiques</b>, <b>et l'a décorée avec des rideaux et des draps colorés, et y a suspendu</b> des <b>noisettes, pêches, amandes, ornementales, et des grenades, des branches de raisin [<i>parkilei</i>], et des couronnes de tiges</b> de céréales, des <b>vins, des huiles, et</b> des récipients pleins de <b>farine, il est interdit</b> d'en tirer profit et de les <b>utiliser</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

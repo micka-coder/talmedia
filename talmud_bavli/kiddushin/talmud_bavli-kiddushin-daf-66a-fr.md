@@ -51,4 +51,4 @@ Abaye demande : <b>Quelles sont les circonstances</b> de ce cas ? Comment ceux q
 <b>Rava dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

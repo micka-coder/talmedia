@@ -21,4 +21,4 @@ La Guemara soulève encore une autre difficulté : L'interdiction de jeûner le 
 <b>Et si l'on dit qu'ici aussi</b> il est fait référence à <b>l'époque où le Temple était debout,</b> il y a une difficulté, <b>car Yehuda ben Shammua était un élève de Rabbi Meir, et Rabbi Meir était après</b> la destruction du Temple. Et la preuve que Rabbi Yehuda ben Shammua était un élève de Rabbi Meir peut être apportée, <b>comme nous l'avons appris</b> dans une mishna : En ce qui concerne les <b>vases en verre qui avaient des trous</b> dedans, qui par la suite <b>ont été remplis de plomb,</b> les Sages contestent si l'ustensile est considéré comme un ustensile entier, qui peut devenir rituellement impur, ou s'il est considéré comme un ustensile brisé, qui ne le devient pas. <b>Rabban Shimon ben Gamliel a dit : Yehuda ben Shammua</b> déclare qu'il <b>devient impur, au nom de Rabbi Meir;</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

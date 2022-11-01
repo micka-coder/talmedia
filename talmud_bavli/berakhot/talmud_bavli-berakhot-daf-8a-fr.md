@@ -90,4 +90,4 @@ La Guemara relate que <b>Rav Sheshet detournait son visage</b> de la Torah penda
 <b>Rav Huna bar Yehuda a dit</b> que <b>Rabbi Ami a dit : Une personne doit toujours completer ses</b> portions de Torah avec la congregation.</b> La congregation lit une portion de Torah particuliere chaque Chabbat, et pendant la semaine precedant chaque Chabbat, on est tenu de lire le <b>texte biblique</b> de la portion hebdomadaire <b>deux fois et</b> la <b>traduction une fois.</b>
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

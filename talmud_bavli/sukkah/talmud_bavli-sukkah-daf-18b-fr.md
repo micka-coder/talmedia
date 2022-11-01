@@ -12,4 +12,4 @@ comme <b>on dit</b> que <b>le bord du toit descend et scelle</b> l'ouverture. Le
 La Guemara rejette cette comparaison et dit : <b>Selon</b> l'avis <b>de Shmuel, tout le monde,</b> même Abaye, <b>convient</b> que l'on n'applique pas le principe : Le bord du toit descend et scelle, au cas d'une <i>sukka</i>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

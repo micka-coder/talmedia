@@ -42,4 +42,4 @@ Il a été mentionné précédemment que Rabbi Yoḥanan appelait ses vêtements
 <b>Rabbi Aḥa bar Abba a dit</b> que <b>Rabbi Yoḥanan a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Guemara demande : <b>Mais n'avons-nous pas appris</b> dans la mishna que <b><
 <b>Rava dit : Quelle est la raison de</b> l'avis de <b>Rabbi Meir ?</b> C'est qu'il n'y a pas de fissure au-dessus qui n'ait pas plusieurs fissures en dessous.</b> Par conséquent, même si une seule petite fissure apparaît en surface, c'est un signe que l'intérieur de la pâte est rempli de fissures et est devenu levé.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

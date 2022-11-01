@@ -63,4 +63,4 @@ Le verset indique : <b>"Un <i>ḥomer</i> d'orge, et un demi-<i>ḥomer</i> d'or
 <Rabbi Yehuda dit : Ce sont les trente individus justes</b> parmi les <b>nations du monde, au mérite desquels <b>les nations du monde</b> continuent à <b>exister. Ulla dit : Ce sont les trente mitzvot que les descendants de Noé</b> ont initialement <b>acceptées sur eux-mêmes ; mais ils n'en accomplissent que trois</b>. <b>Une</b> de ces trois mitzvot est .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

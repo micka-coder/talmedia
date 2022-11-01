@@ -36,4 +36,4 @@ La Guemara répond que <b>Ulla concilie</b> l'objection <b>selon son raisonnemen
 <strong>MISHNA :</strong> <b>Celui qui éteint la lampe</b> le Chabbat <b>par peur à cause des gentils,</b> dont il se cache dans sa maison, <b>et à cause des voleurs,</b> ou si l'on a peur <b>à cause d'un mauvais esprit,</b> c'est-à-dire, il est déprimé et préfère s'asseoir dans le noir, ou s'il a éteint la flamme <b>à cause du malade</b> pour qu'il <b>dorme,</b> il est <b>exempté.</b> Cependant, dans le cas où il éteint la flamme pour <b>épargner la lampe, épargner l'huile ou épargner la mèche,</b> il est <b>responsable. Rabbi Yosei l'exempte</b> dans tous ces cas, car selon lui, aucun travail interdit par la loi de la Torah n'est effectué en éteignant la flamme, <b>excepté</b> le cas où il cherche à épargner <b>la mèche.</b> Ce n'est que dans ce cas que l'extinction est une action créative <b>parce qu'il transforme</b> la mèche en <b>charbon</b> en éteignant la flamme.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

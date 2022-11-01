@@ -93,4 +93,4 @@
 <b>mon ennemi a anéanti.</b> Les enfants que j'ai choyés et élevés, l'ennemi est venu et les a anéantis. 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

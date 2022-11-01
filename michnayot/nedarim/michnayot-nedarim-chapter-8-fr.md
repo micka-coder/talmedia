@@ -20,5 +20,5 @@ S'il fait le vœu de ne pas goûter de viande jusqu'à la fin du jeûne [c'est-�
 ### michna 7
 Si l'on dit à son voisin : "Konam, que me vaut ton avantage, si tu ne viens pas prendre pour tes fils un kor de blé et deux tonneaux de vin", ce dernier peut annuler son vœu sans l'autorisation d'un sage, en déclarant : "As-tu fait ton vœu dans un autre but que celui de m'honorer ? De même, si quelqu'un dit à son voisin : "Konam, qu'est-ce que tu gagnes de moi, si tu ne donnes pas à mon fils un kor de blé et deux barils de vin" : Rabbi Meïr dit : il est interdit jusqu'à ce qu'il donne ; Mais les Sages disent : lui aussi peut annuler son vœu sans l'autorisation d'un sage, en lui disant : "Je le considère comme si je l'avais reçu." Si on l'incitait à épouser la fille de sa sœur, et qu'il disait : "Konam, ce qu'elle m'apporte pour toujours" ; de même, s'il divorçait de sa femme et qu'il disait : "Konam, ce que ma femme m'apporte pour toujours", il leur est permis d'en bénéficier, car il ne parlait que de mariage. S'il incitait son voisin à manger chez lui, et qu'il répondait : "Konam, ta maison dans laquelle je n'entre pas", ou "La goutte d'eau que je ne bois pas", il peut entrer chez lui et boire de l'eau froide, car il ne voulait parler que du manger et du boire en général.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

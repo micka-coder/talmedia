@@ -30,4 +30,4 @@ La Guemara commente : Il est <b>nécessaire</b> que la Gemara nous apprenne que 
 <b>Venez</b> et <b>entendez</b> une preuve qui résoudra ce dilemme à partir de celle que nous avons apprise :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

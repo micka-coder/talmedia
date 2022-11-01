@@ -33,4 +33,4 @@ La Guemara répond : Le <b><i>tanna</i> s'est appuyé</b> sur le verset : "Ordon
 § En ce qui concerne une offrande qui a été abattue la nuit, qui, selon Rabbi Yehouda, doit descendre de l'autel même si elle est montée, <b>Rabbi Yoḥanan dit : Celui qui abat</b> un <b>animal sacrifié la nuit à l'intérieur</b> de la cour du Temple, <b>et</b> ensuite <b>l'offre</b> sur un autel <b>extérieur</b> à la cour du Temple, est <b>responsable</b> de recevoir le <i>karet</i>, qui est la punition pour celui qui sacrifie une offrande à l'extérieur de la cour du Temple. Bien que l'on soit normalement responsable de sacrifier une offrande en dehors de la cour du Temple seulement si elle était apte à être offerte sur l'autel à l'intérieur du Temple, et un animal abattu la nuit est disqualifié et doit descendre de l'autel selon Rabbi Yehuda,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -72,4 +72,4 @@ La Gemara répond : La <b>différence</b> est par rapport à ce <b>que Rav Yehud
 La Guemara demande : <b>Et</b> selon <b>Rabbi Yishmael, quelle</b> différence <b>y a-t-il entre</b> une analogie verbale qui est <b>libre d'un côté et</b> une analogie verbale qui est <b>libre des deux côtés ?</b> Dans les deux cas, il soutient qu'on peut en tirer des <i>halakhot</i> et qu'on ne peut pas la réfuter. La Guemara répond : Il soutient que la <b>différence</b> est <b>que</b> dans un cas <b>où il y a</b> deux analogies verbales mutuellement exclusives, l'une qui est <b>libre d'un côté et</b> l'autre qui est <b>libre des deux côtés, on ne tient pas compte</b> de l'analogie qui est <b>libre d'un côté,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -66,4 +66,4 @@
 <b>Et pour toute offrande d'holocaustes à l'Eternel les sabbats, les nouvelles lunes</b> Le sens est : Ils seront nommés sur les chambres et aussi sur la chambre de la maison des agneaux, où sont gardés les animaux sacrifiés, et ils [les] apporteront aux prêtres constamment chaque jour, selon le nombre requis pour chaque jour, que ce soit les jours de semaine, que ce soit les sabbats, et les Nouvelles Lunes et les fêtes, lorsque des sacrifices supplémentaires sont offerts avec les offrandes quotidiennes - tout cela ils l'apporteront en nombre selon l'ordonnance, et ils aideront aussi les prêtres à écorcher le sacrifice. C'est ce que nous trouvons chez Ézéchias (II Chron. 29:34) : " Seulement les prêtres étaient peu nombreux, et ils ne pouvaient pas écorcher tous les holocaustes ; alors leurs frères les Lévites les renforçaient, etc. ".
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara objecte : <b>Si c'est le cas,</b> cela devrait s'appliquer <b>même</b
 <b>Et Rav Naḥman dit que Rabba bar Avuh a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara ajoute : Si le défunt avait <b>dit :</b> Mes biens doivent aller à 
 La Gemara relate un incident : <b>Une parente du Rav Naḥman a vendu son contrat de mariage pour en tirer un avantage financier.</b> En d'autres termes, elle a reçu une somme d'argent et a accepté en échange que si elle venait à divorcer et à avoir droit à son contrat de mariage, l'argent appartiendrait à l'acheteur des droits sur son contrat de mariage. <b>Elle fut</b> par la suite <b>divorcée</b> de son mari <b>et décéda,</b> laissant le droit à son contrat de mariage à sa fille. Les acquéreurs <b>se sont présentés</b> et ont <b>réclamé</b> la valeur du contrat de mariage <b>à sa fille. Le Rav Naḥman dit</b> aux gens qui l'entouraient : N'y a-t-il <b>pas</b> quelqu'un <b>qui puisse donner</b> à la fille <b>un conseil,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

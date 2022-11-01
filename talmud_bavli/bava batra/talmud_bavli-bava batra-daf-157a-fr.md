@@ -33,4 +33,4 @@ La Gemara explique : <b>Et s'il vous vient à l'esprit</b> de dire que lorsque l
 <b>Rav Naḥman dit aux</b> Sages : Rabbi <b>Zeira, notre collègue, a interprété</b> la mishna comme suit : Dans ce cas, les créanciers ne réclament pas la propriété parce qu'elle est grevée. Ils le réclament plutôt parce qu'il s'agit d'une <b>mitsva</b> incombant <b>aux orphelins de rembourser la dette de leur père. Rav Ashi s'oppose à cela :</b> Si le billet à ordre ne place pas de privilège sur la propriété, <b>c'est</b> considéré comme <b>un prêt par accord oral</b>, <b>et Rav et Shmuel disent tous deux : Un prêt par accord oral</b> <b>ne peut être recouvré, ni auprès des héritiers ni auprès des acheteurs.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

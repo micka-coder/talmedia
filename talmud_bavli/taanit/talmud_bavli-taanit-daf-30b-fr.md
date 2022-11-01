@@ -39,4 +39,4 @@
 <b>Ulla dit :</b> Le 15 Av était le <b>jour où</b> le roi <b>Hoshéa, fils d'Ela, annula</b> les <b>gardes que Jéroboam, fils de Nevat, avait placées sur les routes pour que les Juifs</b> ne montent pas</b> à Jérusalem <b>pour la</b> fête des pèlerins. Et</b> Hoshea, fils d'Ela, <b>a dit</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

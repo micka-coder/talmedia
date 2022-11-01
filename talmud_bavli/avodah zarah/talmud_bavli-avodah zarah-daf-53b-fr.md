@@ -54,4 +54,4 @@ Ulla <b>a dit à</b> Rav Yehuda : <b>Qui nous donnera de la poussière</b> des t
 Il <b>est enseigné</b> dans une <i>baraita</i> <b>conforme</b> à l'avis <b>de Rabbi Yoḥanan et de Reish Lakish : Une plate-forme qui a été endommagée</b> est <b>permise.</b> A l'inverse, <b>un autel</b> d'adoration d'idoles <b>qui a été endommagé</b> reste <b>interdit jusqu'à ce que la majeure partie soit détruite. Qu'est-ce qui est considéré comme une plate-forme,</b> et <b>qu'est-ce qui est considéré comme un autel ? Rabbi Ya'akov bar Idi dit</b> que <b>Rabbi Yoḥanan dit : Une plate-forme</b> consiste en <b>une pierre ; un autel</b> consiste en <b>plusieurs pierres.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

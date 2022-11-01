@@ -32,5 +32,5 @@ Si des liquides [impurs] sont tombés sur des bois, que la pluie soit [ensuite] 
 ### michna 11
 Si le produit de la deuxième année a dépassé en quantité le produit de la troisième année, ou si le produit de la troisième année a dépassé le produit de la quatrième année, ou si le produit de la quatrième année a dépassé le produit de la cinquième année, ou si le produit de la cinquième année a dépassé le produit de la sixième année, ou si le produit de la sixième année a dépassé le produit de la septième année, ou si le produit de la septième année a dépassé le produit de l'année qui suit la conclusion de la septième année, on suit la majorité. Si c'est moitié-moitié, on suit les règles les plus strictes.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

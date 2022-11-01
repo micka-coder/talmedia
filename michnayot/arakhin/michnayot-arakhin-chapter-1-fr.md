@@ -11,5 +11,5 @@ Celui qui est à l'article de la mort ou qui est sur le point d'être mis à mor
 ### michna 4
 Si une femme est sur le point d'être exécutée, on ne l'attend pas jusqu'à ce qu'elle accouche. Mais si elle s'est déjà assise sur l'échafaud, on l'attend jusqu'à ce qu'elle accouche. Si une femme a été mise à mort, on peut utiliser ses cheveux. Si un animal a été mis à mort, il est interdit d'en faire un usage quelconque.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

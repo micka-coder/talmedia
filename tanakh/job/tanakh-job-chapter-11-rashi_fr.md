@@ -69,4 +69,4 @@ et tu oublieras toutes tes difficultés.
 <b>et leur espoir</b> Ce qu'ils espèrent voir en toi sera pour eux un chagrin intense.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

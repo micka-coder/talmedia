@@ -66,4 +66,4 @@ La Gemara relate un incident similaire : Il y avait <b>un certain homme qui mont
 Rav Naḥman lui <b>dit : </b> La responsabilité de cet individu <b>est</b> écrite explicitement dans <b>la mishna,</b> c'est-à-dire qu'il s'agit de la <i>halakha</i>, <b>comme nous l'avons appris</b> dans la mishna : <b>Si</b> des voyous ont pris le champ <b>du voleur,</b> il est <b>obligé de fournir</b> au propriétaire un autre <b>champ. Et il a été établi</b> que la mishna fait référence à un cas <b>où un individu a <b>montré</b> le champ à des voyous, qui l'ont ensuite saisi. Ainsi, dans ce cas aussi, celui qui a montré le tas de blé de l'Exilarque aux voyous est obligé de les payer. <b>Après que</b> Rav Naḥman soit <b>parti, Rav Yossef dit à Rav Huna bar Ḥiyya : Quelle différence cela fait-il pour toi</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

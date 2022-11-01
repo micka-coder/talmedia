@@ -48,4 +48,4 @@ La Guemara developpe : <b>Grace,</b> les miracles lors des <b>traversees de la m
 <b>Cependant, d'ou tirons-nous</b> le miracle qui s'est produit lors du <b>passage des ruisseaux de l'Arnon ? Comme il est dit : "C'est pourquoi il est dit dans le Livre des Guerres du Seigneur : <i>Vahev</i> en <i>Sufa</i></b>, et les vallees de l'Arnon. Et la pente des vallees qui s'inclinent vers le siege d'Ar, et s'appuient sur la frontiere de Moab" (Nombres 21:14""15). Il a ete <b>enseigne : <i>"Vahev a Sufa";</i> il y avait deux lepreux,</b> l'un nomme Et et le second nomme Hev, <b>qui marchaient a l'arriere du camp d'Israel. Comme Israel passait, les Emorites arriverent</b>.
 
 >Credit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

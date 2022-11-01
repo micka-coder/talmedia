@@ -36,4 +36,4 @@ La Gemara rejette cet argument : <b>Si le cadavre entier s'est décomposé et</b
 § <b>Rabbi Yirmeya soulève</b> encore un autre <b>dilemme : un <b>fœtus mort dans le ventre de sa</b> <b>mère</b> morte forme-t-il <b>un mélange</b> par rapport à elle, de sorte que les corps sont considérés comme deux cadavres enterrés ensemble, <b>ou non ? </b> La Guemara explique les deux côtés du dilemme : Disons-nous que <b>puisque le Maître a dit</b> que <b>un fœtus est</b> considéré comme <b>la cuisse de sa mère, il est donc</b> comme <b>son corps et il</b> ne forme <b>pas</b> un mélange</b> avec elle ? <b>Ou peut-être</b> faut-il soutenir : <b>Puisque</b> dans la plupart des cas, un fœtus <b>sortira finalement</b> de l'utérus à la naissance, il est déjà considéré comme <b>séparé d'elle,</b> et il est comme tout autre cadavre enterré avec la femme. <b>Et si vous dites</b> que <b>un fœtus, qui émergera finalement,</b> est considéré comme <b>séparé d'elle</b> et ne fait pas partie de son corps, il faut encore se poser cette question .
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -54,4 +54,4 @@ Nous avons appris dans la mishna : <b>Et</b> le Chabbat <b>on place sur</b> la p
 Lorsque <b>Rava enseigna</b> ce remède <b>à Meḥoza, les fils de Manyomei le médecin déchirèrent leurs vêtements</b> de misère, car il enseigna à tous comment faire un bandage, et leurs services ne seraient plus requis. Rava <b>leur dit : Je vous ai laissé un</b> remède que je n'ai pas révélé, avec lequel vous pourrez faire du profit, <b>car Shmuel a dit : Celui qui se lave le visage et ne l'essuie pas beaucoup développera</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

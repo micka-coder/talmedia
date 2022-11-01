@@ -54,4 +54,4 @@ La Guemara commente : Les Sages <b>demandèrent aux <i>tanna'im</i> de l'école 
 § La Gemara commente qu'il est <b>évident</b> que si le dépositaire a initialement <b>dit : Je ne paierai pas, et a ensuite dit : Je choisis par la présente</b> de <b>payer</b> plutôt que de prêter serment, il a droit au double paiement, car <b>n'a-t-il pas</b> finalement <b>dit : Je choisis par la présente de payer?</b> La Gemara soulève un dilemme : <b>Mais</b> s'il a initialement <b>dit : Je choisis par la présente</b> de <b>payer,</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

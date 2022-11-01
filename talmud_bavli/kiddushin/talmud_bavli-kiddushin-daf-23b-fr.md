@@ -33,4 +33,4 @@ La Gemara explique le différend selon cette interprétation. <b>Rabbi Meir sout
 <b>Et</b> la Guemara <b>souleve une contradiction</b> entre une déclaration <b>de Rabbi Meir et</b> une seconde déclaration <b>de Rabbi Meir, et</b> elle <b>souleve une contradiction entre</b> une déclaration des <b>Rabbins</b> et une seconde déclaration des <b>Rabbins. Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

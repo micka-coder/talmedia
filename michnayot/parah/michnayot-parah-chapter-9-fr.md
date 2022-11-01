@@ -26,5 +26,5 @@ Les eaux lustrales qui ont été invalidées impurifient celui qui est pur pour 
 ### michna 9
 Si des cendres valides ont été mises sur de l'eau impropre à la préparation, [cette dernière] souille celui qui est pur pour la teroumah [par contact] avec ses mains ou avec son corps, tandis que pour celui qui est pur pour la hatat, elle ne transmet l'impureté ni [par contact] avec ses mains ni avec son corps.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Mais toute offrande de péché perdue</b> est placée en 
 La Guemara demande : <b>Mais</b> si c'est le cas, <b>selon</b> l'opinion du <b>Rabbi</b> Yehuda HaNasi, dans <b>quelles circonstances</b> peut-on trouver le cas d'une offrande pour le péché qui est laissée à <b>pâturage ?</b> Rabbi Yehuda HaNasi soutient que chaque offrande pour le péché perdue est laissée à mourir et qu'aucune n'est laissée à paître ; par conséquent, il n'y a aucune signification à la décision de Shmuel' concernant toute offrande pour le péché qui est laissée à paître.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

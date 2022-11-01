@@ -51,4 +51,4 @@ La Guemara rejette cette explication : <b>Non, tout le monde est d'accord</b> qu
 <b>N'est-ce pas</b> le cas <b>que</b> les deux <i>tanna'im</i> <b>sont en désaccord sur ce qui suit : Celui qui a dit</b> qu'on ne <b>pas</b> l'enlever <b>de la <b>cour</b> du Temple soutient</b> que <b>celui qui apporte une carcasse d'animal rampant</b> dans le Temple est exempt,</b> et qu'il n'y a donc aucune obligation de l'enlever de la cour le Chabbat. <b>Et celui qui a dit qu'il faut</b> l'enlever <b>de toute la cour soutient</b> que celui qui apporte une carcasse d'animal rampant dans le Temple <b>est responsable.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

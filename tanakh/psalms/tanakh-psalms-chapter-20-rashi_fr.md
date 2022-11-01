@@ -28,4 +28,4 @@
 <b>mais nous nous relevons et prenons de la force</b> Nous prenons de la force sur eux, comme (ci-dessous 147:6) : " renforce (מעודד") les humbles ", une expression de force.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

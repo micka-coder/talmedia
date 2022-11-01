@@ -24,4 +24,4 @@ Si un vignoble se compose entièrement d'Olelot, Rabbi Eliezer dit : C'est pour 
 Celui qui dédie sa vigne avant que l'Olelot ne soit discernable, l'Olelot n'est pas pour les pauvres ; après que l'Olelot soit discernable, l'Olelot est pour les pauvres. Rabbi Yosi dit : Ils donnent la valeur de la croissance [ajoutée] [après la dédicace] au trésor du Temple. Qu'est-ce qui est considéré comme Shikcha sur un treillis ? Tout ce qu'il [c'est-à-dire le moissonneur] ne peut pas prendre en étirant son bras en arrière. Et sur les coureurs ? Lorsqu'il s'en éloigne.
 
 >Crédit : Torat Emet 357
->Licence : CC-BY-SA 
+>Licence : CC BY-NC-SA 

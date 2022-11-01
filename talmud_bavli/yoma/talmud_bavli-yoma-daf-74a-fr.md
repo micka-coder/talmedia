@@ -27,4 +27,4 @@ La Guemara rejette cette affirmation en distinguant les deux cas : <b>C'est diff
 La Guemara commente : <b>Aussi, il est raisonnable</b> de dire que le <i>baraita</i> ne cite que le verset comme support et non comme source pour prouver l'interdiction. <b>Car s'il pouvait entrer dans votre esprit</b> que cet enseignement constitue une interdiction <b>par la loi de la Torah,</b> il y a <b>incertitude</b> de savoir si <b>un <i>koy</i></b> est une bête sauvage ou un animal domestique. Est-il <b>nécessaire d'avoir un verset pour inclure une incertitude ?</b> Il n'y a pas de doute devant Dieu et donc aucun intérêt à écrire un cas de doute dans la Torah. Par conséquent, la <i>baraita</i> ne cite le verset qu'à titre de support. La Guemara répond : <b>Si c'est la raison, il n'y a pas</b> d'<b>argument concluant.</b> Les Sages de la <i>baraita</i> auraient pu <b>penser</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

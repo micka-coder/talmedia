@@ -78,4 +78,4 @@ La mishna reprend la discussion sur l'offrande de culpabilité provisoire. Si qu
 Si <b>une</b> personne <b>mange le premier</b> morceau <b>et qu'une autre</b> personne <b>arrive et mange le deuxième</b> morceau, <b>cette</b> première personne <b>apporte une offrande de culpabilité provisoire et cette</b> deuxième personne <b>apporte une offrande de culpabilité provisoire;</b> telle est <b>la déclaration de Rabbi Akiva. Rabbi Shimon dit : Tous deux apportent une</b> offrande de culpabilité définitive</b> en tant que partenaires, et ils stipulent que celui qui a mangé la viande non sacrée accorde sa part de l'animal à celui qui a mangé la viande sacrificielle, et l'offrande de culpabilité est sacrifiée en son nom. <b>Rabbi Yosei dit:</b> >.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

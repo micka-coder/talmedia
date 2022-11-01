@@ -51,4 +51,4 @@ La Guemara note : <b>Cette</b> <i>halakha</b> <b>est également enseignée</b> d
 <b>Les Sages ont enseigné</b> dans une <i>baraïta</i> : Dans le <b>lavage des mains pour</b> la consommation d'aliments <b>non sacrés</b>, on doit verser l'eau sur la zone qui s'étend <b>jusqu'à l'articulation</b> des doigts. Dans le lavage des mains <b>pour</b> la consommation de <b><i>teruma</i>,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

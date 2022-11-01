@@ -21,4 +21,4 @@ La Gemara demande : <b>Et pourquoi</b> cela est-il permis ? <b>Mais il a dit : U
 Ravina <b>s'adressa à lui :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

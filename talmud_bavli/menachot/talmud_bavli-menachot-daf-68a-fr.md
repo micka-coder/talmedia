@@ -54,4 +54,4 @@ La Guemara soulève une autre difficulté. La mishna déclare : <b>Dès</b> le m
 La Guemara soulève encore une autre difficulté à partir de la mishna suivante (68b) : Le sacrifice de <b>l'offrande de <i>omer</i></b> <b>permettrait</b> la consommation de la nouvelle récolte <b>dans</b> le reste du <b>pays [<i>bamedina</i>]</b> hors du Temple, <b>et l'offrande des deux pains</b> permettait le sacrifice de la nouvelle récolte <b>dans le Temple.</b> Là aussi, la Gemara répond : Il faut attendre de prendre part à la nouvelle récolte jusqu'à ce que le sacrifice de l'offrande <i>omer</i> afin <b>d'accomplir</b> <b>la mitzva</b> de manière optimale.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

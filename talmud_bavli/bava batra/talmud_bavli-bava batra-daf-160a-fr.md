@@ -12,4 +12,4 @@ En ce qui concerne <b>un document ordinaire</b> <b>dont les témoins ont écrit<
 <strong>GEMARA:</strong> La Gemara demande : <b>D'où viennent ces questions</b> ? Quel est le fondement biblique de l'existence de ces deux types de documents ? <b>Rabbi Ḥanina dit : Comme le dit le verset : "Ils achèteront des champs à prix d'argent, ils souscriront les actes, les scelleront et appelleront des témoins"</b> (Jérémie 32:44). Quand le verset dit : <b>"Ils achèteront des champs pour de l'argent, et souscriront les actes"</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

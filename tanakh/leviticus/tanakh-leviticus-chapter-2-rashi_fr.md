@@ -63,5 +63,5 @@
 גֶרֶשׂ signifie "écraser" et "moudre". Il le broie dans un moulin de broyeurs, semblable à [la signification de <i>goras</i> dans le verset] "il a cassé [mes dents] avec du gravier", et de même, "mon âme est écrasée". 
 <i data-commentator="Siftei Chakhamim" data-label="⚬"></i><b>Les grains</b>, alors que l'enveloppe est pleine, lorsque le grain est humide et plein dans ses tiges. C'est pourquoi les épis frais [de maïs] sont appelés <i>karmel</i>, et de même, "les épis frais [de maïs] dans son sac". 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

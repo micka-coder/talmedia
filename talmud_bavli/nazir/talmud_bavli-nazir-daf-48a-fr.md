@@ -30,4 +30,4 @@ Le <i>baraita</i> rejette cette déduction : <b>Non ; si vous dites</b> que cela
 Le <i>baraita</i> suggère : <b>Ou</b> peut-être faut-il interpréter ce verset différemment : <b>Il ne peut devenir impur pour</b> enterrer <b>son père ou pour sa mère ; en revanche, il peut devenir impur pour</b> enterrer <b>d'autres personnes décédées.</b> La Gemara rejette cette suggestion : <b>Vous</b> pouvez <b>dire</b> que cet argument peut être réfuté <b><i>a fortiori</i> : Et si un prêtre commun, qui devient impur pour</b> enterrer ses <b>parents,</b> néanmoins <b>ne peut pas devenir impur pour</b> enterrer <b>d'autres morts</b> (voir Lévitique 21:1-2), alors dans le cas d'un <b>nazirite, qui ne peut pas devenir impur pour</b> enterrer ses <b>parents, n'est-il pas logique que</b> également <b>il ne doive pas devenir impur pour</b> enterrer <b>d'autres morts ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

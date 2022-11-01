@@ -48,4 +48,4 @@ La mishna a également déclaré que le dix-sept de Tammuz, Manassé <b>a placé
 La Gemara demande : <b>Et y avait-il</b> seulement <b>une</b> idole placée là ? <b>Mais n'est-il pas écrit : "Et sur l'aile des choses détestables, il y aura ce qui provoque l'appauvrissement"</b> (Daniel 9:27) ? Le pluriel, "choses détestables", indique la présence d'au moins deux idoles. <b>Rava a dit : Il y avait</b> initialement <b>deux</b> idoles, <b>mais l'une est tombée sur l'autre et s'est cassée la main.</b> Puisqu'une seule idole était entière, la mishna ne mentionne que celle-là. Rava poursuit : <b>Et</b> une inscription fut trouvée sur l'idole brisée <b>qui disait :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

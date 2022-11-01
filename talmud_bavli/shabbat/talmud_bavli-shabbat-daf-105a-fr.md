@@ -21,4 +21,4 @@ Nous avons appris dans la mishna Si <b>quelqu'un a écrit une lettre</b> comme <
 <strong>GEMARA:</strong> La Guemara demande : A propos de <b>quoi sont-ils en désaccord ? Rabban Gamliel soutient : Il n'y a pas de prise de conscience pour une demi-mesure.</b> On n'est pas tenu d'apporter un sacrifice pour une demi-mesure ; par conséquent, le fait qu'il ait pris conscience entre l'exécution des deux moitiés du travail interdit n'a aucune importance. Sa prise de conscience ne délimite pas entre un acte d'écrire une lettre et le second acte d'écrire une lettre en ce qui concerne la responsabilité d'apporter un sacrifice pour le péché. <b>Et les sages soutiennent : Il y a conscience pour une demi-mesure.</b> Si un individu a pris conscience de sa transgression entre les deux parties du travail interdit, chaque partie individuelle est indépendante de l'autre, et les deux moitiés du travail interdit ne se rejoignent pas pour créer une responsabilité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

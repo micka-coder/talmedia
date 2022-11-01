@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une mishna (8a) : Da
 § <b>Nous avons appris</b> dans la mishna : <b>Et</b> en ce qui concerne <b>tous les articles restants, sans spécification</b> il est <b>permis</b> de les vendre, <b>mais</b> avec <b>spécification</b> il est <b>interdit</b> de les vendre. La Gemara demande : <b>Qu'est-ce que</b> est la signification de : <b>Sans spécification, et que</b> signifie : Avec <b>spécification ? Si on dit</b> que <b>sans spécification est</b> se référant à un cas <b>lorsque</b> le Gentil <b>dit</b> qu'il veut du <b>blé blanc</b> sans préciser la raison pour laquelle il le veut, et avec <b>spécification est</b> se référant à un cas <b>quand il dit</b> qu'il utilisera le blé <b>pour le culte des idoles,</b> pourquoi est-il nécessaire pour la mishna d'enseigner cette <i>halakha</i> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

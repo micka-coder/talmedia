@@ -12,4 +12,4 @@ De plus, la sanction de cette transgression est <b>dérivée</b> d'une analogie 
 § La mishna a enseigné : <b>Ces [<i>poules</i>] sont les parties essentielles de la Torah.</b> La Gemara demande : <b>Ces,</b> les sujets mentionnés dans la mishna, qui ne sont pas écrits explicitement mais pour lesquels il y a une base ample dans la Torah, <b>oui,</b> ce sont les parties essentielles de la Torah, tandis que <b>ceux</b> des autres catégories énumérées dans la mishna qui sont écrits explicitement, <b>non,</b> ils ne sont pas essentiels ? <b>Au contraire,</b> il faut <b>dire</b> que tant <b>ceux-ci que ceux-là [<i>hen vehen</i>] sont les parties essentielles de la Torah.</b> Chaque partie de la Torah est essentielle, qu'elle soit écrite explicitement ou non.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

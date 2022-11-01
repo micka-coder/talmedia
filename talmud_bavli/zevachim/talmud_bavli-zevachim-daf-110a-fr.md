@@ -84,4 +84,4 @@ La Gemara conclut : Le dilemme ne sera pas résolu.
 <strong>MISHNA :</strong> <b>Quelqu'un qui asperge une partie</b> du <b>sang</b> d'une offrande, par exemple une aspersion au lieu de quatre, <b>hors de la cour du Temple</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La mishna poursuit : <b>Dans quel</b> cas <b>cette déclaration,</b> selon laque
 <strong>GEMARA : </strong>La Gemara commente : <b>La mishna,</b> qui statue qu'un mari ne peut pas annuler la naziréité de sa femme après que le sang de son offrande ait été aspergé à la fin du terme de la naziréité, <b>n'est pas conforme</b> à l'opinion de <b>Rabbi Eliezer. Car, si</b> elle suivait la décision de <b>Rabbi Eliezer, n'a-t-il pas dit</b> que <b>le rasage est indispensable</b> pour la fin du terme de naziréat, c'est-à-dire qu'un naziréat à la fin de son naziréat est interdit de boire du vin et de devenir impur de mort jusqu'à ce qu'il se rase effectivement ? <b>Et</b> dans ce cas, <b>puisqu'elle ne s'est pas</b> encore <b>rasée, elle</b> reste <b>interdite de</b> boire du <b>vin. Et comme elle devient abattue</b> par son abstinence de vin, évidemment le mari <b>peut annuler</b> son vœu même après l'aspersion du sang de ses offrandes de pureté.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

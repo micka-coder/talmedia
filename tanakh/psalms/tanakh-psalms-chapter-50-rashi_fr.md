@@ -73,4 +73,4 @@
 <b>et [Je] préparerai le chemin</b> pour celui qui revient à Moi. J'enseigne et prépare le chemin pour que les pécheurs reviennent à Moi (et celui qui revient à Moi - Shem Ephraïm), Je lui montrerai Mon salut.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

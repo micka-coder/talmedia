@@ -69,4 +69,4 @@ La Gemara relate un autre incident : <b>Une certaine</b> personne <b>a dit à</b
 La Gemara cite un incident similaire : <b>Une certaine</b> personne <b>a dit à</b> ses héritiers, dans son testament :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

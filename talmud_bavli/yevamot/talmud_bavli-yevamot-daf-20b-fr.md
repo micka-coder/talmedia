@@ -54,4 +54,4 @@ La Gemara <b>souleve une objection</b> à cette dernière affirmation de Rava à
 § Sur le même sujet, <b>il a été dit</b> à propos du cas d'un <b>grand prêtre qui s'engageait dans des relations sexuelles avec une veuve</b> qui était sa <i>yevama</i> nécessitant un mariage lévirat que les <i>amora'im</i> <b>Rabbi Yoḥanan et Rabbi Elazar</b> se sont disputés à ce sujet. <b>L'un dit</b> que le coït <b>n'exempte pas sa femme rivale</b> qui avait également été mariée au frère du Grand Prêtre, puisque l'acte était interdit, <b>et l'autre dit</b> qu'il <b>exempte sa femme rivale</b>, car bien que le coït soit interdit, il est néanmoins un acte valide du mariage lévirat, et donc sa femme rivale est de ce fait exemptée.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

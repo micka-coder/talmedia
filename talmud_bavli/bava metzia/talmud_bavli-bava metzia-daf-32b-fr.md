@@ -57,7 +57,7 @@ La Guemara répond : <b>Vous maintenez</b> que la référence dans la <i>baraita
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> la preuve d'un <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>D'après les déclarations de ces deux</b> <i>tanna'im</i> on peut <b>apprendre</b> que l'obligation d'empêcher la <b>souffrance aux animaux</b> est <b>par la loi de la Torah. Comme même Rabbi Shimon dit</b> qu'il n'était pas d'accord avec l'opinion des rabbins <b>uniquement parce que les versets ne sont pas</b> clairement <b>définis ; mais</b> si les <b>versets</b> avaient été clairement <b>définis, nous</b> aurions <b>appris</b> la même <b><i>a fortiori</i></b> déduction. <b>Du fait de quel</b> facteur cette inférence peut-elle être apprise ? <b>Quoi, ce n'est pas en raison</b> de la question de la <b>souffrance des animaux,</b> qui est un facteur de déchargement et non un facteur de chargement, que <b>nous</b> aurions <b>appris</b> l'inférence <i>a fortiori</i> ?
 
@@ -116,4 +116,4 @@ La Guemara répond : <b>Vous maintenez</b> que la référence dans la <i>baraita
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> la preuve d'un <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

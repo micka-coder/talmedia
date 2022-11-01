@@ -60,4 +60,4 @@ La Gemara demande : <b>Et</b> les descendants ne sont <b>pas</b> punis pour les 
 La Guemara répond : <b>Là,</b> dans le verset du Lévitique, il est fait référence à un cas <b>où d'autres personnes <b>avaient la possibilité de protester</b> le péché <b>mais n'ont pas protesté.</b> Par conséquent, ils sont punis pour ne pas avoir protesté, indépendamment de toute relation familiale qu'ils peuvent avoir avec le pécheur.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

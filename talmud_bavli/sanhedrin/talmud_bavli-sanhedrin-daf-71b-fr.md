@@ -66,4 +66,4 @@ A titre d'association, la mishna poursuit : Le <b>vin et le sommeil des méchant
 La <b>dispersion des méchants,</b> afin qu'ils ne se retrouvent pas à proximité les uns des autres, <b>leur est bénéfique,</b> car ils sont moins susceptibles de se provoquer au péché, <b>et</b> elle est <b>bénéfique au monde.</b> La dispersion <b>des justes leur est préjudiciable et est préjudiciable au monde. </b> Le <b>rassemblement des méchants</b> en un seul lieu <b>leur est préjudiciable et préjudiciable au monde,</b> alors que le rassemblement <b>des justes leur est bénéfique et est bénéfique au monde.</b> La <b>tranquillité des méchants leur est préjudiciable et est préjudiciable au monde,</b> alors que la tranquillité <b>des justes leur est bénéfique et est bénéfique au monde.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

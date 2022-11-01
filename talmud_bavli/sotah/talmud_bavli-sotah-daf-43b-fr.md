@@ -57,4 +57,4 @@ La Guemara propose une autre résolution alternative à la contradiction sur le 
 <b>Et Rabbi Yitzḥak dit</b> que <b>Rabbi Yoḥanan dit au nom de Rabbi Eliezer ben Ya'akov :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

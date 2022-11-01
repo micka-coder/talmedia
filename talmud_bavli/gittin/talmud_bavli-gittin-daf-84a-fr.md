@@ -63,4 +63,4 @@ La Guemara répond que <b>Rava</b> aurait pu <b>vous dire : Accordé,</b> en ce 
 Sur la base de cette analyse, <b>selon Rava,</b> Rabbi Yehuda ben Teima a énoncé son <b>principe</b> afin <b>d'inclure</b> la condition de <b>mon père et ton père,</b> car cette condition est également considérée comme impossible à réaliser. Et l'expression : Un acte de divorce <b>comme celui-ci</b> est un acte de divorce valide, sert <b>à exclure</b> la condition de manger de la <b>viande de porc,</b> auquel cas le divorce n'est pas valide à moins qu'elle ne remplisse la condition.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

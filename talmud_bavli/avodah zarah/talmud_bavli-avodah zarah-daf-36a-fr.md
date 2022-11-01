@@ -33,4 +33,4 @@ La Guemara demande : <b>Et comment Rabbi Yehuda HaNasi a-t-il pu autoriser une o
 <b>Rav Mesharshiyya a dit : Quelle est la raison</b> pour laquelle aucun des dix-huit décrets ne peut être annulé ? <b>Puisque</b> l'<b>interdiction s'est répandue parmi la majorité du peuple juif,</b> elle ne peut être annulée. Mais en ce qui concerne le <b>pétrole, son interdiction ne s'est pas répandue parmi la majorité du peuple juif,</b> et il peut donc être annulé. <b>Comme le dit Rabbi Shmuel bar Abba</b> que <b>Rabbi Yoḥanan dit : Nos Sages se sont assis et ont inspecté</b> la question de l'<b>huile des Gentils</b> et ont déterminé <b>que son interdiction ne s'était pas répandue parmi la majorité du peuple juif, et nos Sages se sont appuyés sur la déclaration de Rabban Shimon ben Gamliel et sur la déclaration de Rabbi Elazar bar Tzadok, qui dirait :</b> Les Sages <b>émettent un décret sur la communauté seulement si la majorité de la communauté est capable de le respecter. Comme l'a dit Rav Adda bar Ahava : Quel est le verset</b> dont il est issu ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

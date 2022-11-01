@@ -24,4 +24,4 @@ A ce sujet, la Guemara cite deux <i>baraitot</i> apparemment contradictoires. <b
 Nous avons appris dans la mishna que <b>en vérité on disait</b> que <b>le préposé</b> voit où dans le livre les enfants sous sa surveillance lisent, mais lui-même ne doit pas lire. La Gemara demande : <b>Ne dites-vous pas dans la première clause</b> de la mishna que le préposé <b>voit ? Cela ne signifie-t-il pas</b> qu'il voit afin de <b>lire ?</b> Comment cette partie de la mishna peut-elle conclure en disant qu'il ne doit pas lire ? La Guemara répond : <b>Non,</b> cela ne signifie pas que le préposé est autorisé à lire réellement ; il est seulement autorisé <b>à</b> regarder et <b>arranger le début de ses sections</b> de la Torah qu' <b>il</b> doit lire le lendemain. <b>Et de même, Rabba bar Shmuel a dit : Cependant, il peut arranger le début de ses sections</b> qu'il doit lire le lendemain. La Guemara demande : <b>Et</b> peut-il <b>ne pas</b> lire <b>la section entière ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

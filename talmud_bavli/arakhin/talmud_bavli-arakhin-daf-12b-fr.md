@@ -33,4 +33,4 @@ La Gemara commente : <b>De même, il est raisonnable</b> de conclure que tous le
 <b>Mais n'est-il pas enseigné</b> dans un <i>baraita</i> que la montre de Jehoiarib n'existait pas à l'époque du Second Temple ? Comme il est enseigné : Seules <b>quatre montres sacerdotales sont remontées de l'</b> <b>exil babylonien,</b> tandis que les vingt autres sont restées en Babylonie. Et ce sont ces montres qui sont revenus : Les descendants de <b>Jedaiah, Harim, Pashḥur, et Immer. Les prophètes parmi</b> ceux qui sont retournés <b>arrent et divisent</b> ces quatre familles <b>en vingt-quatre veilles.</b> Ils y parvinrent comme suit : Ils ont écrit les noms de ces nouveaux vingt-quatre montres sur des morceaux de papier, les ont <b>mélangés, et les ont mis dans un réceptacle [<i>kalpi</i>]</b> à partir duquel on a tiré au sort. Un représentant de la famille de <b>Jedaiah vint tirer sa part et le lot de</b> cinq <b>autres</b> montres, soit un total de <b>six.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

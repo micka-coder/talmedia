@@ -38,4 +38,4 @@
 <b>Et Il la placera sur le chemin de ses pas</b> Et le Saint, béni soit-il, placera la justice sur les chemins de ses pas, avec laquelle il conduit ses fils.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

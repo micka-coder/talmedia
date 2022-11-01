@@ -33,4 +33,4 @@ La Gemara demande : La <i>halakha</i> énoncée ci-dessus a été enseignée en 
 <b>Rabbi Yirmeya soulève</b> un autre <b>dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

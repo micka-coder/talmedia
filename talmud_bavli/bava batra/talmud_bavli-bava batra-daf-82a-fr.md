@@ -27,4 +27,4 @@ La Guemara demande : <b>Mais selon</b> l'opinion de <b>Rav Zevid,</b> qui soutie
 § La mishna enseigne : Si <b>on a acheté trois</b> arbres <b>il a acquis</b> le <b>terrain</b> en même temps qu'eux. La Gemara demande : <b>Et quelle part</b> du terrain acquiert-il ? <b>Rabbi Ḥiyya bar Abba dit</b> que <b>Rabbi Yoḥanan dit : Cet</b> acheteur <b>a acquis</b> le terrain qui se trouve <b>sous</b> les arbres, <b>et</b> la zone <b>entre eux, et</b> en ce qui concerne l'espace <b>extérieur</b> aux arbres et à leurs branches,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ Si l'un d'entre eux [c'est-à-dire l'étai] a été enlevé, les autres contract
 ### michna 6
 Comment les mesure-t-on ? Rabban Shimon ben Gamaliel dit : il met le bâton de mesure entre eux, et toute partie qui est à l'extérieur du bâton de mesure est pure tandis que toute partie à l'intérieur du bâton de mesure, y compris l'endroit du bâton de mesure lui-même, est impure.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

@@ -21,4 +21,4 @@ La Guemara répond : Le fait qu'une décision <b>de Rabbi Shimon</b> soit contre
 De même, le fait qu'une décision <b>des rabbins</b> soit contredite <b>par</b> l'autre décision <b>des rabbins</b> n'est <b>pas difficile. Ici,</b> en ce qui concerne la sépulture, <b>puisque c'est une honte</b> d'enterrer des corps si proches les uns des autres, <b>on ne l'appelle pas</b> une zone de <b>graves.</b> Mais <b>là,</b> en ce qui concerne les vignes, le propriétaire de la vigne <b>se dit</b> à lui-même : <b>Ceux qui, parmi</b> les vignes, <b>fleuriront, fleuriront</b> et je les laisserai, <b>et</b> ceux qui <b>ne fleuriront pas,</b> je les arracherai et <b>ils serviront de bois de chauffage.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

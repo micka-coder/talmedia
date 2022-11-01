@@ -42,4 +42,4 @@ En outre, <b>Rabbi Yosei a dit</b> qu'il parlait toujours par euphémisme : <b>D
 <b>Rav Yossef dit à Rav Yossef, fils de Rabba : Dans quel</b> domaine <b>ton père, </b> Rabba, <b>était-il particulièrement vigilant ? </b> Il lui <b>répondit : </b> C'était <b>dans</b> la mitsva des <b>franges rituelles.</b> La Guemara relate : <b>Un jour, il montait les escaliers</b> lorsqu'une <b>corde</b> de ses franges rituelles <b>s'est rompue, et il ne voulait pas descendre avant d'avoir placé</b> une nouvelle corde <b>sur</b> le vêtement. <b>Et Abaye dit : Que je reçoive</b> ma récompense car <b>lorsque je vois un jeune érudit de la Torah qui a terminé un tractat</b> qu'il <b>étudiait</b> .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

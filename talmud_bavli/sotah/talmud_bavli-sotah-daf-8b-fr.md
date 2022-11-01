@@ -54,4 +54,4 @@ Le <i>baraita</i> continue : <b>J'ai</b> dérivé <b>seulement</b> la mesure rel
 Le <i>baraita</i> continue : <b>Et nous avons trouvé ceci à propos d'une <i>sota</i>, qu'avec la mesure avec laquelle elle a mesuré, elle est mesurée avec elle : Elle se tenait à l'ouverture de sa maison pour s'exhiber à</b> son amant, <b>c'est pourquoi un prêtre la fait se tenir à la porte de Nicanor et expose sa disgrâce à tous ; elle a étendu de beaux châles [<i>sudarin</i>] sur sa tête pour</b> son amant, <b>c'est pourquoi un prêtre enlève</b> son <b>mouchoir de sa tête et le place sous ses pieds ; elle a orné son visage pour</b> son amant, <b>c'est pourquoi</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La Guemara demande : <b>Mais n'avons-nous pas appris le contraire</b> dans la mi
 La Guemara demande : <b>Mais Rabbi Yoḥanan ne dit-il pas</b> en ce qui concerne la preuve que le destinataire doit apporter, que la <b>preuve</b> est présentée <b>en apportant</b> des <b>témoins</b> qui attestent que le donateur était en bonne santé, et non en ratifiant l'acte ? La Guemara répond : <b>Inverse</b> les avis de Rabbi Yoḥanan et Rabbi Shimon ben Lakish. Rabbi Yoḥanan soutient que le bénéficiaire est tenu de prouver sa demande uniquement en ratifiant l'acte, alors que Rabbi Shimon ben Lakish soutient que le bénéficiaire est tenu d'apporter des témoins. La Guemara demande : <b>Devons-nous dire</b> qu'il faut <b>aussi inverser l'objection</b> que Rabbi Yoḥanan a soulevée à Rabbi Shimon ben Lakish précédemment, et dire que Rabbi Shimon ben Lakish a soulevé l'objection à Rabbi Yoḥanan ? La Guemara répond : <b>Non,</b> c'est inutile.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

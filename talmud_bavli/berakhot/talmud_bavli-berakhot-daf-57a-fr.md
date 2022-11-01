@@ -66,4 +66,4 @@ Le <b><i>tanna</i></b> qui recitait des <i>mishnayot</i> <b>avant Rabbi Yohanan 
 <b>Rabbi Yohanan dit au <i>tanna:</i></b> Vous devriez <b>enseigner</b> que pour <b>un erudit de la Torah,</b> un reve de vin est <b>toujours</b> un <b>bon presage</b>, <b>comme il est dit : "Allez, mangez de mon pain et buvez du vin que j'ai mélangé"</b> (Proverbes 9:5).
 
 >Credit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

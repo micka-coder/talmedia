@@ -45,4 +45,4 @@ La Gemara note : <b>En Occident,</b> Eretz Yisrael, <b>on examine</b> le couteau
 Rabbi Shimon ben Lakish poursuit : <b>Et</b> en ce qui concerne <b>tous</b> ces défauts, <b>la mesure de leur défaut</b> est <b>équivalente</b> à la mesure du <b>défaut</b> qui rend <b>l'autel</b> impropre.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

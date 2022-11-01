@@ -48,4 +48,4 @@ La Gemara s'interroge : <b>Et pourquoi l'ont-ils appelé Naḥum de Gam Zu ?</b>
 Si les neuf sont morts <b>un seul jour,</b> alors qu'aucun n'est mort les autres jours, <b>ou</b> si les neuf sont morts <b>sur</b> une période de <b>quatre jours, ce n'est pas</b> une peste de <b>pestilence. Et une ville qui envoie cinq cents fantassins, par exemple, le village d'Amiko, et que l'on en retire trois morts sur trois jours consécutifs, c'est</b> une peste de <b>pestilence.</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -39,4 +39,4 @@ La question de Rava est basée sur le premier cas discuté dans le <i>baraita</i
 <b>Venez</b> et <b>entendez</b> une preuve différente remettant en cause l'avis du Rav Naḥman, à partir de la <i>baraita</i> suivante : si <b>un juif et un converti vivaient dans une seule résidence</b> composée de plusieurs pièces, <b>et que le converti décédait</b> sans enfant <b>alors qu'il faisait encore jour,</b> un tel converti n'a pas d'héritiers, et donc le premier à prendre possession de ses biens les acquiert.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -90,4 +90,4 @@ La Gemara demande : <b>Mais</b> selon l'avis du Rav Yehuda, <b>quelle</b> est la
 <b>Rabbi Yehuda dit à</b> Rabbi Yosei :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

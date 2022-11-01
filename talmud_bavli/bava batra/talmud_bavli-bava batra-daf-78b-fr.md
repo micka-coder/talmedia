@@ -48,4 +48,4 @@ Une interprétation similaire s'applique à la suite du verset : <b>"Une flamme 
 La Gemara interprète un verset ultérieur : "Nous avons tiré sur eux [<i>vanniram</i>], Heshbon a péri, jusqu'à Dibon, et nous avons dévasté jusqu'à Nopha, qui s'étend jusqu'à Medeba" (Nombres 21:30). <b>"<i>Vanniram</i>";</b> cela indique que la personne <b>méchante</b> <b>dit : Il n'y a pas de puissance supérieure [<i>ein ram</i>]</b> qui gouverne le monde. <b>"Heshbon a péri"</b> signifie : <b>Le compte [<i>ḥeshbon</i>] du monde a péri,</b> c'est-à-dire qu'ils affirment qu'il n'y a pas de responsabilité pour les actions de chacun. <b>"Même jusqu'à Dibon [<i>divon</i>]" ; le Saint, Béni soit-Il, dit : Attendez que le jugement vienne [<i>yavo din</i>]. "Et nous avons fait des ravages</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

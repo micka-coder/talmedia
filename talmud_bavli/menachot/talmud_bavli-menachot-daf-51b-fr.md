@@ -66,4 +66,4 @@ Dans un premier temps, ils ont agi conformément à ce qui est prescrit <b>par l
 § La Guemara cite la suite de la mishna dans <i>Shekalim</i> (7:7) : <b>Et</b> le tribunal a édicté une ordonnance <b>en ce qui concerne la <b>génisse rouge</b> selon laquelle on n'est pas</b> passible d'apporter une offrande <b>pour abus</b> d'un bien consacré si on tire un bénéfice <b>de ses cendres.</b> La Gemara s'interroge : Pourquoi la <i>baraita</i> déclare-t-elle qu'il s'agit d'une ordonnance du tribunal, alors qu'en fait <b>il s'agit d'une loi de la Torah ? Comme il est enseigné</b> dans une <i>baraita</i> : Le verset indique à propos d'une génisse rouge : <b>"C'est une offrande pour le péché"</b> (Nombres 19:9), ce qui <b>enseigne</b> qu'une génisse rouge est traitée comme une offrande pour le péché en ce sens que <b>on</b> est responsable de <b>l'avoir mal utilisée.</b> Le fait qu'il soit indiqué : <b>"Elle</b> est une offrande pour le péché" indique que si l'on en tire un bénéfice, <b>l'animal lui-même,</b> on est responsable de <b>mauvais usage</b> d'un bien consacré,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

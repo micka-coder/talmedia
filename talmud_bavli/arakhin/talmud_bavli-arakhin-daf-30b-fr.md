@@ -69,4 +69,4 @@ La Guemara demande : <b>Est-ce à dire que</b> le terme <b>"trouve" indique</b> 
 <b>Mais</b> en ce qui concerne <b>celui qui consacre</b> son <b>champ ancestral, puisque son pouvoir a été diminué,</b> en <b>ce que si</b> l'année <b>Jubilaire</b> <b>arrivait et</b> le champ <b>n'était pas racheté, </b> le champ <b>sort</b> de la possession du trésor du Temple et passe <b>en</b> possession des <b>prêtres</b> et ne revient pas au propriétaire initial, la Torah a donc <b>renforcé son pouvoir,</b> en <b>ce qu'il peut emprunter</b> de l'argent <b>et racheter</b> son champ, <b>et il peut le racheter partiellement</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -45,4 +45,4 @@ La Gemara demande : <b>Mais</b> quant à <b>Rabban Shimon ben Gamliel,</b> n'exi
 La Gemara raconte : Un <b>document commercial est apparu concernant les fils de Rav Ilish,</b> car il s'agissait d'une entreprise engagée par leur défunt père, <b>dans lequel il était écrit</b> que Rav Ilish et son associé partageront <b>la moitié des bénéfices et la moitié des pertes. Rava a dit : Rav Ilish était un grand homme, et</b> par conséquent, <b>il ne nourrirait pas les gens avec</b> quelque chose d'<b>interdit.</b> En d'autres termes, il ne se serait certainement pas impliqué dans une joint-venture par laquelle quelqu'un aurait gagné de l'argent au moyen d'un intérêt, et un arrangement de ce type semble constituer un intérêt. Par conséquent, <b>quoi qu'il en soit,</b> il doit y avoir une erreur en ce qui concerne ce document. <b>Si</b> la condition réelle stipulait qu'une partie recevrait <b>la moitié du profit,</b> l'autre partie doit avoir accepté de prendre sur elle <b>les deux tiers de la perte,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

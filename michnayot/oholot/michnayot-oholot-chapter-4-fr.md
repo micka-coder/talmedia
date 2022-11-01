@@ -8,5 +8,5 @@ Un tiroir de l'armoire, d'un tefah [paume] cube, mais dont la sortie n'est pas u
 ### michna 3
 Dans le cas où] l'armoire se trouve dans l'entrée de la porte et est ouverte vers l'extérieur, s'il y a une impureté à l'intérieur, la maison reste propre. S'il y a une impureté dans la maison, ce qui est à l'intérieur [de l'armoire] devient impur, car la manière de l'impureté est de sortir et non d'entrer. Si sa base roulante dépassait de trois phalanges derrière elle et qu'il y avait une impureté à l'intérieur sous les poutres du toit, la maison reste pure. Quand cette règle s'applique-t-elle ? Lorsqu'il y a un espace d'un tefah [paume] cube, lorsqu'il n'est pas facilement détachable, et lorsque l'armoire est de la taille stipulée.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

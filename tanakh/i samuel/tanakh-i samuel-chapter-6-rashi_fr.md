@@ -53,4 +53,4 @@
 <b>Soixante-dix hommes, cinquante mille hommes.</sup></b> Le Targum Yonathan rend : 'Il tua parmi les anciens du peuple soixante-dix hommes, et parmi la communauté cinquante mille hommes.'<sup>9</sup><i class="footnote">Un autre avis est que ce chiffre comprend également le nombre de Philistins qui furent tués suite à leur irrévérence envers l'Arche. </i> Nos rabbins ont cependant dit : 'Soixante-dix hommes, dont chacun était égal à cinquante mille, ou cinquante mille hommes dont chacun était égal aux soixante-dix du Sanhédrin.'<sup>10</sup><i class="footnote">Masechs Sotah 35b.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

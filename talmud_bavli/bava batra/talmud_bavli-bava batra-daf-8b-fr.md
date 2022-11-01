@@ -54,4 +54,4 @@ La Guemara reprend sa discussion sur les <i>halakhot</i> de la collecte de chari
 <b>Abaye a dit : Au début,</b> mon <b>Maître,</b> Rabba, <b>ne voulait pas s'asseoir sur les tapis de la synagogue car</b> ils avaient été achetés avec des fonds de charité. <b>Une fois qu'il a entendu ce qui est enseigné</b> dans une <i>baraita</i>, qu'il est permis aux habitants d'une ville <b>de changer</b> le but vers lequel la charité sera utilisée <b>à ce qu'ils veulent, il s'est assis</b> dessus. <b>Abaye a dit : Au début,</b> mon <b>Maître,</b> Rabba, <b>faisait deux bourses, une pour les pauvres de</b> le reste du <b>monde, et une pour les pauvres de sa ville. Une fois, il entendit ce que Shmuel avait dit à Rav Taḥalifa bar Avdimi : Fais</b> seulement <b>une bourse,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -90,4 +90,4 @@
 <b>Effet de rejet</b> Elle le rend rejeté, car elle rejette celui qui l'accepte de sur le Saint, béni soit-il.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

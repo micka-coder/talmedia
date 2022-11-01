@@ -45,7 +45,7 @@ La Guemara analyse la mishna en fonction de cette interprétation. <b>Cela fonct
 Mais <b>Selon</b> l'opinion de <b>Levi, qui dit</b> qu'il y a deux</b> sources distinctes,</b> l'une pour le sang après la naissance et l'autre pour le sang de pureté, <b>elle devrait</b> être tenue de s'<b>examiner</b> à la fin de la période suivant la naissance, car <b>peut-être que cette source impure</b> de sang après la naissance n'avait <b>pas encore cessé</b> de couler. La Guemara explique que <b>Levi</b> pourrait <b>saisir : </b> Conformément à <b>quel</b> avis <b>cette décision</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Les femmes qui ont des pertes menstruelles continues</b> leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours de grossesse et leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours d'allaitement.</b> C'est <b>la déclaration de Rabbi Meir. Rabbi Yosei, Rabbi Yehuda et Rabbi Shimon</b> tous <b>sont d'accord : Ils ont dit</b> que <b>son temps est suffisant seulement en ce qui concerne</b> la <b>première observation</b> de sang, <b>mais en ce qui concerne la seconde</b> observation, son statut est comme celui de toute autre femme, et elle <b>transmet l'impureté pendant</b> une <b>période de vingt-quatre heures ou d'examen en examen.</b>
 
@@ -92,4 +92,4 @@ La Guemara analyse la mishna en fonction de cette interprétation. <b>Cela fonct
 Mais <b>Selon</b> l'opinion de <b>Levi, qui dit</b> qu'il y a deux</b> sources distinctes,</b> l'une pour le sang après la naissance et l'autre pour le sang de pureté, <b>elle devrait</b> être tenue de s'<b>examiner</b> à la fin de la période suivant la naissance, car <b>peut-être que cette source impure</b> de sang après la naissance n'avait <b>pas encore cessé</b> de couler. La Guemara explique que <b>Levi</b> pourrait <b>saisir : </b> Conformément à <b>l'avis de qui</b> <b>cette décision</b> ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

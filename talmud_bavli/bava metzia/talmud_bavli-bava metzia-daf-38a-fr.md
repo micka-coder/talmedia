@@ -48,4 +48,4 @@ La Guemara <b>souleve une objection</b> d'un <i>baraita</i> : Dans le cas de <b>
 Dans le même ordre d'idées, la Gemara demande : Concernant les cas de <b>l'huile et elle s'est putréfiée, le miel et il s'est gâté,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

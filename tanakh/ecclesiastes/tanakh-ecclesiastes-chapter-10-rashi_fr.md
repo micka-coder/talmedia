@@ -89,4 +89,4 @@ Mais selon son sens simple : <b>Le fou multiplie les paroles.</b> Il déclare et
 <b>Et ce qui a des ailes.</b> L'ange qui t'escorte, comme il est dit : "Car il commandera à ses anges en ta faveur"<sup>34</sup><i class="footnote">Tehillim 91:11. </i> et selon sa signification apparente, " ceux qui vont et viennent " ; [c'est-à-dire que] tu dois t'inquiéter de chaque personne, peut-être y a-t-il des auditeurs, qui raconteront [l'affaire] à d'autres.<sup>35</sup><i class="footnote">La Guemara dans Masehet Bava Batra 4a affirme, que lorsque Bava le fils de Butta a rencontré Hordos, il a appliqué ce verset. </i> 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

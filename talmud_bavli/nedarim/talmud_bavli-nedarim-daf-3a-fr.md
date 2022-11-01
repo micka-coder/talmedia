@@ -30,4 +30,4 @@ La Gemara répond : <b>Si</b> la Torah <b>avait écrit : Un vœu à prononcer [<
 La Gemara demande : <b>Cela marche bien selon celui qui tient</b> que <b>la Torah a parlé dans la langue des hommes, mais selon celui qui ne tient pas</b> que <b>la Torah a parlé dans la langue des hommes,</b> tout terme double vient enseigner quelque chose. <b>Que fait-il de cette</b> phrase : <b>"Faire un voeu [<i>lindor neder</i>]"?</b> La Gemara répond : <b>Il l'explique pour rendre les intimations de vœux comme les vœux</b> eux-mêmes. <b>Et</b> le verset <b>juxtapose les vœux nazirites</b> <b>aux</b> autres <b>vœux</b> pour enseigner que les intimations de vœux sont comme des vœux en ce qui concerne les vœux nazirites, et pour enseigner les autres <i>halakhot</i> mentionnées ci-dessus. En ce qui concerne la phrase : " Le vœu d'un <b>nazirite, de se consacrer [<i>nazir lehazir</i>] ", il expose :</b> Ceci <b>enseigne</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

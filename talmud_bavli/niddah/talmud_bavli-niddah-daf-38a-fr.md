@@ -57,4 +57,4 @@ Le <i>baraita</i> explique : <b>Comment</b> ainsi ? Si <b>elle a éprouvé</b> d
 La Guemara répond : Shmuel <b>a dit</b> sa déclaration <b>conformément</b> à l'opinion des <b>premières</b> générations d'hommes <b>pieux</b>. <b>Comme il est enseigné</b> dans un <i>baraita</i> : <b>Les premières</b> générations d'hommes <b>pieux</b> <b>n'avaient de rapports sexuels que le mercredi, afin que leurs femmes ne viennent pas</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

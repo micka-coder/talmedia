@@ -15,4 +15,4 @@ Rami bar Ḥama conteste encore : <b>Mais peut-être</b> le témoin a <b>fait de
 § <b>Rav Yitzḥak bar Yosef dit</b> que <b>Rabbi Yoḥanan dit :</b> Il existe deux <i>halakhot</i> en ce qui concerne les documents : Pour <b>toutes les ratures</b> dans un document, le scribe <b>doit écrire</b> à la fin du document : <b>Et voici leur vérification.</b> C'est-à-dire qu'il doit dresser la liste des ratures, en précisant qu'à la ligne untel, il y a une rature et une correction indiquant tel et tel, pour chaque rature. <b>Et</b> le deuxième <i>halakha</i> est que le scribe <b>doit revoir</b> certains <b>détails du document dans la dernière ligne</b> du document. <b>Quelle est la raison</b> de cette deuxième exigence ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

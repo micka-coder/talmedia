@@ -42,4 +42,4 @@ La Gemara répond : Il <b>est raisonnable</b> que l'<b>exemption</b> s'applique 
 La Gemara explique : <b>Quel est le raisonnement des rabbins ? Puisque le verset dit : "Et un bœuf ou un âne y tombe"</b> (Exode 21:33), on en déduit que c'est spécifiquement <b>un bœuf, mais pas une personne,</b> pour la mort duquel le propriétaire de la fosse est responsable. En outre, on est responsable pour <b>un âne, mais pas pour les récipients.</b> En revanche, <b>Rabbi Yehuda</b> interprète le mot <b>"ou"</b> dans l'expression "un bœuf ou un âne" <b>pour inclure les récipients.</b> La Gemara demande : <b>Et</b> comment les Rabbins</b> expliquent-ils le mot "ou" ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

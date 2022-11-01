@@ -51,4 +51,4 @@ Plus tard, Rav Naḥman <b>lui dit : Que</b> ma fille <b>Donag vienne</b> et <b>
 Plus tard, le Rav Naḥman a suggéré : <b>Que le Maître envoie</b> des salutations de <b>paix à</b> ma femme <b>Yalta.</b> Rav Yehuda <b>lui a répondu : C'est ce que dit Shmuel : La voix d'une femme est</b> considérée comme une <b>nudité,</b> et on ne doit pas parler avec elle. Rav Naḥman répondit : Il est <b>possible</b> d'envoyer ses salutations <b>avec un messager.</b> Rav Yehuda <b>lui a dit : C'est ce que dit Shmuel :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

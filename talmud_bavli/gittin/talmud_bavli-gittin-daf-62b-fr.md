@@ -54,4 +54,4 @@ La Gemara concède que cette preuve est partiellement efficace : <b>Résoudre à
 <b>Rav Ashi a dit : Comment</b> ces cas peuvent-ils <b>être comparés ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

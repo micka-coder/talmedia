@@ -63,4 +63,4 @@ Si <b>il lisait sur le toit,</b> qui est un domaine privé à part entière, <b>
 <strong>GEMARA:</strong> La Gemara remet en question la première clause de la mishna : <b>Quelles sont les circonstances de ce seuil ? Si l'on dit</b> qu'elle fait référence à <b>un seuil</b> qui est <b>un domaine privé, et</b> il y a <b>un domaine public avant, et</b> la mishna enseigne que <b>on n'émet pas de décret de peur</b> que le rouleau entier <b>chute</b> de la main d'un individu <b>et qu'il vienne l'apporter</b> d'un domaine public à un domaine privé,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

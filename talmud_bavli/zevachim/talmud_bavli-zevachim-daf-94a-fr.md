@@ -42,4 +42,4 @@ La Guemara conteste l'explication de Rava : <b>Mais Rav Ḥiyya</b> bar Ashi n'a
 <b>Au contraire, Rava dit :</b> Bien que le verset concerne également le cuir dur, cela ne signifie pas que toutes les opinions doivent s'accorder sur le fait que le blanchiment est toujours applicable au cuir dur. Le cuir dur dans le verset est une exception, car dans le cas de la <b>lépreuse, puisque</b> la lèpre <b>sort de</b> l'intérieur du vêtement <b>lui-même, elle le détache et le rend souple</b> de sorte que son statut halakhique est celui du cuir souple. <b>Rava a dit :</b> Néanmoins, <b>si</b> quelque chose pose <b>une difficulté pour moi,</b> selon mon opinion que tout le monde s'accorde à dire que la <i>halakha</i> en ce qui concerne le blanchiment s'applique au cuir souple, <b>ceci</b> est ce qui pose <b>une difficulté pour moi :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

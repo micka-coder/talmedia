@@ -63,4 +63,4 @@ Ceci est clarifié : <b>Que signifie</b> qu'elle <b>ne lui convient pas ? Si l'o
 <b>Rav Oshaya soulève une objection</b> à cette explication, car il est indiqué dans une mishna du tractate <i>Yevamot</i> (20a) : Si une <i>yevama</i> est interdite à son <i>yavam</i> par <b>une interdiction</b> résultant d'une <b>mitsva ou</b> par <b>une interdiction</b> découlant de la <b>sainteté,</b> alors comme dans ces cas le lien lévirat n'est pas fondamentalement annulé, <b>elle accomplit <i>ḥalitza</i></b> afin de se libérer du lien lévirique, <b>et</b> en raison de l'interdiction <b>elle ne contracte pas de mariage lévirique. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

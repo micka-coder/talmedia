@@ -67,5 +67,5 @@
 ### passuk 18
 <b>Au milieu du nuage.</b> Ce nuage était comme une épaisse fumée, mais Dieu a tracé un chemin pour Moshé au milieu de celui-ci. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

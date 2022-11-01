@@ -24,4 +24,4 @@ Il a été enseigné dans la mishna : <b>La nuit entière est un temps valable</
 La Gemara répond : Il vient <b>inclure la consommation de l'offrande pascale,</b> et par conséquent cette mishna n'est <b>pas conforme</b> à l'avis de <b>Rabbi Elazar ben Azarya, car il est enseigné</b> dans une <i>baraita</i> qu'il est écrit : <b>"Et ils mangeront la viande cette nuit-là"</b> (Exode 12:8). <b>Rabbi Elazar ben Azarya a dit : Il est dit ici : " Cette nuit-là , " et il est dit plus loin : "Et je traverserai le pays d'Egypte en cette nuit"</b> (Exode 12:12). <b>De même que là,</b> lorsque Dieu traversa le pays d'Egypte, il était <b>jusqu'à minuit, de même ici,</b> l'offrande pascale ne peut être mangée que <b>jusqu'à minuit.</b> La mishna, qui affirme que l'offrande pascale peut être mangée toute la nuit, n'est pas en accord avec Rabbi Elazar ben Azarya.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

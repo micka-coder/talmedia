@@ -20,5 +20,5 @@ Les personnes suivantes sont tenues [de payer] le kalbon (surtaxe) : Les lévite
 ### michna 7
 Si quelqu'un a payé le shekel au nom d'un pauvre ou au nom de son voisin ou au nom de son concitoyen, il est exempté [du kalbon]. Mais s'il le leur a prêté, il est responsable. Les frères associés qui sont redevables du kalbon sont exemptés de la dîme des bêtes. Mais lorsqu'ils sont redevables de la dîme des bêtes, ils sont exemptés de la surtaxe. Et quel est le montant du kalbon ? Un ma'ah d'argent, ce sont les paroles de Rabbi Meir. Mais les sages disent : la moitié d'un ma'ah.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

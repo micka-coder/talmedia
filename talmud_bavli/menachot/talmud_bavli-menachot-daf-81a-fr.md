@@ -36,4 +36,4 @@ Ravina <b>s'est adressé à lui : La Torah a dit : "Mieux vaut ne pas faire de v
 <strong>MISHNA:</strong> <b>Celui qui dit : Il</b> m'incombe <b>d'apporter <b>une offrande de remerciement, doit l'apporter, ainsi que ses pains, à partir de l'argent non sacré</b> en sa possession et non de l'argent du second tith. Puisqu'il a dit : Cela m'incombe, apporter l'offrande est une obligation, et on ne peut pas remplir une obligation avec de l'argent de second-tithe.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

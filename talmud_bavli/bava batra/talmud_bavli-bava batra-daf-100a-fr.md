@@ -33,4 +33,4 @@ La Gemara relate un incident concernant l'attribution d'un chemin à travers une
 La mishna enseigne : La largeur standard d'une <b>voie publique</b> est de <b>seize coudées. Les Sages enseignent</b> dans une <i>baraïta</i> : La largeur standard d'un <b>chemin privé</b> est de <b>quatre coudées.</b> La largeur standard d'une <b>route</b> qui va <b>de ville en ville</b> est de <b>huit coudées.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -39,4 +39,4 @@ Les Sages <b>de Néharde'a disent : Le Rav ne fouetterait pas</b> un contrevenan
 La Guemara demande : <b>Qu'est-ce que</b> est la signification de : <b>Elle a voulu, et quel</b> est le sens de : <b>Elle n'a pas voulu ? Si nous disons</b> que : <b>Elle voulait,</b> signifie <b>qu'elle a dit oui,</b> qu'elle souhaite être fiancée, et : <b>Elle ne voulait pas,</b> signifie que <b>elle</b> a explicitement <b>dit non,</b> on peut apprendre <b>par inférence</b> que dans <b>la première clause</b> de la <i>baraita</i>, lorsqu'il a parlé comme il lui a donné l'argent et qu'aucune différence n'est suggérée entre le fait qu'elle veuille ou non,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

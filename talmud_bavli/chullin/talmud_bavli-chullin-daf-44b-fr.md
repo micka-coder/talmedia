@@ -36,4 +36,4 @@ La Guemara cite un aphorisme : <b>Rav Ḥisda dit : Qui est un érudit de la Tor
 En ce qui concerne le verset : "Celui qui déteste les cadeaux vivra", la Guemara relate que <b>quand on envoyait à Rabbi Elazar un</b> cadeau <b>de la maison du <i>Nasi</i>, il ne le prenait pas</b>. <b>Et lorsqu'on l'invitait, il ne s'y rendait pas</b>. En déclinant ces offres, <b>il leur disait</b> : <b>Le Maître ne désire-t-il pas que je vive ? Comme il est écrit : "Celui qui déteste les cadeaux vivra."</b> En revanche, <b>quand on envoyait</b> un cadeau <b>à Rabbi Zeira, il ne le prenait pas</b> mais <b>quand on l'invitait, il y allait. Il dit</b> en guise d'explication :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

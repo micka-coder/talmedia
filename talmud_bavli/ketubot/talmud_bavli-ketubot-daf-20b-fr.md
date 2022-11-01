@@ -24,7 +24,7 @@ La Gemara demande : <b>Accordé,</b> en ce qui concerne un monticule situé à c
 <strong>GEMARA:</strong> La Gemara dit : <b>Lorsque tu analyses</b> le raisonnement des avis des <i>tanna'im</i>, <b>dis</b> que selon <b>la</b> <b>déclaration de Rabbi</b> Yehuda HaNasi,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et si</b> le témoin <b>est un érudit de la Torah,</b> alors <b>même</b> si le plaideur <b>même</b> a rafraîchi la mémoire du témoin, celui-ci peut témoigner. Un érudit de la Torah ne témoignera pas s'il ne se souvient pas réellement du témoignage lui-même, <b>comme</b> dans <b>cette affaire</b> impliquant Rav Ashi, qui connaissait un témoignage</b> relatif <b>au Rav Kahana.</b> Rav Kahana <b>dit à</b> Rav Ashi : <b>Le Maître se souvient-il de ce témoignage ?</b> Rav Ashi <b>lui dit : Non.</b> Rav Kahana lui a dit : <b>N'est-ce pas</b> que l'incident s'est déroulé de <b>telle et telle</b> manière ? Rav Ashi <b>lui a dit : Je ne sais pas. Finalement, Rav Ashi s'est souvenu</b> du témoignage et a <b>témoigné pour</b> Rav Kahana. <b>Il vit que Rav Kahana était hésitant [<i>meḥassem</i>]</b> quant à l'acceptation de son témoignage, inquiet d'avoir influencé le contenu du témoignage de Rav Ashi. Rav Ashi <b>lui a dit : Pensez-vous</b> que <b>je me fie à vous ? J'ai fait un effort, et je me suis souvenu</b> de l'incident.
 
@@ -50,4 +50,4 @@ La Gemara demande : <b>Accordé,</b> en ce qui concerne un monticule situé à c
 <strong>GEMARA:</strong> La Gemara dit : <b>Lorsque tu analyses</b> le raisonnement des avis des <i>tanna'im</i>, <b>dis</b> que selon <b>la</b> <b>déclaration de Rabbi</b> Yehuda HaNasi,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

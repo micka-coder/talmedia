@@ -32,4 +32,4 @@
 <b>Et elle conçut et enfanta un fils</b> Selon le Targum : Et ils continuèrent et commirent de mauvaises actions. Mais selon son sens simple, nous l'expliquons comme il signifie apparemment .
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

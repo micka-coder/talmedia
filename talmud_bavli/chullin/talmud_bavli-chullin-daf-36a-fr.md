@@ -45,4 +45,4 @@ La Gemara demande : <b>Est-ce à dire</b> que <b>Rabbi Shimon ben Lakish n'a pas
 La Guemara explique que <b>Rabbi Elazar,</b> qui a cité le verset pour résoudre le dilemme de Rabbi Shimon ben Lakish, ne se contente pas de citer un verset que Rabbi Shimon ben Lakish connaît. Au contraire, il <b>établit</b> sa preuve <b>à partir de la formulation étrangère</b> <b>des versets. Puisqu'il est écrit : "Mais quand on met de l'eau sur la semence,</b> et qu'une partie de leur carcasse tombe dessus, elle est impure pour vous" (Lévitique 11:38), <b>pourquoi ai-je</b> besoin du verset : <b>"De toute nourriture qui peut être mangée,</b> sur laquelle l'eau vient, sera impure" (Lévitique 11:34) ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

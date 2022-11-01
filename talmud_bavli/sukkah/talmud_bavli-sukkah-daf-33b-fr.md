@@ -51,4 +51,4 @@ La Gemara répond : <b>Si</b> la <i>baraita</i> <b>est</b> conforme à l'avis de
 <b>Cela a été enseigné dans un autre</b> <i>baraita</i> : De <b>"saules du ruisseau", j'ai</b> dérivé <b>uniquement</b> les <b>saules du ruisseau</b> réels qui poussent sur les rives <b>du ruisseau.</b> En ce qui concerne les saules <b>du champ non irrigué</b> <b>et</b> les saules <b>des montagnes, d'où</b> déduis-je qu'ils sont également aptes ? <b>Le verset dit : "Saules du ruisseau,"</b> au pluriel, ce qui enseigne que les branches des saules sont aptes <b>dans tous les cas.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

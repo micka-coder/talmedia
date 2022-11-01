@@ -42,4 +42,4 @@ La Guemara rejette cet argument : <b>Comment peut-on</b> le cas concernant l'imp
 <b>Rabbi Zeira soulève une objection</b> à la décision de Rav Yosef à partir d'une <i>baraita</i> (<i>Tosefta</i>, <i>Menaḥot</i> 12:7) : A l'égard de <b>celui qui dit : Il m'incombe</b> d'apporter une <b>offrande de repas</b> de <b>cent dixièmes</b> d'un épha <b>dans deux récipients, il apporte soixante</b> dixièmes <b>dans un récipient, et</b> les <b>quarante</b> dixièmes restants <b>dans un récipient,</b> car on ne peut apporter plus de soixante dixièmes dans un seul récipient.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

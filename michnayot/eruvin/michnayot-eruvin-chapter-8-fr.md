@@ -33,4 +33,4 @@ Rabbi Eliezer ben Ya"akov dit : Dans le cas d'un fossé de drainage dont les qua
 Et de même, en ce qui concerne deux étages supérieurs [ deyotaot ], l'un en face de l'autre dans la même petite cour, si les résidents de l'un d'eux ont façonné une fosse dans la cour, et que les résidents de l'autre n'ont pas façonné de fosse, ceux qui ont façonné une fosse sont autorisés à verser leurs eaux usées dans la cour, tandis que ceux qui n'ont pas façonné de fosse ne sont pas autorisés à le faire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

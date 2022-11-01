@@ -18,4 +18,4 @@ Le <i>baraita</i> continue : Si la femme dit à son mari : <b>Je suis éloignée
 § On raconte qu'il y avait <b>un certain homme qui</b> faisait le vœu que tout <b>bénéfice du monde lui soit interdit si</b> il <b>épouse une femme alors qu'il n'a pas</b> encore <b>appris la <i>halakha</i>. Il courait sur une échelle et une corde mais n'était pas capable d'apprendre</b> la matière, c'est-à-dire que malgré tous ses efforts, il échouait dans ses études. <b>Rav Aḥa bar Rav Huna est venu et l'a induit en erreur,</b> lui permettant de comprendre que même s'il faisait un vœu, celui-ci ne prendrait pas effet, <b>et</b> donc <b>il s'est marié avec une femme.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

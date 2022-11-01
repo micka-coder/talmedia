@@ -24,4 +24,4 @@ La Gemara demande : <b>Et selon ce qui est entré dans notre esprit initialement
 § La mishna enseigne : Si le vendeur a vendu du <b>vin et que l'on découvre</b> qu'il s'agit de <b>vinaigre, tant</b> le vendeur que l'acheteur <b>peuvent renier</b> la vente. La Gemara suggère : <b>Devons-nous dire</b> que <b>la mishna est</b> en accord avec l'opinion du <b>Rabbi</b> Yehuda HaNasi <b>et non</b> en accord avec l'opinion des <b>rabbins ? Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

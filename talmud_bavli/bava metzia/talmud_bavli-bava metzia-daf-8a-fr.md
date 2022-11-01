@@ -72,4 +72,4 @@ La Gemara commente : <b>Et Rava vous a dit</b> que cette clause est basée sur u
 § La mishna enseigne : Si <b>deux</b> personnes <b>étaient assises</b> sur un animal, ou si l'une était assise sur l'animal et l'autre le conduisait, et que chacun revendique la propriété de l'animal, ils doivent chacun prêter serment et ils le divisent. <b>Rav Yosef a dit : Rav Yehouda m'a dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

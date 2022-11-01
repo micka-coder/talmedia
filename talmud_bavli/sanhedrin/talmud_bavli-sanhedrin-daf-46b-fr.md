@@ -72,4 +72,4 @@ La Gemara suggère : <b>Venez</b> et <b>entendez</b> une preuve de la malédicti
 La Gemara suggère : <b>Venez</b> et <b>entendez</b> une résolution de ce dilemme à partir de ce que Jérémie a dit à Sédécias : <b>"Tu mourras en paix ; et avec les brûlures de tes pères, les anciens rois qui t'ont précédé, ainsi feront-ils une brûlure pour toi ; et ils feront ton éloge en disant : Ah, maître"</b> (Jérémie 34:5). <b>Et si l'on dit</b> qu'un éloge funèbre <b>est</b> prononcé <b>en raison de l'honneur des vivants</b> parents du défunt, <b>quelle différence cela fait-il pour lui</b> s'il fait l'objet d'un éloge funèbre ? La Gemara répond : Il est possible qu'un éloge funèbre serve à honorer les vivants, et <b>c'est</b> ce que Jérémie <b>dit à</b> Sédécias : Profite de la pensée qu' <b>Israël sera honoré à travers toi</b> à tes funérailles tout <b>comme ils ont été honorés à travers tes ancêtres</b> à leurs funérailles.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

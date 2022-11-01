@@ -38,5 +38,5 @@ Une metzora pauvre qui a apporté le sacrifice d'un homme riche a accompli son d
 ### michna 13
 Si les sacrifices de deux metzoraim ont été mélangés et après que le sacrifice de l'un d'eux ait été offert, l'un des metzoraim est mort : c'est ce que les hommes d'Alexandrie ont demandé à Rabbi Joshua. Il leur répondit : qu'il cède ses biens à une autre personne, et qu'il apporte le sacrifice du pauvre.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

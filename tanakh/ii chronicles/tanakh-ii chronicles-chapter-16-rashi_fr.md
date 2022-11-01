@@ -34,4 +34,4 @@
 <b>Et ils allumèrent un feu extrêmement grand</b> Ils réduisirent en cendres les bonnes épices pour lui, et ils dispersèrent ces cendres sur lui. D'autres expliquent cela comme (<i>Abodah Zarah</i> 11a) : "Nous pouvons brûler pour les rois." Or, qu'ont-ils brûlé ? Leurs biers et les ustensiles qu'ils utilisaient.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

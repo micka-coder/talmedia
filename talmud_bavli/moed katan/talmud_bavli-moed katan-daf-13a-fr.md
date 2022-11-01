@@ -51,4 +51,4 @@ La mishna déclare : <b>Et l'on ne peut pas apporter</b> chez soi des <b>ustensi
 <b>Et nous lui avons répondu : Ici,</b> la mishna qui autorise cette pratique se réfère <b>au quatorze</b> de Nisan, la veille de Pessah, et <b>ici,</b> la mishna qui l'interdit, se réfère <b>aux jours intermédiaires d'une Fête.</b> Et <b>si vous voulez, dites</b> une autre explication : Tant <b>ceci que cela</b> se réfèrent <b>aux jours intermédiaires d'une Fête,</b> mais <b>ici,</b> la mishna qui interdit cette pratique se réfère à un cas <b>où il fait confiance</b> à l'artisan et ne s'inquiète pas de la perte ou du vol de ses ustensiles, alors que <b>ici,</b> la mishna qui permet de prendre des ustensiles vers et depuis l'artisan se réfère à un cas <b>où il ne fait pas confiance</b> à l'artisan.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -63,4 +63,4 @@ La Guemara rejette cette suggestion : <b>Voilà,</b> en ce qui concerne l'offran
 <b>Ravina dit : En fait,</b> la raison pour laquelle Rabbi Akiva règle que les personnes susceptibles de recevoir un <i>karet</i> sont fouettées est la suivante .
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

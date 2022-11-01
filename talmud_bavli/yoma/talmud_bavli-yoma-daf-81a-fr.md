@@ -66,4 +66,4 @@ La Guemara répond : <b>Non, elle est certainement disponible,</b> et nous pouvo
 <b>Rav Pappa a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

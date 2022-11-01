@@ -72,4 +72,4 @@ La Gemara propose donc une explication alternative : <b>Voici plutôt</b> ce que
 La Gemara conteste : <b>Si oui,</b> c'est-à-dire si le placement de la poignée à l'intérieur d'un récipient de service complète le rite qui commence par le retrait de la poignée, alors <b>même</b> si la poignée a été retirée par un individu inapte qui ne l'a <b>pas encore <b>sanctifiée</b> dans le récipient de service désigné pour la poignée,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

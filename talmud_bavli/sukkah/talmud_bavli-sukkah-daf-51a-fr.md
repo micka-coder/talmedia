@@ -51,4 +51,4 @@ La Gemara demande : <b>Et</b> selon <b>l'autre</b> <i>tanna</i> <b>too,</b> qui 
 Les <b>pieux et</b> les <b>hommes d'action dansaient devant</b> le peuple qui assistait à la fête,
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

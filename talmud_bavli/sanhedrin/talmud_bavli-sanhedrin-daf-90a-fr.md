@@ -39,4 +39,4 @@ La Guemara développe : <b>Abaye tient selon</b> l'avis du <b>Rav Ḥisda et exp
 Le <i>baraita</i> continue : <b>La fille d'un prêtre</b> est une exception, car <b>elle</b> est exécutée <b>par le feu</b> si elle commet l'adultère, <b>et son paramour n'est pas</b> exécuté <b>par le feu. </b> En ce qui concerne les témoins <b>conspirateurs</b> qui ont témoigné qu'ils ont commis l'adultère, <b>Je ne sais pas si les</b> témoins <b>sont assimilés</b> au paramour ou <b>si</b> ils <b>sont assimilés</b> à la fille du prêtre, en termes de punition. <b>Quand</b> le verset <b>déclare</b> à propos des témoins conspirateurs : "Comme il a conspiré <b>à faire à son frère"</b>, on en déduit : Comme il conspira de faire <b>à son frère, mais pas</b> comme il conspira de faire <b>à sa sœur.</b> L'exécution des témoins conspirateurs est assimilée à celle de l'amant, qui est exécuté par strangulation, et n'est pas assimilée à celle de la fille du prêtre, qui est exécutée par le feu.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

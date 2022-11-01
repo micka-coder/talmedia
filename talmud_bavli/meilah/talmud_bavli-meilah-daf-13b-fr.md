@@ -30,4 +30,4 @@ La Guemara poursuit : <b>Et Rabbi Yoḥanan dit au nom de</b> Rabbi <b>Menaḥem
 <strong>MISHNA :</strong> En ce qui concerne un <b>nid d'oiseau qui se trouve au sommet de l'arbre consacré,</b> on <b>ne peut pas en tirer un bénéfice</b> <i>ab initio</i>, <b>mais</b> si on en tirait un bénéfice, on n'est <b>pas</b> responsable de son <b>mauvais usage. </b> Pour acquérir un nid d'oiseau <b>qui se trouve</b> au sommet d'un <b>arbre vénéré comme une idolâtrie,</b> dont on ne peut tirer un bénéfice même en y grimpant, <b>on doit déloger</b> le nid de son emplacement en le frappant <b>avec une perche. </b> Dans le cas de <b>celui qui consacre</b> sa <b>forêt, on est</b> responsable de <b>mauvais usage</b> de tout <b>dans toute</b> la forêt.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

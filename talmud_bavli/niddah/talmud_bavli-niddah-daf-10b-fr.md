@@ -54,7 +54,7 @@ La Guemara fournit plusieurs réponses : <b>Si vous le souhaitez, dites</b> qu'e
 La Guemara note qu'une autre paire de Sages a eu le même différend. <b>Et de même, Rabbi Shimon ben Lakish dit :</b> Cette qualification s'applique <b>à tous ; et Rabbi Yoḥanan dit : Ils l'ont enseigné</b> <b>uniquement</b> en ce qui concerne une <b>vierge menstruée et une femme âgée. Mais</b> dans le cas d'une <b>femme enceinte et d'une femme qui allaite, leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours de grossesse et leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours d'allaitement.</b> La Gemara suggère : Ceci est <b>comme</b> une dispute entre <b><i>tanna'im</i></b> dans la <i>baraita</i> suivante : A propos d'une <b>femme enceinte et d'une femme allaitante qui étaient</b>...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Rabbi Ilai s'oppose à cette</b> décision de Ḥizkiyya : <b>Et quelle</b> est la différence <b>entre ce</b> cas d'une jeune fille qui n'a pas encore commencé à avoir ses règles <b>et</b> une <b>vierge menstruelle récemment mariée dont la tache</b> est réputée pure tant <b>que son sang est pur,</b> puisque la tache est présumée provenir de son hymen déchiré ? <b>Rabbi Zeira lui a dit</b> : En ce qui concerne <b>cette</b> vierge menstruelle, <b>sa sécrétion [<i>sirfah</i>] est commune,</b> c'est-à-dire que le sang de son hymen déchiré se trouve normalement pendant cette période. Par conséquent, toute tache de sang qui est trouvée est également supposée provenir de son hymen. <b>Mais</b> dans le cas de <b>cette</b> jeune fille, <b>sa sécrétion n'est pas courante.</b> Par conséquent, si une tache de sang est trouvée, elle est supposée être du sang menstruel.
 
@@ -110,4 +110,4 @@ La Guemara fournit plusieurs réponses : <b>Si vous le souhaitez, dites</b> qu'e
 La Guemara note qu'une autre paire de Sages a eu le même différend. <b>Et de même, Rabbi Shimon ben Lakish dit :</b> Cette qualification s'applique <b>à tous ; et Rabbi Yoḥanan dit : Ils l'ont enseigné</b> <b>uniquement</b> en ce qui concerne une <b>vierge menstruée et une femme âgée. Mais</b> dans le cas d'une <b>femme enceinte et d'une femme qui allaite, leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours de grossesse et leur</b> temps est <b>suffisant</b> pour <b>tous leurs jours d'allaitement.</b> La Gemara suggère : Ceci est <b>comme</b> une dispute entre <b><i>tanna'im</i></b> dans la <i>baraita</i> suivante : A propos d'une <b>femme enceinte et d'une femme allaitante qui étaient</b>...
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

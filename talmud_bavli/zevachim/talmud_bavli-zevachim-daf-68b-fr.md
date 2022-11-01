@@ -48,4 +48,4 @@ La Gemara répond : Il est écrit <b>d'ajouter</b> le pincement avec la main <b>
 La Guemara suggère : <b>Venez</b> et <b>entendez</b> la preuve de la suite de la mishna : <b>Voici le principe :</b> La viande de <b>n'importe quel</b> oiseau <b>dont la disqualification s'est produite</b> au cours de l'office <b>dans la cour sacrée</b> du Temple <b>ne rend pas</b> les <b>vêtements</b> de celui qui l'avale <b>rituellement impurs</b> lorsque la viande est <b>dans la gorge. Accordé, selon Rabbi Yoḥanan,</b> le mot : <b>Tout,</b> est écrit <b>pour ajouter</b> que même le pincement d'un <b>non-prêtre</b> ne rend pas l'oiseau une carcasse. <b>Mais selon le Rav,</b> qui soutient que cela rend l'oiseau une carcasse, <b>qu'est-ce qui est ajouté</b> par le mot : Tout ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La Guemara clarifie : <b>Selon l'avis de qui</b> la déclaration de <b>Rabbi Yeh
 La Guemara rejette cette suggestion : <b>Non,</b> il se peut <b>que tout le monde soit d'accord</b> que selon Rabbi Eliezer dans un cas où l'intention est de manger, après son temps désigné, un objet qui est habituellement brûlé, ou de brûler un objet qui est habituellement mangé, <b>il n'y a pas</b> de responsabilité de recevoir <b><i>karet</i>. Et ici</b> il y a <b>trois différends en ce qui concerne la question. Le premier <i>tanna</i> soutient</b> que les rabbins et Rabbi Eliezer <b>sont en désaccord</b> uniquement <b>dans ces</b> cas, en ce qui concerne le fait que l'offrande soit rendue impropre en raison de l'intention de manger un objet que l'on brûle habituellement ou de brûler un objet que l'on mange habituellement. Mais en ce qui concerne <b>l'abandon</b> de son sang jusqu'au lendemain, <b>tout le monde est d'accord</b> pour dire que l'offrande est <b>apte.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

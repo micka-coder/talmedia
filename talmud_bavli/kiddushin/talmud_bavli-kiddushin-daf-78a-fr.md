@@ -66,4 +66,4 @@ La Guemara commente : <b>Et tous</b> les <i>tanna'im</i> qui ont un différend c
 <b>Rav Naḥman dit à Rava :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

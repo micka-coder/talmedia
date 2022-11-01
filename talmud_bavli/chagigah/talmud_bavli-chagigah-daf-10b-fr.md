@@ -51,4 +51,4 @@ La Guemara explique : <b>Et lorsqu'il a effectué son agencement, pourquoi</b> l
 La guemara soulève une difficulté. <b>Quelle est</b> la <b>difficulté</b> logique de cette <i>halakha</i> ? <b>Peut-être</b> faut-il l'expliquer <b>conformément</b> à l'avis <b>de Shmuel, comme l'a dit Shmuel : Ici,</b> cette mishna ne fait pas référence à une personne ordinaire qui a ramassé une pierre consacrée pour elle-même.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

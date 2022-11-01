@@ -20,5 +20,5 @@ Si [la personne qui s'approche] se retourne soudainement [sans être identifiée
 ### michna 7
 S'il a vu un koy et a dit : "Voici, je suis un nazirite si c'est une bête sauvage", [et un autre] "Voici, je suis un nazirite si ce n'est pas une bête sauvage", [un troisième a dit] "Voici, Je suis un naziréen si c'est une bête domestique", [et un quatrième a dit] "Voici, je suis un naziréen si ce n'est pas une bête domestique", [un cinquième a dit] "Voici, je suis un naziréen si c'est à la fois une bête sauvage et une bête domestique, " [et un sixième dit :] "Voici, je suis un naziréen si ce n'est ni un animal sauvage ni un animal domestique"[et un septième dit :] "Voici, je suis un naziréen si l'un de vous est un naziréen, " [et un huitième a dit,] Voici, je suis un naziréen si l'un d'entre vous n'est pas un naziréen, " [et un neuvième a dit,] "Voici, je suis un naziréen si vous êtes tous des naziréens", alors tous sont des naziréens.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

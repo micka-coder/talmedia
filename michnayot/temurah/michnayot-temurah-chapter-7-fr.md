@@ -17,5 +17,5 @@ Et les éléments suivants doivent être brûlés : le Chametz de Pessah est br�
 ### michna 6
 Tous les animaux dédiés qui ont été abattus [dans l'intention d'être mangés] après l'heure fixée ou en dehors de leur lieu fixé doivent être brûlés. Un asham offert par une personne qui a un doute [quant à savoir si elle a transgressé] doit être brûlé. Rabbi Judah dit : on doit l'enterrer. Un hatat d'oiseau qui est apporté pour un doute est brûlé. Rabbi Juda dit : on le jette à l'égout. Tout ce qui doit être enterré ne doit pas être brûlé, et tout ce qui doit être brûlé ne doit pas être enterré. Rabbi Juda dit : si quelqu'un veut être rigoureux avec lui-même, brûler des choses qui sont enterrées, il lui est permis de le faire. On lui dit : il n'est pas permis de changer.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

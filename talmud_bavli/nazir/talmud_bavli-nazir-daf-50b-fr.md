@@ -24,4 +24,4 @@
 La Guemara soulève une difficulté quant au fondement de la question dirigée vers l'avis de Ḥizkiyya. <b>Rav Shimi bar Adda dit à Rav Pappa : D'où</b> savons-nous <b>que cette</b> quantité spécifiée par Rabbi Meir : <b>A partir de l'articulation de ses doigts et au-dessus,</b> signifie <b>vers les extrémités</b> des doigts ? <b>Peut-être</b> fait-il référence <b>au dessous,</b> vers le bras, <b>dans ce cas</b> <b>c'est</b> exactement la même quantité que celle de Ḥizkiyya : <b>Une pleine paume de la main.</b> Si tel est le cas, cette <i>baraita</i> ne présente aucune difficulté pour Ḥizkiyya. Aucune réponse n'a été trouvée, et la Guemara dit que la question <b>doit rester</b> non résolue.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

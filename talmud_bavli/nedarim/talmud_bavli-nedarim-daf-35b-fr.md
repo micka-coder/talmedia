@@ -24,4 +24,4 @@ Cette <i>halakha</i> est <b>conforme à la déclaration de Rabbi Yehuda, comme i
 Le fait qu'il soit obligé d'apporter l'offrande d'une personne riche en son nom est dû au fait <b>que c'est</b> ce qu'il <b>écrit</b> dans <b>son</b> contrat de mariage : <b>Et la responsabilité</b> de payer toute obligation financière <b>que tu as</b> encourue <b>avant ce</b> moment <b>est</b> à ma charge. </b> Les offrandes qu'elle est tenue d'apporter sont incluses dans ces obligations, quel que soit son degré de compétence halakhique. L'offrande d'une femme après un accouchement fait partie des offrandes apportées par ceux qui manquent d'expiation. Par conséquent, même si les prêtres sont nos agents, ils peuvent sacrifier l'offrande au nom de la femme ; puisqu'ils peuvent le faire à son insu et sans son intention, aucune agence n'est requise. Par conséquent, la mishna ne prouve pas que les prêtres sont des agents du Ciel.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

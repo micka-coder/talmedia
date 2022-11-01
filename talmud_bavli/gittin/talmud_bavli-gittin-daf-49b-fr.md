@@ -63,4 +63,4 @@ La Gemara répond : <b>Si tu veux, dis</b> qu'il s'agit d'un cas <b>où</b> le f
 § A propos d'un garant pour un contrat de mariage, la Gemara note : Il <b>a été dit</b> que <b>tout le monde est d'accord</b> que <b>un garant</b> qui signe <b>un contrat de mariage ne</b> devient pas de ce fait <b>responsable</b> du paiement du contrat de mariage sur ses propres biens.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

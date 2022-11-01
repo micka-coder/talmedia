@@ -27,4 +27,4 @@ La Gemara conteste : <b>Quoi qu'on en dise</b> la déclaration de Rav Huna est p
 La Gemara demande : <b>Est-ce ainsi</b> que Rabba bar bar Ḥana peut, par le biais de la déclaration préventive, invalider l'acte de vente qu'il a lui-même signé ? <b>Mais le Rav Naḥman ne dit-il pas :</b> En ce qui concerne les <b>témoins qui ont dit : Notre déclaration</b> que nous avons signée <b>était</b> un document de <b>confiance,</b> c'est-à-dire un faux billet à ordre donné par une personne à une autre, en espérant qu'elle n'en fera pas usage jusqu'à ce qu'il y ait un prêt effectif,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

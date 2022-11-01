@@ -34,7 +34,7 @@
 <b>Et comme une mariée, qui se pare de ses bijoux</b> Heb. כֵלֶיהָ, [lit. ses ustensiles, dans ce cas,] ses bijoux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Depuis que le Seigneur m'a oint</b> Cette onction n'est rien d'autre que l'expression de la noblesse et de la grandeur.
 <b>Pour déclarer la liberté des captifs</b> C'est-à-dire leur apporter la nouvelle de la rédemption.
@@ -70,4 +70,4 @@
 <b>Et comme une mariée, qui se pare de ses bijoux</b> Heb. כֵלֶיהָ, [lit. ses ustensiles, dans ce cas,] ses bijoux.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -66,4 +66,4 @@ La Gemara demande : Comment Abaye a-t-il pu prétendre que Rabbi Yehuda HaNasi s
 <strong>GEMARA:</strong> <b>Rav Yehuda dit</b> que <b>Rav a dit : On égorge</b> l'agneau pascal <b>et on asperge</b> son sang <b>au nom de celui qui s'est immergé pendant la journée</b> en raison d'un type d'impureté rituelle dont il deviendra totalement pur rituellement à la tombée de la nuit. S'il s'immerge le quatorze de Nisan, un agneau pascal peut être offert en son nom. <b>Et</b> un agneau pascal peut être offert au nom de celui qui est rituellement impur avec un type d'impureté rituelle qui nécessite qu'il apporte également une offrande expiatoire pour compléter complètement son processus de purification, même s'il <b>manque</b> l'offrande <b>expiatoire</b>, c'est-à-dire qu'elle n'a pas encore été offerte. Puisqu'il sera rituellement pur et capable de participer à l'agneau pascal le soir, l'agneau pascal peut être abattu en son nom pendant la journée, bien qu'au moment de l'abattage il n'ait pas encore achevé son processus de purification.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

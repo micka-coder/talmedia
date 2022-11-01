@@ -58,4 +58,4 @@
 <b>et il n'y a personne en dehors de moi</b> וְאַפְסִי
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

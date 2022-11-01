@@ -54,4 +54,4 @@ En ce qui concerne le verset : "Et la <i>ḥasida</i>, et la <i>anafa</i> selon 
 Le Rav Ḥisda lui <b>dit : Voici</b> ce que <b>le père de ta mère,</b> Rav Ḥanan, fils de Rava, <b>a dit au nom du Rav:</b> Les expressions <b>"après ses genres", "après ses genres", "après ses genres"</b> et <b>"après ses genres"</b> qui apparaissent dans chaque liste indiquent des cas supplémentaires. <b>Voici,</b> donc, <b>quatre</b> de plus. La Gemara objecte : <b>Si c'est le cas, il y en a vingt-six,</b> et non vingt-quatre. <b>Abaye dit :</b> Le <b><i>da'a</i></b> mentionné dans le Lévitique <b>et</b> le <b><i>ra'a</i></b> mentionné dans le Deutéronome <b>sont un</b> oiseau. <b>Aussi, s'il vous vient à l'esprit que ce sont deux</b> oiseaux différents,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -24,4 +24,4 @@ La Guemara demande plus loin : <b>Nous avons appris</b> dans cette même mishna 
 La Guemara demande plus loin : <b>Nous avons appris</b> dans cette mishna : <b>Celui qui a accepté deux</b> termes de <b>nazirite se rase</b> ses cheveux pour <b>le premier</b> terme de nazirite le <b>trente-et-unième jour, et</b> il se rase les cheveux pour <b>le second</b> terme <b>le soixante-et-unième jour. Accordé,</b> selon <b>le Rav Mattana</b> cela <b>fonctionne bien,</b> puisqu'il se rase la tête pour la première naziréité après que trente jours complets se soient écoulés. Le deuxième terme de la naziréité commence alors ce jour-là, qui est le trente-et-unième jour depuis qu'il a prononcé ses vœux. Il se rase ensuite pour la deuxième fois le trente et unième jour de sa deuxième naziréité, soit le soixante et unième jour depuis qu'il a prononcé ses vœux.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

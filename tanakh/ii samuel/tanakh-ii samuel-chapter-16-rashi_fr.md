@@ -48,7 +48,7 @@
 <b>Et tu renforceras les mains de tous ceux qui sont avec toi.</b> Car actuellement leurs mains sont faibles dans leur capacité à t'aider parce qu'ils se disent [à eux-mêmes] dans leur cœur : "Le fils changera envers [et se réconciliera avec] son père et nous serons haïs du roi.</sup>1</sup><i class="footnote">Pour avoir participé à une conspiration contre lui.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Plus de cent portions de figues sèches.</b> Le Yonathan traduit : "Cent portions de figues sèches."
 
@@ -98,4 +98,4 @@
 <b>Et tu renforceras les mains de tous ceux qui sont avec toi.</b> Car actuellement leurs mains sont faibles dans leur capacité à t'aider parce qu'ils se disent [à eux-mêmes] dans leur cœur : "Le fils changera envers [et se réconciliera avec] son père et nous serons haïs du roi.</sup>1</sup><i class="footnote">Pour avoir participé à une conspiration contre lui.</i>
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

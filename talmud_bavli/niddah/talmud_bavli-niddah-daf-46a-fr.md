@@ -72,4 +72,4 @@ Rav Huna explique : <b>Comme il est dit : "Lorsque</b> soit <b>un homme</b> soit
 <b>Rav Huna bar Yehuda soulève une objection</b> à Rava, <b>à l'appui</b> de l'opinion <b>du Rav Huna :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

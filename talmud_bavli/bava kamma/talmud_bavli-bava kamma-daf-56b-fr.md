@@ -39,4 +39,4 @@ La Guemara présente <b>un moyen mnémotechnique</b> pour les <i>halakhot</i> et
 <b>Rav Yosef soulève une objection à</b> l'opinion de <b>Rabba</b> à partir de ce qui est enseigné dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

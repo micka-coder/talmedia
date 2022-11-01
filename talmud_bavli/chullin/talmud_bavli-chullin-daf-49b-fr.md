@@ -45,4 +45,4 @@ La Guemara revient à la discussion initiale concernant les graisses et les perf
 La Gemara demande : <b>Quel est le <i>ḥimtza</i> et quel est le <i>bar ḥimtza</i> ? </b> La Gemara suggère : <b>Venez</b> et <b>entendez</b> la preuve de ce <b>que dit Rav Naḥman</b> à propos d'une des graisses de la caillette. Se peut-il qu'ils <b>ils,</b> les résidents d'Eretz Yisrael, <b>le mangent</b>, considérant qu'il est permis de le consommer,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

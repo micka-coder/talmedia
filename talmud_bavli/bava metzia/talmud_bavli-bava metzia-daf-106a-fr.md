@@ -45,7 +45,7 @@ La Gemara répond : <b>Rav Naḥman bar Yitzḥak a dit : Là,</b> le cas en ce 
 La Guemara répond : C'est <b>parce que</b> le berger pourrait <b>dire au</b> propriétaire : <b>Si vous étiez digne qu'un miracle vous arrive, un miracle vous serait</b> effectivement <b>arrivé comme</b> il l'a fait pour <b>Rabbi Ḥanina ben Dosa, lorsque</b> ses <b>chèvres ont amené des ours</b> empalés <b>sur leurs cornes</b> sans aucune assistance de la part d'un berger (voir <i>Ta'anit</i> 25a). La Gemara demande : <b>Et que</b> le propriétaire lui <b>dise : Accordé que je n'étais pas digne d'un grand miracle,</b> mais <b>d'un petit miracle</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC
 ### Partie 1
 <b>Qu'est-ce que</b> est le <i>halakha</i> ? Si les champs environnants ont été plantés avec <b>un autre</b> type de <b>graines, quel</b> est le <i>halakha</i> ? De même, le <b>blé, par rapport à l'orge,</b> est-il considéré <b>comme un type différent</b> de <b>graine ou non ? </b> En outre, si <b>le monde entier,</b> c'est-à-dire, tous les champs environnants, étaient frappés <b>par les souffles du vent et que le sien</b> était affecté <b>par le mildiou;</b> ou <b>alternativement,</b> si les champs du <b>monde entier</b> étaient frappés <b>par le mildiou, et que le sien</b> était frappé <b>par les souffles du vent, quelle</b> est la <i>halakha</i> ? La Gemara répond : Aucune résolution n'est trouvée à aucun de ces dilemmes, et les dilemmes <b>doivent rester</b> non résolus.
 
@@ -92,4 +92,4 @@ La Gemara répond : <b>Rav Naḥman bar Yitzḥak a dit : Là,</b> le cas en ce 
 La Guemara répond : C'est <b>parce que</b> le berger pourrait <b>dire au</b> propriétaire : <b>Si vous étiez digne qu'un miracle vous arrive, un miracle vous serait</b> effectivement <b>arrivé comme</b> il l'a fait pour <b>Rabbi Ḥanina ben Dosa, lorsque</b> ses <b>chèvres ont amené des ours</b> empalés <b>sur leurs cornes</b> sans aucune assistance de la part d'un berger (voir <i>Ta'anit</i> 25a). La Gemara demande : <b>Et que</b> le propriétaire lui <b>dise : Accordé que je n'étais pas digne d'un grand miracle,</b> mais <b>d'un petit miracle</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

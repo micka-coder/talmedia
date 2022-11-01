@@ -42,4 +42,4 @@ La Guemara note <b>un moyen mnémotechnique</b> pour les trois déclarations sui
 <b>Reish Lakish dit : Parfois</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -84,4 +84,4 @@ La Guemara demande : <b>Si c'est le cas,</b> la <i>baraita</i> énumère-t-elle 
 <b>Rav Naḥman bar Yitzḥak a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -83,7 +83,7 @@
 <b>Ephraïm avec Manassé</b> Avec Manassé, et ensemble ils s'uniront contre Juda.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Le peuple qui marchait dans les ténèbres</b> Les habitants de Jérusalem, qui étaient assombris par leur inquiétude [de tomber entre les mains] de Sennachérib. Comp. avec ce que dit Ezéchias (infra 7,3) : "Ce jour est un jour de détresse, de débats et de blasphèmes."
 <b>On a vu une grande lumière</b> avec la chute de Sennachérib.
@@ -168,4 +168,4 @@
 <b>Ephraïm avec Manassé</b> Avec Manassé, et ensemble ils s'uniront contre Juda.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

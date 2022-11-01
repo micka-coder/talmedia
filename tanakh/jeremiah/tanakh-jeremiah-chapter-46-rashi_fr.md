@@ -96,7 +96,7 @@
 <b>Détruire complètement</b> Heb. ונקה [lit. nettoyer,] une expression de balayer et de détruire, et Jonathan aussi l'a rendu une expression de détruire.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 
 ### passuk 2
@@ -194,4 +194,4 @@
 <b>Détruire complètement</b> Heb. ונקה [lit. nettoyer,] une expression de balayer et de détruire, et Jonathan aussi l'a rendu une expression de détruire.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

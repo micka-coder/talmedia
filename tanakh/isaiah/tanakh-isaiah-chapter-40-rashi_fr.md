@@ -123,7 +123,7 @@
 <b>Ailes</b> [L'hébreu אבר signifie] une aile.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>Consolez, consolez Mon peuple</b> Il revient à ses prophéties futures ; puisque d'ici à la fin du Livre sont des paroles de consolations, cette section les a séparées des prophéties de rétribution. Consolez, vous, Mes prophètes, consolez Mon peuple.
 
@@ -248,4 +248,4 @@
 <b>Ailes</b> [L'hébreu אבר signifie] une aile.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

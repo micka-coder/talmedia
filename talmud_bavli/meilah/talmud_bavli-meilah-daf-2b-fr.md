@@ -33,4 +33,4 @@ La Gemara soulève une autre difficulté : <b>N'avons-nous pas également appris
 La Gemara répond : Il pourrait <b>entrer dans votre tête</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

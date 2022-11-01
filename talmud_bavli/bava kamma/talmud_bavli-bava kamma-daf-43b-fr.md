@@ -72,4 +72,4 @@ Le <i>baraita</i> demande : <b>Et</b> ne pourrait-on pas <b>ceci</b> être déri
 <b>Et en outre, il</b> pourrait en être déduit <b><i>a fortiori</i> : Si</b> dans le cas où <b>une personne</b> tue <b>une personne</b> la Torah <b>ne rend pas les mineurs</b> entièrement <b>comme des adultes en ce qui concerne cet</b> acte, dans la mesure où les mineurs sont exempts de responsabilité pour avoir tué, mais néanmoins <b>elle rend</b> une personne <b>responsable pour</b> avoir tué des <b>mineurs</b> aussi bien <b>que des adultes,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

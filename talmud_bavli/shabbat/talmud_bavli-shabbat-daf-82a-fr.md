@@ -30,4 +30,4 @@ La Guemara continue à discuter de la question : <b>La personne qui avait besoin
 Nous avons appris dans la mishna que <b>Rabbi Yosei lui a dit :</b> Y a-t-il une <b>preuve à partir de là ?</b> Il cite une preuve pour son opinion à partir de la conclusion de ce même verset. La Gemara commente : <b>Rabbi Yosei a bien parlé à Rabbi Meir. Et</b> comment <b>Rabbi Meir</b> répond à cette preuve ? Il explique que le verset <b>est énoncé</b> en employant le style de : <b>Il n'y a pas de besoin.</b> Il doit être compris comme suit : <b>Il n'y a pas besoin</b> de dire que <b>un objet</b> qui est <b>signifiant pour les gens,</b> par exemple, un grand tesson de faïence pour alimenter un feu, <b>ne sera pas trouvé, mais même un objet</b> qui est <b>insignifiant pour les gens,</b> c'est-à-dire, un tesson pour extraire l'eau, <b>ne sera pas trouvé.</b> Par conséquent, la conclusion du verset ne contredit pas l'opinion de Rabbi Meir'.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

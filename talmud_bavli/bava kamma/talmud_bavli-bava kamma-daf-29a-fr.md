@@ -48,4 +48,4 @@ La Guemara demande : <b>Mais après la chute,</b> selon cette affirmation, <b>qu
 La Guemara répond : <b>Au contraire, quelle</b> est l'explication de la phrase : <b>Au moment de</b> la <b>chute de la personne ?</b> Elle signifie <b>même au moment de</b> la <b>chute de la personne, et</b> elle <b>nous enseigne</b> que le litige fait référence à une situation où le dommage s'est produit après la chute et aussi à une situation où il s'est produit au moment de la chute, <b>conformément à l'explication d'Abaye</b> de la mishna.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

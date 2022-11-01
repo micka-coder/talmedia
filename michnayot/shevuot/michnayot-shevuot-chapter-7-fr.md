@@ -23,5 +23,5 @@ De même, ils ont dit que celle qui compromet sa kethubah [en admettant qu'elle 
 ### michna 8
 Et ceux-là prêtent serment bien qu'il n'y ait pas de créance [définitive] : les associés, les locataires, les tuteurs, la femme qui s'occupe des affaires de la maison, et le fils de la maison. S'il lui dit : "Que veux-tu de moi ?", [et que l'autre lui réponde :] "Je veux que tu me jures", il doit prêter serment. Si les associés ou les locataires se sont divisés, il ne peut leur imposer un serment. Si un serment lui a été imposé dans un autre cas, ils lui imposent le tout. Et la septième année annule le serment.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

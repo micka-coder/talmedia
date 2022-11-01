@@ -48,4 +48,4 @@ La Guemara examine maintenant <b>la question elle-même</b> par rapport à la d�
 <b>Et Shmuel dit : David n'a pas accepté</b> le rapport de Ziba <b>substantiel</b> sans fondement. Au contraire, <b>il</b> lui-même <b>avait vu des éléments ostensibles chez</b> Mephibosheth qui indiquaient que Ziba avait raison. <b>Comme il est écrit : " Et Mephibosheth, fils de Saül, descendit à la rencontre du roi, et il n'avait ni pansé ses pieds, ni taillé sa barbe, ni lavé ses vêtements</b> depuis le jour où le roi était parti jusqu'au jour où il était revenu en paix " (II Samuel 19:25). David pensait qu'il portait le deuil du fait qu'il était revenu en paix. <b>Et il est écrit : " Lorsqu'il arriva à Jérusalem pour rencontrer le roi, celui-ci lui dit : Pourquoi n'es-tu pas parti avec moi, Mephibosheth ? Et il répondit : Mon seigneur, ô roi, mon serviteur m'a trompé ; car ton serviteur a dit : Je vais me faire seller par un âne, et je monterai dessus, et j'irai vers le roi ; car boiteux est</b>.
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

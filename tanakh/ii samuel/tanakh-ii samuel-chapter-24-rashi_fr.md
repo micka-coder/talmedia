@@ -67,7 +67,7 @@
 <b>Quarante shekolim.</b> [Mais] dans le Divrei Hayamim<sup>25</sup><i class="footnote">Divrei Hayamim I, 21:25.</i> il est dit : " Des shekolim d'or pesant six cents ", comment est-ce possible ? [La réponse est] il a collecté cinquante shekolim d'argent de chaque tribu, soit [un total de] six cents<sup>26</sup><i class="footnote"></i> et il lui a donné une quantité d'argent qui avait la valeur de [six cents] shekolim d'or. On nous l'enseigne également à la fin de Zevahim,<sup>27</sup><i class="footnote"></i> "Il recueillit une quantité d'argent qui avait une valeur de six cents shekolim d'or, et nous l'avons également appris dans le Sifri.<sup>28</sup><i class="footnote">Re'eh, 10.</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>La colère d'Hachem s'est à nouveau enflammée contre Israël.</b> Je ne sais pas ce que c'était [ils ont fait].
 <b>Il l'a séduit.</b> Il l'a attisé.
@@ -136,4 +136,4 @@
 <b>Quarante shekolim.</b> [Mais] dans le Divrei Hayamim<sup>25</sup><i class="footnote">Divrei Hayamim I, 21:25.</i> il est dit : " Des shekolim d'or pesant six cents ", comment est-ce possible ? [La réponse est] il a collecté cinquante shekolim d'argent de chaque tribu, soit [un total de] six cents<sup>26</sup><i class="footnote"></i> et il lui a donné une quantité d'argent qui avait la valeur de [six cents] shekolim d'or. On nous l'enseigne également à la fin de Zevahim,<sup>27</sup><i class="footnote"></i> "Il recueillit une quantité d'argent qui avait une valeur de six cents shekolim d'or, et nous l'avons également appris dans le Sifri.<sup>28</sup><i class="footnote">Re'eh, 10.</i>.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

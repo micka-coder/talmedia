@@ -87,4 +87,4 @@
 <b>Et il n'y aura plus de trafiquant</b> Ils n'auront pas besoin de trafic, comme dans (Isa. 23:8) : "dont les trafiquants étaient les honnis de la terre". Autre explication : Il n'y a pas de pauvre ici.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

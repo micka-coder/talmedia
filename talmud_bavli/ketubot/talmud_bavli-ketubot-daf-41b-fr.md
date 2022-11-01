@@ -27,4 +27,4 @@ La Gemara commente : <b>Et</b> dans les cas d'amendes, <b>si</b> la partie lés�
 La Gemara ajoute : <b>D'une manière ou d'une autre,</b> qu'il accepte ou non d'aller en Eretz Yisrael, s'il garde la cause du dommage, <b>nous</b> en Babylonie <b>l'excommunions, car nous lui disons : Retire ta</b> cause de <b>dommagements,</b> conformément à l'avis de <b>Rabbi Natan. Comme il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Natan dit : D'où</b> provient-il <b>qu'une personne ne peut élever un chien méchant dans sa maison, et ne peut placer une échelle instable dans sa maison ?</b> C'est <b>comme il est dit :</b> "Et tu feras un parapet pour ton toit <b>que tu ne placeras pas de sang dans ta maison"</b> (Deutéronome 22:8). Il est interdit de laisser un objet potentiellement dangereux dans sa maison, et celui qui refuse de l'enlever est excommunié.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

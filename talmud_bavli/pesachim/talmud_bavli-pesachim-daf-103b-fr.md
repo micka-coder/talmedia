@@ -24,4 +24,4 @@ Rava <b>commence</b> sa récitation de <i>havdala</i> <b>et dit : Qui distingue 
 <b>Il lui a dit : Je maintiens conformément à cette</b> déclaration <b>que Rabbi Elazar a dit</b> que <b>Rabbi Oshaya a dit : Celui qui diminue</b> le nombre de distinctions dans le texte de la <i>havdala</i> ne doit <b>pas les diminuer</b> à <b>moins de trois, et celui qui augmente</b> le nombre de distinctions ne doit <b>pas les augmenter</b> à <b>plus de sept.</b> Rav Ya'akov bar Abba <b>lui a dit : </b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

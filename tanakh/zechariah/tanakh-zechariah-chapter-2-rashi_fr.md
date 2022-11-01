@@ -53,4 +53,4 @@
 <b>Car il est éveillé</b> Expression [dénotant] l'éveil et le réveil.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

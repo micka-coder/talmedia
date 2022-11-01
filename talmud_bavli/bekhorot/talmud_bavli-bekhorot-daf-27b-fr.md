@@ -21,4 +21,4 @@ La Gemara demande : <b>D'où</b> <b>l'école du Rav</b> dérive la <i>halakha</i
 La Gemara demande : <b>Et Rav, d'où dérive-t-il</b> qu'un premier-né <b>est mangé pendant deux jours et une nuit ?</b> La Gemara répond : <b>Il le tire</b> d'un verset dans lequel Moïse s'adresse à Aaron et à ses fils à propos de la consommation du premier-né : <b>"Et leur chair sera à vous, comme la poitrine d'ondulation et comme la cuisse droite, elle sera à vous"</b> (Nombres 18:18). <b>Le verset</b> a ainsi <b>juxtaposé</b> la <i>halakha</i> du premier-né <b>avec la poitrine et la cuisse d'une offrande de paix. De même que là-bas,</b> il peut être mangé pendant <b>deux jours et une nuit,</b> comme le dit explicitement un verset (voir Lévitique 7:16), <b>de même ici,</b> un premier-né peut être mangé pendant <b>deux jours et une nuit.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

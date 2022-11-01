@@ -51,4 +51,4 @@ La Guemara poursuit son analyse de la <i>baraita</i>. <b>D'où déduit-on</b> <b
 <strong>GEMARA:</strong> La mishna enseigne que <b>tous les cas où il y a des fiançailles</b> et que le mariage n'implique aucune transgression, la lignée de la progéniture suit le mâle. <b>Rabbi Shimon dit à Rabbi Yoḥanan : Est-ce</b> un <b>principe établi</b> que <b>tous les cas où il y a des fiançailles et où il n'y a pas de transgression, la descendance</b> suit invariablement le mâle ? Mais</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara demande : <b>Pourquoi</b> Rabbi Shimon ben Yoḥai <b>spécifiquement<
 La Guemara s'interroge sur la première clause de la déclaration de Rabbi Shimon, selon laquelle si parmi les enfants du prêtre il y a des <b>mâles,</b> les esclaves <b>peuvent participer</b> à la <i>teruma</i> : <b>Mais</b> même si les fils héritent de leur père, <b>n'y a-t-il pas un fœtus</b> à prendre en compte, car il est peut-être lui aussi un mâle, et a donc une part de l'héritage ? La Gemara répond : Rabbi Shimon <b>soutient</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

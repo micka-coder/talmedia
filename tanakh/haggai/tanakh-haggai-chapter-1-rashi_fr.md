@@ -45,4 +45,4 @@
 <b>Et ils vinrent et travaillèrent</b> Ils commencèrent à couper des pierres et à scier des arbres au sixième mois, le vingt-quatrième du mois ; et au septième mois, le vingt-et-unième jour, la parole du Seigneur fut adressée à Aggée.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

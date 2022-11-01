@@ -39,4 +39,4 @@ Le <i>baraita</i> continue à décrire le placement des tiges : Chaque arrangeme
 <b>Rabbi Yoḥanan dit : Et tant</b> Rabbi Meir que Rabbi Yehuda <b>dérivent</b> leurs opinions du <b>même verset : "Et voici les mesures de l'autel par coudées : La coudée est une coudée et un paleron,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

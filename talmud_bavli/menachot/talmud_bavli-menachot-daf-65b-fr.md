@@ -39,4 +39,4 @@ Rabbi Yosei bar Yehuda développe : <b>Et si tu dis</b> que la clause : <b>"A pa
 <b>Rabbi Yehuda ben Beteira dit :</b> Que la preuve <b>n'est pas nécessaire,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

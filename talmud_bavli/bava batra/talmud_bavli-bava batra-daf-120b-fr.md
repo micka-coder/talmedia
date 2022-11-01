@@ -27,4 +27,4 @@ La Gemara répond : Le Beit Shammai <b>demande que l'on écrive "ceci est l'affa
 La Gemara demande : <b>Mais selon Beit Shammai, qui n'ont pas</b> cette <b>analogie verbale,</b> c'est-à-dire qu'ils ne reconnaissent pas comme faisant autorité l'analogie verbale qui lie les vœux aux offrandes abattues en dehors du Tabernacle ou du Temple, <b>d'où tirent-ils</b> que la <b>dissolution des vœux</b> peut être effectuée <b>par trois profanes ?</b> La Gemara répond : Beit Shammai <b>le déduit de ce qui est enseigné</b> dans une <i>baraita</i> : Le verset indique à la fin d'un passage relatif aux <i>halakhot</i> des Fêtes : <b>"Et Moïse déclara aux enfants d'Israël les saisons fixées par le Seigneur"</b> (Lévitique 23:44). En expliquant ce verset, <b>Rabbi Yosei HaGelili dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

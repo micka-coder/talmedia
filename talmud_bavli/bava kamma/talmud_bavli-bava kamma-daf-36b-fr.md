@@ -51,4 +51,4 @@ Après le verdict, <b>l'homme</b> qui a été giflé <b>dit à</b> Rav Yosef : <
 <b>Rav Yossef lui dit :</b> Puisque tu t'es déjà engagé à le donner à la charité, <b>les pauvres l'ont déjà acquis</b> et il leur appartient désormais. <b>Et bien qu'il n'y ait pas de pauvres</b> <b>ici</b> pour l'acquérir, <b>nous,</b> le tribunal, <b>sommes la main,</b> c'est-à-dire le prolongement juridique, <b>des pauvres.</b> Nous les représentons, <b>comme le dit Rav Yehuda</b> que <b>Shmuel dit : Les orphelins</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

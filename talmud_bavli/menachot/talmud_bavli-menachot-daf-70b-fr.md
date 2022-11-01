@@ -48,4 +48,4 @@ La Gemara répond : <b>Par contre, si</b> un différend <b>a été énoncé</b> 
 <b>Rabbi Elazar dit : </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

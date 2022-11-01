@@ -36,4 +36,4 @@ La Gemara demande : <b>Mais</b> selon <b>Rabbi Shimon, n'est-il pas écrit : "Et
 La Guemara demande : <b>Et</b> est-il ainsi que <b>un</b> homme seul n'est <b>pas</b> en mesure de <b>désigner</b> un rabbin ? <b>Mais Rav Yehuda ne dit-il pas</b> que <b>Rav dit : En effet [<i>beram</i>], on se souviendra favorablement de cet homme, et Rabbi Yehuda ben Bava est son nom, car sans lui, les lois des amendes auraient été oubliées de</b> parmi <b>le peuple juif.</b> La Guemara conteste cette affirmation : <b>Est-ce que</b> les lois des amendes auraient réellement <b>été oubliées ? Qu'ils les étudient,</b> afin qu'elles ne soient pas oubliées. <b>Au contraire,</b> son intention était de dire que .
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

@@ -30,4 +30,4 @@ La Gemara demande : <b>Et dis</b> plutôt que le sang est censé être <b>comme 
 La Gemara demande : <b>Et dire</b> que le sang est censé être <b>comme l'eau versée devant l'idolâtrie,</b> dont on ne peut bénéficier. La Gemara rejette cette affirmation : <b>Voilà,</b> qui <b>s'appelle aussi une libation</b> et non pas un versement, <b>comme il est écrit :</b> "Qui ont mangé la graisse de leurs sacrifices, <b>et bu le vin de leurs libations"</b> (Deutéronome 32:38).
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

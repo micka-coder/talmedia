@@ -15,4 +15,4 @@ La Gemara répond : <b>De quoi s'agit-il ici ?</b> Il s'agit d'un cas <b>où</b>
 La Gemara demande : <b>Si c'est le cas, dites la dernière clause :</b> S'il a dit que <b>après trente jours</b> ce sera <b>un holocauste, et à partir de maintenant</b> jusqu'à trente jours ce sera <b>un sacrifice de paix,</b> ses paroles sont obligatoires. <b>Accordé, si vous dites</b> que <b>une clause</b> se réfère <b>à la sainteté inhérente et qu'une</b> clause se réfère <b>à la sainteté</b> inhérente à sa <b>valeur,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

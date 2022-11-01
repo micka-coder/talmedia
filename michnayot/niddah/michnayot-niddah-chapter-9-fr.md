@@ -32,5 +32,5 @@ Si une femme observe régulièrement [le sang menstruel] le 15 du mois, puis cha
 ### michna 11
 Les femmes, en ce qui concerne leur virginité, sont comme des vignes : Une vigne peut produire du vin rouge, tandis qu'une autre produit du vin noir. Une vigne peut donner beaucoup de vin alors qu'une autre en donne peu. Rabbi Judah a déclaré : toute vigne donne du vin, et celle qui ne donne pas de vin n'est qu'un dorketi.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

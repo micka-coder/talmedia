@@ -108,4 +108,4 @@
 <b>séché</b> Heb. חרה, expression d'une chose qui est brûlée et séchée par la chaleur du feu, comme (Jer. 6:29), "Le soufflet est chauffé (נחר)" ; (Ezek. 15:4), "et le milieu en est brûlé (נחר)".
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

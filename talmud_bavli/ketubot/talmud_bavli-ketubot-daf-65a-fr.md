@@ -48,4 +48,4 @@ La Gemara répond : <b>Non,</b> il est <b>nécessaire</b> dans un cas <b>où</b>
 § La mishna enseigne en outre : <b>Et il</b> doit lui <b>donner un bonnet,</b> et des chaussures à chaque Fête, et des vêtements une fois par an. <b>Rav Pappa dit à Abaye :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

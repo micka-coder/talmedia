@@ -27,4 +27,4 @@ La Guemara demande : <b>Et Rabbi Yehoshua s'inquiète-t-il pour une minorité ? 
 La Gemara répond : <b>Puisqu'il y a une</b> chèvre dans ce cas <b>qui ne pourrait</b> produire <b>un nombre suffisant</b> de descendants <b>sans</b> donner naissance à <b>trois,</b> la <i>baraita</i> <b>enseignait</b> un cas où <b>toutes</b> les trois chèvres <b>ont donné naissance à trois</b> descendants <b>chacun,</b> par souci de cohérence. La Gemara demande : <b>Mais pourquoi ai-je</b> besoin <b>d'enseigner</b> que n'importe quelle chèvre a donné naissance à <b>trois</b> à la fois <b>du tout ? Que toutes</b> les chèvres de deuxième génération <b>donnent naissance à deux</b> rejetons, <b>et qu'elle,</b> la mère des trois chèvres de deuxième génération, <b>donne à nouveau naissance</b> à une autre chèvre <b>en même temps qu'elles.</b> Le fait que le <i>baraita</i> n'ait pas enseigné ce cas indique qu'une chèvre ne peut pas donner à nouveau naissance dans la même année.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

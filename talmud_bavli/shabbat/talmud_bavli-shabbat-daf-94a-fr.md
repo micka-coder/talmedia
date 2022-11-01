@@ -15,4 +15,4 @@ Nous avons appris dans la mishna : Celui qui exécute une <b>personne vivante</b
 Nous avons appris dans la mishna que selon la première <i>tanna</i> : Celui qui transporte <b>un cadavre sur un lit est responsable. Et de même,</b> celui qui transporte <b>une olive-bulle d'un cadavre,</b> ou une olive-bulle d'une carcasse d'animal, ou une lentille-bulle d'un animal rampant est responsable. Rabbi Shimon le juge exempt. <b>Rabba bar bar Ḥana a dit</b> que <b>Rabbi Yoḥanan a dit, et Rav Yosef a dit</b> que <b>Rabbi Shimon ben Lakish a dit : Rabbi Shimon jugerait l'exemption</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

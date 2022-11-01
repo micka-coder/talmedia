@@ -36,4 +36,4 @@ La Gemara explique : <b>Il te vient à l'esprit</b> que <b>du fait que <b>celui 
 § <b>Rav Pappa a soulevé</b> un autre <b>dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

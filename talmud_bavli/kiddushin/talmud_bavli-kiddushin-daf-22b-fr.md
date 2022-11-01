@@ -57,4 +57,4 @@ La Gemara demande : S'il s'engage dans un rapport sexuel <b>de manière atypique
 § La Gemara relate : <b>Rabbi Yehuda de l'Inde était un converti qui n'avait pas d'héritiers.</b> Quand <b>il tomba malade, Mar Zutra entra pour s'enquérir</b> de sa santé. Lorsqu'il <b>a vu que son état s'intensifiait,</b> c'est-à-dire qu'il était sur le point de mourir, Mar Zutra <b>dit à</b> l'esclave de Rabbi Yehuda : Enlève mes chaussures et emmène-les chez moi.</b> Il voulait acquérir l'esclave à la mort de son maître, comme lorsqu'un converti sans héritiers meurt, la première personne à réclamer ses biens les acquiert. La Gemara commente : <b>Il y a</b> ceux <b>qui disent</b> que cet esclave <b>était un homme adulte,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -30,4 +30,4 @@ La preuve est : <b>Accordé, si tu dis</b> qu'il est <b>permis</b> d'abattre et 
 <b>Shmuel retrouva des élèves du Rav</b> après la mort de ce dernier. <b>Il leur dit : Qu'a dit Rav à propos</b> d'un animal <b>en danger</b> de mort imminente ? <b>Ils lui ont répondu : Voici</b> ce que <b>Rav a dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

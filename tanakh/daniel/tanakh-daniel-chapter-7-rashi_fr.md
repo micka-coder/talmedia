@@ -130,4 +130,4 @@
 <b>Je gardais... dans mon coeur</b> Je cachais dans mon coeur.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

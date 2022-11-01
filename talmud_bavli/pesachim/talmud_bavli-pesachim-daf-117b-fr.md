@@ -63,4 +63,4 @@ La Guemara rapporte : <b>Ulla bar Rav est descendu</b> pour diriger l'office de 
 Nous avons appris dans la mishna qu'on verse au chef du seder la <b>quatrième</b> coupe et <b>il achève <i>hallel</b> dessus, et il récite la bénédiction du chant</b> à la fin de <i>hallel</b> <b>sur</b> cette coupe.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -115,4 +115,4 @@
 <b>[Les paroles de] son palais sont douces.</b> Ses paroles sont agréables, [comme dans] "Et une incision pour le mort, tu ne la feras pas dans ta chair.... Je suis Hachem,"<sup>74</sup><i class="footnote">Vayikra 19:28. </i> fidèle pour payer la récompense. Existe-t-il un palais plus doux que celui-là ? Ne vous blessez pas vous-mêmes, et vous recevrez une récompense. [En outre,] "Et lorsqu'un méchant se repent de sa méchanceté et pratique la justice et l'équité, il vivra grâce à elles.<<sup>75</sup><i class="footnote">Yechezkeil 33:19. </i> Les iniquités lui sont comptabilisées comme des mérites [après son repentir]. Existe-t-il un palais plus doux que celui-là ? 
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

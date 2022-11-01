@@ -45,4 +45,4 @@ Lorsque <b>Rava</b> a entendu parler de cela, il <b>a dit : Qui</b> est <b>sage<
 <b>Et Rav Huna, fils de Rav Yehoshua,</b> a également <b>dit</b> que les orphelins n'ont pas à rembourser le garant jusqu'à leur majorité, mais pour une raison différente : <b>Dire</b> que peut-être le défunt a <b>donné des liasses</b> d'argent <b>à</b> son créancier avant sa mort, et donc une partie ou la totalité de la dette a été payée. Tant qu'ils sont mineurs, les héritiers ne seront pas au courant de ce paiement, mais à leur majorité, il y a une chance qu'ils examinent les papiers de leur père et découvrent que celui-ci avait fait cela. Par conséquent, le paiement est différé jusqu'à leur majorité.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

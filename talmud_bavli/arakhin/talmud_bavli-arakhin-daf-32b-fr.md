@@ -54,4 +54,4 @@ La <i>baraita</i> continue : On <b>pourrait</b> penser que si tous les Juifs <b>
 <b>Rav Naḥman bar Yitzḥak a dit : Ils ont compté les années jubilaires</b> afin de <b>sanctifier les années sabbatiques</b>. C'est-à-dire qu'à la fin de tous les sept cycles de l'année sabbatique, ils comptaient la cinquantième année comme une année jubilaire, afin que le prochain cycle sabbatique commence en son temps, à la cinquante et unième année. Néanmoins, les <i>halakhot</i> de l'année jubilaire n'étaient pas en vigueur.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

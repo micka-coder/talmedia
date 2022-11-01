@@ -17,5 +17,5 @@ L'eunuque n'accomplit pas la halitzah et ne contracte pas le yibbum. De même, u
 ### michna 6
 Si un prêtre, eunuque par nature, épouse la fille d'un Israélite, il lui confère le droit de manger de la teruma. Rabbi Yose et Rabbi Shimon ont déclaré : si un prêtre hermaphrodite épouse la fille d'un Israélite, il lui confère le droit de manger de la térouma. Rabbi Juda a déclaré : si un tumtum est ouvert et qu'il s'avère être un homme, il ne peut pas accomplir la halitzah, car il a le même statut qu'un eunuque. L'hermaphrodite peut se marier [avec une femme] mais ne peut pas être marié [avec un homme]. Rabbi Eliezer a déclaré : concernant l'hermaphrodite, [celui qui a des relations avec lui] est susceptible d'être lapidé comme celui [qui a des relations avec] un homme.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

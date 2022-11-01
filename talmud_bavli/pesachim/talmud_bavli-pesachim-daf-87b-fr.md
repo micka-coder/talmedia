@@ -69,4 +69,4 @@ La Gemara demande : <b>D'où dérive-t-on</b> <b>qu'il a été compté</b> avec 
 <b>Ulla a dit</b> qu'Israël a été exilé en Babylonie <b>afin</b> de leur permettre de <b>manger</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

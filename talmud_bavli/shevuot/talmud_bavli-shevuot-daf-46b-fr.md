@@ -33,4 +33,4 @@ La Gemara suggère : <b>Et que</b> le <i>tanna</i> <b>enseigne aussi</b> que fal
 La Guemara soulève une difficulté : Il <b>faut bien</b> faire cette distinction pour celui qui est responsable d'un serment sur un énoncé comme : <b>Je mangerai, ou : Je ne mangerai pas,</b> où il est possible qu'il ne mentait pas lorsqu'il a prêté serment. Mais en ce qui concerne les serments sur le passé comme : <b>J'ai mangé, ou : Je n'ai pas mangé, que peut-on dire,</b> puisqu'il a certainement fait un faux serment ? La Gemara répond : <b>Enseigner</b> la mishna, c'est-à-dire la comprendre dans son sens : <b>Un serment</b> prononcé <b>en vain</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

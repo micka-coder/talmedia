@@ -51,4 +51,4 @@ Rav Ashi <b>lui a dit : Et selon toi, comme tu dis</b> que le <b>tirage acquiert
 La Guemara répond : Il est exécuté <b>parce qu'il a causé une détresse à un Juif</b> en volant l'objet, même si par les <i>halakhot</i> d'acquisition le voleur ne l'a pas acquis.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

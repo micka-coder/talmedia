@@ -36,4 +36,4 @@ La Guemara <b>souleve une objection</b> d'une <i>baraïta</i> : Il y eut <b>un i
 <b>Mais est-il permis de contempler</b> une femme ? La Guemara <b>souleve une objection</b> d'une <i>baraïta</i>. Le verset dit : <b>"Et tu te préserveras de tout ce qui est mauvais"</b> (Deutéronome 23:10) ; cela enseigne <b>qu'une personne ne doit pas regarder une belle femme, même</b> si elle est <b>non mariée ; et</b> une personne ne doit pas regarder <b>une femme mariée, même</b> si elle est <b>grossière;</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

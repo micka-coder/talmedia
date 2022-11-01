@@ -68,4 +68,4 @@
 <b>C'est leur dérision</b> dont ils se moqueront au pays d'Égypte. Pourquoi es-tu revenu vers nous pour exercer un châtiment sur nous ? N'est-il pas écrit à votre sujet," (Ex. 14:13) "Vous ne continuerez plus à les voir" ?
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

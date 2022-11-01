@@ -57,4 +57,4 @@ Les Sages <b>ont dit</b> en réponse : Le propriétaire de l'animal <b>renonce g
 La Guemara commente : <b>Et</b> Rava et Rav Pappa, qui considèrent que celui qui entre sans permission est responsable si un dommage est causé, <b>suivent leurs</b> lignes de <b>raisonnement, comme le dit Rava, et certains disent</b> que c'est <b>Rav Pappa</b> qui l'a dit :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

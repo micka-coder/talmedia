@@ -57,4 +57,4 @@ La Gemara demande : C'est <b>évident.</b> C'est <b>lui,</b> son ancien mari, <b
 <strong>MISHNA :</strong> En ce qui concerne <b>celui qui divorce d'une femme et se remarie avec elle</b> puis meurt sans enfant, sa femme <b>est autorisée</b> à contracter un lévirat avec son <b><i>yavam</i>,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

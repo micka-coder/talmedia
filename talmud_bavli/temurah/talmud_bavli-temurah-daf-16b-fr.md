@@ -24,4 +24,4 @@ La Guemara revient à sa citation de la déclaration de Rabbi Natan, qui procèd
 Il y a une plus grande <b>striction à l'égard d'un substitut qu'il n'y en a <b>à l'égard des animaux sacrifiés</b>, <b>car,</b> si l'on substitue un animal taché non sacré à un animal sacrifié non taché, alors l'animal <b>avec une tare permanente est imprégné de</b> <b>sainteté inhérente,</b> ce qui n'est pas le cas en ce qui concerne la consécration. <b>Et</b> en outre, ces animaux tachés consacrés par substitution <b>ne sortent pas</b> de leur statut consacré <b>pour</b> assumer un statut <b>non sacré</b> par le biais de la rédemption,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

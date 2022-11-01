@@ -39,4 +39,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une autre <i>baraita</i> :
 La Guemara cite une preuve de l'opinion du Rav Dimi de Néharde'a : C'est <b>comme il est écrit : "Car Joab et tout Israël restèrent là six mois, jusqu'à ce qu'il ait exterminé tous les mâles d'Edom"</b> (I Rois 11:16). <b>Quand</b> Joab <b>se présenta devant</b> le roi <b>David</b> après cet épisode, David <b>lui dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

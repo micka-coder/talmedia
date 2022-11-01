@@ -30,4 +30,4 @@ En ce qui concerne <b>un nerf sciatique qui a été cuit avec</b> d'autres <b>ra
 La Gemara conteste : <b>C'est le cas ? Mais Rav Huna ne dit-il pas :</b> En ce qui concerne <b>un chevreau qui a été rôti avec sa </b> <b>graisse interdite, il est interdit de manger</b> n'importe quelle partie de l'animal, <b>même du haut de son oreille ?</b> Cela prouve que le rôtissage, comme la cuisson, répand la saveur de la graisse interdite dans tout l'animal.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

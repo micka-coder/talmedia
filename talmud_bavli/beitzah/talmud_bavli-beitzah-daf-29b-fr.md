@@ -24,4 +24,4 @@ La Gemara relate que <b>Rav Yosef's wife was</b> once <b>sizing flour</b> in an 
 <b>Et</b> on peut aller dans un Festival <b>chez un épicier</b> chez <b>celui qu'on a l'habitude</b> d'acheter <b>et lui dire : Donnez-moi vingt œufs, ou cinquante noix,</b> ou <b>dix pêches, ou cinq grenades, ou un <i>etrog</i>, à condition de ne mentionner aucune mesure.</b> En d'autres termes, il ne doit pas préciser une unité de mesure, par exemple un <i>kav</i> ; il doit plutôt énoncer un nombre, ce qui n'est pas la manière habituelle de faire un achat. <b>Rabbi Shimon ben Elazar dit :</b> Cela est permis, <b>à condition qu'il ne mentionne pas le montant de</b> l'<b>achat,</b> c'est-à-dire qu'il ne doit pas mentionner la somme d'argent qu'il dépense, mais plutôt qu'il doit prendre ce dont il a besoin et qu'après la Fête on calculera combien il doit.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

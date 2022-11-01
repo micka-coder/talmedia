@@ -48,4 +48,4 @@ La Gemara demande : <b>Mais</b> si c'est le cas, <b>selon</b> l'avis de <b>Shmue
 La mishna enseigne : <b>Un incident</b> s'est produit au cours duquel</b> la cour <b>décrète un jeûne à Lod,</b> et lorsque la pluie tombe, ils mangent et boivent, et ensuite ils récitent <i>hallel</i>. La Gemara demande : <b>Et récitons <i>hallel</i> d'emblée,</b> sans délai. Pourquoi sont-ils d'abord rentrés chez eux et ont-ils mangé ? <b>Abaye et Rava ont tous deux répondu : Parce qu'on récite <i>hallel</i></b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

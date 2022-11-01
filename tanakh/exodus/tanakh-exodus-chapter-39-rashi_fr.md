@@ -92,5 +92,5 @@
 ### passuk 43
 <b>Et Moshé les bénit.</b> Il leur dit : Que Sa volonté soit que la <i>Shechinah</i> repose sur l'œuvre de vos mains. Que l'agrément de notre Dieu soit sur nous, etc. Il s'agit de l'un des onze psaumes [attribués à Moché] qui commencent par le psaume qui s'ouvre sur " תְּפִלָּה לְמשֶׁה ." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

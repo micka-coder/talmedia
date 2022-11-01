@@ -30,4 +30,4 @@ Plus tôt, il a été mentionné que <b>Yosei ben Yo'ezer de Tzereida et Yosei b
 En tout cas, nous avons appris que les Sages des quatre-vingts dernières années avant la destruction sont ceux qui ont décrété l'impureté sur la terre des nations. <b>Et si l'on dit</b> que Yosei ben Yo'ezer et Yosei ben Yoḥanan <b>étaient aussi là pendant</b> ces <b>quatre-vingts ans, n'était-ce pas enseigné</b> dans une <i>baraita</i> : <b>Hillel, et</b> son fils <b>Shimon,</b> et son petit-fils <b>Gamliel, et</b> son arrière-petit-fils <b>Shimon ont rempli leur</b> poste de <b>Nasi</i> devant la Maison,</b> alors que le Temple était debout, pendant <b>une centaine d'années, alors que Yosei ben Yo'ezer de Tzereida et Yosei ben Yoḥanan étaient beaucoup plus tôt</b> que Hillel ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

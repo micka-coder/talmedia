@@ -134,5 +134,5 @@
 <b>Qui vous a fait sortir - </b> dans ce but.
 <b>Je suis Hachem,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>fidèle à donner une récompense. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

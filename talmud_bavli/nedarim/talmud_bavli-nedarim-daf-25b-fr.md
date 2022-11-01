@@ -15,4 +15,4 @@ En ce qui concerne la déclaration de la mishna : <b>Un</b> qui les a <b>vus man
 <b>Rabba a dit : Tout le monde</b> dans la mishna, c'est-à-dire Beit Shammai et Beit Hillel, soutient que <b>lorsque</b> on <b>dit : Si j'avais su que</b> mon <b>père</b> était <b>parmi vous, j'aurais dit : Vous êtes tous interdits</b> de manger des figues <b>sauf le père, alors</b> dans ce cas <b>tous sont interdits</b> de le faire <b>et son père</b> est <b>permis</b> de le faire. <b>Ils n'ont été en désaccord que</b> dans un cas <b>où l'un a dit : Si j'avais su que</b> mon <b>père</b> était <b>parmi vous alors j'aurais dit : Untel et untel,</b> c'est-à-dire tous les autres, <b>sont interdits</b> de manger des figues <b>et le père est autorisé</b> à le faire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

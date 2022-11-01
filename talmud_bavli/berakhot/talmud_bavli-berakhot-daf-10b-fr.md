@@ -123,4 +123,4 @@ A propos de cette <i>halakha</i>, <b>Rabbi Tarfon a dit :</b> Une fois, <b>je ve
 Les Sages lui ont <b>dit : Tu meritais</b> d'etre dans une position ou tu etais <b>responsable</b> de payer <b>de ta vie, car tu as transgresse la declaration du Beit Hillel.</b> Cette declaration sera expliquee dans la Guemara.
 
 >Credit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

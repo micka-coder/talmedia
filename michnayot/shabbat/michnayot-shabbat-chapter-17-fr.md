@@ -24,4 +24,4 @@ En ce qui concerne un volet de fenêtre, Rabbi Eliezer dit : Lorsqu'il est attac
 Tous les couvercles de récipients qui ont une poignée peuvent être déplacés pendant Chabbat. Rabbi Yosei a dit : Dans quel cas cette déclaration est-elle dite ? Dans le cas d'un couvercle pour le sol, c'est-à-dire le couvercle d'une fosse ; cependant, en ce qui concerne les couvercles de récipients, dans ce cas et dans ce cas, même s'ils n'ont pas de poignée, ils peuvent être déplacés le Chabbat.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

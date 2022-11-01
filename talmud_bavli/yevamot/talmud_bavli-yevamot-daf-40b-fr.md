@@ -96,4 +96,4 @@ La Gemara répond : <b>Rabbi Yoḥanan</b> aurait pu <b>vous dire : Mais</b> com
 § La Guemara remet en question la distinction indiquée par la mishna : <b>Qu'est-ce qui est différent</b> de <b>cette</b> femme, la parente d'une épouse rivale de son <i>ḥalutza</i>, qu'elle est permise, <b>et qu'est-ce qui est différent</b> de <b>cette</b> femme, l'épouse rivale d'un parent de son <i>ḥalutza</i>, qu'elle est interdite ?
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

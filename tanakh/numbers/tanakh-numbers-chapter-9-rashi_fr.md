@@ -60,5 +60,5 @@
 ### passuk 22
 <b>Ou une année. (lit. jours).</b> Une année, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>comme dans "[יָמִים], une année sera sa rédemption [période]." 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

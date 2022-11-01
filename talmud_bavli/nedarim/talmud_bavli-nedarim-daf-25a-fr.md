@@ -48,4 +48,4 @@ La Guemara demande : <b>Et qu'il fasse un serment : Que vous accomplissez</b> la
 La Guemara demande : <b>Et que</b> le <i>tanna</i> <b>enseigne</b> explicitement que le serpent était <b>encoché;</b> pourquoi a-t-il dit : Comme la poutre d'un pressoir à olives ? La Gemara répond : <b>Il nous enseigne une question en passant,</b> qui est <b>que le dos de la poutre d'un pressoir à olives</b> doit être <b>entaillé.</b> La Gemara demande : <b>Quelle est la différence</b> s'il y a des encoches dans la poutre d'un pressoir à olives ? La Gemara répond : <b>Pour</b> des raisons d'<b>achat et de vente, pour vous dire</b> que <b>celui qui vend la poutre d'un pressoir à olives à un autre, si son dos est entaillé</b> alors <b>oui,</b> la vente est valable, <b>et si</b> son dos n'est <b>pas</b> entaillé et qu'il n'y a pas de fentes, alors c'est <b>non</b> une vente valable, car une poutre sans entailles ne s'appelle pas poutre d'un pressoir à olives.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

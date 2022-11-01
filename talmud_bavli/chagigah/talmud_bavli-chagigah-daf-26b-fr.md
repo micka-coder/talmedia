@@ -33,4 +33,4 @@ La Guemara propose une autre réponse possible : <b>Et si tu disais</b> que la m
 Et Rabbi Yoḥanan <b>lui a dit</b> en réponse : <b>Il n'y a pas de différence</b> si <b>c'est un revêtement fixe et il n'y a pas de différence</b> si <b>c'est un revêtement qui n'est pas fixe;</b> et <b>il n'y a pas de différence</b> si le revêtement <b>couvre</b> le <b>bord de la table et il n'y a pas de différence</b> si <b>il ne couvre pas son bord.</b> Par conséquent, puisque le revêtement détermine toujours le statut du récipient, la table du Temple, avec son revêtement en or, devrait être susceptible d'être impure. <b>Au contraire,</b> il faut dire une explication différente pour expliquer pourquoi le revêtement ne rend pas la table susceptible d'être impure : La <b>table est différente</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

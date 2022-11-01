@@ -36,4 +36,4 @@ La Guemara demande : <b>Mais</b> selon <b>celui qui dit</b> que cette <i>halakha
 <strong>GEMARA:</strong> <b>Rav a dit à son fils Ḥiyya:</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

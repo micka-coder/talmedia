@@ -42,4 +42,4 @@ La Gemara répond : <b>Ces</b> arguments pour inclure sa propre circoncision dan
 La Guemara pose une question : <b>Maintenant que vous avez dit</b> que l'expression <b>"de lui"</b> utilisée dans ce contexte <b>vient pour une exposition</b> et sert à exclure d'autres cas, en ce qui concerne l'expression "de lui" dans le verset <b>"Aucun étranger n'en mangera"</b> (Exode 12:43), <b>pourquoi en ai-je</b> besoin ? La Guemara répond : Cela aussi enseigne que c'est seulement <b>de lui,</b> manger l'agneau pascal,
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

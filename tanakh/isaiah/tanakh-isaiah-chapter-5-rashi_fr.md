@@ -202,7 +202,7 @@ Heb. צחה araméen pour soif.
 <b>dans son éclipse</b> Heb. בַּעֲרִיפֶיהָ. Quand vient son obscurcissement. Une expression similaire à (Deut. 32:2) : "Dégoulinera (יַעֲרֹף) comme la pluie", car telle est la nature que lorsque la pluie tombe, la lumière s'obscurcit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>Je vais maintenant chanter pour mon bien-aimé</b> Le prophète dit : " Je vais maintenant chanter pour mon bien-aimé et à sa place et comme son messager ". [Le mot לִידִידִי signifie généralement : " pour mon bien-aimé "] Similaire à (Exode 14 : 4) : "Le Seigneur fera la guerre pour toi (לָכֶם), pour toi [et non 'à toi']."
 <b>Le chant de mon bien-aimé à propos de sa vigne</b> C'est le chant de mon bien-aimé qu'il a chanté pour sa vigne, à propos de sa vigne, comme (Genèse 26:7) : "Et les gens du lieu demandaient à propos de sa femme (לְאִשְׁתּוֹ), à propos de sa femme [et non 'à sa femme']."
@@ -406,4 +406,4 @@ Heb. צחה araméen pour soif.
 <b>dans son éclipse</b> Heb. בַּעֲרִיפֶיהָ. Quand vient son obscurcissement. Une expression similaire à (Deut. 32:2) : "Dégoulinera (יַעֲרֹף) comme la pluie", car telle est la nature que lorsque la pluie tombe, la lumière s'obscurcit.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

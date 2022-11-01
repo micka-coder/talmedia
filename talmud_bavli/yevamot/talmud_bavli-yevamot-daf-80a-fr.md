@@ -45,4 +45,4 @@ Grandement impressionné par cette réponse, Rav Yosef <b>dit à</b> Abaye : Sou
 La Gemara demande : <b>Peut-on</b> un enfant <b>né au cours du huitième</b> mois de grossesse <b>survivre ? Mais n'est-il pas enseigné</b> dans une <i>baraita</i> : Un enfant <b>né au cours du huitième</b> mois <b>est comme une pierre</b> en ce qui concerne les <i>halakhot</i> de mise en jachère [<i>muktze</i>] le Chabbat, et donc <b>il est interdit de le déplacer</b> le Chabbat, car on peut présumer qu'il n'est pas viable du tout. <b>Cependant, sa mère peut se pencher sur lui et l'allaiter,</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

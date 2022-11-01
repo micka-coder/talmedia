@@ -33,4 +33,4 @@ La Guemara relate que <b>Rav Asi bar Natan eut une difficulté avec cette <i>bar
 <b>Mais Shabbat est écrit avec eux</b> dans les portions de la Torah concernant les Fêtes (Lévitique 23:3 ; Nombres 28:9-10). <b>Et en outre,</b> peut-on dire que <b>les Fêtes du Seigneur sont énoncées, mais que la portion sur les vœux</b> (Nombres, chapitre 30) <b>n'est pas énoncée avec elles ? N'est-elle pas à côté</b> d'une des portions de la Torah détaillant les <i>halakhot</i> des Fêtes (Nombres, chapitres 28-29) ? Rav Sheshet lui <b>dit : Voici ce que</b> la déclaration de Rabbi Yosei HaGelili dans la <i>baraita</i> <b>enseigne :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

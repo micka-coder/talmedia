@@ -15,4 +15,4 @@ La Guemara <b>souleve une objection</b> à la pratique de Ulla à partir d'une <
 Le <i>baraita</i> développe : Ces bénédictions sont différentes, <b>car certaines d'entre elles commencent par : Béni, et ne se concluent pas par : Béni,</b> par exemple, les bénédictions sur les mitzvot et avant de manger, <b>et certaines d'entre elles se concluent par : Béni, et ne commencent pas par : Béni,</b> par exemple une bénédiction qui est juxtaposée à une autre bénédiction. <b>Et</b> la bénédiction : <b>Celui qui est bon et qui fait le bien,</b> est exceptionnelle, car c'est une bénédiction qui se juxtapose à une autre bénédiction, et pourtant elle <b>commence par : Béni, et ne se termine pas par : Béni.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

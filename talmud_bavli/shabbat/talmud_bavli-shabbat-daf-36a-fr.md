@@ -18,4 +18,4 @@ Le troisième élément dont le nom a été modifié : Une grande table qui éta
 <b>Rav Ashi a dit : Nous parlerons nous aussi</b> de sujets dont le nom a changé au fil des générations. La ville qui, à l'époque biblique, s'appelait <b>Babylone</b> s'est appelée <b>Bursif</b> dans les générations suivantes, et <b>Bursif</b> s'est appelée <b>Babylone</b> dans les générations suivantes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

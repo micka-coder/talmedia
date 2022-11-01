@@ -36,4 +36,4 @@ La Gemara demande : <b>Et y a-t-il quelque chose qui, par la loi de la Torah, re
 La Gemara demande : <b>A propos de quel</b> principe <b>ils sont en désaccord ?</b> La Gemara répond : <b>Ils sont en désaccord par rapport</b> au fait de savoir si <b>une preuve qui a été partiellement invalidée est entièrement invalidée. Rabbi</b> Yehuda HaNasi <b>soutient : Un témoignage qui a été partiellement invalidé</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

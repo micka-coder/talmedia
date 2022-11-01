@@ -30,4 +30,4 @@ De même, <b>nous avons appris</b> dans une <i>baraita</i> que <b>Rabbi Yishmael
 De même, <b>il a été enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Gamliel dit : Les <i>halakhot</i> des objets consacrés, les <i>terumot</i> et les dîmes sont elles-mêmes</b> la <b>essence de la Torah</b> et sont extrêmement sévères,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

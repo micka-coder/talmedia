@@ -42,4 +42,4 @@ La Gemara demande : <b>Si on ne le connaît pas,</b> même si elle s'est mariée
 La Gemara demande : Même dans ce cas, <b>en fin de compte ils sont deux</b> contre <b>deux.</b> Initialement, deux témoins ont témoigné que l'homme était mort, et maintenant une autre paire arrive en disant qu'il est vivant. Pourquoi devrait-on accepter le témoignage des témoins qui disent qu'il est mort, lui permettant de rester avec le second mari, alors que d'autres témoins affirment qu'il est toujours vivant ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

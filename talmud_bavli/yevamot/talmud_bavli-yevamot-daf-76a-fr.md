@@ -48,4 +48,4 @@ La Guemara soulève une objection à l'encontre de Rava : <b>Mais, si c'est le c
 <b>Rav Yosef a soulevé une objection</b> à partir du verset qui dit : <b>"Et Salomon épousa la fille de Pharaon, roi d'Égypte"</b> (I Rois 3:1), qui indique qu'il peut, en fait, y avoir un mariage valide même avec des gentils. La Gemara répond : Avant que Salomon ne prenne pour épouse la fille de Pharaon, <b>il l'a convertie.</b> La Gemara demande : <b>Mais n'est-ce pas</b> que <b>ils n'acceptaient pas les convertis, ni à l'époque de David ni à l'époque de Salomon ?</b> La Gemara répond : <b>Mais la raison</b> pour laquelle ils n'acceptaient pas les convertis durant ces périodes n'est-elle pas due <b>uniquement</b> à la crainte que les convertis n'agissent pas pour le bien du Ciel mais désirent en fait le pouvoir de <b>la table des rois,</b> David et Salomon ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

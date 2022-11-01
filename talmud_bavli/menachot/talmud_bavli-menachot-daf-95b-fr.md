@@ -45,4 +45,4 @@ La Gemara demande : <b>Et comment peut-on dire que</b> David a <b>trouvé</b> le
 David <b>dit aux</b> prêtres : <b>Il n'est pas nécessaire</b> de dire qu'il m'est permis de manger <b>ces pains de proposition</b>, qui ont déjà été retirés de la Table. Ceci est <b>parce que</b> l'encens placé dans les coupes qui étaient sur la Table a été brûlé. <b>Puisque</b> le pain de mie <b>a été retiré de</b> avoir le statut d'objets auxquels s'appliquent les <i>halakhot</b> de <b>mauvais usage</b> des biens consacrés, <b>il est</b> considéré comme <b>une matière non sacrée,</b> c'est-à-dire autorisée aux prêtres pour la consommation. <b>Mais même les autres</b> pains de mie, <b>qui "seront consacrés aujourd'hui dans le vase"</b> c'est-à-dire les pains de mie placés sur la Table aujourd'hui, <b>vous devez lui donner,</b> c'est-à-dire me donner, <b>à manger.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -36,4 +36,4 @@ La Guemara demande : <b>Et Rabba bar bar Ḥana</b>, qui a été indulgent à l'
 La Gemara commente : <b>Et</b> cette déclaration de <b>lui est en désaccord</b> avec une autre déclaration de <b>lui, comme l'a dit Rabba bar bar Ḥana : Rabbi Yoḥanan ben Elazar m'a dit : Une fois, j'ai suivi Rabbi Shimon ben Rabbi Yosei ben Lakonya dans le jardin</b> à côté de sa maison,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

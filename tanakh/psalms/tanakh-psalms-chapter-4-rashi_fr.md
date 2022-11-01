@@ -32,4 +32,4 @@
 <b>Seul en sécurité</b> Comme (dans Deut. 33:28) : "Seul en sécurité, la fontaine de Jacob." C'est une expression de sécurité et de tranquillité, qu'il n'a pas besoin de stationner des troupes avec lui.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

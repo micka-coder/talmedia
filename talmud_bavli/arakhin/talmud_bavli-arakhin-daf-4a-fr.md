@@ -60,4 +60,4 @@ En outre, on aurait pu penser que <b>Je ne dois exclure</b> que <b>les morts</b>
 <b>Alternativement,</b> puisque le verset indique : <b>"Personnes"</b> au pluriel, il s'explique comme suit : Si le verset avait écrit : Une personne, <b>J'aurais</b> déduit <b>seulement</b> que cela s'applique à <b>une</b> personne <b>qui a estimé une</b> personne. <b>D'où vient</b> que même si <b>une</b> personne <b>a évalué cent</b> personnes, c'est aussi une évaluation effective ? <b>Le verset dit : "Des personnes"</b> au pluriel. Cela enseigne que dans ce cas, il doit payer l'évaluation de chacune des cent personnes. <b>Alternativement,</b> on interprète la forme plurielle de <b>"personnes"</b> comme suit : Si le verset avait écrit seulement : Une personne, on aurait pu dire que .
 
 >Crédit : Edition William Davidson
->License : CC-BY-NC
+>License : CC BY-NC

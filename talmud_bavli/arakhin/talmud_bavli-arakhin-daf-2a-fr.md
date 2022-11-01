@@ -51,4 +51,4 @@ La Gemara demande : <b>Et</b> quant aux <b>rabbins, que font-ils de ce</b> terme
 La Gemara clarifie : <b>Et</b> comment Rabbi Yehuda répond-il à cette affirmation ? La Guemara explique que <b>Rabbi Yehuda ne soutient pas</b> qu'une des mentions sert <b>à inclure tous les propriétaires</b> d'une <b>offrande en copropriété dans</b> l'obligation de <b>placer les mains.</b> Au contraire, un des propriétaires place ses mains sur l'offrande au nom de tout le groupe. Par conséquent, il lui reste une mention libre de "son offrande", d'où il déduit qu'un héritier ne place pas ses mains. La Gemara ajoute : <b>Alternativement,</b> on peut dire que Rabbi Yehuda <b>soutient</b> que l'une des mentions sert à inclure les propriétaires d'une offrande en copropriété,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

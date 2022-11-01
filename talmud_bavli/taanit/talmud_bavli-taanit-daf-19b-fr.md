@@ -48,4 +48,4 @@ En revanche, en ce qui concerne <b>une année dont les pluies sont rares, à quo
 <b>Lorsque l'heure</b> fixée arriva et qu'aucune pluie n'était tombée, au matin</b> le fonctionnaire <b>envoya</b> un message <b>à</b> Nakdimon : <b>Envoie-moi soit</b> l'<b>eau ou</b> les <b>pièces de monnaie que tu me dois.</b> Nakdimon <b>envoie</b> un message <b>à lui : J'ai encore le temps,</b> car <b>la journée entière est à moi. A midi</b> le fonctionnaire lui <b>envoie à nouveau</b> un message <b>à lui : Envoie-moi soit</b> l'<b>eau ou</b> les <b>pièces de monnaie que tu me dois.</b> Nakdimon <b>envoie</b> un message <b>à lui : Il me reste</b> du temps <b>dans la journée.</b> Dans l'après-midi, il <b>envoie</b> un message <b>à lui : Envoie-moi soit</b> l'<b>eau ou</b> les <b>pièces de monnaie que tu me dois.</b> Nakdimon <b>envoie</b> un message <b>à lui : J'ai encore du temps à perdre dans la journée. Cet officier le ridiculisa en disant :</b> Pendant toute <b>l'année entière, la pluie n'est pas tombée,</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

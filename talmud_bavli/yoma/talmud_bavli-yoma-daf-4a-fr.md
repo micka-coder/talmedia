@@ -33,4 +33,4 @@ La Guemara poursuit son analyse de la <i>baraita</i>. <b>Quoi</b> est la signifi
 <b>Rabbi Akiva dit :</b> Cet incident s'est produit avant la révélation des dix commandements au peuple juif, et lorsque la Torah dit : <b>"Et la gloire de l'Éternel demeura</b> sur le mont Sinaï", elle fait référence à la révélation de la Présence divine qui a commencé le jour de la <b>Nouvelle Lune</b> de Sivan, soit six jours avant la révélation des Dix Commandements.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

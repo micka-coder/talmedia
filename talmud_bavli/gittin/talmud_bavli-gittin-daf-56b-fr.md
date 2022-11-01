@@ -54,4 +54,4 @@ La Gemara reprend son histoire sur Titus. La Voix Divine continue : <b>Grimpez s
 § La Gemara relate : <b>Onkelos bar Kalonikos, le fils de la sœur de Titus, voulait se convertir</b> au judaïsme. <b>Il alla</b> et <b>rasa Titus</b> de la tombe <b>par nécromancie,</b> et lui <b>dit : Qui est</b> le plus <b>important dans ce monde</b> où tu es maintenant ? Titus lui <b>répondit : Le peuple juif.</b> Onkelos lui a demandé : <b>Dois-je</b> alors me <b>attacher</b> à eux</b> ici dans ce monde ? Titus <b>lui répondit : Leurs commandements sont nombreux, et tu ne pourras pas les accomplir.</b> Il vaut mieux que tu fasses comme suit : <b>Allez</b> dehors et <b>battez contre eux dans ce monde, et vous deviendrez le chef, comme il est écrit : "Ses adversaires [<i>tzareha</i>] sont devenus le chef"</b> (Lamentations 1:5), ce qui signifie : <b>Quelqu'un qui afflige [<i>meitzer</i>] Israël deviendra le chef.</b> Onkelos <b>lui dit : Quel est le châtiment de cet homme,</b> un euphémisme pour Titus lui-même, dans l'autre monde ? Titus <b>lui dit :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

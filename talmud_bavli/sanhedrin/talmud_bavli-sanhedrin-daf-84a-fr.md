@@ -51,4 +51,4 @@ La Gemara demande : <b>A propos de quel</b> principe <b>Rabbi Akiva et Rabbi Yo�
 La Guemara répond : Ce sont <b>deux <i>tanna'im</i> et</b> ils sont en désaccord <b>en ce qui concerne</b> l'opinion <b>de Rabbi Akiva. La mishna,</b> qui cite l'opinion selon laquelle Rabbi Akiva considère qu'un prophète qui a incité les autres à l'adoration des idoles est exécuté par strangulation, cite l'opinion de <b>Rabbi Shimon conformément</b> à l'opinion <b>de Rabbi Akiva.</b> Rabbi Shimon était son disciple prééminent. <b>Le <i>baraita</i>,</b> qui cite l'opinion selon laquelle Rabbi Akiva considère qu'un prophète qui incite les autres à l'adoration des idoles est exécuté par lapidation, cite l'opinion des <b>rabbins,</b> qui ne sont pas d'accord avec Rabbi Shimon, <b>et</b> eux aussi tiennent <b>conformément</b> à l'opinion <b>de Rabbi Akiva.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

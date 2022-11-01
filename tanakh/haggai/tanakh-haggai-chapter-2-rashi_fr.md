@@ -77,4 +77,4 @@
 <b>et je te ferai comme un sceau</b> Contrairement à ce qui avait été décrété sur son père Jeconiah (Jér. 22, 24) : "Je suis vivant, dit le Seigneur, si Conia, fils de Jehoïakim, roi de Juda, est un sceau à ma droite, je t'enlèverai de là." [Jérémie] déclare en outre (ibid. 22:30) : "Inscrivez cet homme sans enfants." Nous apprenons que son repentir a servi à [Jeconiah], et Zorobabel lui est né, et il a été fait comme un sceau.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

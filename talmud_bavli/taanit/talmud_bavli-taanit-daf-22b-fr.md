@@ -57,4 +57,4 @@ En ce qui concerne la hauteur de cette grande falaise, <b>Rabba bar bar Ḥana a
 <b>Les Sages ont enseigné : "Alors je vous donnerai les pluies en leur saison"</b> (Lévitique 26:4). Cela signifie que la terre ne sera <b>ni ivre ni assoiffée</b> ; plutôt, une quantité modérée</b> de pluie tombera. <b>Parce que tant que les pluies sont abondantes, elles embourbent</b> le sol de <b>la terre, et elle ne donne pas</b> ses <b>produits. Alternativement,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

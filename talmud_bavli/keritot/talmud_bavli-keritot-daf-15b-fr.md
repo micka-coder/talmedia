@@ -72,4 +72,4 @@ En revanche, si quelqu'un a mangé <i>notar</i> d'une seule offrande <b>de cinq<
 Si l'on <b>fait cinq morceaux</b> de viande préparée <b>dans cinq</b> <b>pots séparés d'une seule offrande avant</b> que la viande ne devienne autorisée à la consommation par l'intermédiaire de l'<b>éclaboussure du sang</b> sur l'autel, <b>même</b> si cela s'est produit <b>pendant une seule défaillance de conscience,</b> il est <b>faisable</b> d'apporter une offrande de culpabilité séparée <b>pour</b> la viande de <b>chaque pot</b>, <b>pour cause d'abus</b> de biens consacrés.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

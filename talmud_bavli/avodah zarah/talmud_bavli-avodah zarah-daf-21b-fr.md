@@ -15,4 +15,4 @@ La Guemara en déduit également : Il est interdit de louer sa maison de bain à
 La Gemara cite une discussion similaire. <b>Il est enseigné</b> dans une <i>baraita</i> que <b>Rabbi Shimon ben Elazar dit : Une personne ne peut louer son champ à un Samaritain, car il est appelé par le nom du</b> propriétaire <b>et ce Samaritain</b> y <b>effectuera un travail pendant les jours intermédiaires d'une Fête.</b> La Gemara en déduit : Il est interdit de louer son champ à un Samaritain, <b>mais</b> en ce qui concerne <b>un Gentil, quelle</b> est la <i>halakha</i> ? A l'évidence, il est <b>permis, comme on dit</b> que le <b>métayer gentil travaille pour son locataire</b> et non pour le propriétaire juif. La Gemara demande : <b>Si c'est le cas,</b> dans le cas d'un <b>samaritain aussi,</b> pourquoi ne pas <b>dire</b> que le <b>métayer travaille pour son bail ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

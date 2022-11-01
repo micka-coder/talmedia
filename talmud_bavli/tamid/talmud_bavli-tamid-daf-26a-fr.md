@@ -30,4 +30,4 @@ La Gemara objecte : On peut <b>dire</b> que <b>tous</b> les prêtres veillent <b
 <b>Rav Ashi dit</b> que la <i>halakha</i> que les prêtres veillent en trois endroits provient <b>de la fin du verset,</b> qui dit : "Moïse, Aaron et ses fils, <b>tenant [<i>shomerim</i>] la garde [<i>mishmeret</i>]</b> du Sanctuaire, <b>pour la garde [<i>lemishmeret</i>]</b> des enfants d'Israël." Le verset utilise trois termes issus de la racine <i>shin</i>, <i>mem</i>, <i>reish</i>, qui signifie veiller, indiquant qu'il doit y avoir trois veilles distinctes.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -66,7 +66,7 @@
 <b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Chmouel II, 3:5), voir Rachi à ce sujet.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>David a encore rassemblé.</b> Rassembler.
 <b>Tous les hommes choisis de Israël, trente mille.</b> Parce qu'ils se sont rassemblés pour lui lorsqu'ils l'ont couronné à Chevron et [donc] qu'il s'agissait d'un deuxième rassemblement [pour David] [l'Ecriture] dit donc : "[David] s'est encore rassemblé".
@@ -134,4 +134,4 @@
 <b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Chmouel II, 3:5), voir Rachi à ce sujet.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

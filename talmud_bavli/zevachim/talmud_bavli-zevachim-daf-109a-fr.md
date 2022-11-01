@@ -42,4 +42,4 @@ La Guemara résout la deuxième difficulté : Que la décision concernant <b><i>
 La Gemara demande : <b>Et de qui</b> l'opinion est exprimée par le <i>baraita</i> ? <b>C'est</b> l'avis de <b>Rabbi Yehoshua, tel qu'il est enseigné</b> dans une <i>baraita</i> : <b>Rabbi Yehoshua dit :</b> En ce qui concerne <b>toutes les offrandes qui</b> sont mentionnées <b>dans la Torah dont il ne reste</b> qu'une <b>boule d'olive de viande,</b> le reste ayant été détruit ou rendu impur,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

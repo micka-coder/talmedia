@@ -57,4 +57,4 @@ La Guemara ajoute : <b>À qui appartient</b> l'opinion reflétée dans la mishna
 <b>Rabbi Elazar a dit</b> que <b>Rabbi Ḥanina a dit : Rabbi</b> Yehuda HaNasi a fait plusieurs choses inhabituelles : <b>Il a planté un jeune arbre le jour de Pourim,</b> et ne s'est pas soucié d'effectuer un travail et donc éventuellement de dénigrer ce jour.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -18,4 +18,4 @@ La Guemara <b>souleve une objection</b> à partir des <i>halakhot</i> de <i>sota
 La Guemara <b>souleve une objection</b> provenant d'une <i>baraita</i> différente : <b>Quand il écrit, il regarde et écrit ce qui est écrit sur la tablette. Et qu'est-ce qui est écrit sur la tablette ? Si un homme a couché avec toi"¦et s'il n'a pas couché avec toi ; si tu t'es égaré"¦si tu ne t'es pas égaré</b> (voir Nombres 5:19""20). Apparemment, le texte complet du passage était écrit sur la tablette. La Guemara répond : <b>C'est là,</b> il a été écrit
 
 >Crédit : édition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

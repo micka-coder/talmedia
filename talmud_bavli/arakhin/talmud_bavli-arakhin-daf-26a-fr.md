@@ -48,4 +48,4 @@ La Guemara explique : <b>Parce que si le Miséricordieux avait écrit</b> seulem
 La Gemara demande : <b>Quelle</b> conclusion <b>a-t-on</b> tiré <b>à ce sujet ?</b> En d'autres termes, maintenant que les deux suggestions ont été rejetées, quelle est la raison de l'opinion de Rabbi Eliezer selon laquelle un champ ancestral consacré qui n'a pas été racheté par l'année jubilaire n'est pas donné aux prêtres ? <b>Rava dit</b> que le <b>verset stipule : "Mais le champ, quand il sortira au Jubilé,</b> sera saint pour l'Eternel, comme un champ consacré ; sa propriété ancestrale sera pour le prêtre" (Lévitique 27, 21). L'expression "quand il sort" indique qu'il n'est donné aux prêtres que <b>quand il sort</b> pendant l'année jubilaire <b>de la possession d'une autre</b> personne, qui l'a racheté au trésor du Temple.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

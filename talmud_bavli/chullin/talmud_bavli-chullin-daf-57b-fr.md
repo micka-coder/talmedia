@@ -45,4 +45,4 @@ La Guemara répond : L'affaire <b>est</b> un différend entre <b><i>tanna'im</i>
 <b>Rav Aḥa bar Ya'akov dit :</b> La <b><i>halakha</i></b> est qu'un <b>tereifa</i> peut mettre bas et</b> sa santé peut même <b>s'améliorer.</b> Si l'animal semble se rétablir ou mettre bas, cela ne prouve pas qu'il n'est pas un <i>tereifa</i>. <b>Ameimar dit :</b> En ce qui concerne <b>ces œufs d'un <i>tereifa</i></b> oiseau ,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

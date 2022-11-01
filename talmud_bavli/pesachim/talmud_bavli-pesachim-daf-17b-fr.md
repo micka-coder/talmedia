@@ -45,4 +45,4 @@ La Gemara soulève une difficulté : <b>Si c'est le cas, au lieu d'enseigner : D
 <b>Rav Naḥman bar Yitzḥak a dit : Venez</b> et <b>entendre</b> une résolution de ce dilemme à partir d'une mishna : En ce qui concerne <b>une vache qui a bu des eaux de purification</b> dans lesquelles étaient mélangées les cendres de la vache rousse et qui devaient être aspergées sur une personne rituellement impure avec l'impureté communiquée par un cadavre, et que la vache a été abattue avant d'avoir digéré l'eau, <b>sa chair est impure</b> en raison du contact avec cette eau. Les objets purs qui entrent en contact avec les eaux de purification deviennent impurs, comme cela découle d'un verset. <b>Rabbi Yehuda dit :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

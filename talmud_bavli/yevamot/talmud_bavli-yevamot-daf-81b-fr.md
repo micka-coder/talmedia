@@ -21,4 +21,4 @@ La Gemara demande : <b>En tout état de cause, la première clause</b> de cette 
 La Guemara demande : <b>Si</b> il est <b>ainsi</b> que le morceau a été écrasé, <b>quelle est la raison de l'avis de Rabbi Yehuda</b> selon lequel le morceau n'est pas annulé ?
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

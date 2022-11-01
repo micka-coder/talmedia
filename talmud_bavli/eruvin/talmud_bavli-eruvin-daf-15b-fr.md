@@ -66,4 +66,4 @@ La Gemara demande : <b>Il n'est pas possible d'être précis ?</b> Ne pourrait-o
 La Guemara cherche à apporter une preuve à l'appui de l'opinion du Rav Huna, fils du Rav Yehoshua : <b>Venez</b> et <b>entendez</b> ce qui a été enseigné dans une <i>baraïta</i> : Si <b>une caravane campe dans un champ, et</b> les voyageurs <b>entourent</b> leur camp <b>avec des chameaux</b> que l'on a fait accroupir, ou <b>avec</b> leurs <b>selles,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

@@ -26,5 +26,5 @@
 ### passuk 11
 <b>Machlah, Sirtzah, etc.</b> Ici, ils sont comptés par ancienneté, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> et ils se sont mariés dans l'ordre de leur naissance. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Dans toute l'Écriture, ils sont comptés selon leur sagesse. Cela enseigne qu'ils étaient tous égaux en estime. 
 
->Crédit : primo.nli.org.il (metsudah)
->License : CC_BY
+>Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
+>License : CC BY-NC

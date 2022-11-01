@@ -39,4 +39,4 @@ La Guemara note que la déclaration de Shmuel sert <b>à exclure</b> l'opinion <
 La Guemara détaille les trois cas à propos desquels Shmuel affirme que les Sages ont employé un langage exagéré : Le cas du <b>tas de cendres circulaire</b> est <b>celui que nous avons énoncé</b> ci-dessus. Le cas de la <b>vigne</b> est <b>comme il est enseigné</b> dans une mishna (<i>Middot</i> 3:8) : <b>Un ornement en or</b> en forme de <b>vigne se trouvait à l'entrée du Sanctuaire, et</b> il <b>s'accrochait à des poteaux. Et quiconque ferait don</b> d'une <b>feuille d'or ornementale,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

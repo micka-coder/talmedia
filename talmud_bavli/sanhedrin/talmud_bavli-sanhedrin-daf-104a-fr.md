@@ -48,4 +48,4 @@ En ce qui concerne la phrase décrivant Jérusalem : <b>"Elle est devenue comme 
 <b>Les Sages ont enseigné</b> dans une <i>baraita</i> : Il y eut <b>un incident impliquant deux</b> personnes juives qui furent emmenées en captivité sur le Mont Carmel, et leur ravisseur marchait derrière elles.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

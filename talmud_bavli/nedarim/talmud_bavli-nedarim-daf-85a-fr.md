@@ -27,4 +27,4 @@ La Gemara contrecarre cet argument : <b>Mais si</b> le <b>bénéfice de la discr
 <strong>GEMARA :</strong> <b>Shmuel a dit : La <i>halakha</i> est conforme</b> à l'avis de <b>Rabbi Yoḥanan ben Nuri.</b> La Gemara demande : <b>Est-ce à dire que Shmuel soutient</b> que <b>une personne peut consacrer une entité qui n'est pas</b> encore <b>venue au monde ?</b> Selon Rabbi Yoḥanan ben Nuri, son vœu est valable en ce qui concerne les choses qu'elle fera après son divorce, même si actuellement elle n'est pas divorcée et qu'elle n'a encore rien produit. <b>Et</b> la Gemara <b>souleve une contradiction</b> à partir d'une mishna (<i>Ketubot</i> 58b) : Si <b>quelqu'un consacre les gains de sa femme,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

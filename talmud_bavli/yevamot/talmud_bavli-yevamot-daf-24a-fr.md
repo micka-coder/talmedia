@@ -60,4 +60,4 @@ La Guemara interpelle à nouveau la <i>halakha</i> : <b>Dites donc</b> que <b>si
 La Gemara demande : <b>Mais</b> s'il n'y a pas de différence entre le premier né et l'aîné, pourquoi <b>Le Miséricordieux</b> appelle le frère qui contracte le lévirat le <b>premier né ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

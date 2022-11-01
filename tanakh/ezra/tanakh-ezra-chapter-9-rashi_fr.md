@@ -54,4 +54,4 @@
 <b>Parce que nous ne pouvons</b> lit. car il n'y a rien ; c'est-à-dire que nous n'avons pas le pouvoir des bonnes actions pour nous tenir et exister devant Toi, à cause de cette transgression.
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

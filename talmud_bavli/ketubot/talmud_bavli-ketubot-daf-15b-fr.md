@@ -30,7 +30,7 @@ Et il est enseigné dans la mishna : Si <b>la moitié</b> de la population est g
 Au contraire, cette <i>halakha</i> est <b>nécessaire uniquement</b> dans un cas <b>où son bœuf a encorné notre bœuf,</b> un bœuf appartenant à un juif. Dans ce cas, il n'est pas question qu'il <b>paye la moitié</b> du dommage, ce qui est le paiement lorsqu'un bœuf inoffensif appartenant à un juif encorne un bœuf appartenant à un juif. <b>Et</b> en ce qui concerne <b>l'autre moitié,</b> que réclame le propriétaire du bœuf encorné, en affirmant que cette personne au statut incertain est un Gentil et donc redevable de la totalité des dommages et intérêts, le propriétaire du bœuf encorné peut <b>dire aux demandeurs : <b>Apportez la preuve que je ne suis pas un juif et je vous donnerai</b> le paiement de l'autre moitié des dommages et intérêts. C'est à propos de ce cas que le Reish Lakish a statué que dans un cas d'incertitude, le bébé a le statut présumé de juif, et il incombe au demandeur de prouver le contraire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 S'il existe une ville dans laquelle résident à la fois des juifs et des gentils, et que <b>quelqu'un trouve</b> un bébé non identifié, <b>abandonné dans</b> la ville, <b>si</b> il y a une <b>majorité de gentils</b> dans la ville, le bébé est réputé <b>un gentil ; si</b> il y a une <b>majorité de juifs</b> dans la ville, le bébé est réputé <b>un juif. </b> Si <b>la moitié</b> de la population est gentille et <b>la moitié</b> juive, le bébé est considéré comme <b>un juif.</b>
 
@@ -62,4 +62,4 @@ Et il est enseigné dans la mishna : Si <b>la moitié</b> de la population est g
 Au contraire, cette <i>halakha</i> est <b>nécessaire uniquement</b> dans un cas <b>où son bœuf a encorné notre bœuf,</b> un bœuf appartenant à un juif. Dans ce cas, il n'est pas question qu'il <b>paye la moitié</b> du dommage, ce qui est le paiement lorsqu'un bœuf inoffensif appartenant à un juif encorne un bœuf appartenant à un juif. <b>Et</b> en ce qui concerne <b>l'autre moitié,</b> que réclame le propriétaire du bœuf encorné, en affirmant que cette personne au statut incertain est un Gentil et donc redevable de la totalité des dommages et intérêts, le propriétaire du bœuf encorné peut <b>dire aux demandeurs : <b>Apportez la preuve que je ne suis pas un juif et je vous donnerai</b> le paiement de l'autre moitié des dommages et intérêts. C'est à propos de ce cas que le Reish Lakish a statué que dans un cas d'incertitude, le bébé a le statut présumé de juif, et il incombe au demandeur de prouver le contraire.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

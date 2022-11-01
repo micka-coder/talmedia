@@ -15,4 +15,4 @@ En ce qui concerne <b>une personne sur son lit de mort qui dit : Donne</b> le <b
 <b>Rabbi Abba dit à Rav Ashi : Nous avons appris</b> la déclaration précitée de Rav Naḥman <b>en ce qui concerne</b> la déclaration <b>de Rabbi Shimon ben Lakish</b> concernant une question différente, <b>comme le dit Rabbi Shimon ben Lakish : </b> Dans le cas de <b>celui qui vend une maison à un autre et lui dit :</b> Je vends la maison <b>à condition que l'étage supérieur [<i>deyota</i>]</b> reste <b>mien, l'étage supérieur</b> reste <b>le sien. </b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

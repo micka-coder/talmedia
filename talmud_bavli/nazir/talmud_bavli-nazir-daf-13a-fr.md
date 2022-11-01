@@ -30,4 +30,4 @@ La Gemara demande : <b>Quelle différence y a-t-il ?</b> En tout cas, il est cer
 La Guemara développe davantage la question : Même <b>si vous dites</b> que la phrase : Et il m'incombe, a <b>l'implication</b> de signifier qu'elle doit être comprise <b>à propos de lui-même, quelle est</b> la <i>halakha</i> si l'on <b>dit : Je suis par la présente un nazirite lorsque j'aurai un fils, et qu'un autre l'entendait</b> et disait : Et moi ? </b> Quel est le sens de la déclaration de la deuxième personne ? Doit-on comprendre qu'ici aussi, <b>il parle de lui-même,</b> c'est-à-dire : Je serai nazirite quand j'aurai un fils à moi, <b>ou peut-être est-ce ce qu'il dit : Je t'aime comme tu</b> aimes <b>toi-même;</b> je serais aussi heureux que toi à la naissance de ton fils, et je serai moi aussi un nazirite quand tu auras un fils. Ben Reḥumi poursuit : <b>Si tu dis</b> que <b>tout ce qu'il dit</b> à un autre <b>en face de lui</b>.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

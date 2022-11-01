@@ -42,7 +42,7 @@ La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i>,
 La Guemara commente : <b>Et ils suivent leur</b> ligne de <b>raisonnement, comme il est enseigné</b> dans une <i>baraita</i> à propos d'un arbre appartenant à un individu qui a poussé sur un terrain appartenant à un autre : <b>Ce qui pousse du tronc et des racines, ceux-ci</b> appartiennent <b>au propriétaire du terrain.</b> C'est <b>la déclaration de Rabbi Meir. Rabbi Yehuda dit :</b> Ce qui germe <b>du tronc</b> appartient <b>au propriétaire de l'arbre, et</b> tout ce qui pousse <b>des racines</b> appartient <b>au propriétaire de la terre.</b> Cette déclaration démontre que selon Rabbi Yehuda, la propriété des germes n'est pas déterminée exclusivement en fonction de la propriété des racines.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>Et quel</b> est le sens de la phrase : Est-ce que <b>vous dites</b> ainsi ? <b>Voici ce qu'ils lui disaient :</b> Si l'on applique l'opinion <b>de votre déclaration</b> selon laquelle on peut se porter volontaire comme bailli non rémunéré, <b>à notre déclaration</b> selon laquelle les Sages ont institué une directive pour lui donner quatre dinars, il en résulte que les offrandes communales <b>ne proviennent pas de fonds communaux</b> comme cela est requis. <b>Et de même, lorsque Ravin est venu</b> d'Eretz Yisrael en Babylonie, il a dit que <b>Rabbi Yoḥanan dit :</b> La question de savoir si oui ou non <b>nous nous préoccupons des personnes violentes est</b> la différence <b>entre</b> les opinions des rabbins et de Rabbi Yosei, c'est-à-dire que c'est le nœud de leur différend.
 
@@ -86,4 +86,4 @@ La Gemara demande : <b>Mais n'est-il pas enseigné</b> dans une <i>baraïta</i>,
 La Guemara commente : <b>Et ils suivent leur</b> ligne de <b>raisonnement, comme il est enseigné</b> dans une <i>baraita</i> à propos d'un arbre appartenant à un individu qui a poussé sur un terrain appartenant à un autre : <b>Ce qui pousse du tronc et des racines, ceux-ci</b> appartiennent <b>au propriétaire du terrain.</b> C'est <b>la déclaration de Rabbi Meir. Rabbi Yehuda dit :</b> Ce qui germe <b>du tronc</b> appartient <b>au propriétaire de l'arbre, et</b> tout ce qui pousse <b>des racines</b> appartient <b>au propriétaire de la terre.</b> Cette déclaration démontre que selon Rabbi Yehuda, la propriété des germes n'est pas déterminée exclusivement en fonction de la propriété des racines.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -42,4 +42,4 @@ Le verset vient plutôt <b>répéter la</b> <i>halakha</i> de l'<b>éclaboussure
 La <i>baraita</i> continue : Le verset dit : "Et il fera <b>avec le taureau"</b> (Lévitique 4:20) ; <b>ceci</b> fait allusion à un autre taureau dont le service est similaire, à savoir <b>le taureau de Yom Kippour.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

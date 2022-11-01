@@ -60,4 +60,4 @@ La Guemara s'interroge à propos de l'avis attribué à Rabbi Yehuda : <b>Mais n
 <b>Et Rabbi Ḥananya ben Gamliel dit : Et si</b> pour <b>celui qui accomplit une transgression, son âme lui est enlevée,</b> comme son âme peut être arrachée du monde pour une seule transgression, pour <b>celui qui accomplit une seule mitzva,</b> c'est <b>d'autant plus</b> le cas <b>que son âme lui sera donnée,</b> car la récompense pour l'accomplissement des mitzvot est plus grande que la punition pour l'accomplissement des transgressions. <b>Rabbi Shimon dit : Cela découle de sa</b> propre <b>place</b> dans la Torah, <b>puisqu'il est indiqué</b> à la conclusion du passage discutant des rapports avec des parents interdits, qui sont punissables de <i>karet</i> : <b>"Et les âmes qui les accomplissent</b> <b>seront excisées"</b> (Lévitique 18:29), <b>et il est dit</b> vers le début de ce chapitre :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -48,4 +48,4 @@ La Gemara explique : <b>Vous soutenez</b> qu'il y a eu trois</b> <b>exils distin
 La Guemara corrobore son interprétation de la <i>baraita</i>. <b>Comme le dit le Maître : La première année</b> de son règne, Nabuchodonosor <b>conquit Ninive;</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

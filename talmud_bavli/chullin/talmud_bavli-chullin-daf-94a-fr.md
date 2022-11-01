@@ -63,4 +63,4 @@ Le <i>baraita</i> continue : <b>Et il n'est pas permis aux invités de donner</b
 <b>Et</b> de même, <b>une personne ne peut pas dire à un Gentil : Achète-moi de la viande</b> chez un boucher juif <b>avec ce dinar, en raison de deux facteurs :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -110,7 +110,7 @@
 <b>L'attraction des nations</b> Héb. (גְּלִיל הַגּוֹיִם). C'est toute la terre d'Israël, qui roulerait (גּוֹלֶלֶת) vers elle toutes les nations, car toutes la désiraient et venaient à elle pour le commerce, comme la chose qui est énoncée (Jér. 3:19) : "Un héritage désiré par des armées de nations". Jonathan, cependant, a rendu cela différemment .
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC
 ### passuk 1
 <b>parcours</b> Heb. גִּלְיוֹן, comme מְגִלָה. ([Mss. ajoutent :] Ou une tablette.)
 <b>En écriture commune</b> En écriture que tout homme qui la lit peut parcourir rapidement, même un homme très commun, même s'il n'est pas intelligent. De cette manière, Jonathan rend : dans une écriture distincte.
@@ -222,4 +222,4 @@
 <b>L'attraction des nations</b> Héb. (גְּלִיל הַגּוֹיִם). C'est toute la terre d'Israël, qui roulerait (גּוֹלֶלֶת) vers elle toutes les nations, car toutes la désiraient et venaient à elle pour le commerce, comme la chose qui est énoncée (Jér. 3:19) : "Un héritage désiré par des armées de nations". Jonathan, cependant, a rendu cela différemment .
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

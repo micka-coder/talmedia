@@ -88,7 +88,7 @@
 <b>Quel signe</b> Combien est bon et combien est beau ce signe qui m'est donné de monter à la maison du Seigneur !
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC
 ### passuk 1
 <b>En ces jours-là</b> Trois jours avant la chute de Sennachérib, Ezéchias tomba malade, et le troisième jour, quand il monta à la maison du Seigneur, fut le jour de la chute de Sennachérib, et c'était le premier jour de fête de la Pâque.
 <b>Car vous allez mourir et vous ne vivrez pas</b> Vous allez mourir dans ce monde, et vous ne vivrez pas dans le monde à venir, car vous ne vous êtes pas mariés, comme il est dit dans Berachoth 10b.
@@ -178,4 +178,4 @@
 <b>Quel signe</b> Combien est bon et combien est beau ce signe qui m'est donné de monter à la maison du Seigneur !
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

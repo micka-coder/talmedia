@@ -42,7 +42,7 @@ La Guemara relate qu'un <b>tanna</i> a enseigné</b> une <i>baraïta</i> <b>avan
 La Guemara conteste : <b>Mais</b> si l'on doit émender le <i>baraita</i>, <b>disons</b> que le <i>baraita</i> stipule : <b>C'est <i>piggul</i>, et</b> que <b>c'est</b> en accord avec l'opinion de <b>Rabbi Meir.</b> La Gemara répond : Il est raisonnable que le <b><i>tanna</i> ait enseigné</b> que <b>tout le monde est d'accord,</b> et qu'il ait accidentellement <b>échangé</b> le mot <b><i>piggul</i> pour disqualifié.</b> Mais <b>il ne confondrait pas</b> la phrase : <b>C'est</b> l'avis de Rabbi Meir, <b>avec</b> la phrase : <b>Tout le monde est d'accord.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
 ### Partie 1
 <b>les gens pointus</b> dans la ville <b>de Pumbedita : Brûler rend brûler <i>piggul</i>,</b> par exemple, brûler la poignée avec l'intention de brûler l'encens le lendemain rend l'offrande de repas <i>piggul</i>. <b>Et</b> ceci est la <i>halakha</i> <b>même selon les rabbins, qui disent</b> que <b>on ne rend pas</b> une offrande <b><i>piggul</i> avec</b> l'intention survenant pendant le sacrifice de <b>la moitié d'un facteur de permission,</b> par exemple, lorsqu'on sacrifie la poignée seule avec l'intention de <i>piggul</i>. La raison en est que <b>cette déclaration</b> ne s'applique que <b>lorsqu'il avait l'intention pendant</b> le sacrifice de la poignée de consommer <b>le reste</b> le lendemain, <b>et</b> le <b>franc encens reste intact,</b> c'est-à-dire qu'il n'avait aucune intention à son égard. <b>Mais ici, alors qu'il avait une intention à l'égard de l'encens</b> tout en brûlant la poignée, <b>on considère qu'il avait une intention à l'égard de l'ensemble du facteur de permission.</b>
 
@@ -86,4 +86,4 @@ La Guemara relate qu'un <b>tanna</i> a enseigné</b> une <i>baraïta</i> <b>avan
 La Guemara conteste : <b>Mais</b> si l'on doit émender le <i>baraita</i>, <b>disons</b> que le <i>baraita</i> stipule : <b>C'est <i>piggul</i>, et</b> que <b>c'est</b> en accord avec l'opinion de <b>Rabbi Meir.</b> La Gemara répond : Il est raisonnable que le <b><i>tanna</i> ait enseigné</b> que <b>tout le monde est d'accord,</b> et qu'il ait accidentellement <b>échangé</b> le mot <b><i>piggul</i> pour disqualifié.</b> Mais <b>il ne confondrait pas</b> la phrase : <b>C'est</b> l'avis de Rabbi Meir, <b>avec</b> la phrase : <b>Tout le monde est d'accord.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

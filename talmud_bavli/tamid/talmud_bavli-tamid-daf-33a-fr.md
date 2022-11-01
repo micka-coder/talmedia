@@ -18,4 +18,4 @@ MISHNA 5:6 Le prêtre avec la cuillère d'encens et le prêtre avec la poêle à
 <b>Et</b> ce bruit <b>aurait trois fonctions :</b> Tout <b>prêtre qui entend son bruit sait que ses frères les prêtres entrent pour se prosterner</b> dans le Sanctuaire à ce moment-là, <b>et il</b> courrait et viendrait</b> se prosterner avec eux. <b>Et</b> tout <b>Lévite qui entend son bruit sait que ses frères les Lévites entrent</b> dans la cour pour se tenir sur leur estrade <b>pour réciter le psaume</b> accompagnant la libation, <b>et il</b> courrait et viendrait</b> pour chanter avec eux. <b>Et le chef du</b> <b>veilleur non prêtre,</b> qui se tient dans la cour en tant qu'agents du peuple juif, <b>positionnerait les prêtres et chanteurs rituellement impurs</b> <b>à la porte orientale</b> de la cour, afin de faire comprendre que ces prêtres n'accomplissent pas le service du Temple en raison de leur impureté rituelle.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

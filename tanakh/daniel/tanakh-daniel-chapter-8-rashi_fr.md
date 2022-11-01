@@ -120,4 +120,4 @@
 <b>mais personne ne s'est rendu compte</b> que j'étais terrifié car je me suis retenu devant les princes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

@@ -51,4 +51,4 @@ A propos du Messie, la Guemara demande : <b>Quel est son nom ? L'école de Rabbi
 § <b>Rabbi Simlai a enseigné : Quel</b> est le sens de ce <b>qui est écrit : "Malheur à vous qui désirez le jour du Seigneur. Pourquoi désirez-vous ce jour du Seigneur ? Il est ténèbres, et non lumière"</b> (Amos 5.18) ? C'est <b>comparable à un coq et une chauve-souris qui attendaient avec impatience</b> la <b>lumière</b> du jour. <b>Le coq dit à la chauve-souris : j'attends avec impatience la lumière, car la lumière est</b> une indication de <b>mon</b> moment d'être actif. <b>Mais</b> quant à <b>vous, pourquoi avez-vous</b> besoin de <b>lumière ?</b> La nuit pour vous est comme le jour pour moi.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

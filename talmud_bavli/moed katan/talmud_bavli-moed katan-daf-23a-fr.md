@@ -30,4 +30,4 @@ La Guemara relate que <b>Abaye est sorti</b> alors qu'il était en deuil <b>dans
 Il a été enseigné dans la mishna : Ceci est <b>parce que</b> les Sages ont <b>dit</b> que <b>Chabbat compte</b> comme un des jours de deuil, <b>mais il n'interrompt pas</b> la période de deuil, qui se poursuit après Chabbat. Il est précisé qu'en ce qui concerne le deuil le Chabbat, il existe une différence de pratique entre <b>les habitants de Judée et les habitants de Galilée. Ces derniers disent :</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

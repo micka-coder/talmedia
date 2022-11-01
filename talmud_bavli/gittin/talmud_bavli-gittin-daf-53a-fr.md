@@ -63,4 +63,4 @@ La Guemara commente que <b>il,</b> Rabbi Elazar, <b>a soulevé l'objection et</b
 La Gemara demande : <b>Mais Rava ne dit pas : L'eau de purification</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -17,5 +17,5 @@ Toutes les sortes d'aliments peuvent se combiner entre elles : Compléter la qua
 ### michna 6
 Orlah et kilayim de la vigne peuvent se combiner entre eux. Rabbi Shimon dit : ils ne se combinent pas. Le tissu, le sac, le sac et le cuir, le cuir et la natte se combinent l'un avec l'autre. Rabbi Shimon : Quelle en est la raison ?  Parce qu'ils sont tous sensibles à l'impureté causée par la position assise.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

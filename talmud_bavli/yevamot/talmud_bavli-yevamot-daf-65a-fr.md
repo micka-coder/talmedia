@@ -21,4 +21,4 @@ Un autre <b>dilemme a été soulevé devant</b> les Sages : Si <b>elle était ma
 Si <b>il dit : je vais aller</b> et <b>marié à une</b> autre <b>femme et m'examiner</b> pour voir si je suis bien la cause, <b>Rabbi Ami dit : Même dans ce</b> cas, il <b>doit divorcer</b> sa première femme <b>et lui donner</b> le paiement de son <b>contrat de mariage, car je dis</b> que <b>Quiconque épouse une femme en plus de sa</b> première <b>femme doit divorcer</b> sa première femme <b>et lui donner</b> le paiement de son <b>contrat de mariage. </b> A l'inverse, <b>Rava dit</b> que <b>un homme peut épouser plusieurs femmes en plus de sa</b> première <b>épouse, et</b> il n'y a rien de mal à cette pratique <b>aussi longtemps qu'il a</b> assez <b>pour les entretenir</b> toutes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

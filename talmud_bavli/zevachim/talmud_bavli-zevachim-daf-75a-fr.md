@@ -21,4 +21,4 @@ Rava poursuit : <b>Voici plutôt</b> ce que dit le <i>baraita</i> <b> : Dans que
 § Le <i>baraita</i> cité enseigne que <b>Rabbi</b> Yehuda HaNasi <b>dit : On évalue le</b> sang du <b>placement</b> donné de chaque animal ; <b>s'il y a assez dans</b> ce sang pour un placement de sang <b>pour cette</b> offrande <b>et assez pour cette</b> offrande, il est <b>adapté, mais sinon,</b> les offrandes sont <b>disqualifiées.</b> La Guemara demande : <b>Et Rabbi</b> Yehuda HaNasi <b>soutient-il</b> conformément à <b>cette</b> ligne de <b>raisonnement,</b> qu'il doit y avoir une quantité minimale de sang placée de chaque offrande ? <b>Mais n'est-il pas enseigné</b> dans une <i>baraita</i> (<i>Tosefta</i>, <i>Para</i> 9:5) à propos de l'eau de purification dans laquelle est tombée l'eau non valable pour l'aspersion que <b>Rabbi</b> Yehuda HaNasi <b>dit : Selon la déclaration de Rabbi Eliezer,</b>
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -60,4 +60,4 @@ La Guemara suggère : <b>Venez</b> et <b>entendez</b> une résolution du dilemme
 <b>Rabbi Zeira lui a dit : Ne t'ai-je pas</b> déjà <b>dit</b> que <b>toute <i>baraita</i> qui n'est pas enseignée</b> dans la <b>salle d'étude</b>.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

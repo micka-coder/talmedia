@@ -27,4 +27,4 @@ La Guemara demande : <b>A propos de quoi Reish Lakish et Rabbi Yoḥanan <b>sont
 <b>Si vous le souhaitez, dites</b> plutôt : <b>En fait,</b> la différence entre la valeur réelle de l'animal et le montant utilisé pour le désacraliser était dans <b>la mesure de l'exploitation, et n'inversez pas</b> l'attribution des avis de Reish Lakish et de Rabbi Yoḥanan. <b>Et ils sont en désaccord en ce qui concerne</b> l'avis <b>du Rav Ḥisda, qui a dit : Quel</b> est le sens de : <b>Ils ne sont pas</b> soumis aux <i>halakhot</i> d'exploitation ? </b> Cela signifie que <b>ils ne sont pas</b> soumis au <b>principe d'exploitation</b> du tout. C'est plutôt une norme plus stricte qui s'applique,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

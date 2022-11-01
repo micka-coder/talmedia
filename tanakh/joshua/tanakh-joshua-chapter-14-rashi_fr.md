@@ -36,4 +36,4 @@
 <b>Et le pays eut un répit de la guerre.</b> Ceci renvoie au sujet précédent.<sup>10</sup><i class="footnote">Voir ci-dessus 11:23. La conclusion du verset ne semble pas liée au sujet de la réception par Caleiv de Chevron comme héritage. Rashi commente donc qu'en fait, elle se réfère au sujet traité dans le chapitre précédent.</i> Après les sept années de conquête, les Emorites ont été humiliés et ils ne se sont plus rassemblés pour faire la guerre contre eux. Par conséquent, ils ont commencé à être occupés à la division de la terre [entre les tribus] le Midrash Aggadah commente que le plus grand homme parmi les géants fait référence à notre père, Avraham. Grâce à lui, le pays [du peuple cananéen] a eu un répit de la guerre pendant les quarante ans [que les Bnei Israël] ont passé dans le désert. Ils ont été ainsi récompensés parce qu'ils ont honoré le Patriarche à Kiryas-arba, lorsqu'ils lui ont dit : " Tu es un prince de Dieu au milieu de nous. "<sup>11</sup><i class="footnote">Bereshit 23:6.</i>
 
 >Crédit : sefaris
->Licence : CC-BY
+>Licence : CC BY-NC

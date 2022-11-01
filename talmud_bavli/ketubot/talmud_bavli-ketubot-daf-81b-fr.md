@@ -39,4 +39,4 @@ La Gemara s'interroge : <b>Quelle est la raison</b> pour laquelle cette <i>barai
 <b>Au contraire,</b> la raison de douter de la fiabilité de la <i>baraita</i> est <b>parce qu'il lui dit : Tu n'es pas ma partie civile.</b> Il n'y a pas de litige juridique entre l'homme et la <i>yevama</i>. Il prétend qu'elle n'est pas partie à ce procès, car il doit de l'argent à son défunt frère. Elle ne peut donc pas lui réclamer l'argent en arguant qu'il est hypothéqué pour son contrat de mariage.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

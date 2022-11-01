@@ -57,4 +57,4 @@ La Gemara commente : <b>Jusqu'ici</b> le <i>tanna</i> cite des cas de <b>intér�
 <b>Rav Naḥman bar Yitzḥak a dit : Quelle est la raison</b> de l'avis <b>de Rabbi Elazar</b> selon lequel les intérêts interdits par la loi de la Torah peuvent être réclamés par le biais d'une procédure judiciaire jugée par des juges ? C'est <b>ainsi que le verset</b> concernant l'interdiction de prendre des intérêts <b>dit :</b>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

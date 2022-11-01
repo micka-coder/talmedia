@@ -33,4 +33,4 @@ La Gemara demande : Selon cette version du litige, <b>selon quel</b> avis est <b
 <b>Abaye dit : Rabbi Eliezer ben Ya'akov, et Rabbi</b> Yehuda HaNasi, <b>et Rabbi Meir soutiennent tous</b> le principe suivant : <b>Une personne peut transférer une entité qui n'est pas encore venue au monde.</b> C'est-à-dire qu'on peut effectuer un acte d'acquisition pour un objet qui n'existe pas encore. L'opinion de <b>Rabbi Eliezer ben Ya'akov</b> se réfère à <b>ce que nous</b> venons de <b>dire,</b> à savoir qu'on peut séparer le <i>teruma</i> même pour des produits qui ne sont pas encore inclus dans cette mitsva. Où le <b>Rabbi</b> Yehuda HaNasi exprime-t-il une opinion similaire ? <b>Comme il est enseigné</b> dans une <i>baraita</i> :
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

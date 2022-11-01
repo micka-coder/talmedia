@@ -42,4 +42,4 @@ Il a été dit que le mari d'une mineure <b>devient impur pour elle,</b> même s
 La Gemara demande : <b>Et est-elle</b> en fait <b>une <i>met mitzva</i> ? Mais n'est-ce pas enseigné</b> dans une <i>baraita</i> : <b>Quel cadavre</b> est un <i>met mitzva</i> ? Tout</b> cadavre <b>qui n'a</b> personne <b>pour l'enterrer.</b> S'il était dans un endroit où si <b>quelqu'un appelle et que d'autres</b> lui <b>répondraient, ce n'est pas une <i>met mitzva</i>.</b> En revanche, cette fille a bien des proches qui peuvent l'enterrer, si nécessaire. La Guemara répond : <b>Ici aussi, puisque</b> les membres de la famille de son père <b>n'héritent pas</b> d'<b>elle,</b> elle <b>appellerait et ils</b> <b>ne lui répondraient pas,</b> car ils n'ont aucune envie de se donner du mal pour elle. Puisque son mari hérite d'elle, il est de son devoir de s'occuper de son enterrement, et il doit donc devenir impur pour elle, car elle a le statut de <i>met mitzva</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

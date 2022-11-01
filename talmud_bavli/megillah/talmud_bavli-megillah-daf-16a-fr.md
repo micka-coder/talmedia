@@ -72,4 +72,4 @@ Le verset indique : <b>"Alors la colère du roi fut apaisée [<i>shakhakha</i>]<
 Avant de poursuivre son interprétation midrashique du reste du livre d'Esther, la Gemara expose un verset concernant Joseph qui se rapporte à la Megilla : <b>"A tous, il donna à chacun des vêtements de rechange, mais à Benjamin il donna</b> trois cents pièces d'argent et <b>cinq vêtements de rechange</b>" (Genèse 45:22). La Gemara demande : <b>Est-il possible que dans la</b> même <b>chose dont cet homme juste</b> Joseph <b>avait souffert,</b> alors que la manifestation de favoritisme de son père à son égard suscitait l'inimitié de ses frères,
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

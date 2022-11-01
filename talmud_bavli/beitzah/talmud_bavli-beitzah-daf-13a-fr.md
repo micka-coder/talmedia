@@ -45,4 +45,4 @@ La Gemara conteste cette interprétation : Si la première dîme est considéré
 La Guemara commente : <b>Cette</b> opinion <b>est également enseignée</b> dans une <i>baraita</i>. En ce qui concerne <b>un lévite qui a reçu des tiges</b> de céréales <b>comme dîmes, il les rend</b> dans <b>un grenier,</b> c'est-à-dire qu'il doit les battre et les traiter de la manière habituelle. De même, si on lui a donné des <b>rais, il les rend au vin</b> si on lui a donné des <b>olives, il les rend à l'huile ; et</b> ensuite, il <b>séparera pour eux des <i>teruma</i> de la dîme et les donnera à un prêtre. En effet, tout comme le <i>teruma gedola</i>,</b> c'est-à-dire le <i>teruma</i> standard, <b>on ne sépare pas</b> les produits non transformés,
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

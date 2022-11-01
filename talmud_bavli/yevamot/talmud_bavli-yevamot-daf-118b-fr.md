@@ -54,4 +54,4 @@ Rav Naḥman <b>dit à</b> Rava que <b>nous avons appris</b> une réponse à ce 
 De même, <b>Rav Ashi dit :</b> Celle <b>dont le mari vend des têtes de choux [<i>kulsa</i>] n'a pas besoin de lentilles pour sa marmite.</b> Elle est tellement heureuse d'être mariée que cela ne la dérange pas même s'il ne lui fournit pas de nourriture. La Guemara commente : Un Sage <b>a enseigné : Et toutes ces</b> femmes qui semblent si satisfaites de leur mariage, elles <b>commencent toutes l'adultère et attribuent</b> les enfants <b>à leurs maris.</b> C'est une autre raison pour laquelle elles tiennent tant à être mariées. Cela montre que même lorsqu'il y a des querelles entre un couple, l'épouse préfère toujours le statut de femme mariée, et donc le projet de divorce n'est pas considéré dans son intérêt.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

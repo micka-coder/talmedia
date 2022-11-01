@@ -39,4 +39,4 @@ La Gemara demande : En ce qui concerne <b>un locataire également, n'avons-nous 
 <b>Rafram bar Pappa a dit</b> que <b>Rav Ḥisda a dit : Ils ont enseigné</b> cette <i>halakha</i> <b>uniquement lorsque</b> l'emprunteur l'a <b>retourné pendant la période de son prêt,</b> car il a accepté la responsabilité de l'animal pour la durée stipulée du prêt. <b>Mais</b> s'il l'a rendu <b>après la période de son prêt,</b> il est <b>exempté,</b> car une fois la durée du prêt terminée, il n'a plus le statut d'emprunteur. <b>Rav Naḥman bar Pappa soulève une objection</b> de la mishna : <b>Et tous ceux qui ont dit : Prends</b> ce qui est <b>à toi et apporte de l'argent,</b> chacun d'eux est considéré comme <b>un dépositaire impayé.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

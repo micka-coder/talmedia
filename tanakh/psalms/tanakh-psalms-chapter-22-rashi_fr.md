@@ -104,4 +104,4 @@
 <b>Ils viendront</b> Les premiers viendront raconter sa justice au peuple nouveau-né, car il a accompli pour lui des actes justes.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

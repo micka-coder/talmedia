@@ -63,4 +63,4 @@ Rav Ashi <b>a dit à</b> Rav Aḥa, fils de Rava : <b>Un holocauste et une offra
 <b>Rabbi Ḥiyya enseigne avant Rava:</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

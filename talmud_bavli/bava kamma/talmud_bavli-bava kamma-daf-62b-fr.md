@@ -15,4 +15,4 @@ Les Sages <b>Disent</b> en réponse : <b>Non,</b> il n'y a pas de preuve d'ici. 
 Plus loin sur le sujet de la hauteur d'une lampe de Hanouka, <b>Rav Kahana dit</b> que <b>Rav Natan bar Minyumi a enseigné au nom de Rabbi Tanḥum : Une lampe de Hanouka qui est placée à plus de vingt coudées</b> du sol est <b>inapte</b> à être utilisée pour la mitsva, car les gens ne lèvent généralement pas les yeux à une telle hauteur, et le but principal de la lampe de Hanouka est qu'elle soit vue par les autres. A cet égard, la <i>halakha</i> de la hauteur d'une lampe de Hanouka est <b>comme</b> la <i>halakha</i> de la hauteur d'une <b>sukka</i> et</b> la <i>halakha</i> de la hauteur d'une poutre transversale à l'entrée d'une <b>ruelle,</b> qui sont impropres à leurs usages respectifs si elles sont supérieures à vingt coudées.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

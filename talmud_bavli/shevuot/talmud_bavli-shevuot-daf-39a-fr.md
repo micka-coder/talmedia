@@ -66,4 +66,4 @@ La Gemara répond : <b>Là,</b> en ce qui concerne les autres transgressions, la
 La Gemara demande : <b>Et</b> en ce qui concerne <b>toutes les autres</b> <b>transgressions de la Torah,</b> la punition <b>n'est-elle pas</b> exigée <b>du monde entier ? Mais n'est-il pas écrit : "Et ils trébucheront les uns sur les autres"</b> (Lévitique 26:37) ? Ce verset est interprété homilétiquement comme signifiant qu'ils trébucheront spirituellement, <b>l'un à cause de l'iniquité d'un autre,</b> ce qui <b>enseigne que le peuple juif tout entier est</b> considéré comme <b>garant les uns pour les autres.</b> Apparemment, toute transgression rend le monde entier susceptible d'être puni.
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

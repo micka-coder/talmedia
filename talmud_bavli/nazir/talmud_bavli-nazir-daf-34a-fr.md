@@ -24,4 +24,4 @@ La mishna poursuit : Une cinquième personne a ajouté : <b>Je suis par la prés
 <b>Cependant, comment trouver ces</b> circonstances des autres <b>trois</b> ensembles de la naziréité ? Les déclarations : Si l'un de vous est nazirite, et : Si l'un d'entre vous n'est pas nazirite, sont nécessairement exprimées par des personnes qui n'ont pas fait les six déclarations initiales, car ces trois dernières déclarations s'adressent au groupe de personnes qui ont fait les six premières déclarations. <b>Rav Sheshet a dit :</b> Il est possible dans un cas <b>où</b> neuf personnes ont émis les déclarations mentionnées dans la mishna, et quelqu'un <b>a dit : Je suis par la présente un nazirite et la naziréité de tous sont</b> incombant <b>à moi.</b> Comme chacune des neuf personnes est obligée d'observer un terme de naziréité, cette dernière est obligée d'observer neuf termes.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

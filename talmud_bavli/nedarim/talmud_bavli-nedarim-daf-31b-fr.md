@@ -42,4 +42,4 @@ A l'inverse, s'il disait : <b>Bénéficier de ceux qui sont circoncis</b> est <i
 <b>Rabbi</b> Yehuda HaNasi <b>a dit : Le ciel interdit que Moïse, notre maître, ait négligé la</b> mitzva de la <b>circoncision. Au contraire, voici</b> ce qu'il a dit :</b> Si <b>je circoncis</b> l'enfant maintenant <b>et que je pars</b> pour commencer mon voyage, c'est <b>un danger</b> pour l'enfant, <b>comme il est dit : "Et il arriva que le troisième jour, alors qu'ils souffraient"</b> (Genèse 34:25), ce qui indique que la douleur de la circoncision dure plusieurs jours et que l'enfant peut être en danger pendant qu'il souffre. Si <b>Je le circoncis</b> immédiatement <b>et que j'attends trois jours</b> et qu'ensuite seulement j'entreprends le voyage, cela pose problème, car <b>Le Saint, Béni soit-Il, m'a dit : "Va, retourne en Égypte"</b> (Exode 4, 19), c'est-à-dire va immédiatement. Pour ces raisons, Moïse n'a pas circoncis l'enfant immédiatement, mais aucune négligence n'existait de sa part. <b>Mais</b> selon cette explication, <b>pour quelle raison Moïse a-t-il été puni ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

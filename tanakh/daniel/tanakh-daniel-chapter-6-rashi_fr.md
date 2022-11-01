@@ -112,4 +112,4 @@
 <b>et dans le royaume de Cyrus</b> qui régna après Darius, car Darius ne régna qu'un an, et il fut tué dans une bataille, comme il est écrit dans le livre de Joseph ben Gourion, et ils couronnèrent Cyrus son gendre au milieu de la bataille.
 
 >Crédit : sefaris
->License : CC-BY
+>License : CC BY-NC

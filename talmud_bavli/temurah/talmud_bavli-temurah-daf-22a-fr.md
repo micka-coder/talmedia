@@ -54,4 +54,4 @@ La Guemara conclut : <b>Et l'autre</b> bouc, c'est-à-dire le <b>premier</b> bou
 La Gemara répond : Rava pourrait <b>vous dire :</b> Le cas des offrandes pour le péché qui ont été <b>rejetées est discret et</b> le cas des offrandes pour le péché qui ont été <b>perdues est discret,</b> c'est-à-dire que les deux cas ne peuvent être comparés. <b>Quelle est la raison</b> de cette situation ? Dans le cas des offrandes pour le péché <b>perdues</b>, le propriétaire a <b>l'esprit sur elles,</b> car il pense que <b>peut-être elles</b> seront <b>trouvées</b> et seront aptes au sacrifice. Par conséquent, ils ne sont pas laissés à la mort simplement parce qu'ils sont perdus. Mais dans le cas des offrandes pour le péché qui ont été <b>rejetées, elles ne deviennent pas aptes</b> jamais <b>à nouveau,</b> et donc l'esprit du propriétaire n'est pas sur elles.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

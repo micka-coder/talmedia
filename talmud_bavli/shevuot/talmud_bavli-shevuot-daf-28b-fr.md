@@ -36,4 +36,4 @@ Avimi l'interrogea plus avant : Si quelqu'un dit : Sur mon <b>serment je ne mang
 <b>Abaye dit :</b> Il y a des <b>moments où l'on constate que</b> la décision <b>de Eifa</b> concernant un serment de ne pas manger dix suivi d'un serment de ne pas manger neuf s'applique, <b>comme</b> dans le cas mentionné par <b>le Maître. Comme le dit Rabba :</b> Dans le cas de celui qui dit : Sur mon <b>sermon je ne mangerai pas de figues et de raisins</b> ensemble, <b>et qui dit ensuite :</b> Sur mon <b>sermon je ne mangerai pas de figues,</b>
 
 >Crédit : William Davidson Edition
->License : CC-BY-NC
+>License : CC BY-NC

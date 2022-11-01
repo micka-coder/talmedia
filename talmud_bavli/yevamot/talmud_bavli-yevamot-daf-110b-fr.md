@@ -48,4 +48,4 @@ La Gemara demande : <b>Comment leur</b> situation peut-elle <b>être rectifiée,
 <b>Rav Ḥisda a dit : Apprenez de cette</b> déclaration <b>que le Rav tient</b> que <b>une sourde-muette mariée est partiellement acquise, et qu'une mineure est soit acquise, soit non acquise,</b> c'est-à-dire qu'il y a une incertitude quant à savoir si elle a été acquise complètement ou pas du tout. <b>Car s'il vous vient à l'esprit</b> de dire le contraire, <b>que la sourde-muette est soit acquise, soit non acquise, tandis que la mineure est partiellement acquise, alors</b> en ce qui concerne <b>la sourde-muette</b> femme, <b>pourquoi devrait-il consommer</b> le mariage lévirat <b>et</b> ensuite <b>la libérer par un acte de divorce ?</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

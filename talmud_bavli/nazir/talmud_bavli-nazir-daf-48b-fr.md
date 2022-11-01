@@ -42,4 +42,4 @@ La Guemara demande : <b>Et selon</b> la dérivation de <b>Rabbi Yishmael, d'où 
 La Guemara pose une question supplémentaire : Si oui, <b>pourquoi ai-je</b> besoin du terme <b>"sa sœur" ? </b> La Gemara répond : Il pourrait <b>entrer dans votre esprit de dire</b> que <b>lorsque le Miséricordieux permet</b> de contracter l'impureté <b>pour</b> enterrer <b>une <i>met mitzva</i>,</b> c'est dans le cas <b>d'un nazirite et d'un prêtre,</b> chacun d'eux impliquant <b>une interdiction négative</b> de devenir impur. <b>Cependant,</b> en ce qui concerne la <b>circoncision et</b> l'offrande de <b>Paschal,</b> dont la négligence entraîne la peine <b>de <i>karet</i>, </b> peut-être faut-il <b>ne pas devenir impur pour</b> enterrer <b>une <i>mitsva</i>. </b> Le verset nous <b>enseigne donc</b> que l'on doit s'impuriser même si cela l'oblige à négliger une mitzva dont la négligence est punie par <i>karet</i>.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

@@ -69,4 +69,4 @@ La Guemara offre une autre suggestion : <b>Venez</b> et <b>entendez</b> une preu
 La Gemara répond : <b>De quoi s'agit-il ici ?</b> Il s'agit d'un cas <b>où</b> le maître <b>fournit sa subsistance.</b> La Gemara soulève une difficulté : <b>Si oui, pour quoi</b> raison.
 
 >Crédit : Edition William Davidson
->Licence : CC-BY-NC
+>Licence : CC BY-NC

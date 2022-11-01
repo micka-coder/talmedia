@@ -48,4 +48,4 @@ La Gemara interprète la suite du verset cité ci-dessus : <b>Car une personne v
 <b>Rav Yehuda a dit :</b> Dans le cas d'un <b>défunt qui n'a pas de consolateurs,</b> c'est-à-dire qu'il n'a personne pour le pleurer, <b>dix personnes doivent aller s'asseoir à sa place</b> et accepter les condoléances. La Gemara relate l'histoire d'une <b>certaine personne qui est décédée dans le quartier de Rav Yehuda</b> et <b>qui n'avait</b> aucun <b>confortant,</b> c'est-à-dire des personnes en deuil ;
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

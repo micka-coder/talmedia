@@ -42,4 +42,4 @@ Il explique : <b>Rabbi Eliezer n'a-t-il pas dit</b> que le terme <b>"son argent"
 Si <b>il lui a tiré l'oreille,</b> ou <b>lui a arraché les cheveux,</b> ou <b>lui a craché</b> <b>et que sa salive l'a atteint,</b> ou si <b>il a enlevé</b> le <b>vêtement de l'autre,</b> ou si <b>il a découvert la tête d'une femme sur la place du marché,</b> dans tous ces cas, il doit <b>donner</b> à la partie lésée <b>quatre cents dinars.</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

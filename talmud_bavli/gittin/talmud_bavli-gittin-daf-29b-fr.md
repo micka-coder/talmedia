@@ -54,4 +54,4 @@ Rava <b>était gêné</b> d'avoir rendu une décision incorrecte. <b>Enfin, l'af
 <b>Rava a dit : Nous soulevons certainement ce dilemme :</b>
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC

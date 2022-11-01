@@ -17,5 +17,5 @@ A Pessah, nous lisons la partie des fêtes dans le Lévitique (Torat Kohanim) (L
 ### michna 6
 À Hanouka, ils lisent la section des princes (Nombres. A Pourim, "Et Amalek est venu" (Exode 17:8). A Rosh Hodesh, "Et le premier de vos mois "(Nombres 28:11). A Maamadot, le récit de la création (Genèse 1:1-2:3). Les jours de jeûne, les bénédictions et les malédictions (Lévitique 26:3 et suivants et Deutéronome). On ne s'interrompt pas pendant la lecture des malédictions, mais on les lit toutes. Le lundi et le jeudi et le Chabbat à Minhah, on lit selon l'ordre habituel et cela ne compte pas dans la lecture [du Chabbat suivant]. Comme il est dit : "Et Moshe déclara aux enfants d'Israël les saisons déterminées de l'Éternel "(Lévitique 23:44), c'est leur mitzvah que chacune soit lue à son moment approprié.
 
->Crédit : Dr. Joshua Kulp
->Licence : CC-BY
+>Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
+>Licence : CC BY-NC

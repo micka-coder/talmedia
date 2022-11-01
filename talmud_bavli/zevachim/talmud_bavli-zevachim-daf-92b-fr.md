@@ -60,4 +60,4 @@ Est-ce simplement que <b>Le Miséricordieux n'a pas exigé de récipient de serv
 Rabbi Yehuda HaNasi <b>lui a dit : Ceci</b> est une excellente <b>question;</b> et la réponse est : Le vêtement <b>nécessite un blanchiment quelle que soit la manière <b>dont on le regarde</b>. <b>Si</b> la <i>halakha</i> est qu'en ce qui concerne le sang qui a giclé sur un vêtement, le prêtre <b>peut le recueillir et</b> il est encore <b>apte</b> à être présenté sur l'autel, alors <b>ce sang</b> est également <b>apte.</b> Par conséquent, même le deuxième vêtement doit être blanchi. <b>Et si</b> vous dites qu'en ce qui concerne le sang qui a giclé sur un vêtement si <b>il le recueille, il est impropre</b> à la présentation, <b>je me tiens en accord avec</b> l'opinion de <b>Rabbi Akiva, qui dit :</b> Si l'offrande <b>avait une période d'aptitude et</b> ensuite <b>a été disqualifiée, son sang doit être blanchi. </b> En conséquence, puisque le sang sur le second vêtement a été initialement recueilli dans un récipient de service, il a également eu une période d'aptitude.
 
 >Crédit : William Davidson Edition
->Licence : CC-BY-NC
+>Licence : CC BY-NC
