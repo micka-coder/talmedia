@@ -37,7 +37,7 @@
 ### passuk 17
 
 ### passuk 18
-<b>Adoram.</b> Il s'agissait d'Adoniram.</sup>3</sup><i class="footnote">Qui est mentionné dans 4:6 et 5:28 ci-dessus. Voir II Shmuel 20:24. Rechovom a envoyé Adoram pour parler avec douceur au peuple et calmer sa colère.</i>
+<b>Adoram.</b> Il s'agissait d'Adoniram.</sup>3</sup><i class="footnote">Qui est mentionné dans 4:6 et 5:28 ci-dessus. Voir II Chmouel 20:24. Rechovom a envoyé Adoram pour parler avec douceur au peuple et calmer sa colère.</i>
 
 ### passuk 19
 

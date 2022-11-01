@@ -15,7 +15,7 @@
 
 ### passuk 7
 <b>Left his land.</b> To aid Yehoyakim.
-<b>For the king of Bavel had taken, etc.</b> For he defeated him in battle in the fourth year of Yehoyakim in Charchemish on the Euphrates River, as it is written in the Book of Yirmiyohu.<sup>5</sup><i class="footnote">46:2.</i>
+<b>For the king of Bavel had taken, etc.</b> For he defeated him in battle in the fourth year of Yehoyakim in Charchemish on the Euphrates River, as it is written in the Book of Yirmiyahu.<sup>5</sup><i class="footnote">46:2.</i>
 
 ### passuk 8
 
@@ -37,7 +37,7 @@
 <b>And the dignitaries of the land.</b> These are the dignitaries of Yehudah and Binyomin, who were righteous men. Concerning them Scripture states, ”Like these good figs, so will I recognize the exiles of Yehudah.”<sup>11</sup><i class="footnote">Yirmiyahu 24:5.</i>
 
 ### passuk 16
-<b>Seven thousand.</b> But above he states, “ten thousand.”<sup>12</sup><i class="footnote">Above, v. 14.</i> The third verse comes to reconcile [the difference], in the Book of Yirmiyohu, ”This is the people whom Nevuchadnetzar exiled in the seventh year, three thousand Jews.”<sup>13</sup><i class="footnote">Yirmiyahu 52:28. The verse there states, “three thousand and <i>twenty-three</i> Jews.”</i> We deduce from here that three thousand were of the tribe of Yehudah and seven thousand were of Binyomin and the other tribes. Also in Seder Olam we learned this.
+<b>Seven thousand.</b> But above he states, “ten thousand.”<sup>12</sup><i class="footnote">Above, v. 14.</i> The third verse comes to reconcile [the difference], in the Book of Yirmiyahu, ”This is the people whom Nevuchadnetzar exiled in the seventh year, three thousand Jews.”<sup>13</sup><i class="footnote">Yirmiyahu 52:28. The verse there states, “three thousand and <i>twenty-three</i> Jews.”</i> We deduce from here that three thousand were of the tribe of Yehudah and seven thousand were of Binyomin and the other tribes. Also in Seder Olam we learned this.
 
 ### passuk 17
 <b>And changed his name to Tzidkiyohu.</b> May God justify the judgment upon you if you rebel against me.<sup>14</sup><i class="footnote">See Maseches Horiyos 11b.</i>

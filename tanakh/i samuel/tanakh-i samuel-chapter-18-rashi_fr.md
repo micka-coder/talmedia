@@ -46,12 +46,12 @@
 ### passuk 18
 
 ### passuk 19
-<b>Quand arriva le temps de donner.</b> Quand arriva le temps qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Shmuel 21:8. Elle a épousé Adrieil à l'insu de Shaoul-Metzudas David.</i>
+<b>Quand arriva le temps de donner.</b> Quand arriva le temps qu'ils avaient fixé pour la lui donner, et alors qu'ils s'occupaient de la lui donner, il s'avéra qu'elle fut donnée à Adrieil.</sup>4</sup><i class="footnote">Fils de Barzili. Voir II Chmouel 21:8. Elle a épousé Adrieil à l'insu de Shaoul-Metzudas David.</i>
 
 ### passuk 20
 
 ### passuk 21
-<b>Par la seconde [de mes deux filles], tu deviendras mon gendre.</b> J'ai deux filles ; par l'une d'entre elles, tu deviendras mon gendre.</sup>5</sup><i class="footnote">Voir Masehet Sanhedrin 19b.</i>Et de la même manière, le Targum Yonathan a rendu, 'avec l'une des deux'. De même, [nous trouvons] : " Je tiens trois choses [c'est-à-dire une des trois choses] sur toi "<sup>6</sup><i class="footnote">II Shmuel 24:12.</i> comme l'Écriture le précise à cet endroit, " choisis-en une. "<sup>7</sup><i class="footnote">Ibid.</i>
+<b>Par la seconde [de mes deux filles], tu deviendras mon gendre.</b> J'ai deux filles ; par l'une d'entre elles, tu deviendras mon gendre.</sup>5</sup><i class="footnote">Voir Masehet Sanhedrin 19b.</i>Et de la même manière, le Targum Yonathan a rendu, 'avec l'une des deux'. De même, [nous trouvons] : " Je tiens trois choses [c'est-à-dire une des trois choses] sur toi "<sup>6</sup><i class="footnote">II Chmouel 24:12.</i> comme l'Écriture le précise à cet endroit, " choisis-en une. "<sup>7</sup><i class="footnote">Ibid.</i>
 
 ### passuk 22
 

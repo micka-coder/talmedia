@@ -97,7 +97,7 @@
 
 ### passuk 32
 <b>Il ne s'avancera pas sur elle.</b> Il ne posera pas de bouclier devant elle.</sup>27</sup><i class="footnote">Les premiers soldats qui attaquent une ville sont les porteurs de boucliers.-Radak</i>.
-<b>Une rampe. </b> Un tas de terre pour élever une monture sur laquelle se tenir pour faire la guerre à la ville, et parce qu'on la presse et qu'on la bat avec des bâtons et des masses, de sorte qu'il devient foulé et pressé avec force, il est appelé סוללה, une expression de, "Battez [=סולו], battez [=סולו] la route. "<sup>28</sup><i class="footnote">Yeshayahu 62:10. Voir également II Shmuel 20:15.</i>
+<b>Une rampe. </b> Un tas de terre pour élever une monture sur laquelle se tenir pour faire la guerre à la ville, et parce qu'on la presse et qu'on la bat avec des bâtons et des masses, de sorte qu'il devient foulé et pressé avec force, il est appelé סוללה, une expression de, "Battez [=סולו], battez [=סולו] la route. "<sup>28</sup><i class="footnote">Yeshayahu 62:10. Voir également II Chmouel 20:15.</i>
 
 ### passuk 33
 
@@ -214,7 +214,7 @@
 
 ### passuk 32
 <b>Il ne s'avancera pas sur elle.</b> Il ne posera pas de bouclier devant elle.</sup>27</sup><i class="footnote">Les premiers soldats qui attaquent une ville sont les porteurs de boucliers.-Radak</i>.
-<b>Une rampe. </b> Un tas de terre pour élever une monture sur laquelle se tenir pour faire la guerre à la ville, et parce qu'on la presse et qu'on la bat avec des bâtons et des masses, de sorte qu'il devient foulé et pressé avec force, il est appelé סוללה, une expression de, "Battez [=סולו], battez [=סולו] la route. "<sup>28</sup><i class="footnote">Yeshayahu 62:10. Voir également II Shmuel 20:15.</i>
+<b>Une rampe. </b> Un tas de terre pour élever une monture sur laquelle se tenir pour faire la guerre à la ville, et parce qu'on la presse et qu'on la bat avec des bâtons et des masses, de sorte qu'il devient foulé et pressé avec force, il est appelé סוללה, une expression de, "Battez [=סולו], battez [=סולו] la route. "<sup>28</sup><i class="footnote">Yeshayahu 62:10. Voir également II Chmouel 20:15.</i>
 
 ### passuk 33
 

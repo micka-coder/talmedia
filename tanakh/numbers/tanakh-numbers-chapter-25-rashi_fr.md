@@ -55,7 +55,7 @@ Pinchas le fils d'Elazar, le fils d'Aharon le Cohen. <i data-commentator="Siftei
 ### passuk 15
 <b>Le nom de la femme tuée, etc.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Pour vous informer de la haine des Madianites, qui ont abandonné une princesse à la promiscuité afin d'inciter les Israélites à pécher. 
 <b>Le chef national.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Un des cinq rois de Madian, "Evi, Rekem, Tzur, etc.". Il était le plus éminent d'entre eux, comme il est dit, "le chef national", <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>mais parce qu'il s'est avili en abandonnant sa fille, il est compté en troisième position. 
-<b>D'une maison paternelle.</b> Il y avait cinq maisons paternelles en Madian, Eiphah, Eipher, Chanoch, Avidah et Eldoah. Celui-ci était le roi de l'une d'elles. 
+<b>D'une maison paternelle.</b> Il y avait cinq maisons paternelles en Madian, Eiphah, Eipher, Hanoch, Avidah et Eldoah. Celui-ci était le roi de l'une d'elles. 
 
 ### passuk 16
 

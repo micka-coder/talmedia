@@ -6,25 +6,25 @@
 ### passuk 2
 
 ### passuk 3
-<b>Et Shmuel était couché.</b> A sa place, dans la cour des Lévites qui veillent dans le Temple. Selon le Targum Yonathan : "Et Shmuel était couché dans la cour des Lévites".
+<b>Et Chmouel était couché.</b> A sa place, dans la cour des Lévites qui veillent dans le Temple. Selon le Targum Yonathan : "Et Chmouel était couché dans la cour des Lévites".
 <b>Dans le Temple d'Hachem.</b> Où se trouvait l'Arche de Dieu.
 
 ### passuk 4
-<b>Hachem appela.</b> Et une voix émana du Temple de Dieu, du Saint des Saints, qui appela : "Shmuel !". La fin du verset ci-dessus<sup>5</sup><i class="footnote">Comme l'indique le <span>אֶתְנַחְתָּא</span> sous le mot <span>שֹׁכֵכ</span> pour le séparer de '<span>בְּהֵיכַל ה</span>. </i> est lié au verset qui suit. C'est ce qui est déduit du verset : " le Seigneur tonne merveilleusement de sa voix. "<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili était un Cohen, et veillait de l'intérieur, tandis que Shmuel était un lévite et couché à l'extérieur. Pourtant, la voix [de '<span>ה</span>] a sauté par-dessus Eili vers Shmuel.
+<b>Hachem appela.</b> Et une voix émana du Temple de Dieu, du Saint des Saints, qui appela : "Chmouel !". La fin du verset ci-dessus<sup>5</sup><i class="footnote">Comme l'indique le <span>אֶתְנַחְתָּא</span> sous le mot <span>שֹׁכֵכ</span> pour le séparer de '<span>בְּהֵיכַל ה</span>. </i> est lié au verset qui suit. C'est ce qui est déduit du verset : " le Seigneur tonne merveilleusement de sa voix. "<sup>6</sup><i class="footnote">Iyov 37:5.</i> Eili était un Cohen, et veillait de l'intérieur, tandis que Chmouel était un lévite et couché à l'extérieur. Pourtant, la voix [de '<span>ה</span>] a sauté par-dessus Eili vers Chmouel.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>[Shmuel] n'avait pas encore connu Hachem.</b> Il n'avait pas encore reconnu la nature de la voix prophétique.</sup></sup><i class="footnote">Il n'était donc pas familier avec les manières dont '<span>ה</span> appelle l'homme, et il pensait donc que la voix était celle d'Eili. </i> Chaque fois que le mot '<span>טֶרֶם</span>' apparaît dans les Écritures, il signifie 'pas encore', comme le rend le Targum '<span>עַד לָא</span>' [pas encore]. Il ne signifie pas " avant ". Ce verset le prouve. Et une autre [preuve de cela] est le verset <span>כִּי טֶרֶם תִּירְאוּן</span> qui est rendu par " que tu ne crains pas encore ", <sup>8</sup><i class="footnote">Shemos 9:30. </i> est un verset plus explicite qui le prouve. Aussi, <span>וְכֹל שִֹיחַ הַשָֹּדֶה טֶרֶם יִהְיֶה בָאָרֶץ</span> ["toutes les plantes des champs n'étaient pas encore sur la terre"].<sup>9</sup><i class="footnote">Bereshit 2:5.</i>
+<b>[Chmouel] n'avait pas encore connu Hachem.</b> Il n'avait pas encore reconnu la nature de la voix prophétique.</sup></sup><i class="footnote">Il n'était donc pas familier avec les manières dont '<span>ה</span> appelle l'homme, et il pensait donc que la voix était celle d'Eili. </i> Chaque fois que le mot '<span>טֶרֶם</span>' apparaît dans les Écritures, il signifie 'pas encore', comme le rend le Targum '<span>עַד לָא</span>' [pas encore]. Il ne signifie pas " avant ". Ce verset le prouve. Et une autre [preuve de cela] est le verset <span>כִּי טֶרֶם תִּירְאוּן</span> qui est rendu par " que tu ne crains pas encore ", <sup>8</sup><i class="footnote">Shemos 9:30. </i> est un verset plus explicite qui le prouve. Aussi, <span>וְכֹל שִֹיחַ הַשָֹּדֶה טֶרֶם יִהְיֶה בָאָרֶץ</span> ["toutes les plantes des champs n'étaient pas encore sur la terre"].<sup>9</sup><i class="footnote">Bereshit 2:5.</i>
 
 ### passuk 8
 
 ### passuk 9
 
 ### passuk 10
-<b>Et Shmuel dit : "Parle."</b> Il ne mentionna pas le nom de la divinité comme Eili le lui avait ordonné, parce qu'il se disait [à lui-même] : "Peut-être est-ce une autre voix.'<sup>10</sup><i class="footnote">Voir Masehet Chabbat 113b.</i>
+<b>Et Chmouel dit : "Parle."</b> Il ne mentionna pas le nom de la divinité comme Eili le lui avait ordonné, parce qu'il se disait [à lui-même] : "Peut-être est-ce une autre voix.'<sup>10</sup><i class="footnote">Voir Masehet Chabbat 113b.</i>
 
 ### passuk 11
 <b>Faire quelque chose.</b> Cela fait référence à la capture de l'Arche par les Philistins.<sup>11</sup><i class="footnote">Egalement, cela peut faire référence à la destruction du Michkan à Shiloh qui a eu lieu après la capture de l'Arche.</i>
@@ -56,7 +56,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Parce qu'Hachem s'est révélé à Shmuel.</b> Parce que l'Écriture a dit plus haut : "La parole d'Hachem était rare en ce temps-là"<sup>14</sup><i class="footnote">Supérieur 3:1.</i> elle dit ici que désormais, pour l'amour de Shmuel, Il s'est révélé à plusieurs reprises.<sup>15</sup><i class="footnote">Non seulement à Shmuel, mais d'autres aussi ont commencé à prophétiser.</i>
+<b>Parce qu'Hachem s'est révélé à Chmouel.</b> Parce que l'Écriture a dit plus haut : "La parole d'Hachem était rare en ce temps-là"<sup>14</sup><i class="footnote">Supérieur 3:1.</i> elle dit ici que désormais, pour l'amour de Chmouel, Il s'est révélé à plusieurs reprises.<sup>15</sup><i class="footnote">Non seulement à Chmouel, mais d'autres aussi ont commencé à prophétiser.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

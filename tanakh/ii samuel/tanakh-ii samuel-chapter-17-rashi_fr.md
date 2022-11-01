@@ -34,7 +34,7 @@
 <b>Et nous camperons sur lui.</b> Nous camperons sur lui langue [dénotant] le campement comme [nous trouvons], "Il a campé dans tout le boorder de Mitsraïm"<sup>2</sup><i class="footnote">Shemos 10:14.</i> [et] "Arom a campé en face d'Ephraïm."<sup>3</sup><i class="footnote">Yeshayahu 7:2.</i>
 
 ### passuk 13
-<b>En groupes.</b> [Yonathan traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Shmuel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
+<b>En groupes.</b> [Yonathan traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Chmouel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
 <b>Dans la vallée [en bas].</b> Nous traînerons la muraille de la ville dans la vallée.
 
 ### passuk 14
@@ -67,7 +67,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
+<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Hava de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
 
 ### passuk 26
 
@@ -119,7 +119,7 @@
 <b>Et nous camperons sur lui.</b> Nous camperons sur lui langage [dénotant] le campement comme [nous trouvons], "Il a campé dans toute la bordure de Mitzraïm"<sup>2</sup><i class="footnote">Shemos 10:14.</i> [et] "Arom a campé en face d'Ephraïm."<sup>3</sup><i class="footnote">Yeshayahu 7:2.</i>
 
 ### passuk 13
-<b>En groupes.</b> [Yonathan traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Shmuel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
+<b>En groupes.</b> [Yonathan traduit :] "Groupes" comme [on le trouve], "Un groupe de prophètes."<sup>4</sup><i class="footnote">Chmouel I 10:5.</i> [et] "Groupes de méchants."<sup>5</sup><i class="footnote">Tehilim 119:61.</i>
 <b>Dans la vallée [en bas].</b> Nous traînerons la muraille de la ville dans la vallée.
 
 ### passuk 14
@@ -152,7 +152,7 @@
 ### passuk 24
 
 ### passuk 25
-<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Chavah de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
+<b>La fille de Nochosh.</b> C'est Yeshai, le père de David. Nos rabbins ont dit que [Yeshai] est mort sans péché [mais seulement] grâce au conseil du serpent.<sup>8</sup><i class="footnote">Baba Besra 16. Le serpent dans le Gan Fden qui a suggéré à Hava de manger de l'arbre de la connaissance. Ce péché a apporté la mort dans le monde. C'est pourquoi Yeshai est mort car il n'avait pas de péché propre pour mériter la mort.</i>
 
 ### passuk 26
 

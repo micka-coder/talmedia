@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cœur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dû demander plus tard au v. 8 : "Qui es-tu ?" (Seder Hadoros, p. 102).</i>
+<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Chmouel 1,21:8. </i> mais cette explication est indéfendable dans mon cœur.<sup>3</sup><i class="footnote">Il est clair d'après Chmouel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dû demander plus tard au v. 8 : "Qui es-tu ?" (Seder Hadoros, p. 102).</i>
 
 ### passuk 3
 
@@ -17,7 +17,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shaul de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul de tuer les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Shmuel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 énumère la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là-bas et le mot <span>הַשָּׁבָץ</span> ici partagent les mêmes trois lettres, <span>ש-ב-ץ</span>.</i>
+<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shaul de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul de tuer les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Chmouel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 énumère la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là-bas et le mot <span>הַשָּׁבָץ</span> ici partagent les mêmes trois lettres, <span>ש-ב-ץ</span>.</i>
 <b>Pendant que je suis encore en vie.</b> Dépêchez-vous de me tuer. Je préfère que vous me tuiez et non qu'ils<sup>10</sup><i class="footnote">les Pelishtim.</i> me tuent et me torturent.<sup>11</sup><i class="footnote">Préalablement à ma mort.</i>
 
 ### passuk 10
@@ -74,7 +74,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Shmuel 1,21:8. </i> mais cette explication est indéfendable dans mon cœur.<sup>3</sup><i class="footnote">Il est clair d'après Shmuel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dû demander plus tard au v. 8 : "Qui es-tu ?" (Seder Hadoros, p. 102).</i>
+<b>Voici qu'un homme est venu du camp.</b> La Pesikta<sup>1</sup><i class="footnote">Pesikta Rabosi 12,9.</i> apporte une opinion selon laquelle cet homme est Doeig,<sup>2</sup><i class="footnote">Doeig HaEdomi est mentionné pour la première fois dans Chmouel 1,21:8. </i> mais cette explication est indéfendable dans mon cœur.<sup>3</sup><i class="footnote">Il est clair d'après Chmouel 1, 22:18 que Shaoul connaissait Doeig. Par conséquent, si cet homme est effectivement Doeig, pourquoi Shaul a-t-il dû demander plus tard au v. 8 : "Qui es-tu ?" (Seder Hadoros, p. 102).</i>
 
 ### passuk 3
 
@@ -89,7 +89,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shaul de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul de tuer les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Shmuel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 énumère la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là-bas et le mot <span>הַשָּׁבָץ</span> ici partagent les mêmes trois lettres, <span>ש-ב-ץ</span>.</i>
+<b>Je suis pris de convulsions.</b> Je suis pris de convulsions.</sup></sup><i class="footnote">C'est la traduction du Targum Yonasan. </i> Le Midrash Aggadah<sup>5</sup><i class="footnote">Tanchuma Metzoro 2.</i> explique que cette<sup>6</sup><i class="footnote">mort de Shaul de cette manière était une rétribution pour ce péché. </i> s'est produite à cause du péché de Shaoul de tuer les Kohanim<sup>7</sup><i class="footnote">de la ville de Nov, voir Chmouel 1,22:18.</i> comme il est écrit à leur sujet,<sup>8</sup><i class="footnote">les Kohanim en général. </i> "une chemise à carreaux."<sup>9</sup><i class="footnote">Vayikra, 28:4 énumère la <span>כתנת תשבץ</span> comme l'un des vêtements portés par les Kohanim. Le mot <span>הַּשְׁבֵּץ</span> là-bas et le mot <span>הַשָּׁבָץ</span> ici partagent les mêmes trois lettres, <span>ש-ב-ץ</span>.</i>
 <b>Pendant que je suis encore en vie.</b> Dépêchez-vous de me tuer. Je préfère que vous me tuiez et non qu'ils<sup>10</sup><i class="footnote">les Pelishtim.</i> me tuent et me torturent.<sup>11</sup><i class="footnote">Préalablement à ma mort.</i>
 
 ### passuk 10

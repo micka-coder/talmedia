@@ -23,7 +23,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Sonneront.</b> Une expression de cymbales,</sup>1</sup><i class="footnote">Voir Rachi dans I Shmuel 3:11.</i> <i>tintiner</i>, en ancien français
+<b>Sonneront.</b> Une expression de cymbales,</sup>1</sup><i class="footnote">Voir Rachi dans I Chmouel 3:11.</i> <i>tintiner</i>, en ancien français
 
 ### passuk 13
 <b>Et le fil à plomb.</b> C'est la ficelle à laquelle les constructeurs d'un mur attachent un poids de plomb pour rendre le mur droit.<sup>2</sup><i class="footnote">C'est-à-dire pour que les rangées de briques ou de pierres suivantes soient toutes directement au-dessus les unes des autres.</i>
@@ -55,7 +55,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Sonneront.</b> Une expression de cymbales,</sup>1</sup><i class="footnote">Voir Rachi dans I Shmuel 3:11.</i> <i>tintiner</i>, en ancien français
+<b>Sonneront.</b> Une expression de cymbales,</sup>1</sup><i class="footnote">Voir Rachi dans I Chmouel 3:11.</i> <i>tintiner</i>, en ancien français
 
 ### passuk 13
 <b>Et le fil à plomb.</b> C'est la ficelle à laquelle les constructeurs d'un mur attachent un poids de plomb pour rendre le mur droit.<sup>2</sup><i class="footnote">C'est-à-dire pour que les rangées de briques ou de pierres suivantes soient toutes directement au-dessus les unes des autres.</i>

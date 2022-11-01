@@ -61,7 +61,7 @@
 
 ### passuk 20
 <b>Et il ne s'écarte pas du commandement.</b> Même une directive facilement accomplie par un prophète.
-<b>Pour que les jours de son règne soient longs.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Implicite dans le positif est le négatif. Nous trouvons cela avec Shaoul, à qui Shmuel a dit : " Attends sept jours, jusqu'à ce que je vienne à toi, etc. ", pour offrir des <i>olah</i>-sacrifices. Et il est écrit : " Il a attendu sept jours ", mais n'a pas tenu son engagement d'attendre toute la journée. Il avait à peine terminé l'offrande de <i>olah</i>, que Shmuel arriva et lui dit : "Tu as été insensé ! Tu n'as pas respecté... etc..., alors maintenant ton règne ne durera pas". Ainsi, on apprend que, sur une directive facilement accomplie par un prophète, il a été puni. 
+<b>Pour que les jours de son règne soient longs.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Implicite dans le positif est le négatif. Nous trouvons cela avec Shaoul, à qui Chmouel a dit : " Attends sept jours, jusqu'à ce que je vienne à toi, etc. ", pour offrir des <i>olah</i>-sacrifices. Et il est écrit : " Il a attendu sept jours ", mais n'a pas tenu son engagement d'attendre toute la journée. Il avait à peine terminé l'offrande de <i>olah</i>, que Chmouel arriva et lui dit : "Tu as été insensé ! Tu n'as pas respecté... etc..., alors maintenant ton règne ne durera pas". Ainsi, on apprend que, sur une directive facilement accomplie par un prophète, il a été puni. 
 <b>Il et ses fils.</b> Cela enseigne que si son fils se qualifie comme régent, il a la priorité sur tous les autres candidats. 
 
 >Crédit : primo.nli.org.il (metsudah)

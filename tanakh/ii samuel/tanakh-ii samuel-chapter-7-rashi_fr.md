@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de vœux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Hachem, fait un vœu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beit Hamikdash. </i> (Tehilim 132 2-3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas tant que je n'aurai pas fait ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je lui [cause] une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Shmuel II, 143.</i>
+<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de vœux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Hachem, fait un vœu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beit Hamikdash. </i> (Tehilim 132 2-3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas tant que je n'aurai pas fait ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je lui [cause] une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Chmouel II, 143.</i>
 
 ### passuk 5
 
@@ -59,7 +59,7 @@
 <b>Tu connais Ton serviteur.</b> Tu m'as pourvu de tous mes besoins comme [il est dit] (Mishlei 12:10) "Un homme juste connaît l'être de son animal.</sup>15</sup><i class="footnote">Le verset fait référence à une personne juste mais Rachi fait une analogie avec le fait qu'Hachem connaît les besoins de ses serviteurs.</i>"
 
 ### passuk 21
-<b>À cause de Ta parole.</b> Pour accomplir ce que Tu as dit à Shmuel de me faire roi.
+<b>À cause de Ta parole.</b> Pour accomplir ce que Tu as dit à Chmouel de me faire roi.
 <b>Et en raison de [la volonté de] Ton Cœur.</b> C'est Ta volonté [que je devienne roi] et non parce que j'en suis digne.
 <b>Dont Tu as informé Ton serviteur.</b> L'annonce dont Tu m'as informé.</sup>16</sup><i class="footnote">Que mon royaume sera éternel.</i>
 
@@ -94,7 +94,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de vœux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Hachem, fait un vœu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beit Hamikdash. </i> (Tehilim 132 2-3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas tant que je n'aurai pas fait ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je lui [cause] une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Shmuel II, 143.</i>
+<b>Et ce fut cette nuit-là.</b> Rabbi Chanina, fils de Popoh dit que le Saint béni soit-Il dit à Nosson : "L'homme chez qui je t'envoie est un rapide, il peut embaucher des ouvriers et il s'avérera que je lui [cause] une perte.<sup>1</sup><i class="footnote">Parce qu'il est prématuré de construire le Bein Hamikdash en ce moment.</i> Dépêche-toi de lui dire : 'Ce n'est pas toi qui construiras le Temple'." Rabbi Simon dit<sup>2</sup><i class="footnote">que Hachem a dit à Noson.</i> "L'homme vers lequel je t'envoie est un faiseur de vœux" comme il est dit,<sup>3</sup><i class="footnote">David à propos de lui-même. </i> "Qui a juré à Hachem, fait un vœu au Puissant de Yakov Sûrement je n'entrerai pas à l'abri de ma maison"<sup>4</sup><i class="footnote">Rashi explique dans Tehilim, verset 5 que David voulait dire qu'il n'entrera pas dans sa maison jusqu'à ce qu'il découvre à quel endroit il est prévu de construire le Beit Hamikdash. </i> (Tehilim 132 2-3) "il peut dire : 'Je ne mangerai pas, je ne boirai pas tant que je n'aurai pas fait ceci'<sup>5</sup><i class="footnote">c'est-à-dire construire le Beis Hamikdash.</i> et il s'avérera que je lui [cause] une perte". <sup>6</sup><i class="footnote">On trouve des versions légèrement différentes des opinions de Rabbi Chanina et de Rabbi Simon dans Yalkut Shimoni, Chmouel II, 143.</i>
 
 ### passuk 5
 
@@ -146,7 +146,7 @@
 <b>Tu connais Ton serviteur.</b> Tu m'as pourvu de tous mes besoins comme [il est dit] (Mishlei 12:10) "Un homme juste connaît l'être de son animal.</sup>15</sup><i class="footnote">Le verset fait référence à une personne juste mais Rachi fait une analogie avec le fait qu'Hachem connaît les besoins de ses serviteurs.</i>"
 
 ### passuk 21
-<b>À cause de Ta parole.</b> Pour accomplir ce que Tu as dit à Shmuel de me faire roi.
+<b>À cause de Ta parole.</b> Pour accomplir ce que Tu as dit à Chmouel de me faire roi.
 <b>Et en raison de [la volonté de] Ton Cœur.</b> C'est Ta volonté [que je devienne roi] et non parce que j'en suis digne.
 <b>Dont Tu as informé Ton serviteur.</b> L'annonce dont Tu m'as informé.</sup>16</sup><i class="footnote">Que mon royaume sera éternel.</i>
 

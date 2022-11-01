@@ -19,7 +19,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>À l'ouest de Aï.</b> Aï était à l'est de Beis-Eil et Beis-Eil était à l'ouest de Aï.
+<b>À l'ouest de Aï.</b> Aï était à l'est de Bethel et Bethel était à l'ouest de Aï.
 <b>Et Yehoshua se reposa au milieu du peuple.</b> Pour être prêt tôt le matin.
 
 ### passuk 10

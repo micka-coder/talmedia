@@ -63,7 +63,7 @@
 <b>Je serais plus honoré parmi eux.</b> Ils ne se moquent pas de moi mais je suis important à leurs yeux à cause de cela.
 
 ### passuk 23
-<b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Shmuel II, 3:5), voir Rachi à ce sujet.</i>
+<b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Chmouel II, 3:5), voir Rachi à ce sujet.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -131,7 +131,7 @@
 <b>Je serais plus honoré parmi eux.</b> Ils ne se moquent pas de moi mais je suis important à leurs yeux à cause de cela.
 
 ### passuk 23
-<b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Shmuel II, 3:5), voir Rachi à ce sujet.</i>
+<b>N'a pas eu d'enfant</b> A partir de ce jour.<sup>12</sup><i class="footnote">Avant ce jour, elle avait eu un enfant, Yitroam mentionné plus tôt (Chmouel II, 3:5), voir Rachi à ce sujet.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

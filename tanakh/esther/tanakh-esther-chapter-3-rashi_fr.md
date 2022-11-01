@@ -35,7 +35,7 @@
 ### passuk 12
 
 ### passuk 13
-<b>Pour que des rouleaux soient expédiés.</b> Et des lettres seront envoyées, <i>estre tramis</i> en ancien français. [être envoyé], qui est de la [même forme grammaticale] que, "A-t-il jamais combattu [נִלְחוֹם] ?"<sup>7</sup><i class="footnote">Shoftim 11:25. </i> et comme "N'ai-je pas paru [הַנִגְלֹה] ?"<sup>8</sup><i class="footnote">I Shmuel 2:27. </i> et comme "seront réduits au silence [נִדְמֹה]."<sup>9</sup><i class="footnote">Hosée 10:15. </i> 
+<b>Pour que des rouleaux soient expédiés.</b> Et des lettres seront envoyées, <i>estre tramis</i> en ancien français. [être envoyé], qui est de la [même forme grammaticale] que, "A-t-il jamais combattu [נִלְחוֹם] ?"<sup>7</sup><i class="footnote">Shoftim 11:25. </i> et comme "N'ai-je pas paru [הַנִגְלֹה] ?"<sup>8</sup><i class="footnote">I Chmouel 2:27. </i> et comme "seront réduits au silence [נִדְמֹה]."<sup>9</sup><i class="footnote">Hosée 10:15. </i> 
 <b>Le treizième jour du douzième mois.</b> Le treizième jour de ce mois [Adar], qui est le douzième des mois de l'année. 
 
 ### passuk 14

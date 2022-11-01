@@ -55,7 +55,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Dans les villes de Shomron.</b> Car Yeshayahu était roi sur tout Israël, de ceux qui sont revenus des dix tribus par Yirmiyohu.
+<b>Dans les villes de Shomron.</b> Car Yeshayahu était roi sur tout Israël, de ceux qui sont revenus des dix tribus par Yirmiyahu.
 
 ### passuk 20
 
@@ -63,12 +63,12 @@
 
 ### passuk 22
 <b>Un tel sacrifice de Pessah n'avait jamais été offert.</b> Il n'y avait jamais eu autant de personnes rassemblées à un sacrifice de Pessah qu'à celui-ci.</sup></sup><i class="footnote">L'ampleur de la participation de ce grand nombre de personnes était sans précédent. Autrement dit, depuis l'époque des Juges, le peuple n'avait jamais célébré Pessah avec autant de dévotion.-Ralbag</i>
-<b>Depuis l'époque des Juges.</b> "Depuis l'époque de Shmuel"<sup>18</sup><i class="footnote">II Divrei Hayamim 35:18. </i> Dans le Divrei Hayamim, il est écrit, parce que Shmuel, aussi, a conduit Israël à améliorer ses voies,<sup>19</sup><i class="footnote">Alternativement, Shmuel est mentionné parce qu'il était le dernier des Juges.-Metzudas David</i> et qu'il les a rassemblés à Mitzpoh. Alternativement, un tel Pessah n'avait pas été offert à Dieu à Jérusalem, [c'est-à-dire, ] (mais) lorsque les rois de Israël et les rois de Yehouda régnaient, tout Israël ne faisait pas de sacrifice de Pessah à Jérusalem, parce que le royaume avait été divisé en deux depuis Yorovom, et ils allaient au veau à Beis Eil et à Dan jusqu'à maintenant, que les dix tribus ont été exilées, et Yirmiyohu les a ramenées, et Yoshiyahu a régné sur eux, et ils sont tous venus à Jérusalem.
+<b>Depuis l'époque des Juges.</b> "Depuis l'époque de Chmouel"<sup>18</sup><i class="footnote">II Divrei Hayamim 35:18. </i> Dans le Divrei Hayamim, il est écrit, parce que Chmouel, aussi, a conduit Israël à améliorer ses voies,<sup>19</sup><i class="footnote">Alternativement, Chmouel est mentionné parce qu'il était le dernier des Juges.-Metzudas David</i> et qu'il les a rassemblés à Mitzpoh. Alternativement, un tel Pessah n'avait pas été offert à Dieu à Jérusalem, [c'est-à-dire, ] (mais) lorsque les rois de Israël et les rois de Yehouda régnaient, tout Israël ne faisait pas de sacrifice de Pessah à Jérusalem, parce que le royaume avait été divisé en deux depuis Yorovom, et ils allaient au veau à Beis Eil et à Dan jusqu'à maintenant, que les dix tribus ont été exilées, et Yirmiyahu les a ramenées, et Yoshiyahu a régné sur eux, et ils sont tous venus à Jérusalem.
 
 ### passuk 23
 
 ### passuk 24
-<b>Les <i>teraphim</i>.</b> Images<sup>20</sup><i class="footnote">Dans I Shmuel 19:16, Rachi décrit les <i>teraphim</i> comme étant faits à la ressemblance d'une figure humaine.</i> qui parlent par sorcellerie, et celui qui les fait doit déterminer un certain moment dans l'année, et une certaine année qui est appropriée pour cela.
+<b>Les <i>teraphim</i>.</b> Images<sup>20</sup><i class="footnote">Dans I Chmouel 19:16, Rachi décrit les <i>teraphim</i> comme étant faits à la ressemblance d'une figure humaine.</i> qui parlent par sorcellerie, et celui qui les fait doit déterminer un certain moment dans l'année, et une certaine année qui est appropriée pour cela.
 
 ### passuk 25
 
@@ -152,7 +152,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Dans les villes de Shomron.</b> Car Yeshayahu était roi sur tout Israël, de ceux qui sont revenus des dix tribus par Yirmiyohu.
+<b>Dans les villes de Shomron.</b> Car Yeshayahu était roi sur tout Israël, de ceux qui sont revenus des dix tribus par Yirmiyahu.
 
 ### passuk 20
 
@@ -160,12 +160,12 @@
 
 ### passuk 22
 <b>Un tel sacrifice de Pessah n'avait jamais été offert.</b> Il n'y avait jamais eu autant de personnes rassemblées à un sacrifice de Pessah qu'à celui-ci.</sup></sup><i class="footnote">L'ampleur de la participation de ce grand nombre de personnes était sans précédent. Autrement dit, depuis l'époque des Juges, le peuple n'avait jamais célébré Pessah avec autant de dévotion.-Ralbag</i>
-<b>Depuis l'époque des Juges.</b> "Depuis l'époque de Shmuel"<sup>18</sup><i class="footnote">II Divrei Hayamim 35:18. </i> Dans le Divrei Hayamim, il est écrit, parce que Shmuel, aussi, a conduit Israël à améliorer ses voies,<sup>19</sup><i class="footnote">Alternativement, Shmuel est mentionné parce qu'il était le dernier des Juges.-Metzudas David</i> et qu'il les a rassemblés à Mitzpoh. Alternativement, un tel Pessah n'avait pas été offert à Dieu à Jérusalem, [c'est-à-dire, ] (mais) lorsque les rois de Israël et les rois de Yehouda régnaient, tout Israël ne faisait pas de sacrifice de Pessah à Jérusalem, parce que le royaume avait été divisé en deux depuis Yorovom, et ils allaient au veau à Beis Eil et à Dan jusqu'à maintenant, que les dix tribus ont été exilées, et Yirmiyohu les a ramenées, et Yoshiyahu a régné sur eux, et ils sont tous venus à Jérusalem.
+<b>Depuis l'époque des Juges.</b> "Depuis l'époque de Chmouel"<sup>18</sup><i class="footnote">II Divrei Hayamim 35:18. </i> Dans le Divrei Hayamim, il est écrit, parce que Chmouel, aussi, a conduit Israël à améliorer ses voies,<sup>19</sup><i class="footnote">Alternativement, Chmouel est mentionné parce qu'il était le dernier des Juges.-Metzudas David</i> et qu'il les a rassemblés à Mitzpoh. Alternativement, un tel Pessah n'avait pas été offert à Dieu à Jérusalem, [c'est-à-dire, ] (mais) lorsque les rois de Israël et les rois de Yehouda régnaient, tout Israël ne faisait pas de sacrifice de Pessah à Jérusalem, parce que le royaume avait été divisé en deux depuis Yorovom, et ils allaient au veau à Beis Eil et à Dan jusqu'à maintenant, que les dix tribus ont été exilées, et Yirmiyahu les a ramenées, et Yoshiyahu a régné sur eux, et ils sont tous venus à Jérusalem.
 
 ### passuk 23
 
 ### passuk 24
-<b>Les <i>teraphim</i>.</b> Images<sup>20</sup><i class="footnote">Dans I Shmuel 19:16, Rachi décrit les <i>teraphim</i> comme étant faits à la ressemblance d'une figure humaine.</i> qui parlent par sorcellerie, et celui qui les fait doit déterminer un certain moment dans l'année, et une certaine année qui est appropriée pour cela.
+<b>Les <i>teraphim</i>.</b> Images<sup>20</sup><i class="footnote">Dans I Chmouel 19:16, Rachi décrit les <i>teraphim</i> comme étant faits à la ressemblance d'une figure humaine.</i> qui parlent par sorcellerie, et celui qui les fait doit déterminer un certain moment dans l'année, et une certaine année qui est appropriée pour cela.
 
 ### passuk 25
 

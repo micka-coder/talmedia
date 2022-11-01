@@ -31,7 +31,7 @@
 
 ### passuk 11
 <b>C'était un tel jour.</b> Signification : c'est lorsqu'un jour spécial arrivait - un jour de réjouissance, un jour de leurs fêtes idolâtres, où ils se rendaient tous dans leurs temples - qu'elle a dit : "Je n'ai pas de jour aussi approprié pour séduire Yoseif, que ce jour." Elle leur a [donc] dit : "Je suis malade et je ne peux pas aller [au temple]". 
-<b>Pour faire son travail.</b> Rav et Shmuel [contestent ce que cela signifie] : L'un dit, [cela signifie] littéralement, son travail, et l'autre dit qu'il avait l'intention d'avoir son chemin avec elle, mais, l'image de son père lui est apparue, etc, comme il est dit dans le Masehet Sotah. 
+<b>Pour faire son travail.</b> Rav et Chmouel [contestent ce que cela signifie] : L'un dit, [cela signifie] littéralement, son travail, et l'autre dit qu'il avait l'intention d'avoir son chemin avec elle, mais, l'image de son père lui est apparue, etc, comme il est dit dans le Masehet Sotah. 
 
 ### passuk 12
 

@@ -26,7 +26,7 @@
 <b>Pourquoi écoutes-tu.</b> Pourquoi acceptes-tu les calomnies de Do'eg me concernant ?<sup>4</sup><i class="footnote">Rashi affirme que David faisait allusion à Do'eg car David a dit 'pourquoi écoutes-tu l'homme [<span>אָדָם</span>]', au singulier, se référant à une personne individuelle.</i>
 
 ### passuk 11
-<b>Quelqu'un a dit de vous tuer, mais j'ai eu pitié de vous. </b> Il manque deux mots ici, "et celui qui a parlé [<span>הָאוֹמֵר</span>] a dit que je devais te tuer, mais mon âme [<span>נַפְשִׁי</span>] a eu pitié de toi, semblable à "et le roi David désirait ardemment aller vers Avshalom,"<sup>5</sup><i class="footnote">II Shmuel 13 : 39. </i> [signifiant,] et l'âme de David [<span>נֶפֶשׁ</span>] aspirait.
+<b>Quelqu'un a dit de vous tuer, mais j'ai eu pitié de vous. </b> Il manque deux mots ici, "et celui qui a parlé [<span>הָאוֹמֵר</span>] a dit que je devais te tuer, mais mon âme [<span>נַפְשִׁי</span>] a eu pitié de toi, semblable à "et le roi David désirait ardemment aller vers Avshalom,"<sup>5</sup><i class="footnote">II Chmouel 13 : 39. </i> [signifiant,] et l'âme de David [<span>נֶפֶשׁ</span>] aspirait.
 
 ### passuk 12
 <b>Mon père, en effet, vois.</b> Ce qui signifie : fais attention à la question, et vois aussi les preuves, car le coin de ta robe est dans ma main, et j'aurais pu te tuer.<sup>6</sup><i class="footnote">Aussi facilement que d'avoir coupé le coin de ta robe.</i>
@@ -50,7 +50,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Je sais que tu régneras sûrement.</b> Car je vois que le Saint, Béni soit-Il, te sauve de ma main. Le Midrash Aggadah précise, que Shmuel lui a donné ce signe, que celui qui déchire sa robe régnera après lui.<sup>12</sup><i class="footnote">Voir ci-dessus 15:27-28.</i>
+<b>Je sais que tu régneras sûrement.</b> Car je vois que le Saint, Béni soit-Il, te sauve de ma main. Le Midrash Aggadah précise, que Chmouel lui a donné ce signe, que celui qui déchire sa robe régnera après lui.<sup>12</sup><i class="footnote">Voir ci-dessus 15:27-28.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

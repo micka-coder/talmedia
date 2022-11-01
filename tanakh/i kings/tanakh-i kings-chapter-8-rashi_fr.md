@@ -39,7 +39,7 @@
 ### passuk 14
 
 ### passuk 15
-<b>Qui a parlé avec Sa bouche.</b> Qu'Il lui accorderait un fils qui construirait le Beis [Hamikdosh].<sup>13</sup><i class="footnote">"Avec Sa bouche" fait référence à la "voix" de la prophétie qui a été donnée par Noson, le prophète, et répétée directement à David. Voir II Shmuel 7:12-17.</i>
+<b>Qui a parlé avec Sa bouche.</b> Qu'Il lui accorderait un fils qui construirait le Beis [Hamikdosh].<sup>13</sup><i class="footnote">"Avec Sa bouche" fait référence à la "voix" de la prophétie qui a été donnée par Noson, le prophète, et répétée directement à David. Voir II Chmouel 7:12-17.</i>
 <b>Et l'a accomplie de Sa main.</b> Il a accompli Sa parole par Sa bonne puissance.<sup>14</sup><i class="footnote">Le sens littéral de ובידו מלא est, "et l'a accomplie de Sa main". Ici, cela fait référence à la toute-puissance de Dieu, que Lui seul est capable d'accomplir toute promesse qu'Il fait, la main symbolisant la force.-Radak</i>.
 
 ### passuk 16
@@ -56,7 +56,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Et Shlomo se tint devant l'autel d'Hachem.</b> [Comme] il est écrit : " et Shlomo fit un bassin de cuivre et l'avait placé au milieu de la cour, etc... et sur ce bassin il se tint debout, et s'agenouilla. "<sup>15</sup><i class="footnote">Même si un roi de Israël est autorisé à s'asseoir dans le Beit Hamikdash [Voir II Shmuel 7:18], Shlomo choisit de se tenir debout.</i><sup>16</sup><i class="footnote">II Divrei Hayamim 6:13.</i>
+<b>Et Shlomo se tint devant l'autel d'Hachem.</b> [Comme] il est écrit : " et Shlomo fit un bassin de cuivre et l'avait placé au milieu de la cour, etc... et sur ce bassin il se tint debout, et s'agenouilla. "<sup>15</sup><i class="footnote">Même si un roi de Israël est autorisé à s'asseoir dans le Beit Hamikdash [Voir II Chmouel 7:18], Shlomo choisit de se tenir debout.</i><sup>16</sup><i class="footnote">II Divrei Hayamim 6:13.</i>
 
 ### passuk 23
 <b>Préservateur de l'alliance.</b> Il attend et emmagasine [la récompense] pour garder l'alliance et [est basé sur] la miséricorde, pour accomplir Sa promesse.</sup>17</sup><i class="footnote">Qu'Il a fait avec nos Patriarches.-Radak </i>.

@@ -4,7 +4,7 @@
 <b>Les années de la vie de Sarah.</b> [Cela nous dit] qu'elles étaient toutes également bonnes.
 
 ### passuk 2
-<b>À Kiryas Arba.</b> Ainsi appelée à cause des quatre géants qui s'y trouvaient, Achiman, Sheishai, Talmai, et leur père. Autre explication : Ainsi appelé à cause des quatre couples qui y ont été enterrés-homme et femme, Adam et Chavah, Avraham et Sarah, Yitshak et Rivkah, Yaakov et Léa. 
+<b>À Kiryas Arba.</b> Ainsi appelée à cause des quatre géants qui s'y trouvaient, Achiman, Sheishai, Talmai, et leur père. Autre explication : Ainsi appelé à cause des quatre couples qui y ont été enterrés-homme et femme, Adam et Hava, Avraham et Sarah, Yitshak et Rivkah, Yaakov et Léa. 
 <Avraham est venu.</b> De Beer Sheva.
 <b>Pour faire l'éloge de Sarah et la pleurer.</b> Le récit de la mort de Sarah suit immédiatement la <i>Akeidah</i> [liaison] de Yitshak car suite à la nouvelle de la <i>Akeidah,</i> que son fils avait été préparé pour l'abattage et qu'il avait failli ne pas être abattu, son âme l'a quittée et elle est morte. 
 

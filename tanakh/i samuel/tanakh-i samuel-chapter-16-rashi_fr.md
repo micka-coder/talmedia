@@ -7,7 +7,7 @@
 ### passuk 3
 
 ### passuk 4
-<b>S'empressent.</b> S'empressent vers lui.<sup>3</sup><i class="footnote">Les anciens de la ville qui ont vu Shmuel approcher se sont empressés vers lui en pensant qu'ils avaient commis un grave péché et que c'était la raison pour laquelle il venait dans leur ville. Par conséquent, on demanda à Shmuel s'il venait en paix.-Radak</i>
+<b>S'empressent.</b> S'empressent vers lui.<sup>3</sup><i class="footnote">Les anciens de la ville qui ont vu Chmouel approcher se sont empressés vers lui en pensant qu'ils avaient commis un grave péché et que c'était la raison pour laquelle il venait dans leur ville. Par conséquent, on demanda à Chmouel s'il venait en paix.-Radak</i>
 
 ### passuk 5
 
@@ -17,12 +17,12 @@
 ### passuk 7
 <b>Ne regardez pas son apparence.</b> Sur la beauté de sa stature.
 <b>Parce que je l'ai rejeté.</b> Parce que c'est une personne au tempérament rapide, comme il est dit : 'Et Eliov s'est mis en colère contre David.'<sup>4</sup><i class="footnote"> Ci-dessous 17:28. Voir également le Masehet Pesachim 66b, selon lequel Eliov possédait effectivement les qualités d'un roi mais '<span>ה</span> l'a rejeté parce qu'il avait mauvais caractère.</i>
-<b>Parce que les choses ne sont pas telles que l'homme les perçoit.</b> Même si tu t'es dit voyant, lorsque tu as dit à Shaoul : 'Je suis le voyant'<sup>5</sup><i class="footnote">Supérieur 9:19. <span>ה׳</span> a puni Shmuel pour avoir déduit ne serait-ce qu'un infinitésimal d'orgueil en disant "je suis le voyant". Moshé a été puni de la même manière pour avoir dit "la question qui sera trop difficile pour toi, présente-la moi et je l'entendrai." [Devarim 1:17]-Sifre, Devarim 1:17</i> ici je t'informe que tu ne vois pas.
+<b>Parce que les choses ne sont pas telles que l'homme les perçoit.</b> Même si tu t'es dit voyant, lorsque tu as dit à Shaoul : 'Je suis le voyant'<sup>5</sup><i class="footnote">Supérieur 9:19. <span>ה׳</span> a puni Chmouel pour avoir déduit ne serait-ce qu'un infinitésimal d'orgueil en disant "je suis le voyant". Moshé a été puni de la même manière pour avoir dit "la question qui sera trop difficile pour toi, présente-la moi et je l'entendrai." [Devarim 1:17]-Sifre, Devarim 1:17</i> ici je t'informe que tu ne vois pas.
 
 ### passuk 8
 
 ### passuk 9
-<b>Yishay a apporté Shammoh.</b> C'est <span>שַׁמְעָא</span>.<sup>6</sup><i class="footnote">I.e. <span>שַׁמְעָא = שַׁמׇּה</span> Voir II Shmuel 21:21 et I Divrei Hayamim 2:13.</i>
+<b>Yishay a apporté Shammoh.</b> C'est <span>שַׁמְעָא</span>.<sup>6</sup><i class="footnote">I.e. <span>שַׁמְעָא = שַׁמׇּה</span> Voir II Chmouel 21:21 et I Divrei Hayamim 2:13.</i>
 
 ### passuk 10
 

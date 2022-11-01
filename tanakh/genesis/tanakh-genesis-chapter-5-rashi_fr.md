@@ -49,7 +49,7 @@
 ### passuk 23
 
 ### passuk 24
-<b>Chanoché marchait.</b> C'était une personne juste mais elle pouvait facilement être incitée à se tourner vers des voies mauvaises. Par conséquent, Hachem l'a rapidement enlevé et l'a fait mourir, c'est-à-dire avant son heure. C'est pourquoi le verset utilise une expression différente concernant sa mort, en écrivant וְאֵינֶנּוּ "et il n'était pas" dans le monde pour compléter ses années. 
+<b>Hanoché marchait.</b> C'était une personne juste mais elle pouvait facilement être incitée à se tourner vers des voies mauvaises. Par conséquent, Hachem l'a rapidement enlevé et l'a fait mourir, c'est-à-dire avant son heure. C'est pourquoi le verset utilise une expression différente concernant sa mort, en écrivant וְאֵינֶנּוּ "et il n'était pas" dans le monde pour compléter ses années. 
 <b>Car [Il] l'a pris. </b>Avant son temps ; comme dans : "Voici que j'enlève de toi le désir de tes yeux".
 
 ### passuk 25
@@ -62,7 +62,7 @@
 <b>Et eut un fils.</b> A partir duquel le monde a été construit.
 
 ### passuk 29
-<b>Il [celui-là] nous apportera le repos.</b> "Il nous donnera le repos de l'angoisse de nos mains." Avant Noach, ils n'avaient pas d'outils agricoles et il a préparé [de tels outils] pour eux. La terre avait produit des épines et des chardons lorsque le blé était semé, suite à la malédiction d'Adam <i>horishon</i> et cela a cessé à l'époque de Noach. C'est l'intention du mot יְנַחֲמֵנוּ . Si vous ne l'expliquez pas de cette façon, alors le sens du terme n'est pas lié au nom [נֹחַ] et vous devriez l'appeler Menachem.
+<b>Il [celui-là] nous apportera le repos.</b> "Il nous donnera le repos de l'angoisse de nos mains." Avant Noach, ils n'avaient pas d'outils agricoles et il a préparé [de tels outils] pour eux. La terre avait produit des épines et des chardons lorsque le blé était semé, suite à la malédiction d'Adam <i>harishone</i> et cela a cessé à l'époque de Noach. C'est l'intention du mot יְנַחֲמֵנוּ . Si vous ne l'expliquez pas de cette façon, alors le sens du terme n'est pas lié au nom [נֹחַ] et vous devriez l'appeler Menachem.
 
 ### passuk 30
 

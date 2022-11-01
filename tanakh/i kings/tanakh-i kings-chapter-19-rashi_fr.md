@@ -34,7 +34,7 @@
 <b>Un calme tranquille.</b> [Targum Yonathan rendu,] " une voix de ceux qui louent tranquillement ", mais concernant les prophètes des [autres] nations, il est dit : " Silence et une voix que j'ai entendue "<sup>7</sup><i class="footnote">Iyov 4:16.</i> il y avait un silence aux louanges. Mais j'ai entendu, c'est une voix qui sort du silence, <i>rente</i>, en ancien français., mais la voix elle-même n'est pas entendue.
 
 ### passuk 13
-<b>Il s'est enveloppé le visage.</b> [Le Targum Yonathan a rendu,] "et il s'est enveloppé le visage,"<sup>8</sup><i class="footnote">De la même manière que Moshé s'est couvert le visage au "buisson ardent" dans Shemos 3:6. </i> et ainsi il est dit, "enveloppé [לוטה] dans un tissu."<sup>9</sup><i class="footnote">I Shmuel 21:10.</i>
+<b>Il s'est enveloppé le visage.</b> [Le Targum Yonathan a rendu,] "et il s'est enveloppé le visage,"<sup>8</sup><i class="footnote">De la même manière que Moshé s'est couvert le visage au "buisson ardent" dans Shemos 3:6. </i> et ainsi il est dit, "enveloppé [לוטה] dans un tissu."<sup>9</sup><i class="footnote">I Chmouel 21:10.</i>
 
 ### passuk 14
 

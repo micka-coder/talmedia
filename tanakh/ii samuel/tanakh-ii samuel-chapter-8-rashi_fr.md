@@ -1,11 +1,11 @@
 
 ### passuk 1
-<b>Meseg Hoamah.</b> Dans le Divrei Hayamim (I, 18:1), il est écrit : "David a pris Goss de la main des Pelishtim." [Goss] est appelé Meseg Hoamah car elle était le bâton qui dominait tous les Pelishtim. C'était la métropole du roi parce que nous ne trouvons [associé à] aucun des dirigeants des Pelishtim [pas] à Azoh, Ashdod, Akron [ni] Ashkelon,<sup>1</sup><i class="footnote">Il s'agit d'une référence aux dirigeants des Pelishtim énumérés dans Yehoshua 13:3. Rachi a laissé de côté les Avites, car il s'appuie sur l'opinion de Rav dans Chulin 60b selon laquelle les Avites étaient originaires de Teimon et non du peuple philistin.</i> un titre royal. Ce n'est qu'en référence à Goss que l'on trouve [un titre royal], "Akish, le roi de Goss."<sup>2</sup><i class="footnote">Shmuel I, 20:11.</i>.
+<b>Meseg Hoamah.</b> Dans le Divrei Hayamim (I, 18:1), il est écrit : "David a pris Goss de la main des Pelishtim." [Goss] est appelé Meseg Hoamah car elle était le bâton qui dominait tous les Pelishtim. C'était la métropole du roi parce que nous ne trouvons [associé à] aucun des dirigeants des Pelishtim [pas] à Azoh, Ashdod, Akron [ni] Ashkelon,<sup>1</sup><i class="footnote">Il s'agit d'une référence aux dirigeants des Pelishtim énumérés dans Yehoshua 13:3. Rachi a laissé de côté les Avites, car il s'appuie sur l'opinion de Rav dans Chulin 60b selon laquelle les Avites étaient originaires de Teimon et non du peuple philistin.</i> un titre royal. Ce n'est qu'en référence à Goss que l'on trouve [un titre royal], "Akish, le roi de Goss."<sup>2</sup><i class="footnote">Chmouel I, 20:11.</i>.
 <b>Meseg.</b> <i>Avillon</i> en ancien français.
 <b>Hoamah.</b> C'est le harnais en bois.<sup>3</sup><i class="footnote"><span>מֶתֶג</span> signifie les rênes. Ce sont des références au contrôle que cette ville avait sur les Pelishtim.</i>
 
 ### passuk 2
-<b>Ceux qui étaient mesurés avec deux cordes ont été tués.</b> [Cette vengeance était] parce qu'ils ont tué son père, sa mère et ses frères comme il est dit : "Il les a conduits devant le roi de Moav." (Shmuel I, 22:4) Nous ne trouvons pas qu'ils soient partis de là.<sup>4</sup><i class="footnote">Yalkut Shimoni, 147.</i>
+<b>Ceux qui étaient mesurés avec deux cordes ont été tués.</b> [Cette vengeance était] parce qu'ils ont tué son père, sa mère et ses frères comme il est dit : "Il les a conduits devant le roi de Moav." (Chmouel I, 22:4) Nous ne trouvons pas qu'ils soient partis de là.<sup>4</sup><i class="footnote">Yalkut Shimoni, 147.</i>
 
 ### passuk 3
 <b>Comme il allait.</b> Lorsque Haddadezer allait
@@ -54,12 +54,12 @@
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
-<b>Meseg Hoamah.</b> Dans le Divrei Hayamim (I, 18:1), il est écrit : "David a pris Goss de la main des Pelishtim." [Goss] est appelé Meseg Hoamah car elle était le bâton qui dominait tous les Pelishtim. C'était la métropole du roi parce que nous ne trouvons [associé à] aucun des dirigeants des Pelishtim [pas] à Azoh, Ashdod, Akron [ni] Ashkelon,<sup>1</sup><i class="footnote">Il s'agit d'une référence aux dirigeants des Pelishtim énumérés dans Yehoshua 13:3. Rachi a laissé de côté les Avites, car il s'appuie sur l'opinion de Rav dans Chulin 60b selon laquelle les Avites étaient originaires de Teimon et non du peuple philistin.</i> un titre royal. Ce n'est qu'en référence à Goss que l'on trouve [un titre royal], "Akish, le roi de Goss."<sup>2</sup><i class="footnote">Shmuel I, 20:11.</i>.
+<b>Meseg Hoamah.</b> Dans le Divrei Hayamim (I, 18:1), il est écrit : "David a pris Goss de la main des Pelishtim." [Goss] est appelé Meseg Hoamah car elle était le bâton qui dominait tous les Pelishtim. C'était la métropole du roi parce que nous ne trouvons [associé à] aucun des dirigeants des Pelishtim [pas] à Azoh, Ashdod, Akron [ni] Ashkelon,<sup>1</sup><i class="footnote">Il s'agit d'une référence aux dirigeants des Pelishtim énumérés dans Yehoshua 13:3. Rachi a laissé de côté les Avites, car il s'appuie sur l'opinion de Rav dans Chulin 60b selon laquelle les Avites étaient originaires de Teimon et non du peuple philistin.</i> un titre royal. Ce n'est qu'en référence à Goss que l'on trouve [un titre royal], "Akish, le roi de Goss."<sup>2</sup><i class="footnote">Chmouel I, 20:11.</i>.
 <b>Meseg.</b> <i>Avillon</i> en ancien français.
 <b>Hoamah.</b> C'est le harnais en bois.<sup>3</sup><i class="footnote"><span>מֶתֶג</span> signifie les rênes. Ce sont des références au contrôle que cette ville avait sur les Pelishtim.</i>
 
 ### passuk 2
-<b>Ceux qui étaient mesurés avec deux cordes ont été tués.</b> [Cette vengeance était] parce qu'ils ont tué son père, sa mère et ses frères comme il est dit : "Il les a conduits devant le roi de Moav." (Shmuel I, 22:4) Nous ne trouvons pas qu'ils soient partis de là.<sup>4</sup><i class="footnote">Yalkut Shimoni, 147.</i>
+<b>Ceux qui étaient mesurés avec deux cordes ont été tués.</b> [Cette vengeance était] parce qu'ils ont tué son père, sa mère et ses frères comme il est dit : "Il les a conduits devant le roi de Moav." (Chmouel I, 22:4) Nous ne trouvons pas qu'ils soient partis de là.<sup>4</sup><i class="footnote">Yalkut Shimoni, 147.</i>
 
 ### passuk 3
 <b>Comme il allait.</b> Lorsque Haddadezer allait

@@ -87,7 +87,7 @@
 
 ### passuk 31
 <b>Vous voulez vous battre pour [lit. "à"] le baal ? </b> Pour le bien du baal.
-<b>Pour le venger [lit. le secourir].</b> Pour se venger de lui.</sup>20</sup><i class="footnote">La traduction littérale de <span>תּוֹשִׁיעוּן</span>, "secourir", ne s'applique pas, puisque l'idole n'était plus en danger. L'autre interprétation, "se venger", est correcte ici.</i> De même, "de ma propre main exerçant ma vengeance"<sup>21</sup><i class="footnote">Shmuel 1, 25:33. <span>הוֹשִׁיעָה</span> est interprété comme "venger". </i> par David concernant Novol.
+<b>Pour le venger [lit. le secourir].</b> Pour se venger de lui.</sup>20</sup><i class="footnote">La traduction littérale de <span>תּוֹשִׁיעוּן</span>, "secourir", ne s'applique pas, puisque l'idole n'était plus en danger. L'autre interprétation, "se venger", est correcte ici.</i> De même, "de ma propre main exerçant ma vengeance"<sup>21</sup><i class="footnote">Chmouel 1, 25:33. <span>הוֹשִׁיעָה</span> est interprété comme "venger". </i> par David concernant Novol.
 <b>Quiconque se bat pour [lit. "à"] lui.</b> Pour son bien.
 <b>Attendez jusqu'au matin.</b> Jusqu'au matin, attendez.
 <S'il est un dieu, qu'il mène sa propre bataille et sa propre vengeance. Pour les repousser jusqu'à ce que Gidon puisse s'échapper, il a dit ceci.

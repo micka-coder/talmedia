@@ -16,7 +16,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
+<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Chmouel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
 <b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avshalom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
 
@@ -123,7 +123,7 @@
 ### passuk 6
 
 ### passuk 7
-<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Shmuel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
+<b>Au bout de quarante ans.</b> [Après] que Israël ait demandé à Chmouel un roi, cette rébellion et l'affaiblissement du royaume se produisirent.<sup>2</sup><i class="footnote">C'est l'avis de Rabbi Nehuroi au nom de Rabbi Yohoshua rapporté dans Temurah 14b. Rachi explique que ces quarante années ne décrivent pas la durée pendant laquelle Avshalom s'est engagé dans son intrigue contre le roi. Le verset nous informe plutôt que quarante ans après leur demande inappropriée, le royaume a été affaibli.</i>
 <b>Je voudrais aller.</b> A Chevron.
 <b>Et accomplir les vœux [d'apporter des sacrifices]</b> Nos rabbins ont dit : "[Avshalom voulait] apporter des agneaux de Chevron<sup>3</sup><i class="footnote">Ibid.</i> car là-bas, les agneaux étaient gras."<sup>4</sup><i class="footnote">Rashi y rapporte le Talmud dans Menachos 87a qui traite de la qualité des agneaux de Chevron.</i>
 

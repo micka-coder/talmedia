@@ -16,7 +16,7 @@
 
 ### passuk 6
 <b>Et vous ferez la garde du palais sans y penser.</b> Cette garde, il l'a ordonnée au premier groupe, au sujet duquel il a dit : "fera la garde du palais du roi."<sup>12</sup><i class="footnote">Voir ci-dessus, v. 5.</i>.
-<b>Sans s'en désintéresser.</b> Gardez-le très assidûment, afin de ne pas vous en désintéresser, expression du "désespoir [=ננוֹאָשׁ],"<sup>13</sup><i class="footnote">I Shmuel 27:1.</i> qu'il ne faut pas désespérer dans cette affaire. Le 'מ' de מַסָּח fait partie de la racine.<sup>14</sup><i class="footnote">C'est-à-dire que le 'מ' n'est pas un préfixe signifiant "de".</i>
+<b>Sans s'en désintéresser.</b> Gardez-le très assidûment, afin de ne pas vous en désintéresser, expression du "désespoir [=ננוֹאָשׁ],"<sup>13</sup><i class="footnote">I Chmouel 27:1.</i> qu'il ne faut pas désespérer dans cette affaire. Le 'מ' de מַסָּח fait partie de la racine.<sup>14</sup><i class="footnote">C'est-à-dire que le 'מ' n'est pas un préfixe signifiant "de".</i>
 
 ### passuk 7
 <b>Les deux groupes d'entre vous.</b> Ceux dont j'ai dit qu'ils devaient être à la porte Sur et à la porte des coureurs, et avec eux tous ceux qui partent le Chabbath, [c'est-à-dire] tous les hommes de la garde de départ. 
@@ -76,7 +76,7 @@
 
 ### passuk 6
 <b>Et vous ferez la garde du palais sans y penser.</b> Cette garde, il l'a ordonnée au premier groupe, au sujet duquel il a dit : "fera la garde du palais du roi."<sup>12</sup><i class="footnote">Voir ci-dessus, v. 5.</i>.
-<b>Sans s'en désintéresser.</b> Gardez-le très assidûment, afin de ne pas vous en désintéresser, expression du "désespoir [=ננוֹאָשׁ],"<sup>13</sup><i class="footnote">I Shmuel 27:1.</i> qu'il ne faut pas désespérer dans cette affaire. Le 'מ' de מַסָּח fait partie de la racine.<sup>14</sup><i class="footnote">C'est-à-dire que le 'מ' n'est pas un préfixe signifiant "de".</i>
+<b>Sans s'en désintéresser.</b> Gardez-le très assidûment, afin de ne pas vous en désintéresser, expression du "désespoir [=ננוֹאָשׁ],"<sup>13</sup><i class="footnote">I Chmouel 27:1.</i> qu'il ne faut pas désespérer dans cette affaire. Le 'מ' de מַסָּח fait partie de la racine.<sup>14</sup><i class="footnote">C'est-à-dire que le 'מ' n'est pas un préfixe signifiant "de".</i>
 
 ### passuk 7
 <b>Les deux groupes d'entre vous.</b> Ceux dont j'ai dit qu'ils devaient être à la porte Sur et à la porte des coureurs, et avec eux tous ceux qui partent le Chabbath, [c'est-à-dire] tous les hommes de la garde de départ. 

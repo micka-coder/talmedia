@@ -17,7 +17,7 @@
 <b>Et prolifique.</b> Ils ont porté six enfants à la fois.
 
 ### passuk 8
-<b>Un nouveau roi est entré en fonction.</b> Rav et Shmuel [étaient en désaccord sur le sens de מֶלֶךְ חָדָשׁ]. L'un disait, littéralement un nouveau roi tandis que l'autre disait, [il était en fait le même roi] mais ses édits étaient nouveaux. 
+<b>Un nouveau roi est entré en fonction.</b> Rav et Chmouel [étaient en désaccord sur le sens de מֶלֶךְ חָדָשׁ]. L'un disait, littéralement un nouveau roi tandis que l'autre disait, [il était en fait le même roi] mais ses édits étaient nouveaux. 
 <b>Qui ne connaissait pas.</b> Il a agi <i>comme si</i> il ne [le] connaissait pas.
 
 ### passuk 9

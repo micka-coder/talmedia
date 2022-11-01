@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>Et que Israël est devenu haineux.</b> Littéralement, ils sont entrés en mauvaise odeur avec les Philistins, expression de la haine.
-<b>Pour suivre Saül à Gilgol.</b> C'est ce que lui avait dit Shmuel : "tu descendras à Gilgol devant moi."<sup>3</sup><i class="footnote">Avant 10:8.</i>
+<b>Pour suivre Saül à Gilgol.</b> C'est ce que lui avait dit Chmouel : "tu descendras à Gilgol devant moi."<sup>3</sup><i class="footnote">Avant 10:8.</i>
 
 ### passuk 5
 <b>À l'est de Beis Oven.</b> [<span>קִדְמַת</span>] signifiant l'est de Beis Oven.
@@ -26,7 +26,7 @@
 
 ### passuk 8
 <b>Il attendait.</b> Il attendait.<sup>5</sup><i class="footnote"> Voir Bereshit 8:10.</i>
-<b>Jusqu'au moment fixé par Shmuel.</b> Ce verset comporte un mot manquant. [Le verset veut dire], "jusqu'au moment fixé par Shmuel", ou "jusqu'au moment fixé par Shmuel". Un exemple de cela est : "Et deux hommes, officiers de troupes étaient fils de Shaul." L'Écriture aurait dû écrire : "étaient au fils de Shaoul."<sup>6</sup><i class="footnote"> II Shmuel 4:2.</i> Ici aussi, "qui a été fixé par Shmuel", qui lui avait dit : "Attends sept jours que je vienne à toi."<sup>7</sup><i class="footnote">Supérieur 10:8.</i>
+<b>Jusqu'au moment fixé par Chmouel.</b> Ce verset comporte un mot manquant. [Le verset veut dire], "jusqu'au moment fixé par Chmouel", ou "jusqu'au moment fixé par Chmouel". Un exemple de cela est : "Et deux hommes, officiers de troupes étaient fils de Shaul." L'Écriture aurait dû écrire : "étaient au fils de Shaoul."<sup>6</sup><i class="footnote"> II Chmouel 4:2.</i> Ici aussi, "qui a été fixé par Chmouel", qui lui avait dit : "Attends sept jours que je vienne à toi."<sup>7</sup><i class="footnote">Supérieur 10:8.</i>
 
 ### passuk 9
 <b>Amène-moi l'holocauste.</b> Un non-Cohen a le droit de sacrifier sur un haut lieu.
@@ -38,7 +38,7 @@
 <b>Au jour fixé.</b> Au début du jour [fixé].
 
 ### passuk 12
-<b>Je me suis donc forcé.</b> J'ai vaincu ma volonté, car mon cœur me disait de t'attendre, et contre ma volonté, j'ai réprimé mon cœur, et j'ai offert l'holocauste.<sup>8</sup><i class="footnote"> Shaoul se rendit compte qu'il ne convenait pas qu'il offre le sacrifice. Mais il vit que les gens qui s'étaient rassemblés s'impatientaient et commençaient à l'abandonner pour son inaction. Par conséquent, en désespoir de cause, il a surmonté son inclination à attendre plus longtemps l'arrivée de Shmuel et a agi contre son meilleur jugement.</i>
+<b>Je me suis donc forcé.</b> J'ai vaincu ma volonté, car mon cœur me disait de t'attendre, et contre ma volonté, j'ai réprimé mon cœur, et j'ai offert l'holocauste.<sup>8</sup><i class="footnote"> Shaoul se rendit compte qu'il ne convenait pas qu'il offre le sacrifice. Mais il vit que les gens qui s'étaient rassemblés s'impatientaient et commençaient à l'abandonner pour son inaction. Par conséquent, en désespoir de cause, il a surmonté son inclination à attendre plus longtemps l'arrivée de Chmouel et a agi contre son meilleur jugement.</i>
 
 ### passuk 13
 <b>Pour l'instant.</b> Avant que vous n'ayez fait cela,

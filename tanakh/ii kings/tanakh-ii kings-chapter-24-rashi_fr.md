@@ -15,7 +15,7 @@
 
 ### passuk 7
 <b>Départ de son pays.</b> Pour aider Yehoyakim.
-<b>Parce que le roi de Bavel avait pris, etc.</b> Car il l'avait vaincu au combat la quatrième année de Yehoyakim à Charchemish sur l'Euphrate, comme il est écrit dans le livre de Yirmiyohu.<sup>5</sup><i class="footnote">46:2.</i>.
+<b>Parce que le roi de Bavel avait pris, etc.</b> Car il l'avait vaincu au combat la quatrième année de Yehoyakim à Charchemish sur l'Euphrate, comme il est écrit dans le livre de Yirmiyahu.<sup>5</sup><i class="footnote">46:2.</i>.
 
 ### passuk 8
 
@@ -37,7 +37,7 @@
 <b>Et les dignitaires du pays.</b> Il s'agit des dignitaires de Yehouda et Binyamin, qui étaient des hommes justes. A leur sujet, l'Ecriture déclare : "Comme ces bonnes figues, je reconnaîtrai les exilés de Yehouda."<sup>11</sup><i class="footnote">Yirmiyahu 24:5.</i>
 
 ### passuk 16
-<b>Sept mille.</b> Mais il est dit plus haut : "dix mille."<sup>12</sup><i class="footnote">Voir plus haut, v. 14.</i> Le troisième verset vient concilier [la différence], dans le Livre de Yirmiyohu : "C'est le peuple que Nevuchadnetzar a exilé la septième année, trois mille Juifs."<sup>13</sup><i class="footnote">Yirmiyahu 52:28. Le verset y précise : "trois mille et <i>vingt-trois</i> Juifs."</i> On en déduit que trois mille étaient de la tribu de Yehouda et sept mille de Binyamin et des autres tribus. Nous avons également appris ceci dans le Seder Olam.
+<b>Sept mille.</b> Mais il est dit plus haut : "dix mille."<sup>12</sup><i class="footnote">Voir plus haut, v. 14.</i> Le troisième verset vient concilier [la différence], dans le Livre de Yirmiyahu : "C'est le peuple que Nevuchadnetzar a exilé la septième année, trois mille Juifs."<sup>13</sup><i class="footnote">Yirmiyahu 52:28. Le verset y précise : "trois mille et <i>vingt-trois</i> Juifs."</i> On en déduit que trois mille étaient de la tribu de Yehouda et sept mille de Binyamin et des autres tribus. Nous avons également appris ceci dans le Seder Olam.
 
 ### passuk 17
 <b>Et changea son nom en Tzidkiyohu.</b> Que Dieu justifie le jugement sur vous si vous vous rebellez contre moi.</sup>14</sup><i class="footnote">Voir Masehet Horayot 11b.</i>
@@ -67,7 +67,7 @@
 
 ### passuk 7
 <b>Départ de son pays.</b> Pour aider Yehoyakim.
-<b>Parce que le roi de Bavel avait pris, etc.</b> Car il l'avait vaincu au combat la quatrième année de Yehoyakim à Charchemish sur l'Euphrate, comme il est écrit dans le livre de Yirmiyohu.<sup>5</sup><i class="footnote">46:2.</i>.
+<b>Parce que le roi de Bavel avait pris, etc.</b> Car il l'avait vaincu au combat la quatrième année de Yehoyakim à Charchemish sur l'Euphrate, comme il est écrit dans le livre de Yirmiyahu.<sup>5</sup><i class="footnote">46:2.</i>.
 
 ### passuk 8
 
@@ -89,7 +89,7 @@
 <b>Et les dignitaires du pays.</b> Il s'agit des dignitaires de Yehouda et Binyamin, qui étaient des hommes justes. A leur sujet, l'Ecriture déclare : "Comme ces bonnes figues, je reconnaîtrai les exilés de Yehouda."<sup>11</sup><i class="footnote">Yirmiyahu 24:5.</i>
 
 ### passuk 16
-<b>Sept mille.</b> Mais il est dit plus haut : "dix mille."<sup>12</sup><i class="footnote">Voir plus haut, v. 14.</i> Le troisième verset vient concilier [la différence], dans le Livre de Yirmiyohu : "C'est le peuple que Nevuchadnetzar a exilé la septième année, trois mille Juifs."<sup>13</sup><i class="footnote">Yirmiyahu 52:28. Le verset y précise : "trois mille et <i>vingt-trois</i> Juifs."</i> On en déduit que trois mille étaient de la tribu de Yehouda et sept mille de Binyamin et des autres tribus. Nous avons également appris ceci dans le Seder Olam.
+<b>Sept mille.</b> Mais il est dit plus haut : "dix mille."<sup>12</sup><i class="footnote">Voir plus haut, v. 14.</i> Le troisième verset vient concilier [la différence], dans le Livre de Yirmiyahu : "C'est le peuple que Nevuchadnetzar a exilé la septième année, trois mille Juifs."<sup>13</sup><i class="footnote">Yirmiyahu 52:28. Le verset y précise : "trois mille et <i>vingt-trois</i> Juifs."</i> On en déduit que trois mille étaient de la tribu de Yehouda et sept mille de Binyamin et des autres tribus. Nous avons également appris ceci dans le Seder Olam.
 
 ### passuk 17
 <b>Et changea son nom en Tzidkiyohu.</b> Que Dieu justifie le jugement sur vous si vous vous rebellez contre moi.</sup>14</sup><i class="footnote">Voir Masehet Horayot 11b.</i>

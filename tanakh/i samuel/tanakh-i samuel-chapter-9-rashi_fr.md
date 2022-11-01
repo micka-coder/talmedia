@@ -17,14 +17,14 @@
 <b>Notre route.</b> L'histoire des ânes, c'est-à-dire ce qu'ils sont devenus, pour lesquels nous avons fait tout ce chemin.<sup>2</sup><i class="footnote">Ils ne cherchaient pas seulement des conseils pour savoir où chercher les ânes, mais ils cherchaient aussi une explication à leur long voyage. Ils étaient perplexes quant à la raison pour laquelle ils avaient cherché et ne les avaient pas encore trouvés, étant donné que les ânes ne s'éloignent généralement pas de leur maison.</i>
 
 ### passuk 7
-<b>Que devons-nous apporter à l'homme.</b> Le Targum Yonathan rend : " S'il accepte de l'argent, que devons-nous apporter à l'homme ? ". Shaul ne connaissait pas les habitudes de Shmuel et pensait qu'il demanderait une rémunération.<sup>3</sup><i class="footnote"> Il semble qu'à cette époque, il était d'usage d'apporter des cadeaux dans ce type de situation ; comme dans II Melachim 4:42. Ils pensaient que Shmuel pourrait peut-être exiger une certaine forme de rémunération pour ses prophéties, tout comme les devins demandent des cadeaux à ceux pour qui ils prédisent l'avenir.-Radak</i>
+<b>Que devons-nous apporter à l'homme.</b> Le Targum Yonathan rend : " S'il accepte de l'argent, que devons-nous apporter à l'homme ? ". Shaul ne connaissait pas les habitudes de Chmouel et pensait qu'il demanderait une rémunération.<sup>3</sup><i class="footnote"> Il semble qu'à cette époque, il était d'usage d'apporter des cadeaux dans ce type de situation ; comme dans II Melachim 4:42. Ils pensaient que Chmouel pourrait peut-être exiger une certaine forme de rémunération pour ses prophéties, tout comme les devins demandent des cadeaux à ceux pour qui ils prédisent l'avenir.-Radak</i>
 <b>Et [nous n'avons pas] de cadeau.</b> Le Targum Yonathan rend : " et il n'y a rien de convenable ". C'est une expression de <span>יוֹשֶׁר</span> [=propriété]. Menachem, cependant, explique <span>תְּשׁוּרָה</span> comme l'expression d'un tribut pour le privilège de voir un roi ou une personne importante ; [<span>תְּשׁוּרָה</span> étant] une expression liée à <span>אֲשׁוּרֶנּוּ</span> [signifiant] 'Je les regarde','<sup>4</sup><i class="footnote">Bamidbar 24 : 17. </i> et je suis d'accord avec son explication.<sup>5</sup><i class="footnote">Que <span>וּתְשׁוּרָה</span> vient de la racine <span>שוּר</span> [=voir].</i>
 
 ### passuk 8
 <b>Un quart de shekel.</b> Un <i>zuz</i> d'argent.
 
 ### passuk 9
-<b>Auparavant, dans Israël.</b> L'auteur a écrit ce verset,<sup>6</sup><i class="footnote">C'est-à-dire Shmuel. Voir le Masehet Bava Batra 14b qui affirme que Shmuel a écrit le livre de Shmuel. Cependant, étant donné que Shmuel est mort avant Saül qui n'a régné que pendant deux ans, quelle est la signification de "autrefois" et "d'aujourd'hui" comme indiqué dans le verset ? Le Radak suggère donc que "autrefois" fait référence à une période antérieure où les prophètes étaient connus pour leur capacité à prédire l'avenir et à faire preuve d'une connaissance des choses cachées, d'où le terme <span>רוֹאֶה</span>. Cependant, à l'époque de Shmuel, la prophétie se répandit, mais le type de prophétie était une inspiration divine pour apporter au peuple la parole de '<span>ה</span>, d'où le terme <span>נָבִיא</span> [de la racine <span>בוֹא</span>]. Dans le cas de Shaul, il cherchait un <span>רוֹאֶה</span> pour lui dire où se trouvaient ses ânes. D'autres cependant soutiennent que l'auteur de ce verset pourrait être Esdras ou Yirmiyahu.</i> C'est-à-dire que cela ne fait pas partie de la jeunesse de la déclaration de Shaoul.
+<b>Auparavant, dans Israël.</b> L'auteur a écrit ce verset,<sup>6</sup><i class="footnote">C'est-à-dire Chmouel. Voir le Masehet Bava Batra 14b qui affirme que Chmouel a écrit le livre de Chmouel. Cependant, étant donné que Chmouel est mort avant Saül qui n'a régné que pendant deux ans, quelle est la signification de "autrefois" et "d'aujourd'hui" comme indiqué dans le verset ? Le Radak suggère donc que "autrefois" fait référence à une période antérieure où les prophètes étaient connus pour leur capacité à prédire l'avenir et à faire preuve d'une connaissance des choses cachées, d'où le terme <span>רוֹאֶה</span>. Cependant, à l'époque de Chmouel, la prophétie se répandit, mais le type de prophétie était une inspiration divine pour apporter au peuple la parole de '<span>ה</span>, d'où le terme <span>נָבִיא</span> [de la racine <span>בוֹא</span>]. Dans le cas de Shaul, il cherchait un <span>רוֹאֶה</span> pour lui dire où se trouvaient ses ânes. D'autres cependant soutiennent que l'auteur de ce verset pourrait être Esdras ou Yirmiyahu.</i> C'est-à-dire que cela ne fait pas partie de la jeunesse de la déclaration de Shaoul.
 <b>Pour le "prophète" d'aujourd'hui.</b> Celui qui est appelé "prophète" aujourd'hui était autrefois appelé "voyant".
 
 ### passuk 10
@@ -54,7 +54,7 @@
 ### passuk 19
 
 ### passuk 20
-<b>Mais pour qui tout Israël désire-t-il ?</b> Ici il [Shmuel] lui fait allusion à la question de la royauté.
+<b>Mais pour qui tout Israël désire-t-il ?</b> Ici il [Chmouel] lui fait allusion à la question de la royauté.
 
 ### passuk 21
 
@@ -62,12 +62,12 @@
 <b>A la tête des invités.</b> A la place où sont assis les gens importants ; par la manière de s'asseoir, il était évident à quelle place était assis la personne la plus importante.
 
 ### passuk 23
-<b>A propos de quoi je t'ai dit.</b> Comme Shmuel savait que Shaoul viendrait, il ordonna de lui donner une portion fine à son intention.</sup>12</sup><i class="footnote">Quand la portion spéciale que Shmuel avait réservée était placée devant Shaoul, cela rendait public l'honneur que Shmuel lui faisait.</i>
+<b>A propos de quoi je t'ai dit.</b> Comme Chmouel savait que Shaoul viendrait, il ordonna de lui donner une portion fine à son intention.</sup>12</sup><i class="footnote">Quand la portion spéciale que Chmouel avait réservée était placée devant Shaoul, cela rendait public l'honneur que Chmouel lui faisait.</i>
 
 ### passuk 24
 <b>La cuisse avec ce qui y était attaché.</b> La cuisse et la hanche au-dessus d'elle.</sup>13</sup><i class="footnote"> Voir Masehet Avodah Zara 25a pour des points de vue différents sur "ce qui y était attaché". </i>
 <b>Voici ce qui reste.</b> Des portions des invités, et qui a été mis de côté pour vous.
-<b>Mettez-le devant vous et mangez.</b> Dans le dernier chapitre des [Masehet] Zevahim,<sup>14</sup><i class="footnote"></i> il est établi que [l'agitation] de la poitrine et de la cuisse est [effectuée] dans un grand lieu élevé [c'est-à-dire public], [mais l'agitation] de la poitrine et de la cuisse n'est pas [effectuée] dans un petit lieu élevé [c'est-à-dire privé]. Il était donc permis à Shaoul de manger<sup>15</sup><i class="footnote">La phrase "mets devant toi et mange" indique que Shaoul a d'abord hésité à manger parce qu'il pensait que sa part était celle du Cohen. Shmuel lui a donc dit que dans un haut lieu privé, la poitrine et la cuisse n'étaient ni agitées ni données au Cohen.</i> [la cuisse].
+<b>Mettez-le devant vous et mangez.</b> Dans le dernier chapitre des [Masehet] Zevahim,<sup>14</sup><i class="footnote"></i> il est établi que [l'agitation] de la poitrine et de la cuisse est [effectuée] dans un grand lieu élevé [c'est-à-dire public], [mais l'agitation] de la poitrine et de la cuisse n'est pas [effectuée] dans un petit lieu élevé [c'est-à-dire privé]. Il était donc permis à Shaoul de manger<sup>15</sup><i class="footnote">La phrase "mets devant toi et mange" indique que Shaoul a d'abord hésité à manger parce qu'il pensait que sa part était celle du Cohen. Chmouel lui a donc dit que dans un haut lieu privé, la poitrine et la cuisse n'étaient ni agitées ni données au Cohen.</i> [la cuisse].
 <b>Parce qu'on la gardait... jusqu'au moment fixé.</b> Car pour le moment fixé du banquet, cette cuisse t'avait été réservée.
 <b>J'ai dit au [cuisinier] : j'ai invité les gens.</b> Ma déclaration au cuisinier était : 'J'ai invité les gens au festin, et je connais leur nombre. Fais attention à leurs portions. Et je lui ai commandé le nombre de portions en conséquence, et celle-ci a été réservée pour toi.
 

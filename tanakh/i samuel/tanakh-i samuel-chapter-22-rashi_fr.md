@@ -6,13 +6,13 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et ils restèrent avec lui tout le temps que David fut dans la forteresse.</b> Près de Moav, et lorsque David partit de là vers la forêt de Chérès, le roi de Moav tua son père, sa mère et ses frères, sauf l'un d'entre eux, que Nochosh l'Ammonite éleva. <sup>1</sup><i class="footnote">Bamidbar Rabba 14:1.</i> C'est à cette bonté que David [faisait référence lorsqu'il] disait : " comme son père a fait preuve de bonté à mon égard "<sup>2</sup><i class="footnote">II Shmuel 10:2.</i> comme il est dit dans le Midrash de R. Tanchuma.
+<b>Et ils restèrent avec lui tout le temps que David fut dans la forteresse.</b> Près de Moav, et lorsque David partit de là vers la forêt de Chérès, le roi de Moav tua son père, sa mère et ses frères, sauf l'un d'entre eux, que Nochosh l'Ammonite éleva. <sup>1</sup><i class="footnote">Bamidbar Rabba 14:1.</i> C'est à cette bonté que David [faisait référence lorsqu'il] disait : " comme son père a fait preuve de bonté à mon égard "<sup>2</sup><i class="footnote">II Chmouel 10:2.</i> comme il est dit dans le Midrash de R. Tanchuma.
 
 ### passuk 5
 
 ### passuk 6
 <b>Que David...avait été découvert.</b> Qu'il a réalisé pour se méfier de lui.
-<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyamin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Shmuel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masechs Taanis 5b.</i> que c'était le Romoh de Shmuel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Shmuel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Shmuel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amoleik. Shmuel a prié pour que le règne de Shaoul reste intact tant qu'il était vivant.</i>
+<b>Sous le tamaris à Romoh.</b> Sur une [colline], qui était à l'intérieur de la frontière de Binyamin.</sup>3</sup><i class="footnote">À ne pas confondre avec le Romoh où vivait Chmouel.</i> Nos rabbins ont dit<sup>4</sup><i class="footnote">Masechs Taanis 5b.</i> que c'était le Romoh de Chmouel, et que ce sont deux endroits différents. Il est expliqué ainsi : 'Shaoul était assis dans le Givoh au mérite du grand tamaris [c'est-à-dire Chmouel] qui était dans le Romoh, et qui priait pour lui.'<sup>5</sup><i class="footnote">Sans les prières de Chmouel, Shaoul aurait dû renoncer au trône immédiatement après l'incident avec Amoleik. Chmouel a prié pour que le règne de Shaoul reste intact tant qu'il était vivant.</i>
 
 ### passuk 7
 

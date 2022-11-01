@@ -104,7 +104,7 @@
 <b>Tandis que ceux de la ville.</b> Les embusqueurs qui avaient pénétré dans la ville démolirent la tribu de l'intérieur de la ville.
 
 ### passuk 43
-<b>Les [lit. couronné] Binyamin.</b> Ils ont encerclé Binyamin comme une couronne encercle la tête. De même, "Les puissants de Bashan m'ont encerclé"<sup>13</sup><i class="footnote">Tehilim, 22:13.</i> et, "Car le méchant encercle le saint"<sup>14</sup><i class="footnote">Chabakuk, 1:4. </i> Aussi, le mot "couronne" connote l'encerclement, comme dans, "Shaul et ses troupes ont encerclé [lit. enveloppé] David et ses troupes afin de les saisir"<sup>15</sup><i class="footnote">Shmuel 1, 23:26.</i>.
+<b>Les [lit. couronné] Binyamin.</b> Ils ont encerclé Binyamin comme une couronne encercle la tête. De même, "Les puissants de Bashan m'ont encerclé"<sup>13</sup><i class="footnote">Tehilim, 22:13.</i> et, "Car le méchant encercle le saint"<sup>14</sup><i class="footnote">Chabakuk, 1:4. </i> Aussi, le mot "couronne" connote l'encerclement, comme dans, "Shaul et ses troupes ont encerclé [lit. enveloppé] David et ses troupes afin de les saisir"<sup>15</sup><i class="footnote">Chmouel 1, 23:26.</i>.
 <b>Ils ont appelé à leur poursuite.</b> Ils ont appelé à la poursuite derrière eux - ils se sont criés les uns aux autres de poursuivre.
 <b>Et les interceptèrent au repos.</b> Dans les villes, où ils se reposaient généralement, ils les interceptèrent.
 <b>Ils les interceptaient.</b> Ils les attrapaient. On trouve un terme similaire dans le Talmud : "Il le poursuivit une parsa dans le sable, mais ne l'attrapa pas."<sup>16</sup><i class="footnote">Kesubos, 60:b.</i>.

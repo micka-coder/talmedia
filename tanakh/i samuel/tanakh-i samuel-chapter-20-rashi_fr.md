@@ -49,7 +49,7 @@
 
 ### passuk 16
 <b>Que Hachem inflige un châtiment.</b> De cette alliance.
-<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que "les ennemis de David" font référence à Shaul et Avneir. -Mahri Kra.</i> Lorsqu'il transgressa l'alliance et dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Shmuel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Masehet Chabbat 56b et Masehet Yoma 22b.</i> Et c'est ainsi que le Targum Yonathan a rendu : 'et Hachem s'est vengé des ennemis de David'.
+<b>Des ennemis de David.</b> L'écriture est euphémisée. Sa signification réelle est que le Saint, Béni soit-Il, a exigé de David la punition de la transgression.<sup>10</sup><i class="footnote">D'autres soutiennent que "les ennemis de David" font référence à Shaul et Avneir. -Mahri Kra.</i> Lorsqu'il transgressa l'alliance et dit à Mefiboshes : "Toi et Tziva, vous partagerez le champ"<sup>11</sup><i class="footnote">II Chmouel 19:30. </i> un <i>bas kol</i> est apparu et a dit : 'Rechavam et Yorovom partageront le royaume.'<sup>12</sup><i class="footnote">Voir Masehet Chabbat 56b et Masehet Yoma 22b.</i> Et c'est ainsi que le Targum Yonathan a rendu : 'et Hachem s'est vengé des ennemis de David'.
 
 ### passuk 17
 

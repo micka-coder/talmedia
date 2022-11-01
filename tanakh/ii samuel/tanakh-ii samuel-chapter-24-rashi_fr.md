@@ -32,7 +32,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Je t'affligerai [d'une] de trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Hachem le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
+<b>Je t'affligerai [d'une] de trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Chmouel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Hachem le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
 
 ### passuk 13
 
@@ -101,7 +101,7 @@
 ### passuk 11
 
 ### passuk 12
-<b>Je t'affligerai [d'une] de trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Shmuel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Hachem le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
+<b>Je t'affligerai [d'une] de trois [choses].</b> Une de trois et donc [on trouve] : "Avec deux [de mes filles] tu te marieras [dans ma famille] aujourd'hui",<sup>18</sup><i class="footnote">Chmouel I, 18:21.</i> c'est-à-dire avec une de deux. "Je t'en prendrai trois" est la rétribution des trois [malédictions] que tu as jetées sur Shaoul : "Soit Hachem le frappera, soit son jour viendra et il mourra, soit il descendra au combat et périra."<sup>19</sup><i class="footnote">Ibid, 26:10.</i>.
 
 ### passuk 13
 

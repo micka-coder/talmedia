@@ -16,7 +16,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>J'ai donné au fils de ton maître.</b> Le roi est autorisé à transférer un bien<sup>1</sup><i class="footnote">de son propriétaire légitime précédent à une autre personne de son choix. C'est l'opinion de Rabbi Yosi dans Sanhedrin 20b que ces pouvoirs royaux dont il est question dans Shmuel doivent être pris littéralement comme appartenant au roi et pas seulement un moyen d'effrayer le peuple pour qu'il respecte le roi, ce qui est l'opinion de Rabbi Yehudi dans Sanhedrin, (voir aussi Tosfos, ibid).</i> comme il est dit (Shmuel I, 8:14) Dans la juridiction de la monarchie se trouve [le pouvoir] de prendre leurs champs et leurs vignes et de les donner à ses serviteurs.
+<b>J'ai donné au fils de ton maître.</b> Le roi est autorisé à transférer un bien<sup>1</sup><i class="footnote">de son propriétaire légitime précédent à une autre personne de son choix. C'est l'opinion de Rabbi Yosi dans Sanhedrin 20b que ces pouvoirs royaux dont il est question dans Chmouel doivent être pris littéralement comme appartenant au roi et pas seulement un moyen d'effrayer le peuple pour qu'il respecte le roi, ce qui est l'opinion de Rabbi Yehudi dans Sanhedrin, (voir aussi Tosfos, ibid).</i> comme il est dit (Chmouel I, 8:14) Dans la juridiction de la monarchie se trouve [le pouvoir] de prendre leurs champs et leurs vignes et de les donner à ses serviteurs.
 
 ### passuk 10
 
@@ -45,7 +45,7 @@
 ### passuk 8
 
 ### passuk 9
-<b>J'ai donné au fils de ton maître.</b> Le roi est autorisé à transférer un bien<sup>1</sup><i class="footnote">de son propriétaire légitime précédent à une autre personne de son choix. C'est l'opinion de Rabbi Yosi dans Sanhedrin 20b que ces pouvoirs royaux dont il est question dans Shmuel doivent être pris littéralement comme appartenant au roi et pas seulement un moyen d'effrayer le peuple pour qu'il respecte le roi, ce qui est l'opinion de Rabbi Yehudi dans Sanhedrin, (voir aussi Tosfos, ibid).</i> comme il est dit (Shmuel I, 8:14) Dans la juridiction de la monarchie se trouve [le pouvoir] de prendre leurs champs et leurs vignes et de les donner à ses serviteurs.
+<b>J'ai donné au fils de ton maître.</b> Le roi est autorisé à transférer un bien<sup>1</sup><i class="footnote">de son propriétaire légitime précédent à une autre personne de son choix. C'est l'opinion de Rabbi Yosi dans Sanhedrin 20b que ces pouvoirs royaux dont il est question dans Chmouel doivent être pris littéralement comme appartenant au roi et pas seulement un moyen d'effrayer le peuple pour qu'il respecte le roi, ce qui est l'opinion de Rabbi Yehudi dans Sanhedrin, (voir aussi Tosfos, ibid).</i> comme il est dit (Chmouel I, 8:14) Dans la juridiction de la monarchie se trouve [le pouvoir] de prendre leurs champs et leurs vignes et de les donner à ses serviteurs.
 
 ### passuk 10
 

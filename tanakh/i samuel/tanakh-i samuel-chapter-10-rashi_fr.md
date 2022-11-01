@@ -14,7 +14,7 @@ Tzeltzoch est une combinaison des mots <span>צֵל לַצַּח</span> du Saint
 ### passuk 5
 <b>La colline de Dieu.</b> La colline de Kiryas Ye'arim, où l'Arche de Dieu reposait maintenant.
 <b>Officiers philistins.</b> Officiers qu'ils avaient nommés sur Israël, car ils [les Philistins] régnaient sur eux et postaient des officiers dans les villes de Israël.</sup>3</sup><i class="footnote">Les Philistins avaient conquis des parties d'Eretz Israël et avaient nommé des officiers pour gouverner les régions qu'ils dominaient.-Mahri Kra</i>.
-<b>Une bande de prophètes.</b> Le Targum Yonathan rend : 'une bande de scribes'. '<span>חֶבֶל</span>' est une bande, similaire à, 'les <span>חֶבְלֵי</span> des méchants m'entouraient'<sup>4</sup><i class="footnote">II Shmuel 22:6. </i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
+<b>Une bande de prophètes.</b> Le Targum Yonathan rend : 'une bande de scribes'. '<span>חֶבֶל</span>' est une bande, similaire à, 'les <span>חֶבְלֵי</span> des méchants m'entouraient'<sup>4</sup><i class="footnote">II Chmouel 22:6. </i> [rendu par le Targum par], 'les bandes des méchants m'ont entouré'.
 <b>Du haut lieu.</b> Le Targum Yonathan rend : "de la salle de banquet".
 
 ### passuk 6

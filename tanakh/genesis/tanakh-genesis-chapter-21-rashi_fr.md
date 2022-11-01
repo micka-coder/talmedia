@@ -98,7 +98,7 @@
 ### passuk 32
 
 ### passuk 33
-<Un Eishel. Rav et Shmuel [offrent des opinions différentes]. L'un dit qu'il s'agissait d'un verger d'où l'on apportait des fruits pour les repas des invités et l'autre dit une maison d'hôtes. qui contenait diverses sortes de fruits. On trouve le terme נְטִיעָה appliqué aux tentes, comme il est dit : " Il plantera les tentes de son palais. " 
+<Un Eishel. Rav et Chmouel [offrent des opinions différentes]. L'un dit qu'il s'agissait d'un verger d'où l'on apportait des fruits pour les repas des invités et l'autre dit une maison d'hôtes. qui contenait diverses sortes de fruits. On trouve le terme נְטִיעָה appliqué aux tentes, comme il est dit : " Il plantera les tentes de son palais. " 
 <b>Et c'est là qu'il a proclamé.</b> [C'est-à-dire que] par le biais de ce <i>eishel</i>, le Nom du Saint fut appelé "Dieu" au monde entier ; [car] après qu'ils [les invités] aient mangé et bu, il [Avraham] leur disait : "Bénissez Celui de la nourriture duquel vous avez mangé. Vous pouvez penser que vous avez mangé <i>mon</i> aliment, [mais, en réalité] de Celui qui par Sa parole a fait naître le monde, vous avez mangé. " 
 
 ### passuk 34

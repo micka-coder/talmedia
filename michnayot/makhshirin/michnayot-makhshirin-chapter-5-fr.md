@@ -30,7 +30,7 @@ Un écoulement se déversant [d'un récipient à un autre] est propre, sauf [l'�
 Celui qui verse de l'eau chaude dans de l'eau chaude, ou de l'eau froide dans de l'eau froide, ou de l'eau chaude [versée] dans de l'eau froide, reste pur ; mais de l'eau froide dans de l'eau chaude, [l'eau froide] devient impure. Rabbi Shimon dit : même dans le cas de l'eau chaude versée dans l'eau chaude, elle devient impure si l'intensité de la chaleur de l'eau inférieure est plus importante que celle de l'eau supérieure.
 
 ### michna 11
-Si une femme dont les mains sont propres remue une casserole impure et que ses mains s'humidifient, elles [les mains] deviennent impures. Si ses mains étaient impures et qu'elle remuait un pot propre et que ses mains s'humidifient, le pot devient impur. Rabbi Yose dit : uniquement si de ses mains s'égouttent [de l'eau]. Celui qui pèse des raisins avec une balance, le vin dans la balance est propre jusqu'à ce qu'il soit versé dans un récipient. Cela ressemble aux paniers d'olives et de raisins quand ils dégoulinent [de jus].
+Si une femme dont les mains sont propres remue une casserole impure et que ses mains s'humidifient, elles [les mains] deviennent impures. Si ses mains étaient impures et qu'elle remuait un pot propre et que ses mains s'humidifient, le pot devient impur. Rabbi Yose dit : uniquement si de ses mains s'égouttent [de l'eau]. Celui qui pèse des raisins avec une balance, le vin [c.a.d le jus qui s'écoule du raisin] dans la balance est propre jusqu'à ce qu'il soit versé dans un récipient. Cela ressemble aux paniers d'olives et de raisins quand ils dégoulinent [de jus].
 
 >Crédit : Dr. Joshua Kulp
 >Licence : CC-BY

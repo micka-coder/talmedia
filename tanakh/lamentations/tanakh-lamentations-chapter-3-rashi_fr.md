@@ -84,7 +84,7 @@
 
 ### passuk 28
 <b>Laissez-le rester seul.</b> Celui qui a été frappé par le deuil et le trouble doit s'asseoir seul et attendre le bien [à venir].
-<b>Et attendre.</b> Une expression d'attente, comme dans : "S'ils nous disent ainsi : 'Attendez דֹּמוּ !'"<sup>24</sup><i class="footnote">I Shmuel 14:9. </i> [dans l'incident traitant] de Yehonoson. 
+<b>Et attendre.</b> Une expression d'attente, comme dans : "S'ils nous disent ainsi : 'Attendez דֹּמוּ !'"<sup>24</sup><i class="footnote">I Chmouel 14:9. </i> [dans l'incident traitant] de Yehonoson. 
 <b>Parce qu'Il [Dieu] l'a jeté sur lui.</b> Car le Maître des Décrets a mis ce décret sur lui.</sup>25</sup><i class="footnote">Alternativement, 'jusqu'à ce qu'Il l'enlève', c'est-à-dire jusqu'à ce qu'Il lui enlève la souffrance. (Targum) </i> 
 
 ### passuk 29

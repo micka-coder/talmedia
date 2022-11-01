@@ -1,7 +1,7 @@
 
 ### passuk 1
-<b>La parole de Shmuel est parvenue à tout Israël.</b> La parole qui avait été dite à Shmuel, s'est accomplie, et est parvenue à tout Israël. Comment ce malheur leur est-il arrivé ? "Israël est sorti pour faire la guerre aux Philistins."<sup>1</sup><i class="footnote">Lorsque les Bnei Israël méritaient une punition, '<span>ה</span> leur ordonnait parfois de sortir et de combattre les Philistins même si cela devait se terminer par leur défaite.-Radak</i>
-<b>Even Haezer</b> [Lit. le rocher du secours]. Ce n'était pas encore son nom,<sup>2</sup><i class="footnote"> Évidemment, parce qu'ils étaient solidement vaincus maintenant.</i> car il a été appelé pour la première fois de ce nom [plus tard] au temps de Shmuel, mais ici l'Écriture l'appelle par son nom futur.
+<b>La parole de Chmouel est parvenue à tout Israël.</b> La parole qui avait été dite à Chmouel, s'est accomplie, et est parvenue à tout Israël. Comment ce malheur leur est-il arrivé ? "Israël est sorti pour faire la guerre aux Philistins."<sup>1</sup><i class="footnote">Lorsque les Bnei Israël méritaient une punition, '<span>ה</span> leur ordonnait parfois de sortir et de combattre les Philistins même si cela devait se terminer par leur défaite.-Radak</i>
+<b>Even Haezer</b> [Lit. le rocher du secours]. Ce n'était pas encore son nom,<sup>2</sup><i class="footnote"> Évidemment, parce qu'ils étaient solidement vaincus maintenant.</i> car il a été appelé pour la première fois de ce nom [plus tard] au temps de Chmouel, mais ici l'Écriture l'appelle par son nom futur.
 
 ### passuk 2
 <b>Et la guerre se répandit.</b> Et la guerre se répandit. Semblable à "et voici qu'ils se répandirent [<span>נְטוּשִׁים</span>] sur toute la surface du pays"<sup>3</sup><i class="footnote"> Ci-dessous 30:16. </i> et à "et ils furent répandus [<span>וַיִנָּטְשׁוּ</span>] à Léhi."<sup>4</sup><i class="footnote">Shoftim 15:9.</i>.

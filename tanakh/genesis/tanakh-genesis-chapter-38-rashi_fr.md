@@ -98,7 +98,7 @@
 <b>Avec quelle force.</b> [Signification :] avec quelle force tu as poussé ?
 
 ### passuk 30
-<b>Celui sur la main duquel était le fil écarlate.</b> Le mot יַד apparaît ici quatre fois, correspondant aux quatre interdits violés par Acan, qui descendait de lui [Zorach]. D'autres disent que cela correspond aux quatre choses qu'il a prises [à la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereshit Rabbah. 
+<b>Celui sur la main duquel était le fil écarlate.</b> Le mot יַד apparaît ici quatre fois, correspondant aux quatre interdits violés par Akhan, qui descendait de lui [Zorach]. D'autres disent que cela correspond aux quatre choses qu'il a prises [à la bataille de Yericho,] un manteau de Shinar, deux morceaux d'argent d'une valeur de deux cents sicles, et un brin d'or. De Bereshit Rabbah. 
 <b>Il le nomma Zorach.</b> A cause de la couleur vive du fil écarlate.
 
 >Crédit : primo.nli.org.il (metsudah)

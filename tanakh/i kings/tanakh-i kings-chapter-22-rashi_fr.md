@@ -81,7 +81,7 @@
 ### passuk 34
 <b>Un homme dessina.</b> C'était Naaman.</sup>15</sup><i class="footnote">Qui sera plus tard guéri de la lèpre par Elisée. Voir II Melochim 5:1-15.</i>
 <b>Innocemment [sans viser].</b> Il n'était pas conscient d'être le roi de Israël.</sup>16</sup><i class="footnote">Alternativement, לתמו signifie "l'achever", c'est-à-dire que les prophéties de Michoyhu et d'Eliyahu se sont achevées avec la mort d'Achov. Voir Masehet Sanhedrin 39b.</i>
-<b>Entre les plaques de l'armure.</b> Certaines cottes de mailles sont faites de couches d'écailles, de la manière dont il est dit : "et une cotte de mailles"<sup>17</sup><i class="footnote">I Shmuel 17:5.</i> et les écailles tombent sur les trous de la couche et les ferment, et on les appelle "דבקים" [=attachées].
+<b>Entre les plaques de l'armure.</b> Certaines cottes de mailles sont faites de couches d'écailles, de la manière dont il est dit : "et une cotte de mailles"<sup>17</sup><i class="footnote">I Chmouel 17:5.</i> et les écailles tombent sur les trous de la couche et les ferment, et on les appelle "דבקים" [=attachées].
 
 ### passuk 35
 <b>S'est levé dans le char.</b> Il s'est dépensé et s'est levé pour que les [Bnei] Israël ne se rendent pas compte de sa blessure et ne s'enfuient pas, car la fuite est le début de la défaite.

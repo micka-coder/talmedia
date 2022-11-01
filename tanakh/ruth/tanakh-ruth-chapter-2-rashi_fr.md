@@ -44,7 +44,7 @@
 ### passuk 15
 
 ### passuk 16
-<b>Et laissez [quelques gerbes] tomber pour elle.</b>  שֹׁל תָּשֹׁלּוּ  =] vous devez oublier ; faites comme si vous oubliiez.</sup>14</sup><i class="footnote">Le double verbe indique que l'action devait être répétée plusieurs fois. </i> Le Targum pour  שְׁגָגָה " [=vue], est  שְׁלוּתָא,<sup>15</sup><i class="footnote">Bamidbar 15:25. </i> et de même, "à cause de cette erreur".</sup>16</sup><i class="footnote">II Shmuel 6:7. </i> Une autre explication [de  שֹׁל תָּשֹׁלּוּ  est "laisser tomber"], une expression [comme dans,] "ton olivier laissera tomber [=  יִשַּׁל  [son fruit].</sup>17</sup><i class="footnote">Devarim 28:40. </i> 
+<b>Et laissez [quelques gerbes] tomber pour elle.</b>  שֹׁל תָּשֹׁלּוּ  =] vous devez oublier ; faites comme si vous oubliiez.</sup>14</sup><i class="footnote">Le double verbe indique que l'action devait être répétée plusieurs fois. </i> Le Targum pour  שְׁגָגָה " [=vue], est  שְׁלוּתָא,<sup>15</sup><i class="footnote">Bamidbar 15:25. </i> et de même, "à cause de cette erreur".</sup>16</sup><i class="footnote">II Chmouel 6:7. </i> Une autre explication [de  שֹׁל תָּשֹׁלּוּ  est "laisser tomber"], une expression [comme dans,] "ton olivier laissera tomber [=  יִשַּׁל  [son fruit].</sup>17</sup><i class="footnote">Devarim 28:40. </i> 
 <b>Les fagots.</b> Petites gerbes, et on trouve une expression similaire dans le langage de la Michna : " [Si] il les a trouvés [les tefillin] attachés en fagots ou en paquets."<sup>18</sup><i class="footnote">Traité Eruvin 10:1. </i> 
 
 ### passuk 17

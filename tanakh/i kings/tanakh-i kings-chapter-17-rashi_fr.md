@@ -31,7 +31,7 @@
 ### passuk 12
 <b>Gâteau.</b> [מעוג signifie] la même chose que עוגה [=gâteau].
 <b>Une poignée.</b> [Targum] Yonathan a rendu : "la paume d'une poignée".
-<b>Dans une bouteille.</b> <i>Bouteille</i>, en ancien français., comme il est dit à propos de Saül, "la fiole d'eau qui était à la tête de [Saül]."<sup>7</sup><i class="footnote">I Shmuel 26:12.</i>
+<b>Dans une bouteille.</b> <i>Bouteille</i>, en ancien français., comme il est dit à propos de Saül, "la fiole d'eau qui était à la tête de [Saül]."<sup>7</sup><i class="footnote">I Chmouel 26:12.</i>
 <b>Nous mourrons.</b> A partir de ce moment-là,<sup>8</sup><i class="footnote">C'est-à-dire parce qu'après l'avoir mangé, il ne nous reste plus rien à manger, donc finalement nous mourrons de faim.</i> nous mourrons de faim.
 
 ### passuk 13

@@ -7,7 +7,7 @@
 <b>La fille d'Anoh, fille de Tzivon.</b> Si elle était la fille d'Anoh, alors elle n'était pas la fille de Tzivon ! [Mais l'explication est] Anoh était le fils de Tzivon, comme il est dit : "Ce sont les fils de Tsivon : Ayoh et Anoh", ce qui nous indique que Tsivon est tombé sur sa belle-fille, la femme d'Anoh, et qu'Ohilovomoh est né des deux. L'Écriture vous informe ainsi qu'ils étaient tous de naissance illégitime. 
 
 ### passuk 3
-<b>Bosmas, la fille de Yishmael.</b> Dans un autre endroit, elle est désignée sous le nom de Machalas. Nous trouvons dans la Aggadah du livre de Shmuel : Il y en a trois dont les péchés sont pardonnés : 1) Un converti lors de sa conversion, 2) celui qui est élevé à une position élevée, et 3) lorsqu'on prend une épouse. La source de ce dernier cas est dérivée d'ici - c'est pour cette raison qu'elle est appelée Machalas car ses [Eisov] péchés ont été pardonnés [נִמְחֲלוּ]. 
+<b>Bosmas, la fille de Yishmael.</b> Dans un autre endroit, elle est désignée sous le nom de Machalas. Nous trouvons dans la Aggadah du livre de Chmouel : Il y en a trois dont les péchés sont pardonnés : 1) Un converti lors de sa conversion, 2) celui qui est élevé à une position élevée, et 3) lorsqu'on prend une épouse. La source de ce dernier cas est dérivée d'ici - c'est pour cette raison qu'elle est appelée Machalas car ses [Eisov] péchés ont été pardonnés [נִמְחֲלוּ]. 
 <b>La sœur de Nevayos.</b> Comme il [Nevayos] l'a mariée à lui [Eisov] après la mort de Yishmael, elle est appelée par son nom. 
 
 ### passuk 4

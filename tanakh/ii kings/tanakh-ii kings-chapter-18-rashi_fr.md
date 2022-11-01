@@ -7,14 +7,14 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
+<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Chmouel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל découle de שכל [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence.-Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies", dans I Shmuel 18:14.</i>.
+<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל découle de שכל [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence.-Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies", dans I Chmouel 18:14.</i>.
 
 ### passuk 8
 
@@ -98,7 +98,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
+<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Chmouel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY
@@ -110,14 +110,14 @@
 ### passuk 3
 
 ### passuk 4
-<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Shmuel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
+<b>Et il l'appela Nechushton.</b> Expression péjorative,</sup>3</sup><i class="footnote">L'ajout de "nun" au mot נחשת sert à rabaisser et à se moquer du sujet. Voir II Chmouel 13:20.</i> comme pour dire : "Pourquoi est-ce nécessaire ?"<sup>4</sup><i class="footnote">Le serpent de cuivre n'a pas été détruit avant maintenant parce qu'on croyait à tort qu'on ne peut pas détruire un objet qui a été fabriqué à la suite d'un ordre divin. Le serpent a été fabriqué à l'origine pour encourager les Bnei Israël à prier Dieu après avoir été mordus par des serpents venimeux. Voir Bamidbar 21:4-10 et Tosfos dans Masehet Chulin 7a. Il est également possible qu'ils aient gardé le serpent de cuivre en souvenir du grand miracle qui s'est produit, tout comme ils ont gardé la jarre de manne, dans Shemos 16:33-35.</i> Ce n'est rien d'autre qu'un serpent de cuivre."<sup>5</sup><i class="footnote">Alternativement, les Bnei Israël qui l'adoraient l'appelaient le Nechushton.-Targum</i>.
 
 ### passuk 5
 
 ### passuk 6
 
 ### passuk 7
-<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל découle de שכל [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence.-Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies", dans I Shmuel 18:14.</i>.
+<b>Il a réussi.</b> Il a réussi.<sup>6</sup><i class="footnote">ישכיל découle de שכל [=intelligence]. Une personne qui réussit est conçue par les autres comme quelqu'un qui agit avec intelligence.-Metzudas David</i> <sup>7</sup><i class="footnote">Comme dans, "David a réussi [=משכיל] dans toutes ses voies", dans I Chmouel 18:14.</i>.
 
 ### passuk 8
 
@@ -201,7 +201,7 @@
 ### passuk 36
 
 ### passuk 37
-<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Shmuel 13:31 et II Melochim 5:7.</i>
+<b>Avec des vêtements déchirés.</b> Parce qu'ils ont entendu des blasphèmes du Nom [de Dieu].</sup>27</sup><i class="footnote">Voir Masehet Sanhedrin 60a. Celui qui entend un autre juif blasphémer Dieu doit déchirer ses vêtements. Le blasphème de Ravshokei était de comparer Dieu aux divinités païennes.-Radak Alternativement, ils déchirent leurs vêtements en raison des terribles nouvelles et menaces qu'ils viennent d'entendre, un événement similaire à II Chmouel 13:31 et II Melochim 5:7.</i>
 
 >Crédit : sefaris
 >Licence : CC-BY

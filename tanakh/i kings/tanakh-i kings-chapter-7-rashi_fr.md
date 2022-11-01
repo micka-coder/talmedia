@@ -173,7 +173,7 @@
 <b>Dans le prolongement du côté droit du Beit Hamikdash.</b> Dans le prolongement du côté sud vers le côté nord. La suite [explique], "קדמה מול נגב" : L'angle nord-est contre l'espace qui se trouve entre le mur nord du Beit Hamikdash et le mur du parvis ; et le mur nord est appelé " ממול נגב ", étendu et éloigné du sud, et מול et ממול ne se traduisent pas de la même façon.<sup>60</sup><i class="footnote">C'est-à-dire, ממול נגב signifie "opposé au sud", qui est le nord.</i>
 
 ### passuk 40
-<b>Et Chirom fit, etc.</b> Et Rebbi dit, que les כיורות sont une seule et même chose que les סירות, comme il est dit, "comme une casserole de feu brûlant du bois,"<sup>61</sup><i class="footnote">Zecharyah 12:6. </i> et de même, "et il le poussa dans la poêle."<sup>62</sup><i class="footnote">I Shmuel 2:14.</i>.
+<b>Et Chirom fit, etc.</b> Et Rebbi dit, que les כיורות sont une seule et même chose que les סירות, comme il est dit, "comme une casserole de feu brûlant du bois,"<sup>61</sup><i class="footnote">Zecharyah 12:6. </i> et de même, "et il le poussa dans la poêle."<sup>62</sup><i class="footnote">I Chmouel 2:14.</i>.
 <b>Les bassines [de lavage].</b> En cuivre, utilisées pour enlever les cendres de l'autel.
 <b>Les râteaux.</b> Des pelles en cuivre que l'on appelle <i>vedil</i>, en allemand, [étaient utilisées] pour ratisser les cendres dans les pots.
 

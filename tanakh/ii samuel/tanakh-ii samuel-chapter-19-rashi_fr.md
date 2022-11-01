@@ -10,7 +10,7 @@
 
 ### passuk 5
 <b>Couvert son visage.</b> [Yononson traduit :] "Couvert son visage" à la manière des personnes en deuil.
-<b>Couvert.</b> Comme on le trouve : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melochim I, 19:13.</i> "Il est enveloppé dans un tissu",<sup>4</sup><i class="footnote">Shmuel I, 21:10.</i>.
+<b>Couvert.</b> Comme on le trouve : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melochim I, 19:13.</i> "Il est enveloppé dans un tissu",<sup>4</sup><i class="footnote">Chmouel I, 21:10.</i>.
 
 ### passuk 6
 
@@ -130,7 +130,7 @@
 
 ### passuk 5
 <b>Couvert son visage.</b> [Yononson traduit :] "Couvert son visage" à la manière des personnes en deuil.
-<b>Couvert.</b> Comme nous le trouvons : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melochim I, 19:13.</i> "Il est enveloppé dans un tissu".<sup>4</sup><i class="footnote">Shmuel I, 21:10.</i>
+<b>Couvert.</b> Comme nous le trouvons : "Il a enveloppé son visage avec son manteau",<sup>3</sup><i class="footnote">Melochim I, 19:13.</i> "Il est enveloppé dans un tissu".<sup>4</sup><i class="footnote">Chmouel I, 21:10.</i>
 
 ### passuk 6
 

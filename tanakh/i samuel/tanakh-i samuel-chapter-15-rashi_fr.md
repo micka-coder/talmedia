@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Maintenant, obéis aux paroles d'Hachem.</b> Autrefois, tu as agi de manière insensée,<sup>1</sup><i class="footnote"> Shaul avait agi de manière inappropriée en n'attendant pas Shmuel [ci-dessus 13:8-14] comme il lui avait été demandé, par conséquent, Shmuel l'avertit maintenant d'être prudent.</i> mais maintenant, sois prudent [dans tes actions].
+<b>Maintenant, obéis aux paroles d'Hachem.</b> Autrefois, tu as agi de manière insensée,<sup>1</sup><i class="footnote"> Shaul avait agi de manière inappropriée en n'attendant pas Chmouel [ci-dessus 13:8-14] comme il lui avait été demandé, par conséquent, Chmouel l'avertit maintenant d'être prudent.</i> mais maintenant, sois prudent [dans tes actions].
 
 ### passuk 2
 
@@ -55,7 +55,7 @@
 ### passuk 20
 
 ### passuk 21
-<b>Le meilleur de ce qui devait être détruit. </b> [<span>רֵאשִׁית</span> signifiant le meilleur des <span>,<sup>20</sup><i class="footnote"> Peut-être que par sa déclaration, Shaoul indiquait à Shmuel qu'ils examinaient les animaux pour s'assurer qu'aucun d'entre eux n'était un sorcier amoleikite qui s'était changé pour prendre l'apparence d'un animal [Voir ci-dessus le verset 2]. -Da'at Sofrim</i></span><span>חֵרֶם</span> et de même, "le meilleur de ton maïs"<sup>21</sup><i class="footnote"> Devarim 18:4. </i> comme il est dit, "lorsque tu en mets de côté la partie la plus fine."<sup>22</sup><i class="footnote"> Bamidbar 18:30.</i> Le Targum Yonathan rend [<span>רֵאשִׁית</span>] "avant qu'ils ne l'interdisent".
+<b>Le meilleur de ce qui devait être détruit. </b> [<span>רֵאשִׁית</span> signifiant le meilleur des <span>,<sup>20</sup><i class="footnote"> Peut-être que par sa déclaration, Shaoul indiquait à Chmouel qu'ils examinaient les animaux pour s'assurer qu'aucun d'entre eux n'était un sorcier amoleikite qui s'était changé pour prendre l'apparence d'un animal [Voir ci-dessus le verset 2]. -Da'at Sofrim</i></span><span>חֵרֶם</span> et de même, "le meilleur de ton maïs"<sup>21</sup><i class="footnote"> Devarim 18:4. </i> comme il est dit, "lorsque tu en mets de côté la partie la plus fine."<sup>22</sup><i class="footnote"> Bamidbar 18:30.</i> Le Targum Yonathan rend [<span>רֵאשִׁית</span>] "avant qu'ils ne l'interdisent".
 
 ### passuk 22
 <b>Voici, obéir</b> à Son commandement vaut mieux qu'une offrande de choix.</sup></sup><i class="footnote">'<span>ה</span> préfère l'accomplissement de Son commandement à l'offre de sacrifices volontaires.</i>
@@ -73,7 +73,7 @@
 ### passuk 26
 
 ### passuk 27
-<b>Et il saisit le coin de sa robe.</b> Selon le sens simple, il semble que lorsque Shmuel se retourna pour quitter Shaoul, ce dernier saisit le coin de la [robe] de Shmuel, puisque Shaoul lui demandait de revenir jusqu'à ce qu'il se prostate à Gilgol, où se trouvait la Tente de la Rencontre. Dans le Midrash Aggadah, cependant, les Amora'im diffèrent ; certains disent que Shaoul a déchiré la robe de Shmuel, et d'autres disent que Shmuel a déchiré la robe de Shaoul,<sup>28</sup><i class="footnote">comme symbole de sa perte de royauté. Une autre version est que Shmuel déchira sa propre robe en signe de consternation.</i> lui remettant ce signe, que celui qui déchirera un coin de sa robe, régnera à sa place. Et c'est ce que Shaoul a dit à David le jour où il a déchiré la robe [de Shaoul] : " Je sais que tu régneras sûrement.'<sup>29</sup><i class="footnote"> Ci-dessous 24:21. Voir le commentaire de Rachi à cet endroit.</i>
+<b>Et il saisit le coin de sa robe.</b> Selon le sens simple, il semble que lorsque Chmouel se retourna pour quitter Shaoul, ce dernier saisit le coin de la [robe] de Chmouel, puisque Shaoul lui demandait de revenir jusqu'à ce qu'il se prostate à Gilgol, où se trouvait la Tente de la Rencontre. Dans le Midrash Aggadah, cependant, les Amora'im diffèrent ; certains disent que Shaoul a déchiré la robe de Chmouel, et d'autres disent que Chmouel a déchiré la robe de Shaoul,<sup>28</sup><i class="footnote">comme symbole de sa perte de royauté. Une autre version est que Chmouel déchira sa propre robe en signe de consternation.</i> lui remettant ce signe, que celui qui déchirera un coin de sa robe, régnera à sa place. Et c'est ce que Shaoul a dit à David le jour où il a déchiré la robe [de Shaoul] : " Je sais que tu régneras sûrement.'<sup>29</sup><i class="footnote"> Ci-dessous 24:21. Voir le commentaire de Rachi à cet endroit.</i>
 
 ### passuk 28
 
@@ -90,7 +90,7 @@
 
 ### passuk 33
 <b>Comme ton épée endeuillant les femmes.</b> Pour les rendre veuves de leurs maris, car tu couperais le membrum viril des jeunes de Israël.</sup>31</sup><i class="footnote"> Voir Rachi Devarim 25:18.</i>
-<b>[Shmuel] coupa.</b> Il le coupa en quatre morceaux. Ce mot n'a pas d'équivalent [dans les Écritures]. Le Targum rend <span>וַיְשַׁסֵּף</span> par <span>וּפָשַׁח</span>. Et dans notre Guemara, nous trouvons : 'il a cassé [<span>מפשח</span>] une branche, et nous a donné plusieurs brindilles'<sup>32</sup><i class="footnote"> Beitzah 33b.</i> ce qui signifie qu'il a fendu.<sup>33</sup><i class="footnote"> Voir le commentaire de Rachi dans Eichah 3:11.</i>.
+<b>[Chmouel] coupa.</b> Il le coupa en quatre morceaux. Ce mot n'a pas d'équivalent [dans les Écritures]. Le Targum rend <span>וַיְשַׁסֵּף</span> par <span>וּפָשַׁח</span>. Et dans notre Guemara, nous trouvons : 'il a cassé [<span>מפשח</span>] une branche, et nous a donné plusieurs brindilles'<sup>32</sup><i class="footnote"> Beitzah 33b.</i> ce qui signifie qu'il a fendu.<sup>33</sup><i class="footnote"> Voir le commentaire de Rachi dans Eichah 3:11.</i>.
 
 >Crédit : sefaris
 >Licence : CC-BY

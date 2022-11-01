@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Et [surtout] la fille de Pharaon.</b> Elle aussi faisait partie des femmes étrangères, mais parce qu'elle était aimée de lui plus que toutes, elle a été comptée à part. <sup>1</sup><i class="footnote">Alternativement, la fille de Pharaon est distinguée parce qu'elle était la cause du début de la chute de Shlomo.-Radak</i> Et de la même manière, "Et il manquait aux serviteurs de David dix-neuf hommes et Asahel."<sup>2</sup><i class="footnote">II Shmuel 2:30.</i>
+<b>Et [surtout] la fille de Pharaon.</b> Elle aussi faisait partie des femmes étrangères, mais parce qu'elle était aimée de lui plus que toutes, elle a été comptée à part. <sup>1</sup><i class="footnote">Alternativement, la fille de Pharaon est distinguée parce qu'elle était la cause du début de la chute de Shlomo.-Radak</i> Et de la même manière, "Et il manquait aux serviteurs de David dix-neuf hommes et Asahel."<sup>2</sup><i class="footnote">II Chmouel 2:30.</i>
 
 ### passuk 2
 
@@ -33,7 +33,7 @@
 
 ### passuk 15
 <b>David était en Edom.</b> Alors Hadad s'enfuit de David et de Yoav.</sup>4</sup><i class="footnote">Après le v. 17.</i>
-<b>Enterrer les morts.</b> Car ils enterraient les tués d'Edom, c'est ce que dit le Livre de Shmuel : " Et David se fit [pour lui-même] un nom lorsqu'il revint de tuer [ceux d'] Edom "<sup>5</sup><i class="footnote">II Shmuel 8:13. Rachi avait apparemment une version du texte différente de la nôtre, qui se lit comme suit : " ... après être revenu de tuer [ceux d'] <i>Aram</i> ". Pour une clarification, voir Tehillim 60:2.</i> car tous le louaient comme une personne pieuse car il enterre ses morts. Et de la même manière, il est dit à propos des guerres de Gog et Magog : "Et ils enterreront tous les habitants du pays, et cela leur apportera la gloire. "<sup>6</sup><i class="footnote">Yechezkeil 39:13.</i> Cependant, [le targum] Yonathan a rendu לקבר את החללים, "dépouiller les morts", [c'est-à-dire, pour enlever leurs vêtements.
+<b>Enterrer les morts.</b> Car ils enterraient les tués d'Edom, c'est ce que dit le Livre de Chmouel : " Et David se fit [pour lui-même] un nom lorsqu'il revint de tuer [ceux d'] Edom "<sup>5</sup><i class="footnote">II Chmouel 8:13. Rachi avait apparemment une version du texte différente de la nôtre, qui se lit comme suit : " ... après être revenu de tuer [ceux d'] <i>Aram</i> ". Pour une clarification, voir Tehillim 60:2.</i> car tous le louaient comme une personne pieuse car il enterre ses morts. Et de la même manière, il est dit à propos des guerres de Gog et Magog : "Et ils enterreront tous les habitants du pays, et cela leur apportera la gloire. "<sup>6</sup><i class="footnote">Yechezkeil 39:13.</i> Cependant, [le targum] Yonathan a rendu לקבר את החללים, "dépouiller les morts", [c'est-à-dire, pour enlever leurs vêtements.
 
 ### passuk 16
 
@@ -53,7 +53,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Et Dieu suscita un rival contre lui [Shlomo].</b> Contre Shlomo. Et c'est ce que Noson le prophète a dit à David, "afin que, lorsqu'il s'égarera, je le châtie avec la verge des hommes."<sup>8</sup><i class="footnote">II Shmuel 7:14. Dieu a envoyé des adversaires contre Shlomo dans le but de l'inciter à se repentir.-Radak</i>.
+<b>Et Dieu suscita un rival contre lui [Shlomo].</b> Contre Shlomo. Et c'est ce que Noson le prophète a dit à David, "afin que, lorsqu'il s'égarera, je le châtie avec la verge des hommes."<sup>8</sup><i class="footnote">II Chmouel 7:14. Dieu a envoyé des adversaires contre Shlomo dans le but de l'inciter à se repentir.-Radak</i>.
 
 ### passuk 24
 

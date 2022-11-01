@@ -104,7 +104,7 @@
 
 ### passuk 47
 <b>The boundary of Bnei Don extended from them.</b> At this point they took only a small portion, but the lot also fell for them in another place which was a distance from their boundary, and thus the other tribes intervened between them.<sup>4</sup><i class="footnote">Others explain the words, וַיֵצֵא גְבוּל בְנֵי־דָן מֵהֶם to mean, “the boundary of the Bnei Don was too small for them,” and they went out to capture the city of Leshem to make room for their population.</i>
-<b>They fought against Leshem.</b> This took place later in the time of Osniel, the son of Kenaz, in the days of the graven image of Michoh, as it is said in the Book of Shoftim.<sup>5</sup><i class="footnote">Shoftim 17:3,4. 18:2. (See Rashi to 17:1.)</i>
+<b>They fought against Leshem.</b> This took place later in the time of Osniel, the son of Kenaz, in the days of the graven image of Michah, as it is said in the Book of Shoftim.<sup>5</sup><i class="footnote">Shoftim 17:3,4. 18:2. (See Rashi to 17:1.)</i>
 <b>Leshem</b> This is the city of Layish, that is mentioned in the Book of Shoftim.<sup>6</sup><i class="footnote">Shoftim 18:7,14.</i>
 
 ### passuk 48

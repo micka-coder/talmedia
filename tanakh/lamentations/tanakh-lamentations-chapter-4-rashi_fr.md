@@ -42,7 +42,7 @@
 <b>De [manger] les produits des champs.</b> A cause des racines et de l'herbe qu'ils ramassaient et mangeaient, leurs excréments augmentaient et ils étaient répugnants. 
 
 ### passuk 10
-<b>Leur nourriture.</b> Pour la nourriture, comme dans, "et il ne mangea pas de בָרָה nourriture avec eux,"<sup>15</sup><i class="footnote">II Shmuel 12:17. </i> [et comme dans] "pour servir un repas à David לְהַבְרוֹת."<sup>16</sup><i class="footnote">Ibid. 3:35. </i> 
+<b>Leur nourriture.</b> Pour la nourriture, comme dans, "et il ne mangea pas de בָרָה nourriture avec eux,"<sup>15</sup><i class="footnote">II Chmouel 12:17. </i> [et comme dans] "pour servir un repas à David לְהַבְרוֹת."<sup>16</sup><i class="footnote">Ibid. 3:35. </i> 
 
 ### passuk 11
 <b>Hachem a dépensé sa colère.</b> Qui brûlait en lui depuis de nombreuses années.</sup>17</sup><i class="footnote">La fureur de Dieu est comparée à un " feu dévorant " comme dans Eichah 2:3 ci-dessus ; voir aussi Devorim 4:24. </i> Il l'a maintenant dépensée lorsqu'il s'est vengé d'eux. 
@@ -69,7 +69,7 @@
 <b>Au fil de l'eau.</b> Nous avons attendu.
 
 ### passuk 18
-<b>Ils étaient tapis derrière nos pas.</b> Nos ennemis traquaient nos pas [et nous empêchaient] de marcher dans nos rues, comme dans, "mais pour celui qui ne s'était pas mis en embuscade צָדָה"<sup>26</sup><i class="footnote">Shemos 21:13. </i> [et comme dans,] "mais tu traques צָדָה mon âme."<sup>27</sup><i class="footnote">I Shmuel 34:12. </i> 
+<b>Ils étaient tapis derrière nos pas.</b> Nos ennemis traquaient nos pas [et nous empêchaient] de marcher dans nos rues, comme dans, "mais pour celui qui ne s'était pas mis en embuscade צָדָה"<sup>26</sup><i class="footnote">Shemos 21:13. </i> [et comme dans,] "mais tu traques צָדָה mon âme."<sup>27</sup><i class="footnote">I Chmouel 34:12. </i> 
 
 ### passuk 19
 

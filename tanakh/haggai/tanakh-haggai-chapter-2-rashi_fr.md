@@ -35,7 +35,7 @@
 ### passuk 12
 <b>Chair contaminée</b> chair de contamination d'une carcasse comme une chose rampante.
 <b>et le potage</b> un aliment cuit.
-<b>"Non."</b> Il [l'aliment] ne sera [pas] contaminé. Rav et Shmuel sont en désaccord sur cette question. L'un [Rav] dit que les prêtres ont commis une erreur, car il [Aggée] les a interrogés au sujet d'une contamination au quatrième degré en référence aux choses sacrées, et ils ont répondu qu'elle [la nourriture] est rituellement pure. L'un [Shmuel] dit que les prêtres ne se sont pas trompés, car il [Aggée] les a interrogés au sujet d'une contamination de cinquième degré en référence aux choses consacrées.
+<b>"Non."</b> Il [l'aliment] ne sera [pas] contaminé. Rav et Chmouel sont en désaccord sur cette question. L'un [Rav] dit que les prêtres ont commis une erreur, car il [Aggée] les a interrogés au sujet d'une contamination au quatrième degré en référence aux choses sacrées, et ils ont répondu qu'elle [la nourriture] est rituellement pure. L'un [Chmouel] dit que les prêtres ne se sont pas trompés, car il [Aggée] les a interrogés au sujet d'une contamination de cinquième degré en référence aux choses consacrées.
 <b>Si elle touche dans sa jupe</b> Elle n'a pas touché la bestiole elle-même mais le vêtement, ce qui constitue le premier degré de contamination.
 <b>Il sera contaminé ?</b> Héb. הֲיִקְדָּשׁ 
 

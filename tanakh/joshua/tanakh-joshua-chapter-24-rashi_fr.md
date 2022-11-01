@@ -39,7 +39,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>Un Dieu saint.</b><sup>6</sup><i class="footnote">Pourquoi ce Nom de Dieu est-il toujours au pluriel אל-הים au lieu de א-ל.</i> Dans la plupart des endroits, chaque expression de souveraineté se retrouve au pluriel, comme par exemple : "le dirigeant du Pays"<sup>7</sup><i class="footnote"> Bereshit 42:30. "Le <i>homme</i> le <i>maître</i> du pays, אַדנֵי הָאָרֶץ nous a parlé." Ici aussi, il aurait fallu écrire אַדוֹן הָאֶָרֶץ au singulier. </i> "le chef de Yoseif,"<sup>8</sup><i class="footnote">Bereishes 39:20.</i> "si son maître est avec lui,"<sup>9</sup><i class="footnote"> Shemos 22:14. Ici aussi il aurait fallu dire אִם בַּעַל עִמוֹ au singulier se référant au propriétaire.</i> que Dieu est allé racheter<sup>10</sup><i class="footnote">II Shmuel 7:23.</i>. La raison en est que ce nom est le nom de la puissance.
+<b>Un Dieu saint.</b><sup>6</sup><i class="footnote">Pourquoi ce Nom de Dieu est-il toujours au pluriel אל-הים au lieu de א-ל.</i> Dans la plupart des endroits, chaque expression de souveraineté se retrouve au pluriel, comme par exemple : "le dirigeant du Pays"<sup>7</sup><i class="footnote"> Bereshit 42:30. "Le <i>homme</i> le <i>maître</i> du pays, אַדנֵי הָאָרֶץ nous a parlé." Ici aussi, il aurait fallu écrire אַדוֹן הָאֶָרֶץ au singulier. </i> "le chef de Yoseif,"<sup>8</sup><i class="footnote">Bereishes 39:20.</i> "si son maître est avec lui,"<sup>9</sup><i class="footnote"> Shemos 22:14. Ici aussi il aurait fallu dire אִם בַּעַל עִמוֹ au singulier se référant au propriétaire.</i> que Dieu est allé racheter<sup>10</sup><i class="footnote">II Chmouel 7:23.</i>. La raison en est que ce nom est le nom de la puissance.
 
 ### passuk 20
 

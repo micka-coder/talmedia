@@ -29,7 +29,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>Ils mangeront des portions égales.</b> Cela enseigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'ils partagent les peaux, et la chair des chèvres expiatoires. Peut-être même dans les offrandes non liées à la fête - par exemple, les offrandes constantes de <i>tamid</i> et de Chabbat <i>musaf</i>, ainsi que les offrandes de dotation et de don ? La Torah enseigne donc, à l'exception de ce que les familles se vendaient [entre elles], à l'exception des matières [incluses] dans l'échange ancestral, à l'époque de David et Shmuel, lorsque les montres étaient établies. Ils échangeaient entre eux - 'Prends ton Chabbat, et je prendrai mon Chabbat'. 
+<b>Ils mangeront des portions égales.</b> Cela enseigne <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> qu'ils partagent les peaux, et la chair des chèvres expiatoires. Peut-être même dans les offrandes non liées à la fête - par exemple, les offrandes constantes de <i>tamid</i> et de Chabbat <i>musaf</i>, ainsi que les offrandes de dotation et de don ? La Torah enseigne donc, à l'exception de ce que les familles se vendaient [entre elles], à l'exception des matières [incluses] dans l'échange ancestral, à l'époque de David et Chmouel, lorsque les montres étaient établies. Ils échangeaient entre eux - 'Prends ton Chabbat, et je prendrai mon Chabbat'. 
 
 ### passuk 9
 <b>N'apprenez pas à perpétrer.</b> "Mais vous pouvez apprendre à comprendre et à instruire. Cela signifie, comprendre à quel point leurs activités sont corrompues, et instruire vos enfants : 'Ne faites pas cela, car c'est la coutume des païens.' 

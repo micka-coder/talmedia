@@ -55,7 +55,7 @@
 ### passuk 18
 
 ### passuk 19
-<b>In the cities of Shomron.</b> For Yeshayohu was king over all Yisroel, of those who returned from the ten tribes through Yirmiyohu.
+<b>In the cities of Shomron.</b> For Yeshayohu was king over all Yisroel, of those who returned from the ten tribes through Yirmiyahu.
 
 ### passuk 20
 
@@ -63,7 +63,7 @@
 
 ### passuk 22
 <b>Such a Pesach sacrifice had not been offered.</b> So many people had not assembled at any Pesach sacrifice as had assembled at this one.<sup>17</sup><i class="footnote">The magnitude of the participation by the vast number of people was unprecedented. Alternatively, since the time of the Judges, the people had never celebrated Pesach so devotedly.—Ralbag</i>
-<b>Since the time of the Judges.</b> ”Since the time of Shmuel,”<sup>18</sup><i class="footnote">II Divrei Hayomim 35:18.</i> In Divrei Hayomim, it is written, because Shmuel, too, led Yisroel to improve their ways,<sup>19</sup><i class="footnote">Alternatively, Shmuel is mentioned because he was the last of the Judges.—Metzudas Dovid</i> and he assembled them to Mitzpoh. Alternatively, such a Pesach had not been offered to God in Yerusholayim, [i.e.,] (but) when the kings of Yisroel and the kings of Yehudah reigned, all Yisroel did not perform a Pesach sacrifice in Yerusholayim, because the kingdom had been divided in two since Yorovom, and they would go to the calf in Beis Eil and in Dan until now, that the ten tribes were exiled, and Yirmiyohu brought them back, and Yoshiyahu reigned over them, and they all came to Yerusholayim.
+<b>Since the time of the Judges.</b> ”Since the time of Shmuel,”<sup>18</sup><i class="footnote">II Divrei Hayomim 35:18.</i> In Divrei Hayomim, it is written, because Shmuel, too, led Yisroel to improve their ways,<sup>19</sup><i class="footnote">Alternatively, Shmuel is mentioned because he was the last of the Judges.—Metzudas Dovid</i> and he assembled them to Mitzpoh. Alternatively, such a Pesach had not been offered to God in Yerusholayim, [i.e.,] (but) when the kings of Yisroel and the kings of Yehudah reigned, all Yisroel did not perform a Pesach sacrifice in Yerusholayim, because the kingdom had been divided in two since Yorovom, and they would go to the calf in Beis Eil and in Dan until now, that the ten tribes were exiled, and Yirmiyahu brought them back, and Yoshiyahu reigned over them, and they all came to Yerusholayim.
 
 ### passuk 23
 

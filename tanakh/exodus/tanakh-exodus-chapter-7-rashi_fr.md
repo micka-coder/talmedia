@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>J'ai fait de toi un dieu pour Pharaon.</b> [אלקים signifie ici] un juge et un fustigateur, pour le fustiger de fléaux et de souffrances. 
-<b>Sera votre porte-parole.</b> [נְבִיאֶךָ est] comme le traduit Onkelos : "votre interprète". De même, partout où [on trouve] le terme נְבוּאָה (prophétie) [il désigne] une personne qui proclame et fait entendre à la nation des paroles d'admonition, et vient de la même racine que נִיב שְׂפָתָיִם [ou] יָנוּב חָכְמָה - " Il profère la sagesse ", [ou] וַיְכַל מֵהִתְנַבּוֹת - " Il a fini de proclamer ", du livre de Shmuel. En ancien français, il est appelé <i>preideor</i> - prédicateur. 
+<b>Sera votre porte-parole.</b> [נְבִיאֶךָ est] comme le traduit Onkelos : "votre interprète". De même, partout où [on trouve] le terme נְבוּאָה (prophétie) [il désigne] une personne qui proclame et fait entendre à la nation des paroles d'admonition, et vient de la même racine que נִיב שְׂפָתָיִם [ou] יָנוּב חָכְמָה - " Il profère la sagesse ", [ou] וַיְכַל מֵהִתְנַבּוֹת - " Il a fini de proclamer ", du livre de Chmouel. En ancien français, il est appelé <i>preideor</i> - prédicateur. 
 
 ### passuk 2
 <b>Tu parleras -</b> une fois, de chaque message tel que tu l'as entendu de Moi et ton frère Aharon l'exprimera avec éloquence et le rendra agréable aux oreilles de Pharaon. 

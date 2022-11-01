@@ -15,7 +15,7 @@
 ### passuk 5
 
 ### passuk 6
-<b>Ainsi.</b> Ainsi sera-t-il [tondre] l'année prochaine.<sup>3</sup><i class="footnote">Voir Rachi dans Bereshit 18:10.</i> Ainsi sera-t-il l'année prochaine, vivant et durable.) Une autre version est : <b>Ainsi pour les vivants.</b> Dis ceci à propos de son repas et de son vin que tu verras : "Ainsi convient-il à un homme vivant, c'est-à-dire actif et estimé", comme dans "...était un homme vivant aux nombreux actes héroïques"<sup>4</sup><i class="footnote">II Shmuel 23:20.</i> [c'est-à-dire] vivant et actif dans tous ses actes.
+<b>Ainsi.</b> Ainsi sera-t-il [tondre] l'année prochaine.<sup>3</sup><i class="footnote">Voir Rachi dans Bereshit 18:10.</i> Ainsi sera-t-il l'année prochaine, vivant et durable.) Une autre version est : <b>Ainsi pour les vivants.</b> Dis ceci à propos de son repas et de son vin que tu verras : "Ainsi convient-il à un homme vivant, c'est-à-dire actif et estimé", comme dans "...était un homme vivant aux nombreux actes héroïques"<sup>4</sup><i class="footnote">II Chmouel 23:20.</i> [c'est-à-dire] vivant et actif dans tous ses actes.
 <b>Qu'il en soit toujours ainsi.</b> Bon et durable.
 <b>Paix à vous...</b> Il en sera ainsi pendant longtemps.</sup>5</sup><i class="footnote">Et pour souligner sa longévité, ils mentionnent <span>שַׁלוֹם</span> [=la paix] trois fois dans leur déclaration.</i>
 
@@ -115,7 +115,7 @@
 <b>Et son coeur s'enfonça en lui.</b> Il était extrêmement contrarié par le cadeau offert à David.</sup>24</sup><i class="footnote">C'est-à-dire à cause de la grande dépense du cadeau de sa femme.-Radak</i>
 
 ### passuk 38
-<b>Après dix jours.</b> Il y avait sept jours de deuil pour Shmuel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Hachem infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
+<b>Après dix jours.</b> Il y avait sept jours de deuil pour Chmouel, aussi le Saint, Béni soit-Il, suspendit sa sentence afin de ne pas faire coïncider le deuil de ce méchant homme avec sa période de deuil. Par la suite, il tomba malade pendant trois jours et mourut, comme il est dit : "Et Hachem infligea le Novol". Un talmudiste avait déclaré que si une personne était malade pendant trois jours et mourait, il s'agissait d'une mort de peste. Cependant, nos rabbins ont déclaré qu'il s'agit des dix jours de repentir que le Saint, Béni soit-Il, a attendu pour qu'il se repente. Mais, certains disent qu'ils correspondent aux dix repas<sup>25</sup><i class="footnote">Voir ci-dessus les versets 5,9, et Maharsha dans Rosh Hashanah 18a.</i> que Novol donna aux serviteurs de David, car David lui avait envoyé dix jeunes, et il les nourrit.
 
 ### passuk 39
 <b>La bataille de ma disgrâce.</b> Mon insulte qu'il m'a faite aujourd'hui [en disant] : 'De nos jours, il y a beaucoup de serviteurs qui se détachent.'<sup>26</sup><i class="footnote">Au-dessus du verset 10.</i>

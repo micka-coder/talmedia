@@ -71,10 +71,10 @@ Une autre explication : <b>Mieux vaut la fin d'une affaire que son début.</b> L
 
 ### passuk 17
 <b>Ne sois pas excessivement méchant.</b> Même si tu as été quelque peu méchant, ne continue pas à agir méchamment. 
-<b>Pourquoi devrais-tu mourir avant ton heure.</b> Comme Shaul l'a fait, comme il est dit : "et Shaul est mort pour ses transgressions qu'il a commises [contre Hachem]"<sup>42</sup><i class="footnote">I Divrei Hayamim 10:13. </i> dans le cas de Nov, la ville des <i>kohanim</i>,<sup>43</sup><i class="footnote">Voir I Shmuel 22:16-19. </i> et dans le cas d'Amoleik.<sup>44</sup><i class="footnote">Voir I Shmuel 15:8-15. </i> 
+<b>Pourquoi devrais-tu mourir avant ton heure.</b> Comme Shaul l'a fait, comme il est dit : "et Shaul est mort pour ses transgressions qu'il a commises [contre Hachem]"<sup>42</sup><i class="footnote">I Divrei Hayamim 10:13. </i> dans le cas de Nov, la ville des <i>kohanim</i>,<sup>43</sup><i class="footnote">Voir I Chmouel 22:16-19. </i> et dans le cas d'Amoleik.<sup>44</sup><i class="footnote">Voir I Chmouel 15:8-15. </i> 
 
 ### passuk 18
-<b>Il est préférable de s'emparer de l'un, etc.</b> Saisir les deux, la justice et la méchanceté. Si le prophète juste t'a dit quelque chose qui te paraît être mauvais, par exemple ce que Shmuel a dit à Shaoul, que tu ne prennes pas à la légère le fait d'en douter. 
+<b>Il est préférable de s'emparer de l'un, etc.</b> Saisir les deux, la justice et la méchanceté. Si le prophète juste t'a dit quelque chose qui te paraît être mauvais, par exemple ce que Chmouel a dit à Shaoul, que tu ne prennes pas à la légère le fait d'en douter. 
 <b>Il s'acquittera de son devoir envers les deux.</b> Les deux, pour préserver les justes et les méchants selon leur règle. 
 
 ### passuk 19
@@ -87,7 +87,7 @@ Une autre explication : <b>Mieux vaut la fin d'une affaire que son début.</b> L
 
 ### passuk 21
 <b>En outre, de toutes les paroles, etc.</b> Parce qu'il parle de Shaoul, qui a accepté la calomnie concernant Nov la ville des <i>kohanim</i>, et à son sujet il est dit : " Ne sois pas excessivement méchant "<sup>51</sup><i class="note de bas de page">Au-dessus, verset 17. </i>, il dit : " En outre, de toutes les paroles qui vous sont dites " par des raconteurs, " ne les prenez pas à cœur ", pour les accepter. 
-<b>De peur d'entendre ton propre serviteur te maudire.</b> Il n'est pas bon que tu inclines ton oreille pour entendre ton serviteur te maudire.</sup>52</sup><i class="footnote">Comme David l'a fait avec Shimi, fils de Geira. Voir II Shmuel 16:5-13. (<i>Sifsei Chachomim</i>) </i> 
+<b>De peur d'entendre ton propre serviteur te maudire.</b> Il n'est pas bon que tu inclines ton oreille pour entendre ton serviteur te maudire.</sup>52</sup><i class="footnote">Comme David l'a fait avec Shimi, fils de Geira. Voir II Chmouel 16:5-13. (<i>Sifsei Chachomim</i>) </i> 
 Une autre explication : <b>Qu'il y ait dix gouvernants.</b> Ce sont les dix choses qui condamnent une personne. Ses deux yeux lui montrent des choses pécheresses, ses deux oreilles qui lui permettent d'entendre des paroles oiseuses, ses deux mains avec lesquelles il vole et pille, ses deux pieds qui le conduisent vers des choses pécheresses, et sa bouche et son cœur. 
 Autre explication : <b>La sagesse donne [plus] de force aux sages.</b> C'est le No'ach. <b>Plus que dix dirigeants.</b> Plus que les dix générations qui l'ont précédé.
 Une autre explication : <b>Au sage.</b> C'est Avraham. <b>Plus de dix dirigeants.</b> Plus que les dix générations qui l'ont précédé. 
@@ -129,7 +129,7 @@ Une autre explication : <Aux sages. C'est Moshe. <b>Than ten rulers.</b> [Les] d
 ### passuk 29
 <b>Voyez, je n'ai trouvé que cela.</b> Et qui a apporté au monde une pierre d'achoppement par elle. 
 <b>Ce que [Dieu] a fait.</b> Le Saint, Béni soit-Il [a créé] Adam parfaitement droit.<sup>69</sup><i class="footnote">Comme Dieu l'a déclaré dans Bereshit 3:22 à propos d'Adam : "Voici que l'homme est devenu comme l'un de nous pour connaître [ce qui est] bon et [ce qui est] mauvais." </i> 
-<b>Mais ils.</b> Lorsque sa femme Chavah fut mise en couple avec lui,</sup>70</sup><i class="footnote">Rashi explique la raison du changement au pluriel ["ils"] alors que le sujet est au singulier ["homme"]. </i> et ils devinrent deux et furent appelés "ils". 
+<b>Mais ils.</b> Lorsque sa femme Hava fut mise en couple avec lui,</sup>70</sup><i class="footnote">Rashi explique la raison du changement au pluriel ["ils"] alors que le sujet est au singulier ["homme"]. </i> et ils devinrent deux et furent appelés "ils". 
 <b>Ils ont élaboré de nombreux stratagèmes.</b> Plans et desseins de péché. C'est ainsi qu'il est expliqué dans le Midrash.
 
 >Crédit : sefaris

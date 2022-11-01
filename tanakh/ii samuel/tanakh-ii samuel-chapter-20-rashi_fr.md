@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Il a invité.</b> Invité Langue comme celle de "Il a invité ses invités."<sup>1</sup><i class="footnote">Tsaphania 1:7.</i> "Avshalom a invité tous les enfants du roi."<sup>2</sup><i class="footnote">Shmuel II, 13:23.</i> Langue dénotant "inviter".
+<b>Il a invité.</b> Invité Langue comme celle de "Il a invité ses invités."<sup>1</sup><i class="footnote">Tsaphania 1:7.</i> "Avshalom a invité tous les enfants du roi."<sup>2</sup><i class="footnote">Chmouel II, 13:23.</i> Langue dénotant "inviter".
 
 ### passuk 2
 
@@ -79,7 +79,7 @@
 >Crédit : sefaris
 >Licence : CC-BY
 ### passuk 1
-<b>Il a invité.</b> Invité Langue comme celle de "Il a invité ses invités."<sup>1</sup><i class="footnote">Tsaphania 1:7.</i> "Avshalom a invité tous les enfants du roi."<sup>2</sup><i class="footnote">Shmuel II, 13:23.</i> Langue dénotant "inviter".
+<b>Il a invité.</b> Invité Langue comme celle de "Il a invité ses invités."<sup>1</sup><i class="footnote">Tsaphania 1:7.</i> "Avshalom a invité tous les enfants du roi."<sup>2</sup><i class="footnote">Chmouel II, 13:23.</i> Langue dénotant "inviter".
 
 ### passuk 2
 
