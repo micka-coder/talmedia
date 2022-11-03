@@ -29,7 +29,7 @@
 
 ### passuk 9
 <b>Il a maudit son père ou sa mère - </b> [la répétition de] cette phrase vient]. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> pour inclure [les maudire] après [la] mort [de l'un ou l'autre].
-<b>Son sang est sur lui -</b> ceci [fait référence à] la lapidation, et de même chaque fois qu'il est dit "son sang est sur lui", "leur sang est sur eux", [cela fait référence à la lapidation]. Et nous l'avons appris de [la punition d'] un אוֹב et יִדְעוֹנִי, à propos desquels il est dit : "Vous les lapiderez à mort, leur sang est sur eux." [Cependant,] le sens clair du verset est similaire à "son sang est sur sa tête", [c'est-à-dire que la responsabilité est la sienne,] personne ne mérite la punition pour sa mort sauf lui-même - il a attiré sur lui qu'il soit exécuté. 
+<b>Son sang est sur lui -</b> ceci [fait référence à] la lapidation, et de même chaque fois qu'il est dit "son sang est sur lui", "leur sang est sur eux", [cela fait référence à la lapidation]. Et nous l'avons appris de [la punition d'] un אוֹב et יִדְעוֹנִי, à propos desquels il est dit : "Vous les lapiderez à mort, leur sang est sur eux." [Cependant,] le sens simple du verset est similaire à "son sang est sur sa tête", [c'est-à-dire que la responsabilité est la sienne,] personne ne mérite la punition pour sa mort sauf lui-même - il a attiré sur lui qu'il soit exécuté. 
 
 ### passuk 10
 <b>Un homme,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>à l'exclusion d'un mineur. 

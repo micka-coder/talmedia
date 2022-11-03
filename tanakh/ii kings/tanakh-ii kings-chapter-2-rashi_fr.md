@@ -60,7 +60,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Les petits garçons.</b> Vide de <i>mitzvos</i>. <sup>21</sup><i class="footnote">Le sens littéral de נְעָרִים קְטַנִּים est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot נְעָרִים peut aussi être interprété comme נְעוּרִים [= secoué ou vide] de bonnes actions. Le mot קטנים [=petite] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Masehet Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée נַעֲרָן, qui est mentionnée dans I Divrei Hayamim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
+<b>Les petits garçons.</b> Vide de <i>Mitsvot</i>. <sup>21</sup><i class="footnote">Le sens littéral de נְעָרִים קְטַנִּים est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot נְעָרִים peut aussi être interprété comme נְעוּרִים [= secoué ou vide] de bonnes actions. Le mot קטנים [=petite] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Masehet Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée נַעֲרָן, qui est mentionnée dans I Divrei Hayamim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
 <b>"Va-t'en, chauve !"</b> "Va-t'en d'ici, car tu as rendu l'endroit chauve pour nous, [c'est-à-dire] car jusqu'à présent on nous engageait pour apporter de l'eau douce de loin, et nous gagnions ainsi notre vie." Mais lorsque [l'eau] est devenue douce, ils ont perdu leur gagne-pain. C'est ainsi qu'il est expliqué dans [Masehet] Sotah.<sup>22</sup><i class="footnote">46b, et voir Rachi à cet endroit.</i>
 
 ### passuk 24
@@ -129,7 +129,7 @@
 ### passuk 22
 
 ### passuk 23
-<b>Les petits garçons.</b> Vide de <i>mitzvos</i>. <sup>21</sup><i class="footnote">Le sens littéral de נְעָרִים קְטַנִּים est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot נְעָרִים peut aussi être interprété comme נְעוּרִים [= secoué ou vide] de bonnes actions. Le mot קטנים [=petite] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Masehet Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée נַעֲרָן, qui est mentionnée dans I Divrei Hayamim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
+<b>Les petits garçons.</b> Vide de <i>Mitsvot</i>. <sup>21</sup><i class="footnote">Le sens littéral de נְעָרִים קְטַנִּים est "petits enfants", mais ce n'est évidemment pas le vrai sens, car Elisée n'aurait jamais maudit de petits enfants. Le mot נְעָרִים peut aussi être interprété comme נְעוּרִים [= secoué ou vide] de bonnes actions. Le mot קטנים [=petite] fait allusion à la petitesse de leur foi. Néanmoins, Élisée a été puni pour les avoir traités si durement. Voir Masehet Sotah 47a. Radak Alternativement, les garçons venaient d'une ville appelée נַעֲרָן, qui est mentionnée dans I Divrei Hayamim 7:28 et dans Yehoshua 16:7. Voir ci-dessous, 5:2.</i>
 <b>"Va-t'en, chauve !"</b> "Va-t'en d'ici, car tu as rendu l'endroit chauve pour nous, [c'est-à-dire] car jusqu'à présent on nous engageait pour apporter de l'eau douce de loin, et nous gagnions ainsi notre vie." Mais lorsque [l'eau] est devenue douce, ils ont perdu leur gagne-pain. C'est ainsi qu'il est expliqué dans [Masehet] Sotah.<sup>22</sup><i class="footnote">46b, et voir Rachi à cet endroit.</i>
 
 ### passuk 24

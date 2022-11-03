@@ -71,7 +71,7 @@
 <b>Un son de chant.</b> C'est-à-dire un son de diffamations et de blasphèmes ( הַמְּעַנִּין ) qui tourmentent l'âme de ceux qui les entendent lorsqu'ils sont en rapport avec lui. 
 
 ### passuk 19
-<b>Et il jeta de ses mains, etc.</b> Il se dit : De même que le <i>korbon Pessah,</i> qui n'est qu'un des <i>mitzvos</i> [de la Torah], la Torah dit pourtant : "Aucun étranger ne peut en manger" ; mais toute la Torah est ici [sur les Tablettes] et tous les Israélites sont devenus apostats, comment puis-je concevoir de la leur donner ? ! 
+<b>Et il jeta de ses mains, etc.</b> Il se dit : De même que le <i>korbon Pessah,</i> qui n'est qu'un des <i>Mitsvot</i> [de la Torah], la Torah dit pourtant : "Aucun étranger ne peut en manger" ; mais toute la Torah est ici [sur les Tablettes] et tous les Israélites sont devenus apostats, comment puis-je concevoir de la leur donner ? ! 
 <b>Sous la montagne.</b> [C'est-à-dire] au pied de la montagne. 
 
 ### passuk 20

@@ -2,7 +2,7 @@
 ### passuk 1
 
 ### passuk 2
-<b>"Qu'est-ce que c'est dans ta main ?"</b> [מַה זֶה] est écrit en un seul mot afin de pouvoir l'expliquer : "De ce qui est dans ta main, tu mérites d'être puni, car tu t'es méfié des justes". Le sens clair est celui d'une personne qui dit à son ami : "Es-tu d'accord que l'objet qui est devant toi est une pierre ?". "Oui", répond-il. "Eh bien, regarde comme je la transforme en bois." 
+<b>"Qu'est-ce que c'est dans ta main ?"</b> [מַה זֶה] est écrit en un seul mot afin de pouvoir l'expliquer : "De ce qui est dans ta main, tu mérites d'être puni, car tu t'es méfié des justes". Le sens simple est celui d'une personne qui dit à son ami : "Es-tu d'accord que l'objet qui est devant toi est une pierre ?". "Oui", répond-il. "Eh bien, regarde comme je la transforme en bois." 
 
 ### passuk 3
 <b>Et elle se transforma en serpent.</b> Il lui indiqua qu'il avait tenu des propos calomnieux à l'égard d'Israël, lorsqu'il avait dit : " Ils ne me croiront pas ", et il assuma donc pour lui-même l'occupation du serpent. 

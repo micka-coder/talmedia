@@ -3,7 +3,7 @@
 <b>Toute la mitsva.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela peut être compris dans son sens ordinaire. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il existe également une explication midrashique : Si tu as commencé à accomplir une <i>mitzvah,</i> achève-la ; car la <i>mitzvah</i> ne porte que le nom [elle n'est accréditée] de celui qui l'achève, comme il est dit : " Et les ossements de Yosseïf que les Bnei Israël ont fait remonter d'Égypte, ils les ont enterrés à Sichem. " Or, Moshé lui-même ne s'est-il pas occupé d'eux [des ossements] pour les faire remonter [d'Égypte] ? Cependant, puisqu'il n'a pas eu l'occasion de l'achever, et que les Bnei Israël l'ont achevé, il est appelé par leur nom. 
 
 ### passuk 2
-<b>Vous garderez Ses mitzvos -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour ne pas le tester et ne pas le critiquer.
+<b>Vous garderez Ses Mitsvot -</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour ne pas le tester et ne pas le critiquer.
 
 ### passuk 3
 

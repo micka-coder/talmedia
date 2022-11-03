@@ -54,7 +54,7 @@
 <b>A la place de son fils.</b> Une fois écrit : "Et l'a sacrifié en holocauste", le verset ne manque de rien. Alors pourquoi [est-il précisé] "à la place de son fils" ? [C'est parce que] pour chaque service dont il [Avraham] s'acquittait, il priait et disait : "Que ce soit la volonté [de Dieu] que cet [acte] soit considéré comme s'il était fait à mon fils ; comme si mon fils était égorgé, comme si son sang était aspergé, comme si mon fils était écorché, comme s'il était brûlé et réduit en cendres". 
 
 ### passuk 14
-<b>Hachem verra.</b> Le sens clair est celui que traduit Onkelos : Dieu choisira et sélectionnera ce lieu pour y faire reposer sa Sainte Présence et pour y offrir des sacrifices. 
+<b>Hachem verra.</b> Le sens simple est celui que traduit Onkelos : Dieu choisira et sélectionnera ce lieu pour y faire reposer sa Sainte Présence et pour y offrir des sacrifices. 
 <b>Comme on le dit [à] ce jour.</b> Que les générations futures diront à son sujet : "Sur cette montagne, Dieu se révèle à sa nation." 
 <b>[A] ce jour.</b> [C'est-à-dire] les jours futurs, comme dans "jusqu'à ce jour" qui apparaît partout dans l'Écriture. Car toutes les générations futures qui liront ce verset diront "jusqu'à ce jour", en se référant au jour où elles existent. L'explication midrashique est la suivante : Dieu verra [se souviendra] de cette <i>akeidah</i> afin qu'Il puisse pardonner à Israël chaque année et le sauver du châtiment. Ainsi, on pourra dire : " En ce jour " - dans toutes les générations futures - sur la montagne de Dieu, on verra les cendres de Yitshak amoncelées et debout dans le but d'expiation. " 
 

@@ -48,7 +48,7 @@
 <b>Fixé.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Le mot désigne l'attachement en arabe. De même, "J'ai été joint par des liens divins"- J'ai été joint à ma sœur. 
 
 ### passuk 16
-<b>Dans un champ ouvert.</b> Les rabbins extrapolent, cela inclut <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le "<i>gollel</i>" et le "<i>dofek.</i>". Son sens clair est que dans le champ ouvert, où il n'y a pas de tente, le cadavre transmet la souillure par le toucher. 
+<b>Dans un champ ouvert.</b> Les rabbins extrapolent, cela inclut <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>le "<i>gollel</i>" et le "<i>dofek.</i>". Son sens simple est que dans le champ ouvert, où il n'y a pas de tente, le cadavre transmet la souillure par le toucher. 
 
 ### passuk 17
 

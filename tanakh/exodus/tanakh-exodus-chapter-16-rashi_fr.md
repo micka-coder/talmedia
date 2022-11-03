@@ -10,7 +10,7 @@
 
 ### passuk 4
 <b>Quantité suffisante pour chaque jour.</b> Les besoins en nourriture pour la journée, ils devront les rassembler le <i>ce jour-là</i>. Ils ne peuvent pas ramasser aujourd'hui pour les besoins de demain.
-<b>Afin de les mettre à l'épreuve [pour voir] s'ils marcheront [dans la voie de] Mon enseignement.</b> S'ils garderont les <i>mitzvos</i> qui s'y rapportent [à savoir] de ne pas en laisser [pendant la nuit] et de ne pas sortir le Chabbat pour les ramasser. 
+<b>Afin de les mettre à l'épreuve [pour voir] s'ils marcheront [dans la voie de] Mon enseignement.</b> S'ils garderont les <i>Mitsvot</i> qui s'y rapportent [à savoir] de ne pas en laisser [pendant la nuit] et de ne pas sortir le Chabbat pour les ramasser. 
 
 ### passuk 5
 <b>Ce sera deux fois plus.</b> Pour aujourd'hui et pour demain.

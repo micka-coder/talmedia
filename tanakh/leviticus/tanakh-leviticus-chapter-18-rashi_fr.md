@@ -16,7 +16,7 @@
 
 ### passuk 5
 <b>Vous observerez Mes lois, etc.</b> [Cela vient] inclure <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>d'autres subdivisions [de ces lois] que la Torah n'a pas détaillées. Autre interprétation : elle prévoit <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> le maintien et l'accomplissement des statuts et le maintien et l'accomplissement des lois, car [jusqu'à présent, la Torah] ne prévoyait que "l'accomplissement" pour les lois, et "le maintien" pour les statuts. 
-<b>Il vivra à travers elles,</b> dans le Monde à venir, car si vous dites [que cela se réfère] à ce monde, ne finira-t-il pas par mourir [même s'il garde les <i>mitzvos</i>] ? 
+<b>Il vivra à travers elles,</b> dans le Monde à venir, car si vous dites [que cela se réfère] à ce monde, ne finira-t-il pas par mourir [même s'il garde les <i>Mitsvot</i>] ? 
 <b>Je suis Hachem,</b> fidèle à donner une récompense [à ceux qui la méritent]. 
 
 ### passuk 6

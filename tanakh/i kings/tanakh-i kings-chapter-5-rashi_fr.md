@@ -24,7 +24,7 @@
 ### passuk 9
 
 ### passuk 10
-<b>Que la sagesse de tout le peuple oriental.</b> Quelle était la sagesse des enfants de l'Orient ? Ils étaient savants dans le domaine de l'astronomie, etc. comme il est [indiqué] dans la Pesikta de Parah Adumah, et tout ce chapitre y est exposé selon son sens clair.
+<b>Que la sagesse de tout le peuple oriental.</b> Quelle était la sagesse des enfants de l'Orient ? Ils étaient savants dans le domaine de l'astronomie, etc. comme il est [indiqué] dans la Pesikta de Parah Adumah, et tout ce chapitre y est exposé selon son sens simple.
 
 ### passuk 11
 <b>Il était plus sage que n'importe quel homme.</b> [A comprendre] selon son sens ordinaire.</sup>4</sup><i class="footnote">Alternativement, "il a acquis la sagesse de tout homme", comme le dit la Mishma dans Avos 4:1, "Qui est sage ? Celui qui apprend de chaque homme."</i>

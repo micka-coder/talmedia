@@ -22,7 +22,7 @@
 ### passuk 7
 
 ### passuk 8
-<b>À cause de cela.</b> "Parce que j'accomplirai Ses <i>mitzvos,</i> tels que ceux-ci : <i>Pesach, Matzo,</i> et <i>Maror</i>. 
+<b>À cause de cela.</b> "Parce que j'accomplirai Ses <i>Mitsvot,</i> tels que ceux-ci : <i>Pesach, Matzo,</i> et <i>Maror</i>. 
 <b>Hachem a fait [cela] pour moi.</b> Il s'agit d'une allusion à une réponse au mauvais fils, disant : " Hachem a fait cela pour <i>moi</i> " - " pour <i>moi</i>, mais pas pour toi, car si tu avais été là [en Égypte], tu n'aurais pas été digne d'être racheté ". 
 
 ### passuk 9

@@ -1,6 +1,6 @@
 
 ### passuk 1
-<b>Sur le mont Sinaï.</b> Qu'est-ce que l'affaire de l'année sabbatique [a à voir] avec le mont Sinaï ? Toutes les <i>mitzvos</i> n'ont-elles pas été dites au Sinaï ? Plutôt, [cela vient enseigner que] de même que <i>shemittoh</i> ses règles générales, ses détails, et ses spécifications ont été dits au Sinaï, ainsi [aussi] tous (les <i>mitzvos</i>) [y compris] leurs règles générales et leurs spécifications. ont été dits au Sinaï, Ainsi est-il enseigné dans <i>Toras Kohanim</i>. Et il me semble que telle est son explication : Puisque nous ne trouvons pas que la terre <i>shemittoh</i> a été répétée dans les plaines de Moab dans le <i>Sefer Devorim</i>, nous avons appris que ses règles générales et ses détails - tous - ont été dits au Sinaï. Et le verset vient [nous] enseigner ici que chaque énoncé qui a été prophétiquement dit à Moshé, que tous étaient du Sinaï - leurs règles générales et leurs spécifications - et qu'ils ont été répétés aux Plaines de Moab. 
+<b>Sur le mont Sinaï.</b> Qu'est-ce que l'affaire de l'année sabbatique [a à voir] avec le mont Sinaï ? Toutes les <i>Mitsvot</i> n'ont-elles pas été dites au Sinaï ? Plutôt, [cela vient enseigner que] de même que <i>shemittoh</i> ses règles générales, ses détails, et ses spécifications ont été dits au Sinaï, ainsi [aussi] tous (les <i>Mitsvot</i>) [y compris] leurs règles générales et leurs spécifications. ont été dits au Sinaï, Ainsi est-il enseigné dans <i>Toras Kohanim</i>. Et il me semble que telle est son explication : Puisque nous ne trouvons pas que la terre <i>shemittoh</i> a été répétée dans les plaines de Moab dans le <i>Sefer Devorim</i>, nous avons appris que ses règles générales et ses détails - tous - ont été dits au Sinaï. Et le verset vient [nous] enseigner ici que chaque énoncé qui a été prophétiquement dit à Moshé, que tous étaient du Sinaï - leurs règles générales et leurs spécifications - et qu'ils ont été répétés aux Plaines de Moab. 
 
 ### passuk 2
 <b>Un Shabbat pour Hachem,</b> pour l'amour de Dieu, comme il a été dit concernant le Shabbat de la création. 
@@ -28,7 +28,7 @@
 
 ### passuk 8
 <b>Années sabbatiques,</b> sept périodes d'années sabbatiques. Peut-être déclarera-t-il sept années consécutives [comme] années sabbatiques, et déclarera-t-il le jubilé après elles ? Le verset dit : <b>Sept années sept fois -</b> dites : chaque <i>shemittoh</i> [vient] en son temps.
-<b>Et ce seront pour vous les jours des sept [sabbats d'années], etc.</b> [Ce verset] vous dit que même si vous ne déclariez pas d'années sabbatiques, déclarez le jubilé au bout de quarante-neuf ans. Et le sens clair du verset est : Que le nombre de cycles sabbatiques soit égal au nombre quarante-neuf. 
+<b>Et ce seront pour vous les jours des sept [sabbats d'années], etc.</b> [Ce verset] vous dit que même si vous ne déclariez pas d'années sabbatiques, déclarez le jubilé au bout de quarante-neuf ans. Et le sens simple du verset est : Que le nombre de cycles sabbatiques soit égal au nombre quarante-neuf. 
 
 ### passuk 9
 <b>Vous ferez une proclamation,</b> une expression [similaire à celle de] "ils ont proclamé dans tout le campement", une expression de "proclamer".
@@ -147,8 +147,8 @@
 ### passuk 37
 
 ### passuk 38
-<b>Qui t'a fait sortir.</b> Et [là] j'ai fait la distinction entre un premier-né et celui qui n'était pas premier-né, ainsi [aussi] je sais et j'exigerai le châtiment de celui qui prête de l'argent à un Israélite avec intérêt et prétend qu'il appartient à un non-Juif. Autre interprétation : Depuis que Je vous ai fait sortir du pays d'Égypte - afin que vous acceptiez Mes <i>mitzvos</i> sur vous-mêmes, même si elles sont difficiles pour vous. 
-<b>Pour vous donner le pays de Canaan,</b> comme récompense pour avoir accepté Mes <i>mitzvos</i>. 
+<b>Qui t'a fait sortir.</b> Et [là] j'ai fait la distinction entre un premier-né et celui qui n'était pas premier-né, ainsi [aussi] je sais et j'exigerai le châtiment de celui qui prête de l'argent à un Israélite avec intérêt et prétend qu'il appartient à un non-Juif. Autre interprétation : Depuis que Je vous ai fait sortir du pays d'Égypte - afin que vous acceptiez Mes <i>Mitsvot</i> sur vous-mêmes, même si elles sont difficiles pour vous. 
+<b>Pour vous donner le pays de Canaan,</b> comme récompense pour avoir accepté Mes <i>Mitsvot</i>. 
 <b>Pour être un Dieu pour vous.</b> Car quiconque habite le pays d'Israël - Je suis un Dieu pour lui ; [mais] quiconque s'en éloigne, est comme celui qui adore les idoles. 
 
 ### passuk 39

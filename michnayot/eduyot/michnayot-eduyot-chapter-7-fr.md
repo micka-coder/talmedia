@@ -9,7 +9,7 @@ Rabbi Zadok a témoigné au sujet de la saumure de sauterelles impures qu'elle e
 Rabbi Zadok a témoigné au sujet de l'eau qui coule et qui dépasse en quantité l'eau qui coule, qu'elle était valide. Un tel cas s'est produit à Birath Hapilya, et lorsque le cas est venu devant les Sages, ils l'ont déclaré valide.
 
 ### michna 4
-Rabbi Zadok a témoigné au sujet de l'eau courante que l'on a fait couler dans un ruisseau à travers des feuilles de noisettes, qu'elle était valide. Il y eut un tel cas à Ahaliyya, et lorsque le cas fut présenté devant [les Sages dans] la Chambre de la pierre taillée, ils le déclarèrent valide.
+Rabbi Zadok a témoigné au sujet de l'eau vive que l'on a fait couler dans un ruisseau à travers des feuilles de noisettes, qu'elle était valide. Il y eut un tel cas à Ahaliyya, et lorsque le cas fut présenté devant [les Sages dans] la Chambre de la pierre taillée, ils le déclarèrent valide.
 
 ### michna 5
 Rabbi Joshua et Rabbi Yakim, un homme de Hadar, ont témoigné au sujet d'une jarre de cendres d'une vache rousse qui a été mise sur un reptile, qu'ils étaient impurs. Alors que Rabbi Eliezer les avait déclarées pures. Rabbi Papias témoigna au sujet de quelqu'un qui avait fait vœu de deux naziréats, que s'il se coupait les cheveux après le premier le trentième jour, il pouvait se couper les cheveux après le second le soixantième jour ; et s'il se coupait les cheveux le cinquante-neuvième jour, il avait aussi accompli son devoir, car le trentième jour compte pour le nombre requis.

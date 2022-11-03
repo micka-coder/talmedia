@@ -5,7 +5,7 @@
 ### passuk 2
 <b>Hachem a parlé à Moshé : Parle à ton frère Aharon pour qu'il ne vienne pas,</b> pour qu'il ne meure pas de [la même] manière que ses fils sont morts. 
 <b>Qu'il ne meure pas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que s'il entre [sans le rituel approprié], il meurt. 
-<b>Parce que dans une nuée J'apparaîtrai sur le couvercle de l'Arche.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que J'y apparaîtrai constamment avec Ma colonne de nuée ; et parce que la révélation de Ma <i>Shechinah</i> s'y trouve, il doit veiller à ne pas s'habituer à y entrer - tel est le sens clair [du verset]. Et son sens midrashique : Il ne doit pas venir <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sauf avec le nuage d'encens à Yom Kippour. 
+<b>Parce que dans une nuée J'apparaîtrai sur le couvercle de l'Arche.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Parce que J'y apparaîtrai constamment avec Ma colonne de nuée ; et parce que la révélation de Ma <i>Shechinah</i> s'y trouve, il doit veiller à ne pas s'habituer à y entrer - tel est le sens simple [du verset]. Et son sens midrashique : Il ne doit pas venir <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>sauf avec le nuage d'encens à Yom Kippour. 
 
 ### passuk 3
 <b>Avec ceci.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Son <i>gematria</i> est de 410, une allusion au [temps de station debout] du Premier Temple. 

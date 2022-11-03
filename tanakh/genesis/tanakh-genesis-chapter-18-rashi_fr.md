@@ -30,7 +30,7 @@
 
 ### passuk 7
 <b>Un veau tendre et de choix.</b> Il y avait trois veaux pour qu'il puisse les nourrir de trois langues ensemble avec de la moutarde. 
-<b>Au jeune garçon.</b> Il s'agit de Yishmael, pour le former à l'accomplissement des mitzvos. 
+<b>Au jeune garçon.</b> Il s'agit de Yishmael, pour le former à l'accomplissement des Mitsvot. 
 
 ### passuk 8
 <b>Il a pris du beurre, etc.</b> Mais, le pain, il ne l'a pas apporté car Sarah a commencé à avoir ses règles car ce jour-là, le cycle menstruel est revenu chez Sarah et la pâte est devenue rituellement impure. 

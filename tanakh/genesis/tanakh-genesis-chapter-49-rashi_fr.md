@@ -14,7 +14,7 @@
 <b>Instable comme l'eau.</b> L'impétuosité et l'instabilité lorsque tu t'es empressé de montrer ta colère tout comme ces eaux qui se précipitent dans leur débit. Par conséquent :
 <b>Vous ne serez plus supérieur.</b> Vous ne recevrez plus ces privilèges qui vous revenaient de droit. Et où s'est manifestée votre instabilité ?
 <b>Parce que tu es monté sur le lit de ton père Tu as profané...</b> Celui qui planait sur mon lit, le Nom de la <i>Shechinah</i> qui planait régulièrement au-dessus de mon lit. 
-<b>Instable.</b> [פַּחַז] est un nom. Par conséquent, son accent est sur la première syllabe et est entièrement vocalisé avec un <i>patach.</i> S'il s'agissait [d'un verbe] au passé, il serait vocalisé pour moitié par un <i>kametz</i> et pour moitié par un <i>pasach</i> [c'est-à-dire פָּחַז] et son accent sur la dernière syllabe. 
+<b>Instable.</b> [פַּחַז] est un nom. Par conséquent, son accent est sur la première syllabe et est entièrement vocalisé avec un <i>patach.</i> S'il s'agissait [d'un verbe] au passé, il serait vocalisé pour moitié par un <i>kametz</i> et pour moitié par un <i>patah</i> [c'est-à-dire פָּחַז] et son accent sur la dernière syllabe. 
 <b>Mon canapé.</b> יְצוּעַ signifie un canapé car il est étalé [racine : יצע] avec des matelas et des draps. Les exemples sont nombreux : "Je ne monterai pas non plus sur un lit étalé pour moi". "Quand je me souviendrai de toi sur mon lit."
 
 ### passuk 5

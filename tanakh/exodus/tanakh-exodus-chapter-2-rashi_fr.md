@@ -19,7 +19,7 @@
 <b>Sa servante.</b> [Signification :] sa servante. Mais les Sages l'ont expliqué par "main". Cependant, selon la grammaire hébraïque, אֲמָתָה aurait alors dû être vocalisé avec un <i>dagesh</i> dans le <i>mème.</i> Ils expliquent אֶת אֲמָתָה comme "son bras", et son bras s'étendait sur plusieurs coudées. 
 
 ### passuk 6
-<b>Elle l'ouvrit et vit [l'enfant].</b> Qui vit-elle ? L'enfant ! C'est le sens clair. Mais, l'explication midrashique est qu'elle a vu la Présence Divine avec lui. 
+<b>Elle l'ouvrit et vit [l'enfant].</b> Qui vit-elle ? L'enfant ! C'est le sens simple. Mais, l'explication midrashique est qu'elle a vu la Présence Divine avec lui. 
 <b>Et voici qu'un garçon pleurait.</b> Sa voix était comme celle d'un garçon [adulte].
 
 ### passuk 7

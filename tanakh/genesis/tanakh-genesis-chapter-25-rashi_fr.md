@@ -95,7 +95,7 @@
 
 ### passuk 27
 <b>Les garçons grandirent-Eisov devint.</b> Tant qu'ils étaient petits, ils étaient indiscernables par leurs actes et personne ne pouvait connaître leur caractère exact. Une fois qu'ils ont eu treize ans, l'un [Yaakov] a pris le chemin des maisons d'étude et l'autre celui de l'adoration des idoles. 
-<b>Un trappeur habile.</b> [C'est-à-dire] comment piéger et tromper son père avec sa bouche, et il lui demandait : "Père, comment donne-t-on la dîme du sel et du foin ?" Son père penserait ainsi qu'il observe méticuleusement les mitzvos. 
+<b>Un trappeur habile.</b> [C'est-à-dire] comment piéger et tromper son père avec sa bouche, et il lui demandait : "Père, comment donne-t-on la dîme du sel et du foin ?" Son père penserait ainsi qu'il observe méticuleusement les Mitsvot. 
 <b>Un homme des champs.</b> Il faut l'expliquer littéralement : Un homme sans occupation - qui utilise son arc pour capturer des animaux et des oiseaux.
 <b>Salubre.</b> [Signification :] celui qui n'est pas un expert dans toutes ces [matières], comme son cœur l'est, sa bouche l'est aussi. Celui qui n'est pas rusé pour tromper est désigné par le terme תָם . 
 <b>Vivre dans des tentes.</b> [Se référant à :] la tente de Sheim et la tente de Eiver.

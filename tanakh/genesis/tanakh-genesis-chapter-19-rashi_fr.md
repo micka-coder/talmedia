@@ -44,7 +44,7 @@
 <b>Jeunes et vieux pareils.</b> Les jeunes ont été les premiers dans cette faute comme il est écrit "Jeunes et vieux pareils", c'est donc par eux que le châtiment a commencé. 
 
 ### passuk 12
-<b>Qui d'autre as-tu ici ?</b> Le sens clair de ce verset est : "Qui d'autre as-tu dans cette ville en plus de ta femme et de tes filles dans cette maison ?".
+<b>Qui d'autre as-tu ici ?</b> Le sens simple de ce verset est : "Qui d'autre as-tu dans cette ville en plus de ta femme et de tes filles dans cette maison ?".
 <b>Un gendre, tes fils, tes filles.</b> [Signification :] "Si tu as un gendre ou des fils et des filles, éloigne-les de cet endroit. 
 <b>Vos fils.</b> [Signification :] les fils de votre fille mariée. L'explication aggadique du mot עֹד [est] : "Puisqu'ils font une chose aussi odieuse, pouvez-vous encore avoir une base pour les défendre ?". Car, toute la nuit, il [Loth] les a justifiés. Il faut lire מִי לְךָ פֶּה . 
 

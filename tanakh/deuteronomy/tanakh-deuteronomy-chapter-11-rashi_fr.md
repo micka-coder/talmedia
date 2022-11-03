@@ -67,7 +67,7 @@
 <b>Swiftly.</b> Je ne vous permettrai aucune prolongation. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais on peut se demander si une prolongation n'a pas été accordée à la génération du déluge, comme il est dit : "Ses jours seront de cent vingt ans" ? La génération du déluge <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> n'avait personne de qui apprendre. Vous, cependant, avez quelqu'un de qui apprendre. 
 
 ### passuk 18
-<b>Tu placeras ces paroles de Moi.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Même après votre exil, vous devez vous distinguer en accomplissant des <i>mitzvos.</i> Mettez en place les <i>tefilin</i> et apposez les <i>mezuzos,</i> afin qu'ils ne paraissent pas nouveaux à votre retour. De même, il est dit : "Établissez des marques de distinction pour vous-même." 
+<b>Tu placeras ces paroles de Moi.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Même après votre exil, vous devez vous distinguer en accomplissant des <i>Mitsvot.</i> Mettez en place les <i>tefilin</i> et apposez les <i>mezuzos,</i> afin qu'ils ne paraissent pas nouveaux à votre retour. De même, il est dit : "Établissez des marques de distinction pour vous-même." 
 
 ### passuk 19
 <b>Pour parler en eux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Dès que le fils est capable de parler, on lui enseigne "Torah, Moshé nous a ordonné", afin que cela développe sa parole. D'ici, il est dit que, lorsqu'un nourrisson commence à parler, son père doit converser avec lui dans la langue sacrée, et lui enseigner la Torah. S'il ne le fait pas, c'est comme s'il l'avait enterré, car il est dit : "Apprends à tes fils à parler en eux, etc.". 

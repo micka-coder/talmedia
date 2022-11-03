@@ -90,7 +90,7 @@
 <b>Seulement, comme le cerf, etc, on peut les manger.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> On ne vous recommande pas de les manger dans la pureté rituelle. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Peut-être que, de même que la graisse du cerf et de la gazelle est permise, celle de l'animal non sacrifié l'est aussi ? La Torah enseigne donc : "seulement". 
 
 ### passuk 23
-<b>Seulement exercer sa force en ne mangeant pas le sang.</b> De l'énoncé "exercer sa force", on apprend qu'ils se vautraient dans la consommation du sang. Il était donc nécessaire de dire "exercer la force". C'est l'opinion de R'Yehudah. R' Shimon ben Azai dit : L'Écriture ne fait que vous admonester et vous enseigner dans quelle mesure <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> vous devez exercer votre force avec <i>mitzvos.</i> Si le sang, qui est facilement évité, car l'homme n'en a pas envie, il est pourtant nécessaire de vous renforcer en vous admonestant contre lui ; alors certainement les autres commandements . 
+<b>Seulement exercer sa force en ne mangeant pas le sang.</b> De l'énoncé "exercer sa force", on apprend qu'ils se vautraient dans la consommation du sang. Il était donc nécessaire de dire "exercer la force". C'est l'opinion de R'Yehudah. R' Shimon ben Azai dit : L'Écriture ne fait que vous admonester et vous enseigner dans quelle mesure <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> vous devez exercer votre force avec <i>Mitsvot.</i> Si le sang, qui est facilement évité, car l'homme n'en a pas envie, il est pourtant nécessaire de vous renforcer en vous admonestant contre lui ; alors certainement les autres commandements . 
 <b>Ne pas manger l'esprit avec la viande.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela interdit le membre d'un animal vivant.
 
 ### passuk 24
@@ -98,7 +98,7 @@
 
 ### passuk 25
 <b>Ne le mangez pas.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Cela interdit le sang absorbé dans les membres.
-<b>Afin que tu puisses jouir de la bienfaisance, etc.</b> Vas-y, apprends la récompense des <i>mitzvos.</i> Prends le sang, qu'un homme trouve répugnant ; pourtant, celui qui s'en abstient acquiert du mérite pour lui et ses enfants après lui. Certainement avec le larcin et la promiscuité, dont un homme a envie. 
+<b>Afin que tu puisses jouir de la bienfaisance, etc.</b> Vas-y, apprends la récompense des <i>Mitsvot.</i> Prends le sang, qu'un homme trouve répugnant ; pourtant, celui qui s'en abstient acquiert du mérite pour lui et ses enfants après lui. Certainement avec le larcin et la promiscuité, dont un homme a envie. 
 
 ### passuk 26
 <b>Cependant, vos offrandes sacrées.</b> Bien que vous puissiez abattre des animaux non sacrifiés, je ne vous ai pas permis d'abattre des offrandes sacrificielles et de les manger dans vos villes sans les offrir. Au contraire, apportez-les au Sanctuaire choisi. 

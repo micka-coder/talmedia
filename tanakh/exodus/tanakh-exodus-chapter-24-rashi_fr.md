@@ -8,10 +8,10 @@
 ### passuk 3
 <b>Moshé est venu et a dit au peuple -</b> ce même jour.
 <b>Toutes les paroles d'Hachem.</b> [C'est-à-dire] l'ordre de se séparer [de leurs femmes] et l'établissement des frontières [au mont Sinaï].
-<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>mitzvos</i> données aux descendants de Noach [ainsi que les <i>mitzvos</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
+<b>Et toutes les lois.</b> [C'est-à-dire] les sept <i>Mitsvot</i> données aux descendants de Noach [ainsi que les <i>Mitsvot</i> de :] Chabbat, honorer ses parents, la génisse rouge et administrer la justice qui leur ont été données à Marah. 
 
 ### passuk 4
-<b>Moshé a écrit -</b> [tout] depuis Bereshit jusqu'au don de la Torah et il a également écrit les <i>mitzvos</i> qui leur ont été commandés à Marah.
+<b>Moshé a écrit -</b> [tout] depuis Bereshit jusqu'au don de la Torah et il a également écrit les <i>Mitsvot</i> qui leur ont été commandés à Marah.
 <b>Il se leva tôt le matin -</b> le cinq de Sivan.
 
 ### passuk 5
@@ -22,7 +22,7 @@
 <b>Dans les bassins.</b> Il y avait deux bassins - l'un pour la moitié du sang de l'holocauste, l'autre pour la moitié du sang des sacrifices de paix afin de les asperger tous les deux sur le peuple. C'est de là que nos Sages ont conclu que nos ancêtres sont entrés dans l'Alliance par la circoncision, l'immersion et l'aspersion du sang des sacrifices. [L'immersion est indiquée par le fait qu'il n'y a pas d'aspersion valide qui ne soit précédée d'une immersion. 
 
 ### passuk 7
-<b>Le Livre de l'Alliance -</b> de Bereshit jusqu'au don de la Torah et les <i>mitzvos</i> qu'ils ont été commandés à Marah.
+<b>Le Livre de l'Alliance -</b> de Bereshit jusqu'au don de la Torah et les <i>Mitsvot</i> qu'ils ont été commandés à Marah.
 
 ### passuk 8
 <b>Il a jeté.</b> [וַיִּזְרֹק a] le sens d'aspersion. Cependant, Onkelos le traduit [littéralement] : "Il le jeta sur l'autel pour expier pour le peuple". 
@@ -44,7 +44,7 @@
 ### passuk 12
 <b>Hachem dit alors à Moshé -</b> après le don de la Torah.
 <b>Monte vers Moi sur la montagne et reste-y -</b> pendant quarante jours.
-<b>Les tables de pierre, la Torah et les commandements que j'ai écrits [afin] de les enseigner.</b> Les 613 commandements sont implicitement contenus dans les dix commandements. Rabbeinou Saadiah montre spécifiquement, dans le אַזְהָרוֹת qu'il a composé, pour chacun des Commandements, les <i>mitzvos</i> qui lui sont associés. 
+<b>Les tables de pierre, la Torah et les commandements que j'ai écrits [afin] de les enseigner.</b> Les 613 commandements sont implicitement contenus dans les dix commandements. Rabbeinou Saadiah montre spécifiquement, dans le אַזְהָרוֹת qu'il a composé, pour chacun des Commandements, les <i>Mitsvot</i> qui lui sont associés. 
 
 ### passuk 13
 <b>Moshé et Yehoshua, son accompagnateur, se mirent en route.</b> Je ne sais pas quel était le but de Yehoshua ici. Mais je pense que le disciple accompagnait le maître jusqu'à l'endroit où les limites de la montagne indiquaient qu'il n'était pas autorisé à aller à partir de là et au-delà. Et de là, "Moshé est monté" lui-même "sur la montagne de Dieu". Là, Yehoshua a dressé sa tente et y est resté pendant les quarante jours, car nous constatons que lorsque Moshé est descendu : "Yehoshua entendit la voix du peuple qui criait", ce qui nous indique que Yehoshua n'était pas avec eux. 

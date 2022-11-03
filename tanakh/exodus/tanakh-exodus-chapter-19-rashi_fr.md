@@ -11,7 +11,7 @@
 <b>Moshé est monté -</b> le deuxième jour [de Sivan]. Toutes ses ascensions se faisaient tôt le matin, comme il est dit : "Moshé se leva le matin [et monta sur le mont Sinaï]". 
 <b>C'est ce que tu diras.</b> [C'est-à-dire] dans cette langue (hébreu) et dans cet ordre. 
 <b>À la maison de Yaakov.</b> Il s'agit des femmes. Dis-le-leur d'une voix douce.
-<b>Et dis aux B'nei Yisrael.</b> Les peines et les détails [des <i>mitzvos</i>] expliquent aux hommes, en utilisant des mots aussi difficiles [à digérer] que l'absinthe amère. 
+<b>Et dis aux B'nei Yisrael.</b> Les peines et les détails [des <i>Mitsvot</i>] expliquent aux hommes, en utilisant des mots aussi difficiles [à digérer] que l'absinthe amère. 
 
 ### passuk 4
 <b>Vous avez vu.</b> "Vous ne le recevez pas comme une tradition, ni je vous envoie [un message de] paroles, ni par des témoins je vous l'atteste, mais vous [vous-mêmes] avez vu [les choses] que j'ai faites à l'Égypte. Il y avait beaucoup de péchés dont ils étaient responsables envers moi avant d'être impliqués avec vous, et pourtant je ne les ai pas punis, sauf en votre nom. 

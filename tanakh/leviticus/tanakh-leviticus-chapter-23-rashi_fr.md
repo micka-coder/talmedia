@@ -55,7 +55,7 @@
 ### passuk 16
 <b>La septième semaine,</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> comme son Targum : "la septième semaine". 
 <b>Jusqu'au lendemain de la septième semaine, vous compterez [cinquante jours].</b> Mais sans compter [le jour] jusqu'auquel vous comptez - et ce sont les quarante-neuf jours [dont il est question]. 
-<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Hachem.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> au cinquantième jour. Je dis que c'est son Midrash, mais son sens clair est : " Jusqu'au lendemain de la septième semaine - qui est le cinquantième jour - tu dois compter " [et ensuite apporter l'offrande]. [Ceci] est un verset inversé. 
+<b>Cinquante jours, et tu apporteras une nouvelle offrande pour Hachem.</b> Apporte-la <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> au cinquantième jour. Je dis que c'est son Midrash, mais son sens simple est : " Jusqu'au lendemain de la septième semaine - qui est le cinquantième jour - tu dois compter " [et ensuite apporter l'offrande]. [Ceci] est un verset inversé. 
 <b>Une nouvelle offrande.</b> "C'est la première offrande qui est apportée de <i>chodosh</i>, et si tu dis : "Mais l'offrande <i>omer</i> a [déjà] été apportée" ! [L'offrande de repas <i>omer</i> n'est pas comme les autres offrandes de repas, car elle provient de <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> l'orge. 
 
 ### passuk 17

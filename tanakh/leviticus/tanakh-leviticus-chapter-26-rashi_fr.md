@@ -8,7 +8,7 @@
 <b>Je suis Hachem,</b> fidèle pour donner la récompense.
 
 ### passuk 3
-<b>Si vous suivez Mes lois.</b> Peut-être [cela fait-il référence à] l'accomplissement des <i>mitzvos</i> ? Lorsque [le verset] dit : " et gardez Mes commandements et vous les accomplirez ", voici que l'accomplissement du <i>mitzvos</i> est mentionné. Comment dois-je interpréter [la clause] : "Si vous suivez Mes lois" ? Que vous devez travailler dans [l'étude] de la Torah. 
+<b>Si vous suivez Mes lois.</b> Peut-être [cela fait-il référence à] l'accomplissement des <i>Mitsvot</i> ? Lorsque [le verset] dit : " et gardez Mes commandements et vous les accomplirez ", voici que l'accomplissement du <i>Mitsvot</i> est mentionné. Comment dois-je interpréter [la clause] : "Si vous suivez Mes lois" ? Que vous devez travailler dans [l'étude] de la Torah. 
 <b>Et gardez Mes commandements.</b> Travaillez dans la Torah afin de garder et d'accomplir, comme il est dit : "Tu les enseigneras et tu veilleras à les accomplir." 
 
 ### passuk 4
@@ -54,15 +54,15 @@
 <b>Se tenir droit,</b> [avec] une stature droite. 
 
 ### passuk 14
-<b>Et si vous ne voulez pas m'écouter</b> pour travailler [dans l'étude de] la Torah, pour connaître les exposés des Sages. Peut-être [cela fait-il référence à] l'accomplissement des <i>mitzvos</i> ? Quand [le verset] dit : <b>et vous n'accomplirez pas etc.,</b> voici que l'accomplissement des <i>mitzvos</i> est mentionné, comment alors interpréter "et si vous ne m'écoutez pas" ? Travailler [dans l'étude de] la Torah. Et pourquoi le verset dit "à Moi" ? le mot לִי [dans ce chapitre des châtiments] fait référence [aux péchés de] celui qui reconnaît son Maître et se rebelle intentionnellement contre Lui, et ainsi concernant Nimrod, " Il était un puissant chasseur devant Hachem ", il l'a reconnu et s'est intentionnellement rebellé contre Lui, et ainsi concernant les gens de Sedom, [" Les gens de Sedom étaient] méchants et pécheurs envers Hachem, excessivement ", ils ont reconnu leur Maître et se sont intentionnellement rebellés contre Lui. 
+<b>Et si vous ne voulez pas m'écouter</b> pour travailler [dans l'étude de] la Torah, pour connaître les exposés des Sages. Peut-être [cela fait-il référence à] l'accomplissement des <i>Mitsvot</i> ? Quand [le verset] dit : <b>et vous n'accomplirez pas etc.,</b> voici que l'accomplissement des <i>Mitsvot</i> est mentionné, comment alors interpréter "et si vous ne m'écoutez pas" ? Travailler [dans l'étude de] la Torah. Et pourquoi le verset dit "à Moi" ? le mot לִי [dans ce chapitre des châtiments] fait référence [aux péchés de] celui qui reconnaît son Maître et se rebelle intentionnellement contre Lui, et ainsi concernant Nimrod, " Il était un puissant chasseur devant Hachem ", il l'a reconnu et s'est intentionnellement rebellé contre Lui, et ainsi concernant les gens de Sedom, [" Les gens de Sedom étaient] méchants et pécheurs envers Hachem, excessivement ", ils ont reconnu leur Maître et se sont intentionnellement rebellés contre Lui. 
 <b>Et vous n'accomplirez pas,</b> puisque vous n'apprendrez pas, vous n'accomplirez pas - ce qui entraîne deux péchés. 
 
 ### passuk 15
 <b>Si vous méprisez Mes statuts,</b> méprisez les autres qui accomplissent [Mes statuts]. 
 <b>Vos âmes ont en horreur Mes lois,</b> vous détestez les Sages. 
-<b>Ne pas accomplir - </b>empêcher les autres d'accomplir [les <i>mitzvos</i>].
-<b>Tous mes commandements,</b> il nie que je les ai ordonnés, et c'est pourquoi il est dit : "tous <i>Mes</i> <i>mitzvos</i>," et non "tous <i>les</i> <i>mitzvos</i>". 
-<b>C'est ainsi que l'on rompt Mon alliance,</b> en niant le Principe essentiel. Voici sept péchés, le premier entraînant le second, et ainsi de suite jusqu'au septième. Ce sont : Il n'a pas appris, et n'a pas accompli [le <i>mitzvos</i>], méprise les autres qui accomplissent, déteste les Sages, empêche les autres [d'accomplir], nie le <i>mitzvos</i>, nie le Principe essentiel. 
+<b>Ne pas accomplir - </b>empêcher les autres d'accomplir [les <i>Mitsvot</i>].
+<b>Tous mes commandements,</b> il nie que je les ai ordonnés, et c'est pourquoi il est dit : "tous <i>Mes</i> <i>Mitsvot</i>," et non "tous <i>les</i> <i>Mitsvot</i>". 
+<b>C'est ainsi que l'on rompt Mon alliance,</b> en niant le Principe essentiel. Voici sept péchés, le premier entraînant le second, et ainsi de suite jusqu'au septième. Ce sont : Il n'a pas appris, et n'a pas accompli [le <i>Mitsvot</i>], méprise les autres qui accomplissent, déteste les Sages, empêche les autres [d'accomplir], nie le <i>Mitsvot</i>, nie le Principe essentiel. 
 
 ### passuk 16
 <b>Je vous imposerai,</b> et je commanderai contre vous. 
@@ -102,7 +102,7 @@
 <b>Ne donnera pas ses produits,</b> et quand il produit des fruits, il les jette ; il y a donc deux malédictions [dans cette phrase] et il y a ici [donc] sept malédictions [en tout]. 
 
 ### passuk 21
-<b>Si tu marches à l'encontre de Moi.</b> Nos rabbins ont dit [que le mot <i>keri</i> signifie] "irrégulièrement", "par hasard", [quelque chose qui ne se produit] qu'occasionnellement - donc [ici] : si tu suivras les <i>mitzvos</i> [seulement] occasionnellement. Et Menachem a expliqué [cela comme] une expression de " retenue ", et de même [le verset] : " Retiens ton pied [de la maison de ton voisin ", et de même, " une [personne à] l'esprit retenu ". Cette [interprétation] est proche de sa [traduction] targumique d'Onkelos, [qui est] une expression de dureté, "car ils endurcissent leur cœur, s'abstenant de s'approcher de Moi." 
+<b>Si tu marches à l'encontre de Moi.</b> Nos rabbins ont dit [que le mot <i>keri</i> signifie] "irrégulièrement", "par hasard", [quelque chose qui ne se produit] qu'occasionnellement - donc [ici] : si tu suivras les <i>Mitsvot</i> [seulement] occasionnellement. Et Menachem a expliqué [cela comme] une expression de " retenue ", et de même [le verset] : " Retiens ton pied [de la maison de ton voisin ", et de même, " une [personne à] l'esprit retenu ". Cette [interprétation] est proche de sa [traduction] targumique d'Onkelos, [qui est] une expression de dureté, "car ils endurcissent leur cœur, s'abstenant de s'approcher de Moi." 
 <b>Sept fois, comme vos péchés,</b> sept autres châtiments, au nombre de sept, comme vos péchés [nombre sept]. 
 
 ### passuk 22

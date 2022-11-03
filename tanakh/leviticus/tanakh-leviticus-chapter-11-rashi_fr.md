@@ -5,7 +5,7 @@
 
 ### passuk 2
 <b>Parlez aux Bnei Israël.</b> Il les a tous assimilés à des messagers pour ce commandement divin, car tous étaient semblables dans leur silence, et ont accepté le décret de Dieu avec amour. 
-<b>Ce sont les êtres vivants.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une expression de "vie". Parce qu'Israël est lié à Dieu et digne d'être vivant, c'est pourquoi Il l'a séparé de l'impureté [rituelle] et a décrété <i>mitzvos</i> sur lui, mais n'a rien interdit aux nations. [Il s'agit] d'une parabole d'un médecin qui est venu visiter un malade, comme l'expose le Midrash de Rabbi Tanchuma. 
+<b>Ce sont les êtres vivants.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Une expression de "vie". Parce qu'Israël est lié à Dieu et digne d'être vivant, c'est pourquoi Il l'a séparé de l'impureté [rituelle] et a décrété <i>Mitsvot</i> sur lui, mais n'a rien interdit aux nations. [Il s'agit] d'une parabole d'un médecin qui est venu visiter un malade, comme l'expose le Midrash de Rabbi Tanchuma. 
 <b>Ce sont les êtres vivants.</b> Cela enseigne que Moché devait <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> tenir l'animal [concerné] et le montrer à Israël : Ceci tu peux le manger et ceci tu ne peux pas le manger ! "Ceci, tu peux le manger", etc... - Il a également tenu chaque espèce de créatures aquatiques grouillantes et les a montrées - ainsi que les volailles : Et ceux-là, vous les considérerez comme répugnants parmi les volailles. Et ainsi pour les grouillants : Et celles-ci seront impures pour vous. 
 <b>Ce sont les êtres vivants. . tous les animaux.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Ce texte enseigne que les animaux font partie de la catégorie des "êtres vivants".
 

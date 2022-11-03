@@ -3,7 +3,7 @@
 Ceci arriva du temps d’Amrafel, roi de Sennaar; d’Aryoc, roi d’Ellasar; de Kedorlaomer, roi d’Elam, et de Tidal, roi de Goyim:
 
 ### passuk 2
-ils firent la guerre à Béra, roi de Sodome; à Bircha, roi de Gommorrhe; à Chinab, roi d’Adma; à Chémêber, roi de Ceboïm, et au roi de Béla, la même que Ã‡oar.
+ils firent la guerre à Béra, roi de Sodome; à Bircha, roi de Gommorrhe; à Chinab, roi d’Adma; à Chémêber, roi de Ceboïm, et au roi de Béla, la même que Tsoar.
 
 ### passuk 3
 Tous ceux-là se réunirent dans la vallée des Siddim, qui est devenue la mer du Sel.
