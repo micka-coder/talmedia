@@ -60,12 +60,12 @@
 ### passuk 17
 
 ### passuk 18
-<b>Les années de la vie de Kehos, les années de la vie d'Amram, etc. (v. 20).</b> De ces calculs, nous apprenons que le séjour de 400 ans des B'nei Yisrael dont parle l'Écriture, n'a pas été [passé] en Égypte seulement, mais [a été calculé] à partir du jour où Yitshak est né. [On peut le calculer ainsi :] Car Kehos était parmi ceux qui sont descendus en Égypte. [Si tu fais le total de ses années, de celles d'Amram [son fils] et des quatre-vingts années de Moshé, tu verras que le total n'est pas de 400 ans, d'autant plus que beaucoup d'années [des fils] sont incluses dans celles des pères. 
+<b>Les années de la vie de Kehat, les années de la vie d'Amram, etc. (v. 20).</b> De ces calculs, nous apprenons que le séjour de 400 ans des B'nei Yisrael dont parle l'Écriture, n'a pas été [passé] en Égypte seulement, mais [a été calculé] à partir du jour où Yitshak est né. [On peut le calculer ainsi :] Car Kehat était parmi ceux qui sont descendus en Égypte. [Si tu fais le total de ses années, de celles d'Amram [son fils] et des quatre-vingts années de Moshé, tu verras que le total n'est pas de 400 ans, d'autant plus que beaucoup d'années [des fils] sont incluses dans celles des pères. 
 
 ### passuk 19
 
 ### passuk 20
-<b>Sa tante Yocheved.</b> [Traduit par Onkelos :] " La sœur de son père ", car elle était la fille de Leivi, la sœur de Kehos. 
+<b>Sa tante Yocheved.</b> [Traduit par Onkelos :] " La sœur de son père ", car elle était la fille de Leivi, la sœur de Kehat. 
 
 ### passuk 21
 

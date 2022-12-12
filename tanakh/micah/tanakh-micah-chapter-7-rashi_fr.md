@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Malheur à moi</b> - Le prophète se lamente sur lui-même : "Malheur à moi d'avoir été nommé prophète en ce moment, alors qu'il n'y a pas de justes dans la génération." 
-<b>Comme la dernière des figues</b> Héb. כְּאָסְפֵּי. Ceci est voyellé avec un "chataf kamatz" car ce n'est pas un verbe au présent, comme :, יוֹשֵב, s'assoit, et אוֹמֵר, dit ; c'est plutôt un gérondif, comme dans (<a class="refLink" href="/Isaiah.33 .4" data-ref="Isaïe 33:4">Isaïe. 33:4</a>) : "Le rassemblement de (אֹסֶף) les sauterelles" ; comme le rassemblement de קַיִץ. Ce sont les dernières figues, qui sont inférieures. Et ainsi <i>Jonathan</i> a rendu : comme les figues tardives de l'été. 
+<b>Comme la dernière des figues</b> Héb. כְּאָסְפֵּי. Ceci est voyellé avec un "hataf kamatz" car ce n'est pas un verbe au présent, comme :, יוֹשֵב, s'assoit, et אוֹמֵר, dit ; c'est plutôt un gérondif, comme dans (<a class="refLink" href="/Isaiah.33 .4" data-ref="Isaïe 33:4">Isaïe. 33:4</a>) : "Le rassemblement de (אֹסֶף) les sauterelles" ; comme le rassemblement de קַיִץ. Ce sont les dernières figues, qui sont inférieures. Et ainsi <i>Jonathan</i> a rendu : comme les figues tardives de l'été. 
 <b>Comme les glanes de la vendange</b> - Comme les glanes après la vendange. [de <i>Jonathan</i>] 
 <b>Il n'y a pas de grappe à manger</b> - Comme le rend le <i>Targum</i> : Il n'y a pas d'homme qui ait de bonnes actions. 
 <b>Une première figue mûre que mon âme désire</b> - Une bonne figue, qui mûrit en son temps, comme le <i>Targum</i> le rend : Mon âme a désiré les bonnes. 

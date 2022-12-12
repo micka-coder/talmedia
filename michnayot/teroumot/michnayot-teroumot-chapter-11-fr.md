@@ -21,7 +21,7 @@ Si une chambre de magasin a été débarrassée de blé teroumah, il n'est pas n
 De même, si une jarre d'huile est renversée, ils n'ont pas besoin de le forcer à s'asseoir et à la ramasser [avec ses doigts], mais il peut s'en occuper comme il le ferait dans un cas de hullin.
 
 ### michna 8
-Celui qui verse d'une jarre à l'autre et que trois gouttes coulent, il peut y placer du hullin. Mais s'il incline le pot [sur le côté] afin de le vider, il s'agit d'une teroumah. Quelle quantité de terumat maaser de demai doit-il y avoir pour qu'il l'apporte au prêtre ? Un huitième de huitième [d'une bûche].
+Celui qui verse d'une jarre à l'autre et que trois gouttes coulent, il peut y placer du hullin. Mais s'il incline le pot [sur le côté] afin de le vider, il s'agit d'une teroumah. Quelle quantité de terumat maaser de demai doit-il y avoir pour qu'il l'apporte au prêtre ? Un huitième de huitième [d'une log].
 
 ### michna 9
 Les vêches de teroumah peuvent être données au bétail, aux bêtes sauvages ou aux volailles. Si un Israélite loue une vache à un prêtre, il peut lui donner des vesces de teroumah à manger. Mais si un prêtre loue une vache à un Israélite, même si la responsabilité de la nourrir lui incombe, il ne doit pas la nourrir avec des vesces de teroumah. Si un Israélite prend soin d'une vache d'un prêtre, il ne doit pas la nourrir avec des vesces de teroumah. Mais si un prêtre prend soin d'une vache d'un Israélite, il peut la nourrir avec des vesces de teroumah.

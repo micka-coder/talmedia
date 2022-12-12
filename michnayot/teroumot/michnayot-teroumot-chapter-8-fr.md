@@ -12,7 +12,7 @@ S'il mangeait une grappe de raisin, et qu'il est entré du jardin dans la cour :
 Si du vin de teroumah a été laissé à découvert, il doit être versé, et il n'est pas nécessaire de le dire dans le cas du hullin. Trois sortes de liquides sont interdites si elles ont été laissées à découvert : l'eau, le vin et le lait, mais toutes les autres boissons sont permises. Combien de temps doivent-ils rester découverts pour qu'ils deviennent interdits ? Le temps qu'il faut au serpent pour se glisser hors d'un endroit proche et boire.
 
 ### michna 5
-La quantité d'eau qui est découverte : suffisante pour annuler le poison. Rabbi Yose dit : dans les récipients [c'est interdit] quelle que soit la quantité, mais pour l'eau sur le sol, elle doit être de quarante se'ahs.
+La quantité d'eau qui est découverte : suffisante pour annuler le poison. Rabbi Yose dit : dans les récipients [c'est interdit] quelle que soit la quantité, mais pour l'eau sur le sol, elle doit être de quarante séahs.
 
 ### michna 6
 Les figues, les raisins, les concombres, les citrouilles, les melons ou les pastèques qui ont des marques de morsure, même s'ils sont dans un pot, qu'ils soient grands ou petits, cueillis ou encore attachés au sol, sont interdits tant qu'ils contiennent du jus. [Un animal mordu par un serpent est interdit en raison du danger pour la vie.

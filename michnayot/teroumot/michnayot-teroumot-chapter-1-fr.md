@@ -1,6 +1,6 @@
 
 ### michna 1
-Cinq personnes ne peuvent pas donner de teroumah, et si elles le font, leur teroumah n'est pas considérée comme teroumah : Un heresh (sourd-muet) ; un imbécile, un mineur, et celui qui donne de la teroumah à partir de ce qui ne lui appartient pas. Si un non-Juif a donné de la térouma de ce qui appartient à un Israélite, même si c'est avec sa permission, sa térouma n'est pas de la térouma.
+Cinq personnes ne peuvent pas donner de teroumah, et si elles le font, leur teroumah n'est pas considérée comme teroumah : Un heresh (sourd-muet) ; un handicapé mental, un mineur, et celui qui donne de la teroumah à partir de ce qui ne lui appartient pas. Si un non-Juif a donné de la térouma de ce qui appartient à un Israélite, même si c'est avec sa permission, sa térouma n'est pas de la térouma.
 
 ### michna 2
 Un "heresh", qui parle mais ne peut pas entendre, ne peut pas donner de teroumah, mais s'il le fait, sa teroumah est une teroumah. Le "heresh" dont les sages parlent généralement est celui qui n'entend ni ne parle.

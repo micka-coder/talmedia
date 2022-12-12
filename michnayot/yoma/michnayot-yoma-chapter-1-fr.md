@@ -15,7 +15,7 @@ Pendant les sept jours, ils ne l'empêchaient pas de manger ou de boire. La veil
 Les anciens du tribunal [supérieur] le remettaient aux anciens de la prêtrise, qui le faisaient monter dans la chambre haute de la maison d'Avtinas, lui faisaient prêter serment, prenaient congé et partaient. Ils lui diront : "Mon maître, Grand Prêtre, nous sommes les messagers du beit din, et tu es notre messager et le messager de la [haute] cour. Nous te faisons jurer, par Celui qui a fait habiter son nom dans cette Maison, que tu ne changeras rien à ce que nous t'avons dit. Il se séparait d'eux et sanglotait, et ils se séparaient de lui et sanglotaient.
 
 ### michna 6
-S'il était un sage, il exposait. S'il ne l'était pas, des sages exposaient devant lui. S'il avait l'habitude de lire, il lisait. Sinon, ils lisaient devant lui. Et de quoi lisaient-ils devant lui ? De Job, d'Esdras et des Chroniques. Zecharya ben Kabutal a dit, plusieurs fois j'ai lu des passages de Daniel devant lui.
+S'il était un sage, il exposait. S'il ne l'était pas, des sages exposaient devant lui. S'il avait l'habitude de lire, il lisait. Sinon, ils lisaient devant lui. Et de quoi lisaient-ils devant lui ? De Job, d'Ezra et des Chroniques. Zecharya ben Kabutal a dit, plusieurs fois j'ai lu des passages de Daniel devant lui.
 
 ### michna 7
 S'il voulait s'endormir, les jeunes prêtres claquaient leur majeur devant lui et lui disaient : " Mon maître le Grand Prêtre, lève-toi et débarrasse-toi [de la fatigue] cette fois-ci [en te tenant] sur le sol ". Et ils s'engageaient avec lui jusqu'à l'heure de l'abattage [du sacrifice du matin].

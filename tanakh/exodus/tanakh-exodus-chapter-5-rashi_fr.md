@@ -54,7 +54,7 @@
 
 ### passuk 16
 <b>Et pourtant on nous dit de faire des briques.</b> [C'est-à-dire] que les maîtres de corvées nous disent : "Faites des briques pour égaler la quantité précédente." 
-<b>Et c'est un péché pour ton peuple.</b> Si וחטאת avait été vocalisé avec un <i>patach</i> ( וחטַאת ), j'aurais dit qu'il est à l'état de construction [et cela aurait signifié :] "Et cette chose est le péché de ton peuple." Mais maintenant que c'est un kametz ( וחטָאת ), c'est un nom [indépendant] et <i>ceci</i> est sa signification : "et cette chose apporte le péché à ton peuple", comme s'il était écrit : " וְחַטָּאת לְעַמֶּךָ " "Ce sera un péché <i>à</i> ton peuple" comme dans כְּבוֹאָנָה בֵּית לֶחֶם - "lorsqu'ils sont venus à Beis Lechem" ce qui est identique à לְבֵית לֶחֶם - <i>à</i> Beis Lechem, et il y a beaucoup de cas semblables. 
+<b>Et c'est un péché pour ton peuple.</b> Si וחטאת avait été vocalisé avec un <i>patach</i> ( וחטַאת ), j'aurais dit qu'il est à l'état de construction [et cela aurait signifié :] "Et cette chose est le péché de ton peuple." Mais maintenant que c'est un kamatz ( וחטָאת ), c'est un nom [indépendant] et <i>ceci</i> est sa signification : "et cette chose apporte le péché à ton peuple", comme s'il était écrit : " וְחַטָּאת לְעַמֶּךָ " "Ce sera un péché <i>à</i> ton peuple" comme dans כְּבוֹאָנָה בֵּית לֶחֶם - "lorsqu'ils sont venus à Beis Lechem" ce qui est identique à לְבֵית לֶחֶם - <i>à</i> Beis Lechem, et il y a beaucoup de cas semblables. 
 
 ### passuk 17
 

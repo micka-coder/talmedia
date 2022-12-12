@@ -15,7 +15,7 @@ Toutes les menahot préparées dans un récipient doivent être brisées en morc
 Toutes les menahot doivent être frottées trois cents fois et battues cinq cents fois. Le frottement et le battage s'appliquent aux grains de blé. Rabbi Yose dit : également à la pâte. Tous les menahot sont composés de dix gâteaux chacun, à l'exception des pains de proposition et des gâteaux du grand prêtre, qui sont composés de douze gâteaux chacun, ce sont les paroles de Rabbi Juda. Mais Rabbi Meir dit : ils sont tous composés de douze gâteaux chacun, sauf les pains de la todah et de l'offrande de nazirite, qui sont composés de dix gâteaux chacun.
 
 ### michna 6
-L'omer était composé d'un dixième [d'un épha de farine] prélevé sur trois se'ahs. Les deux pains étaient composés de deux dixièmes prélevés sur trois se'ahs. Et les pains de proposition étaient composés de vingt-quatre dixièmes pris sur vingt-quatre se'ahs.
+L'omer était composé d'un dixième [d'un épha de farine] prélevé sur trois séahs. Les deux pains étaient composés de deux dixièmes prélevés sur trois séahs. Et les pains de proposition étaient composés de vingt-quatre dixièmes pris sur vingt-quatre séahs.
 
 ### michna 7
 L'omer a été passé à travers treize tamis, les deux pains à travers douze, et le pain de proposition à travers onze. Rabbi Shimon dit : il n'y avait pas de nombre prescrit pour eux, mais ils apportaient de la farine fine et la tamisaient autant qu'il était nécessaire, comme il est dit : "Tu prendras de la farine fine et tu la feras cuire" (Lévitique 24:5) [tu ne dois pas la faire cuire] avant qu'elle ne soit tamisée autant qu'il est nécessaire.

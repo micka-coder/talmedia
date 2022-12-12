@@ -21,7 +21,7 @@ De même qu'ils ont la priorité pour être offerts, ils ont la priorité pour �
 Et dans tous ces cas, les prêtres peuvent s'écarter de leur façon de manger, et les manger rôtis, en ragoût ou bouillis. Et on peut les assaisonner avec des épices hullin ou des épices teroumah, ce sont les paroles de Rabbi Shimon. Rabbi Meir dit : on ne doit pas les assaisonner avec des épices de teroumah, afin de ne pas rendre la teroumah impropre.
 
 ### michna 8
-Rabbi Chimon dit : si tu vois de l'huile divisée dans la cour du Temple, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste d'huile des galettes des offrandes de repas des Israélites, ou de la bûche d'huile de la metzora. Si tu vois de l'huile versée sur les feux, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste de l'huile des galettes des offrandes de repas des prêtres", ou de l'offrande de repas du prêtre oint ; car on ne peut pas offrir volontairement de l'huile [seule]. Rabbi Tarfon dit : l'huile peut être offerte volontairement [seule].
+Rabbi Chimon dit : si tu vois de l'huile divisée dans la cour du Temple, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste d'huile des galettes des offrandes de repas des Israélites, ou de la log d'huile de la metzora. Si tu vois de l'huile versée sur les feux, tu n'as pas besoin de demander à quoi elle sert, car c'est le reste de l'huile des galettes des offrandes de repas des prêtres", ou de l'offrande de repas du prêtre oint ; car on ne peut pas offrir volontairement de l'huile [seule]. Rabbi Tarfon dit : l'huile peut être offerte volontairement [seule].
 
 >Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
 >Licence : CC BY-NC

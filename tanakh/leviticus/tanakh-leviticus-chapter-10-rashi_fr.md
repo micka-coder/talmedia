@@ -11,7 +11,7 @@
 <b>Et en présence de tout le peuple, Je serai glorifié.</b> Lorsque le Saint, béni soit-Il, rend son jugement sur les justes, Il est craint et <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>exalté et loué. [Les gens disent :] "S'il en est ainsi avec ceux-ci, combien plus encore avec les méchants" ! Et de même, il est dit : "Tu es impressionnant, ô Dieu, depuis Tes Sanctuaires" ! Ne lisez pas "de Tes Sanctuaires" (מִמִּקְדָּשֶׁיךָ), mais [plutôt] "de Tes saints" (מִמְּקוּדָּשֶׁיךָ). 
 
 ### passuk 4
-<b>Oncle d'Aharon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Uzziel était le frère d'Amram, comme il est dit : " Et les fils de Kehos, etc. ". 
+<b>Oncle d'Aharon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Uzziel était le frère d'Amram, comme il est dit : " Et les fils de Kehat, etc. ". 
 <b>Portez vos frères, etc.</b> Comme un homme qui dit à un autre : "Enlève le [corps] mort de devant la mariée <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>pour ne pas troubler la fête." 
 
 ### passuk 5

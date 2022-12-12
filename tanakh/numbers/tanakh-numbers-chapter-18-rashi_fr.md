@@ -1,7 +1,7 @@
 
 ### passuk 1
 <b>Hachem dit à Aharon.</b> Il dit à Moshé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de dire à Aharon, pour l'exhorter concernant [les précautions] au profit des Israélites, afin qu'ils n'entrent pas dans le Sanctuaire. 
-<b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les enfants de Kehos, père d'Amram. 
+<b>Vous, vos fils et la maison de votre père.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Les enfants de Kehat, père d'Amram. 
 <b>Porteront le péché du Sanctuaire.</b> Je jette, sur vous, la punition des personnes non autorisées qui pèchent par leur implication avec les objets sacrés placés sous votre responsabilité - la Tente, l'Arche, la Table et les vases sacrés. Vous devez vous poster et avertir toute personne non autorisée qui tente un contact. 
 <b>Et vous et vos fils.</b> Les <i>kohanim.</i>
 <b>Porterez le péché de votre <i>kehunah</i>.</b> Comme ce n'est pas une charge donnée aux Lévites, vous devez avertir les Lévites errants de ne pas entrer en contact avec vous pendant votre service. 

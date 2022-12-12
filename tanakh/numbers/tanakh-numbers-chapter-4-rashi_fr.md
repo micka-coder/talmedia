@@ -10,7 +10,7 @@
 <b>Le Saint des Saints.</b> Le plus saint de tous ; l'Arche, la Table, la Ménorah, les Autels, les Paroches, et les récipients de service. 
 
 ### passuk 5
-<b>Aharon et ses fils entreront... etc.</b> Ils placeront chaque récipient dans le fourreau qui lui est spécifié dans ce chapitre, afin que les Lévites fils de Kehos n'aient rien d'autre à faire que de [les] porter. 
+<b>Aharon et ses fils entreront... etc.</b> Ils placeront chaque récipient dans le fourreau qui lui est spécifié dans ce chapitre, afin que les Lévites fils de Kehat n'aient rien d'autre à faire que de [les] porter. 
 <b>Lorsque le camp est sur le point de partir.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Lorsque la nuée se lève, ils savent qu'ils doivent partir. 
 
 ### passuk 6
@@ -51,7 +51,7 @@
 
 ### passuk 16
 <b>Envoyé à Elazar.</b> Il a été chargé <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de les porter : huile, encens et huile d'onction. L'offrande perpétuelle [quotidienne]. Sa responsabilité était de donner des ordres, d'exhorter [les autres], et de l'offrir [sur l'autel] lorsqu'ils campaient. 
-<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehos - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merari, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de נָשׂא . 
+<b>La charge de tout le Mishkon.</b> En outre, il était chargé de [superviser] la charge des fils de Kehat - <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> de donner des ordres pour le travail et la charge de chacun. C'est [ce que l'on entend par] " le <i>Mishkon et tout son contenu ", tout ce qui est énuméré ci-dessus dans ce chapitre. Mais la charge des fils de Gershon et de Merari, qui ne consistait pas en le saint des saints, était sur ordre d'Isamar, comme il est écrit dans la portion de נָשׂא . 
 </i>
 
 ### passuk 17
@@ -67,7 +67,7 @@
 ### passuk 21
 
 ### passuk 22
-<b>Faites également le compte des fils de Gershon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme je vous l'ai ordonné conce nant les fils de Kehos, pour déterminer combien <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> ont atteint la catégorie de travail. 
+<b>Faites également le compte des fils de Gershon.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Comme je vous l'ai ordonné conce nant les fils de Kehat, pour déterminer combien <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> ont atteint la catégorie de travail. 
 
 ### passuk 23
 

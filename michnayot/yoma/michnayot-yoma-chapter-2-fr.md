@@ -12,7 +12,7 @@ La deuxième loterie [décidait] qui abattrait [le sacrifice quotidien], qui jet
 Lors de la troisième loterie, de nouveaux prêtres [qui n'avaient jamais offert l'encens] sont venus et ont tiré au sort. La quatrième [loterie] était composée de nouveaux prêtres et de prêtres expérimentés [pour déterminer] qui porterait les membres de la rampe à l'autel.
 
 ### michna 5
-L'offrande quotidienne était offerte par neuf, dix, onze ou douze [prêtres], ni plus ni moins. Comment [cela se passait-il] ? [L'offrande] elle-même en comptait neuf. A Souccot, l'un d'eux tenait une bouteille d'eau, ce qui faisait dix. Pour l'[offrande] de l'après-midi, il y en avait onze : [l'offrande] elle-même avec neuf et deux tenant des bûches de bois. Et le jour du sabbat, il y en avait onze : [l'offrande] elle-même par neuf, et deux [plus] portant des encensoirs pour le lechem hapanim [pain de proposition]. Et le jour du sabbat pendant Souccot, un [plus] tenait une bouteille d'eau.
+L'offrande quotidienne était offerte par neuf, dix, onze ou douze [prêtres], ni plus ni moins. Comment [cela se passait-il] ? [L'offrande] elle-même en comptait neuf. A Souccot, l'un d'eux tenait une bouteille d'eau, ce qui faisait dix. Pour l'[offrande] de l'après-midi, il y en avait onze : [l'offrande] elle-même avec neuf et deux tenant des logs de bois. Et le jour du sabbat, il y en avait onze : [l'offrande] elle-même par neuf, et deux [plus] portant des encensoirs pour le lechem hapanim [pain de proposition]. Et le jour du sabbat pendant Souccot, un [plus] tenait une bouteille d'eau.
 
 ### michna 6
 Un bélier était offert par onze [prêtres] : la viande par cinq, les entrailles, la farine et le vin par deux chacun.

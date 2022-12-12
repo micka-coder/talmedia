@@ -74,7 +74,7 @@ Plutôt, par l'amour d'Hachem. Ici le mot כִּי est utilisé pour exprimer "p
 <b>De peur que les animaux sauvages ne se multiplient contre vous.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Mais n'est-il pas vrai que s'ils font la volonté de l'Omniprésent, ils n'auraient pas à craindre la bête, comme il est dit : "Et les animaux sauvages seront en paix avec vous" ? Cependant, il était connu de Lui qu'ils pécheraient à l'avenir. 
 
 ### passuk 23
-<b>Et les confondront.</b> Les deux syllabes du mot הָמָם ont une voyelle <i>kometz</i> car le dernier <i>mème</i> ne fait pas partie de la racine. Ainsi וְהָמָם est identique à וְהָם אוֹתָם [et les confondra]. Or (le mot וְהָמַם dans le verset,) " Et bien que le rouleau de son chariot ait été bruyant ", le verbe הָמַם est entièrement constitué de lettres racines ; il a donc pour moitié un <i>kometz</i> (הָ) et pour moitié un <i>patach</i> (מַ) comme tout autre verbe de trois lettres. 
+<b>Et les confondront.</b> Les deux syllabes du mot הָמָם ont une voyelle <i>kamatz</i> car le dernier <i>mème</i> ne fait pas partie de la racine. Ainsi וְהָמָם est identique à וְהָם אוֹתָם [et les confondra]. Or (le mot וְהָמַם dans le verset,) " Et bien que le rouleau de son chariot ait été bruyant ", le verbe הָמַם est entièrement constitué de lettres racines ; il a donc pour moitié un <i>kamatz</i> (הָ) et pour moitié un <i>patach</i> (מַ) comme tout autre verbe de trois lettres. 
 
 >Crédit : primo.nli.org.il (metsudah) & translation, adaptation by talmedia
 >License : CC BY-NC

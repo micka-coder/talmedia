@@ -31,7 +31,7 @@
 ### passuk 9
 <b>Où est ton frère, Hevel?</b> Dans le but de l'engager dans une conversation calme afin qu'il se repente et dise : "Je l'ai tué et j'ai péché envers Toi." 
 <b>Je ne sais pas. </b> Il est devenu un trompeur du Très Haut. 
-<b>Le gardien de mon frère ? </b>C'est une question d'incrédulité comme l'est chaque ה "א préfixe qui est vocalisé avec un <i>chataf patach.</i> 
+<b>Le gardien de mon frère ? </b>C'est une question d'incrédulité comme l'est chaque ה "א préfixe qui est vocalisé avec un <i>hataf patach.</i> 
 
 ### passuk 10
 <b>Le sang de ton frère.</b> [Se référant à] son sang et le sang de ses descendants. Une autre explication : il lui a infligé de nombreuses blessures car il ne savait pas par quel endroit son âme sortirait.

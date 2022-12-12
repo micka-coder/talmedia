@@ -21,7 +21,7 @@ Si l'on avait des grappes de fenugrec de graines mélangées de la vigne, elles 
 Les olives de hullin qui ont été marinées avec des olives de teroumah, qu'il s'agisse d'olives de hullin broyées [qui ont été marinées ensemble] avec des olives de teroumah broyées, ou d'olives de hullin broyées avec des olives de teroumah entières, ou avec du jus de teroumah, elles sont interdites. Mais si des [olives] entières de hullin ont été marinées avec des [olives] broyées de teroumah, elles sont permises.
 
 ### michna 8
-Poisson impur qui a été saumuré avec du poisson propre : Si la cruche contient deux seahs et que le poisson impur pèse dix zuz en mesure de Judée, soit cinq selas en mesure de Galilée, la saumure est interdite. Rabbi Judah dit : il faut un quart [d'une bûche] dans deux seahs. Rabbi Yose dit : un seizième de celui-ci.
+Poisson impur qui a été saumuré avec du poisson propre : Si la cruche contient deux seahs et que le poisson impur pèse dix zuz en mesure de Judée, soit cinq selas en mesure de Galilée, la saumure est interdite. Rabbi Judah dit : il faut un quart [d'une log] dans deux seahs. Rabbi Yose dit : un seizième de celui-ci.
 
 ### michna 9
 Si des sauterelles impures ont été marinées avec des sauterelles propres, elles ne rendent pas la saumure interdite. Rabbi Zadok a témoigné que la saumure de sauterelles impures est propre.

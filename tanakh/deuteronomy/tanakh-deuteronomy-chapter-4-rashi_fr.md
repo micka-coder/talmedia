@@ -119,7 +119,7 @@
 ### passuk 41
 <b>Alors Moshé mit de côté.</b> [ יַבְדִיל est le futur.] <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Il réfléchit dans son cœur à se préoccuper de l'affaire pour les mettre [les villes] de côté. Et bien qu'ils n'offriraient pas d'asile jusqu'à ce que ces villes de Canaan soient mises de côté, Moshé a dit : une <i>mitzvah</i> que je peux accomplir, je l'accomplirai. 
 <b>Au travers du Jourdain où le soleil se lève.</b> <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>De ce côté qui est à l'est du Jourdain.
-<b>Où le soleil se lève</b> Parce que מִזְרָחָה est dans l'état de construction, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la lettre <i>reish</i> est vocalisée avec un <i>chataf</i> [<i>sheva</i>], [signifiant] le lever du soleil - i. e., l'endroit où le soleil se lève. 
+<b>Où le soleil se lève</b> Parce que מִזְרָחָה est dans l'état de construction, <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>la lettre <i>reish</i> est vocalisée avec un <i>hataf</i> [<i>sheva</i>], [signifiant] le lever du soleil - i. e., l'endroit où le soleil se lève. 
 
 ### passuk 42
 

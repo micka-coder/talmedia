@@ -39,7 +39,7 @@
 ### passuk 10
 
 ### passuk 11
-<b>Aharon agitera les Lévites comme une offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehos. C'est pourquoi il est dit d'eux : "Ils seront [chargés] d'accomplir le culte d'Hachem", puisque l'œuvre du plus saint est sur eux - l'Arche et la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : "Une ondulation en offrande à Hachem", car même eux étaient chargés d'un travail saint - les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merari. 
+<b>Aharon agitera les Lévites comme une offrande d'agitation</b> Tout comme l'offrande de culpabilité du lépreux <i data-commentator="Siftei Chakhamim" data-label="⚬"></i> nécessite d'être agité lorsqu'il est encore vivant. <i data-commentator="Siftei Chakhamim" data-label="⚬"></i>Trois ondulations ont été énoncées dans ce chapitre : Le premier, des fils de Kehat. C'est pourquoi il est dit d'eux : "Ils seront [chargés] d'accomplir le culte d'Hachem", puisque l'œuvre du plus saint est sur eux - l'Arche et la Table, etc. Le second, des fils de Gershon. Il est donc dit d'eux : "Une ondulation en offrande à Hachem", car même eux étaient chargés d'un travail saint - les tapisseries et les crochets que l'on voyait dans le Saint des Saints. Et le troisième, des fils de Merari. 
 
 ### passuk 12
 

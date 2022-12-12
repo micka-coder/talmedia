@@ -84,7 +84,7 @@
 <b>Le Sanctuaire. </b> L'intonation sur celui-ci (le mot מִקְדָשׁ ) est un <i>zakef godol</i> afin de le séparer ( מִקְדָשׁ ) du mot ה' qui le suit, [lui donnant ainsi le sens de] " le Sanctuaire, que tes mains, Hachem, ont établi. " [Cela indique la] préciosité du Beit Hamikdash, car le monde a été créé avec " une seule main ", comme il est dit : " En vérité, ma main a établi la terre ", alors que le Mikdosh [a été fait] avec " deux mains ". Et quand sera-t-il construit avec "deux mains" ? quand viendra le temps où "Hachem régnera pour toujours et à jamais", dans le futur, quand tout le royaume sera à Lui. 
 
 ### passuk 18
-<b>Pour toujours et à jamais. </b> וָעֶד est une expression dénotant l'éternité et la lettre ו' en elle fait partie de la racine donc elle est vocalisée avec un <i>patach</i> Mais [dans le verset] "Je suis Celui qui sait ( וָעֵד ) et témoigne, "où la lettre ו' est un préfixe, elle porte la voyelle <i>kametz</i> ( וָעֵד ). 
+<b>Pour toujours et à jamais. </b> וָעֶד est une expression dénotant l'éternité et la lettre ו' en elle fait partie de la racine donc elle est vocalisée avec un <i>patach</i> Mais [dans le verset] "Je suis Celui qui sait ( וָעֵד ) et témoigne, "où la lettre ו' est un préfixe, elle porte la voyelle <i>kamatz</i> ( וָעֵד ). 
 
 ### passuk 19
 <b>Lorsque le cheval de Pharaon est arrivé.</b> [כִּי בָא signifie] <i>lorsque</i> il est arrivé.

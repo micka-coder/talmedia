@@ -1,6 +1,6 @@
 
 ### michna 1
-Dix classes généalogiques sont montées de Babylone [à l'époque d'Esdras et de Néhémie] :   Prêtres, Lévites, Israélites, halalim, convertis, esclaves affranchis, mamzerim, netinim, hushlings et foundlings. Les prêtres, les lévites et les israélites peuvent se marier entre eux. Les lévites, les israélites, les halalim, les convertis et les esclaves affranchis peuvent se marier entre eux. Les convertis, les esclaves affranchis, les mamzerim et les netinim, les enfants de chœur et les enfants trouvés peuvent se marier entre eux.
+Dix classes généalogiques sont montées de Babylone [à l'époque d'Ezra et de Néhémie] :   Prêtres, Lévites, Israélites, halalim, convertis, esclaves affranchis, mamzerim, netinim, hushlings et foundlings. Les prêtres, les lévites et les israélites peuvent se marier entre eux. Les lévites, les israélites, les halalim, les convertis et les esclaves affranchis peuvent se marier entre eux. Les convertis, les esclaves affranchis, les mamzerim et les netinim, les enfants de chœur et les enfants trouvés peuvent se marier entre eux.
 
 ### michna 2
 Voici ce qu'ils sont : un jeune homme (shtuki) : celui qui sait qui est sa mère mais pas son père ; un enfant trouvé (asufi) : celui qui a été recueilli sur la place du marché et qui ne connaît ni son père ni sa mère. Abba Saul avait l'habitude d'appeler le hushling (shtuki), "l'homme contrôlé" (b"duki).

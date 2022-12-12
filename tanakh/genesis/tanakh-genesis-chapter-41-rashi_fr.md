@@ -103,7 +103,7 @@
 <b>Et préparer.</b> Comme le traduit Onkelos וִיזָרֵז -et préparer. De même וַחֲמֻשִׁים -et se préparent [au combat]. 
 
 ### passuk 35
-<b>Toute la nourriture.</b> [Le mot אֹכֶל] est un nom. Par conséquent, l'accent est sur le אל "ף et [le כ "ף] est vocalisé avec un <i>patach koton</i>. Le mot אוֹכֵל , lorsqu'il est un verbe, par exemple : " Car celui qui mangera [אוֹכֵל] de la graisse ", a son accent sur la dernière syllabe, sur le כ "ף et est vocalisé avec un <i>kametz koton</i>. 
+<b>Toute la nourriture.</b> [Le mot אֹכֶל] est un nom. Par conséquent, l'accent est sur le אל "ף et [le כ "ף] est vocalisé avec un <i>patach katan</i>. Le mot אוֹכֵל , lorsqu'il est un verbe, par exemple : " Car celui qui mangera [אוֹכֵל] de la graisse ", a son accent sur la dernière syllabe, sur le כ "ף et est vocalisé avec un <i>kamatz katan</i>. 
 <b>Sous la main [juridiction] de Pharaon.</b> [Signification :] sous son contrôle et dans ses entrepôts.
 
 ### passuk 36
