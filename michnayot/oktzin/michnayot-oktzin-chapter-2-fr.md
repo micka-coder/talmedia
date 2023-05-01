@@ -27,7 +27,7 @@ Les feuilles d'oignon ou les pousses d'oignon, s'il y a de l'humidité en elles,
 Un concombre planté dans un pot qui a grandi jusqu'à ce qu'il soit sorti du pot est pur. Rabbi Shimon dit : quelle est sa nature pour le rendre pur ? Au contraire, ce qui est déjà devenu impur reste impur, et seul ce qui est pur peut être mangé.
 
 ### michna 10
-Les récipients en fumier ou en terre à travers lesquels les racines peuvent pénétrer, ne rendent pas les graines sensibles [à l'impureté]. Un pot de fleurs perforé ne rend pas les graines sensibles, mais s'il n'a pas de trou, les graines deviennent sensibles. Quelle doit être la dimension du trou ? De manière à ce qu'une petite racine puisse s'y frayer un chemin. S'il est rempli de terre à ras bord, il est considéré comme un cadre sans bord.
+Les pots en fumier ou en terre à travers lesquels les racines peuvent pénétrer, ne rendent pas les graines sensibles [à l'impureté]. Un pot de fleurs perforé ne rend pas les graines sensibles, mais s'il n'a pas de trou, les graines deviennent sensibles. Quelle doit être la dimension du trou ? De manière à ce qu'une petite racine puisse s'y frayer un chemin. S'il est rempli de terre [le pot] à ras bord [et au delà de telle sorte que la terre du pot est en contact avec le sol], il [le pot] est considéré comme un cadre sans bord [et ses graines ne deviennent pas sensible à l'impureté].
 
 >Crédit : Version original Dr. Joshua Kulp & translation, adaptation Talmedia
 >Licence : CC BY-NC

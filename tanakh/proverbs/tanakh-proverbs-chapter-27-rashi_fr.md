@@ -31,7 +31,7 @@
 ### passuk 10
 <b>Ton ami et l'ami de ton père</b> Le Saint, béni soit-Il, qui est appelé ami d'Israël, et l'ami de ton père, car il a endeuillé tes ancêtres.
 <b>Ne l'abandonnez pas</b> Et, si vous l'abandonnez, le châtiment vous atteindra.
-<b>Et...la maison de ton frère</b> Ne compte pas sur les enfants d'Ésaü et d'Ismaël pour qu'ils se lient d'amitié avec toi. Nous constatons que lorsqu'Israël était exilé à Babylone, ils disaient à ceux qui les conduisaient avec des fers au cou : "Nous vous en prions, conduisez-nous sur le chemin de nos frères, les fils d'Ésaü et d'Ismaël", et les fils d'Ésaü allaient vers eux et les accueillaient avec diverses sortes d'aliments salés et des fioles soufflées.
+<b>Et...la maison de ton frère</b> Ne compte pas sur les enfants d'Ésaü et d'Ismaël pour qu'ils se lient d'amitié avec toi. Nous constatons que lorsqu'Israël était exilé à Babylone, ils disaient à ceux qui les conduisaient avec des fers au cou : "Nous vous en prions, conduisez-nous sur le chemin de nos frères, les fils d'Ésaü et d'Ismaël", et les fils d'Ismaël allaient vers eux et les accueillaient avec diverses sortes d'aliments salés et des fioles soufflées.
 <b>Qu'un frère éloigné</b> Il vaut mieux que Celui qui est proche de ceux qui l'appellent habite parmi vous que de venir vers ton frère qui s'est éloigné en disant (Gen. 27:41) : " Quand les jours de deuil de mon père seront proches, etc.
 
 ### passuk 11

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And with what are we dealing here</b> in the mishna? A case <b>where a woman,</b> who is generally disqualified from bearing witness, <b>came initially,</b> and testified that the woman committed adultery, and two witnesses say that she did not.
 
@@ -8,5 +7,32 @@
 ### Part 3
 The Gemara poses a question on these two interpretations of the mishna: <b>And why do I</b> need <b>two</b> cases in the mishna to teach the <i>halakha</i> that the majority opinion of <b>those disqualified from</b> bearing <b>witness</b> is followed? The Gemara explains: It is necessary, <b>lest you say</b> that <b>when we follow the majority opinion</b> in the case of invalid witnesses, this is <b>to be stringent</b> to force the woman to drink the bitter water, e.g., if one witness said that she committed adultery and two said that she did not, <b>but to be lenient</b> and absolve her from having to drink the water we do <b>not</b> follow the majority opinion, and she would still drink the water even if there is one witness saying that she did not commit adultery, therefore the mishna <b>teaches us</b> that there is no difference in this regard, and the majority opinion is followed in any case.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> <b>These are recited in any language,</b> not specifically Hebrew: <b>The portion of</b> the warning and the oath administered by the priest to <b>a woman suspected by her husband of having been unfaithful [<i>sota</i>]; and the declaration of tithes,</b> which occurs after the third and the sixth years of the seven-year Sabbatical cycle, when one declares that he has given his tithes appropriately; <b><i>Shema</i>; and</b> the <i>Amida</i> <b>prayer; and Grace after Meals; and an oath of testimony,</b> where one takes an oath that he does not have any testimony to provide on a given issue; <b>and an oath on a deposit,</b> where one takes an oath that he does not have possession of another’s deposit.
+
+### Part 6
+<b>And these are recited</b> only <b>in the sacred tongue,</b> Hebrew: <b>The recitation of</b> the verses that one recounts when bringing the <b>first fruits</b> to the Temple; <b>and</b> the recitations which form an element of <b>the ritual through which a <i>yavam</i> frees a <i>yevama</i> of her levirate bonds [<i>ḥalitza</i>];</b> the <b>blessings and curses</b> that were spoken on Mount Gerizim and Mount Ebal; <b>the Priestly Benediction; and the blessing</b> on the Torah recited <b>by</b> the <b>High Priest</b> on Yom Kippur; <b>and the portion of</b> the Torah read by <b>the king</b> at the assembly on <i>Sukkot</i> at the conclusion of the Sabbatical Year; <b>and the portion</b> recited during the ritual <b>of a heifer whose neck is broken,</b> when a person is found killed in an area that is between two cities, and the murderer is unknown; <b>and</b> the speech of a priest who is <b>anointed for war when he addresses the nation</b> before going out to battle.
+
+### Part 7
+<b>How</b> is it derived that the <b>recitation</b> when bringing the <b>first fruits</b> is recited specifically in Hebrew? When the Torah discusses this mitzva it states: <b>“And you shall speak and say before the Lord your God”</b> (Deuteronomy 26:5), <b>and below,</b> in the discussion of the blessings and curses, <b>it states: “And the Levites shall speak and say”</b> (Deuteronomy 27:14). <b>Just as there,</b> the Levites speak <b>in the sacred tongue, so too here,</b> the recitation is <b>in the sacred tongue.</b>
+
+### Part 8
+<b>How</b> is it derived that the recitation at <b>a <i>ḥalitza</i></b> ceremony must be in Hebrew? The verse in the Torah portion discussing <i>ḥalitza</i> states: <b>“And she shall speak and say”</b> (Deuteronomy 25:9), <b>and below it states: “And the Levites shall speak and say”</b> (Deuteronomy 27:14). <b>Just as there,</b> the Levites speak <b>in the sacred tongue, so too here,</b> the recitation is <b>in the sacred tongue.</b>
+
+### Part 9
+<b>Rabbi Yehuda says:</b> This can be derived from a different word in the verse: <b>“And she shall speak and say: So</b> shall it be done to the man that does not build up his brother’s house” (Deuteronomy 25:9). The word “so” indicates that her statement is ineffective <b>unless she says</b> it <b>in these</b> exact <b>words.</b>
+
+### Part 10
+<b>How</b> did the ceremony of the <b>blessings and curses</b> take place? <b>When the Jewish people crossed the Jordan River they came to Mount Gerizim and Mount Ebal, which are in Samaria along-side</b> the city of <b>Shechem, which is near the oaks of Moreh, as it is stated: “Are they not beyond the Jordan,</b> behind the way of the going down of the sun, in the land of the Canaanites that dwell in the Arabah, over against Gilgal, beside the oaks of Moreh?” (Deuteronomy 11:30), <b>and there it states: “And Abram passed through the land until the place of Shechem, until the oaks of Moreh”</b> (Genesis 12:6). <b>Just as the oaks of Moreh mentioned there</b> with regard to Abraham <b>are</b> close to <b>Shechem, so too, the oaks of Moreh mentioned here are</b> close to <b>Shechem.</b>
+
+### Part 11
+<b>Six tribes ascended to the top of Mount Gerizim and six tribes ascended to the top of Mount Ebal, and the priests and the Levites and the Ark were standing at the bottom in the middle,</b> between the two mountains. <b>The priests were surrounding the Ark and the Levites</b> were surrounding <b>the priests, and all</b> the rest <b>of the Jewish people</b> were standing on the mountains <b>on this side and on that side, as it is stated: “And all Israel, and their elders and officers, and their judges, stood on this side of the Ark and on that side</b> before the priests the Levites that bore the Ark of the Covenant of the Lord” (Joshua 8:33).
+
+### Part 12
+The Levites then <b>turned to face Mount Gerizim and opened with</b> the <b>blessing: Blessed be the man who does not make a graven or molten image</b> (see Deuteronomy 27:15), <b>and these</b> people <b>and those</b> people, i.e., the two groups standing on either mountain, <b>answered: Amen.</b> Then <b>they turned to face Mount Ebal and opened with</b> the <b>curse: “Cursed be the man who makes a graven or molten image”</b> (Deuteronomy 27:15), <b>and these</b> people <b>and those</b> people <b>answered: Amen.</b> They continued in this manner <b>until they completed</b> reciting all of the <b>blessings and curses.</b>
+
+### Part 13
+<b>And afterward they brought the stones</b> as commanded in the Torah, <b>and</b> they <b>built the altar and plastered it with plaster, and they wrote on it all of the words of the Torah in seventy languages, as it is stated:</b> “And you shall write on the stones all the words of this law <b>clearly elucidated”</b> (Deuteronomy 27:8), indicating that it was to be written in every language. <b>And they</b> then <b>took the stones</b> from there <b>and came</b>

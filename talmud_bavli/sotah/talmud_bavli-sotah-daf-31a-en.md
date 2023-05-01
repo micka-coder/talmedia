@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>“In full assemblies, bless God, the Lord, you that are from the source of Israel”</b> (Psalms 68:27), indicating that even children that are in the “source,” i.e., their mother’s womb, blessed God when they gathered at the sea.
 
@@ -35,5 +34,26 @@ The Gemara answers: <b>That</b> verse, which mentions one thousand generations, 
 ### Part 12
 It happened that there were <b>these two students who were sitting before Rava,</b> and <b>one said to him: It was read to me in my dream: “How abundant is Your goodness, which You have laid up for those who fear You”</b> (Psalms 31:20). <b>And one said to</b> Rava: <b>It was read to me in my dream: “So shall all those who take refuge in You rejoice; they will forever shout for joy,</b> and You will shelter them; <b>let them also who love Your name exult in You”</b> (Psalms 5:12). Rava <b>said to them: You are both completely righteous Sages.</b> One <b>Sage,</b> the second dreamer, serves God <b>out of love, and</b> one <b>Sage,</b> the first dreamer, serves God <b>out of fear.</b> Each Sage’s dream corresponded to his manner of serving God.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> In the case of <b>one who warned his wife</b> not to seclude herself with a particular man <b>and she</b> subsequently <b>secluded herself</b> with the man she was warned about, <b>even if he heard</b> about it <b>from a flying bird,</b> or any other source whatsoever, <b>he must divorce</b> his wife. However, he must still <b>grant her</b> the money accorded to her by her <b>marriage contract</b> because there is no actual proof of her seclusion with the man in question. This is <b>the statement of Rabbi Eliezer,</b> who, as quoted in the first mishna of the tractate (2a), holds that there is no necessity for witnesses to testify with regard to the seclusion, and the woman becomes forbidden to her husband even in the absence of witnesses, by the husband’s word alone.
+
+### Part 15
+<b>Rabbi Yehoshua</b> disagrees, as he did in the mishna (2a), and <b>says:</b> He does not divorce his wife in the absence of witnesses <b>until</b> the gossiping women who sit and <b>spin</b> thread <b>by</b> the <b>light of the moon</b> begin to <b>discuss her</b> behavior, as they share the gossip of the town. The Gemara earlier (6b) taught that a woman whose infidelity became subject to this public discussion can no longer be tested by the bitter water of a <i>sota</i>. Consequently, she must get divorced.
+
+### Part 16
+The mishna continues to list various possible testimonies concerning of such acts of seclusion. If <b>one witness said: I saw that she became defiled</b> during her seclusion by engaging in sexual intercourse with that other man, <b>she does not drink</b> the bitter water, but rather, he divorces her immediately. <b>And furthermore, even</b> if the one who testified was <b>a slave or a maidservant,</b> neither of whom is generally regarded as a valid witness, <b>they are deemed credible</b> to testify to the wife’s adultery <b>even to</b> the extent that their testimony <b>disqualifies her from</b> receiving <b>her marriage contract</b> and prevents her from drinking the bitter water.
+
+### Part 17
+The mishna continues by listing women whose testimony is only partially accepted concerning this matter: <b>Her mother-in-law, and her mother in-law’s daughter, and her rival wife,</b> i.e., a second wife of the husband, <b>and her <i>yevama</i>,</b> i.e., her husband’s brother’s wife, <b>and her husband’s daughter,</b> all of whom are generally not deemed credible if they say anything incriminating pertaining to this woman due to the tumultuous relationships these women often have. <b>They are</b> all <b>deemed credible</b> to testify concerning the woman’s defilement while in seclusion, <b>but</b> are <b>not</b> deemed credible <b>to</b> the extent that their testimony will <b>disqualify her from</b> receiving <b>her marriage contract; rather,</b> it is deemed credible to the extent that she will <b>not drink</b> of the bitter water of a <i>sota</i>.
+
+### Part 18
+This ruling allowing one witness’s testimony with regard to defilement needs to be stated, <b>as, by right,</b> it <b>should</b> not <b>have been</b> deemed credible based on the following <i>a fortiori</i> inference: <b>And just as if</b> with regard to <b>the first testimony</b> concerning seclusion, <b>which does not forbid her</b> with <b>an irrevocable prohibition,</b> as the woman can be found innocent permitting her again to her husband by drinking the bitter water, <b>is not established with fewer than two</b> witnesses, since according to the mishna the testimony of seclusion requires two witnesses, then with regard to <b>the final testimony</b> concerning defilement, <b>which forbids her</b> to her husband with <b>an irrevocable prohibition, is it not logical that it</b> should also <b>not be established with fewer than two</b> witnesses?
+
+### Part 19
+Therefore, to counter this derivation, <b>the verse states: “And there be no witness against her”</b> (Numbers 5:13), teaching that <b>any</b> testimony with regard to defilement <b>that there is against her</b> is sufficient, and two witnesses are not required.
+
+### Part 20
+The Gemara asks: <b>And from now</b> that it is established that one witness suffices to testify with regard to defilement, <b>an <i>a fortiori</i></b> inference can be made <b>with regard to the first testimony</b> of seclusion: <b>And just as if</b>

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And even the Rabbis do not disagree with Rabbi Elazar, son of Rabbi Shimon, except with regard to the meal-offering of a sinner</b> who is <b>a priest, as</b> they hold that <b>it is fit to be sacrificed</b> in its entirety without removing a handful. <b>However, in this</b> case, i.e., in the case of the meal-offering of a <i>sota</i> who is married to a priest, <b>even the Rabbis agree</b> that its remainder is scattered on the place of the ashes, since the handful is removed from the offering.
 
@@ -35,5 +34,11 @@ The mishna states: <b>A man is hanged, but</b> a woman is <b>not</b> hanged. The
 ### Part 12
 The mishna states: <b>A man is sold for his</b> committing an act of <b>theft, but a woman is not sold for her</b> committing an act of <b>theft.</b> The Gemara asks: <b>What is the reason</b> for this? <b>The verse states:</b> “If the sun rose upon him, there is blood-guilt for him; he shall make restitution; if he has nothing, <b>then he shall be sold for his theft”</b> (Exodus 22:2). The verse indicates that he is sold <b>for his theft, but</b> she is <b>not</b> sold <b>for her theft.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> With regard to <b>a betrothed woman</b> who secluded herself with another man after being warned by her betrothed, <b>and a widow waiting for her brother-in-law [<i>yavam</i>]</b> to perform levirate marriage who secluded herself with another man after being warned by her <i>yavam</i>, <b>they neither drink</b> the bitter water <b>nor collect</b> payment of their <b>marriage contracts.</b> The reason they are not entitled to payment of their marriage contracts is that the betrothed woman became forbidden to her betrothed or the widow became forbidden to her <i>yavam</i> due to her own actions of entering into seclusion with the paramour. And the fact that they do not drink the bitter water is <b>as it is stated:</b> “This is the law of jealousy, <b>when a wife, while under her husband, goes astray,</b> and is defiled” (Numbers 5:29). The verse <b>excludes a betrothed woman and a widow awaiting her <i>yavam</i>;</b> since they are not yet married, neither is considered as “under her husband.”
+
+### Part 15
+The mishna delineates cases where the woman’s marriage was prohibited in the first place: With regard to <b>a widow</b> who was married <b>to a High Priest,</b> or <b>a divorcée or <i>ḥalutza</i></b> who was married <b>to a common priest,</b> or <b>a <i>mamzeret</i></b>
