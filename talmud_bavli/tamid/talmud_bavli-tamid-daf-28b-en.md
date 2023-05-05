@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>nor could they hear the sound of his</b> steps. They were therefore unaware of his progress <b>until they heard</b> the <b>sound of the wood that ben Katin crafted</b> into <b>a mechanism [<i>mukhani</i>]</b> of pulleys that was used <b>to</b> sink <b>the Basin</b> into flowing water during the night, so that its water would not be disqualified by remaining overnight. When the priests heard the sound of the pulleys raising the Basin from the water, <b>they said</b> to each other: <b>The time</b> for sanctifying hands and feet <b>has come.</b> The priest <b>sanctified his hands and his feet</b> with water <b>from the Basin</b> after he raised it. <b>He</b> then <b>took the silver coal pan</b> from the corner between the ramp and the altar, <b>and ascended to the top of the altar.</b>
 
@@ -17,5 +16,14 @@ The Gemara explains that <b>this</b> is what the verse <b>is saying: You shall n
 ### Part 6
 <b>But isn’t it taught</b> in a <i>baraita</i>: <b>From where</b> is it derived <b>that there is nothing</b> that is sacrificed on the altar <b>prior to the daily morning offering? The verse states:</b> “And the fire on the altar shall be kept burning on it, it shall not be extinguished; and the priest shall kindle wood upon it every morning, <b>and he shall prepare the burnt offering upon it</b> and shall cause the fats of the peace offerings to go up in smoke upon it” (Leviticus 6:5). <b>And Rabba says</b> that the term: <b>The burnt offering,</b> with the definite article, indicates that the <b>burnt offering</b> is important and is the <b>first</b> offering sacrificed each day. <b>Rav Yehuda says:</b> The griddle-cake offering was not burned on the altar at that early hour. Rather, it was necessary to set the preparers of the griddle-cake offering <b>to heat hot water for</b> preparing <b>the parboiled</b> griddle cakes.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> The previous mishna described the performance of the removal of the ashes by the priest who was selected to perform this task. This mishna continues: <b>The brethren</b> of the priest who removed the ashes, i.e., the other members of the patrilineal family, <b>saw that he had descended</b> from the altar with the coal pan, <b>and they</b> would <b>run and come</b> to the Basin. <b>They made haste and sanctified their hands and their feet with</b> the water in <b>the Basin,</b> and then <b>they took the shovels and the forks and ascended</b> with them <b>to the top of the altar.</b> The shovels were for shoveling the ashes to the center of the altar, while the forks were required to remove from the altar those limbs that had not been consumed.
+
+### Part 9
+With regard to <b>the limbs</b> of burnt offerings <b>and the fats</b> of other offerings <b>that had not been consumed</b> and burned to ashes during the time <b>from the</b> previous <b>evening,</b> the priests would <b>clear them to the sides of the altar. If</b> the remaining limbs and fats were so abundant that the <b>sides</b> of the altar were <b>unable to hold</b> them, the priests would <b>arrange them on the ramp, opposite the surrounding ledge</b> of the altar.
+
+### Part 10
+The priests then <b>began raising the ashes onto</b> the <b>circular heap</b> upon which the ashes were piled. The <b>circular heap was in the middle of the altar. Sometimes there was</b> as much <b>as three hundred <i>kor</i></b> of ashes <b>upon it.</b> When the heap of ashes became excessively large, the priests would remove the ashes and pour them outside the city. <b>But during the Festivals they would not remove the ashes</b> from the altar, <b>as</b> the ashes <b>were</b> considered <b>an adornment to the altar,</b> since they were a sign of the great number of offerings that were sacrificed on it. <b>In all the days</b> of the altar, even when there was an abundance of ashes upon it,

@@ -1,4 +1,3 @@
-
 ### Part 1
 § The mishna teaches that with regard to <b>the offspring of a <i>tereifa</i>,</b> Rabbi Eliezer prohibits it to be sacrificed on the altar, whereas the Rabbis permit it. The Gemara explains: There is a dispute as to whether a <i>tereifa</i> is capable of giving birth. <b>According to the one who says</b> that <b>a <i>tereifa</i> can give birth, you find</b> this dispute between Rabbi Eliezer and the Rabbis in a case <b>where</b> the animal first <b>became a <i>tereifa</i> and then became pregnant.</b>
 
@@ -32,5 +31,11 @@ By contrast, <b>according to the one who says</b> that <b>a <i>tereifa</i> canno
 ### Part 11
 <b>There are</b> those <b>who state</b> a different version: <b>“You may slaughter and eat,”</b> this teaches that <b>you have permission</b> to derive benefit <b>from them only from the time of slaughter and onward,</b> i.e., those benefits that come after slaughter, such as the consumption of its flesh, are permitted. But one may not derive benefit from their shearing or their milk, as these occur even when the animal is alive. It can be inferred from here that the <i>tanna</i> of this <i>baraita</i> <b>maintains</b> that <b>one may redeem sacrificial</b> animals <b>to feed them to dogs,</b> as this occurs after the slaughter.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> <b>There are</b> elements that apply <b>to</b> animals <b>consecrated for the altar that do not</b> apply <b>to</b> items <b>consecrated for Temple maintenance, and there are</b> elements that apply <b>to</b> items <b>consecrated for Temple maintenance that do not</b> apply <b>to</b> animals <b>consecrated for the altar.</b>
+
+### Part 14
+One element exclusive to animals consecrated for the altar is <b>that</b> animals <b>consecrated for the altar render</b> an animal exchanged for them <b>a substitute, and</b> items <b>consecrated for Temple maintenance do not render</b> an animal exchanged for them <b>a substitute.</b> In addition, if one slaughters an animal <b>consecrated for the altar</b> with the intention to eat it beyond its designated time, or if he ate the offering after its designated time, or if he ate the offering while ritually impure, <b>he is liable</b> to receive <i>karet</i> <b>for eating it due to</b> violation of the prohibitions of <b><i>piggul</i>, <i>notar</i>, and</b> eating while <b>ritually impure,</b> respectively.

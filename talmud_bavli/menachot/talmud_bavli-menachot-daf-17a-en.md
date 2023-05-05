@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>the sharp</b> people in the city <b>of Pumbedita: Burning renders burning <i>piggul</i>,</b> e.g., burning the handful with the intent to burn the frankincense the next day renders the meal offering <i>piggul</i>. <b>And</b> this is the <i>halakha</i> <b>even according to the Rabbis, who say</b> that <b>one does not render</b> an offering <b><i>piggul</i> with</b> intent occurring during the sacrifice of <b>half of a permitting factor,</b> e.g., when sacrificing the handful alone with intent of <i>piggul</i>. The reason is that <b>this statement</b> applies only <b>where he had intent during</b> the sacrifice of the handful to consume <b>the remainder</b> the next day, <b>and</b> the <b>frankincense stands intact,</b> i.e., he had no intent with regard to it. <b>But here, when he had intent with regard to the frankincense</b> while burning the handful, <b>it is considered as though he had intent with regard to the entire permitting factor.</b>
 
@@ -41,5 +40,23 @@ The Gemara relates that <b>a <i>tanna</i> taught</b> a <i>baraita</i> <b>before 
 ### Part 14
 The Gemara challenges: <b>But</b> if one must emend the <i>baraita</i>, <b>let him say</b> that the <i>baraita</i> states: <b>It is <i>piggul</i>, and</b> that <b>it is</b> in accordance with the opinion of <b>Rabbi Meir.</b> The Gemara responds: It is reasonable that the <b><i>tanna</i> taught</b> that <b>everyone agrees,</b> and that he accidentally <b>exchanged</b> the word <b><i>piggul</i> for disqualified.</b> But <b>he would not confuse</b> the phrase: <b>This is</b> the opinion of Rabbi Meir, <b>with</b> the phrase: <b>Everyone agrees.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> In the case of <b>one who removes a handful from the meal offering</b> with the intent <b>to consume</b>, beyond its designated time, <b>an item whose</b> typical <b>manner</b> is such that one does <b>not consume</b> it, i.e., the handful, <b>or to burn,</b> beyond its designated time, <b>an item whose</b> typical <b>manner</b> is such that one does <b>not burn</b> it on the altar, i.e., the remainder of the meal offering, the meal offering is <b>fit. Rabbi Eliezer deems</b> it <b>unfit,</b> although it is not <i>piggul</i>, and consuming it is therefore not punishable by excision from the World-to-Come [<i>karet</i>].
+
+### Part 17
+In the case of one who removes a handful from the meal offering with the intent <b>to consume,</b> beyond its designated time, <b>an item whose</b> typical <b>manner</b> is such that one does <b>consume</b> it, <b>or to burn,</b> beyond its designated time, <b>an item whose</b> typical <b>manner</b> is such that one does <b>burn</b> it on the altar, but his intent was to consume or burn improperly <b>less than an olive-bulk,</b> the offering is <b>fit.</b> If his intent was both <b>to consume half an olive-bulk and to burn half an olive-bulk</b> beyond its designated time, the meal offering is nevertheless <b>fit, because eating and burning do not join together.</b>
+
+### Part 18
+<strong>GEMARA:</strong> <b>Rabbi Asi says</b> that <b>Rabbi Yoḥanan says: What is the reason</b> for the ruling <b>of Rabbi Eliezer</b> that the intention to consume, beyond its designated time, an item that is not usually consumed renders the meal offering unfit? <b>The verse states</b> with regard to consuming an offering after its designated time: <b>“And if any of the flesh of the sacrifice of his peace offerings is at all consumed [<i>he’akhol ye’akhel</i>]”</b> (Leviticus 7:18), repeating for emphasis the term for consumption. He derives from the repeated term that <b>the verse is speaking of two</b> types of <b>consumption: One</b> is <b>the consumption</b> of the offering <b>by a person,</b> e.g., by the priests or the owner of the offering, <b>and</b> the other <b>one is the consumption</b> of the sacrificial portions <b>by</b> their being burned on the <b>altar.</b> This serves <b>to tell you</b> that <b>just as</b> one’s improper <b>intention with regard to the consumption of a person</b> renders the offering unfit, <b>so too,</b> one’s improper <b>intention with regard to the consumption of</b> the <b>altar</b> renders the offering unfit.
+
+### Part 19
+<b>And</b> furthermore, this serves to tell you that <b>just as</b> one’s improper <b>intention</b> that a portion of the offering designated for <b>consumption by a person</b> will be <b>consumed</b> on the following day <b>by a person</b> renders the offering unfit, <b>and</b> one’s improper <b>intention</b> that a portion of the offering designated for <b>consumption of</b> the <b>altar</b> will be <b>consumed</b> on the following day <b>by</b> the <b>altar</b> renders the offering unfit, <b>so too,</b> one’s improper <b>intention</b> that a portion of the offering designated for <b>consumption by a person</b> will be <b>consumed on</b> the <b>altar</b> renders the offering unfit, <b>and</b> one’s improper intention that a portion of the offering designated for <b>consumption of</b> the <b>altar</b> will be <b>consumed</b> on the following day <b>by a person</b> renders the offering unfit.
+
+### Part 20
+<b>What is the reason</b> for this derivation? It is derived <b>from</b> the fact <b>that the Merciful One expresses</b> the <b>burning</b> of the offering <b>using the language of consumption.</b>
+
+### Part 21
+<b>And the Rabbis,</b> who disagree with Rabbi Eliezer, maintain the following: <b>This</b> fact <b>that the Merciful One expresses</b> the burning of the offering <b>using the language of consumption</b>

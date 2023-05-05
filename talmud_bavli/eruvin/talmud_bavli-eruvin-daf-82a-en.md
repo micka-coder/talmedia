@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>Are you raising a contradiction between</b> the opinion of <b>one person and</b> that of <b>another?</b> In other words, a difficulty cannot be raised from the statement of one <i>amora</i> against those of another. <b>One Sage,</b> Shmuel, <b>maintains</b> that Rabbi Yehuda and the Sages <b>disagree, and one</b> other <b>Sage,</b> Rabbi Yehoshua ben Levi, <b>maintains</b> that they <b>do not disagree.</b>
 
@@ -23,5 +22,35 @@ The Gemara answers: <b>That</b> opinion in the <i>baraita</i>, with regard to th
 ### Part 8
 <b>Consequently,</b> it can be inferred that <b>since he is in doubt</b> as to <b>whether he is a nazirite or he is not a nazirite, he does not submit himself</b> to and accept his vow of naziriteship. <b>Here, too,</b> Rabbi Yehuda disqualifies those who play games of chance from delivering testimony due to the fact that they are robbers. <b>Since</b> the player <b>does not know whether he will</b> win and <b>acquire</b> the money <b>or whether he will</b> lose and <b>not acquire</b> it, <b>he does not fully transfer ownership</b> of the money with which he plays to others, which means that the one who gains from these games receives money that was not wholeheartedly given to him. He is therefore likened to a robber, at least on the rabbinic level, which disqualifies him from giving testimony.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 9
+end of chapter
+
+### Part 10
+<strong>MISHNA:</strong> <b>How does one participate in</b> the joining of Shabbat <b>boundaries?</b> One who wishes to establish a joining of Shabbat boundaries for himself and others <b>places a barrel</b> of food in the location he designates as their place of residence, <b>and says: This is for all the residents of my town, for anyone who</b> wishes to <b>go</b> on Shabbat <b>to a house of mourning or to a house of</b> a wedding <b>feast</b> situated beyond the Shabbat limit. <b>Anyone who accepted upon himself while it was still day,</b> i.e., before the onset of Shabbat, that he will rely on the <i>eiruv</i>, <b>is permitted</b> to rely upon it; but if one did so only <b>after nightfall,</b> he is <b>prohibited</b> to rely upon it, as the principle is that <b>one may not establish an <i>eiruv</i> after nightfall.</b>
+
+### Part 11
+<strong>GEMARA:</strong> <b>Rav Yosef said: One may establish a joining</b> of Shabbat boundaries <b>only for the purpose of a mitzva,</b> i.e., to enable the fulfillment of a religious obligation, but not for an optional activity. The Gemara asks: <b>What</b> novel element <b>is he teaching us</b> by this? <b>We</b> explicitly <b>learned</b> this idea in the mishna from the phrase: <b>For anyone who</b> wishes to <b>go</b> on Shabbat <b>to a house of mourning or to a house of a</b> wedding <b>feast.</b> This mishna indicates that an <i>eiruv</i> may be established only for the purpose of a mitzva, e.g., in order to comfort mourners or to celebrate a wedding, but not for any other reason.
+
+### Part 12
+The Gemara answers: This teaching is necessary, <b>lest you say</b> that the mishna merely <b>teaches the usual case.</b> Generally, a group of people would establish an <i>eiruv</i> in order to walk beyond the Shabbat limit only for a special purpose, such as a wedding, but one might be permitted to establish an <i>eiruv</i> even for an optional activity as well. Rav Yosef therefore <b>teaches us</b> that an <i>eiruv</i> may indeed be established only for the purpose of a mitzva.
+
+### Part 13
+We learned in the mishna: <b>Anyone who accepted upon himself while it was still day</b> that he will rely upon the <i>eiruv</i> is permitted to rely upon it on Shabbat. The Gemara comments: Apparently, <b>learn from here</b> that <b>there is no</b> halakhic principle of retroactive <b>clarification.</b> That is to say, there is no halakhic assumption that an uncertain state of affairs can be retroactively clarified. A later statement or action cannot retroactively clarify one’s earlier intentions as though he had explicitly stated those intentions at the outset. For <b>if there is</b> a halakhic principle of retroactive <b>clarification,</b> the <i>eiruv</i> should be effective even if one relied upon it only after nightfall, as <b>it is retroactively revealed that he wanted</b> the <i>eiruv</i> <b>while it was still day.</b>
+
+### Part 14
+<b>Rav Ashi said</b> that the mishna <b>teaches:</b> While it was still day. This phrase does not require one to make the decision to rely on the <i>eiruv</i> before Shabbat. Rather, the criterion for using the <i>eiruv</i> on Shabbat is whether <b>they informed him or they did not inform him</b> of the existence of the <i>eiruv</i> prior to Shabbat. In other words, if one knew about the <i>eiruv</i> while it was still day, he may rely on it, even if he decided to use it only after the onset of Shabbat, as the halakhic principle of retroactive clarification is accepted. However, if one was unaware of the existence of the <i>eiruv</i> when it came into effect at the onset of Shabbat, the matter cannot be retroactively clarified.
+
+### Part 15
+<b>Rav Asi said: A six-year-old child may go out by</b> means of <b>his mother’s <i>eiruv</i>.</b> As he is subordinate to her, he is included in her <i>eiruv</i> and does not require his own <i>eiruv</i>. <b>The Gemara raises an objection</b> from a <i>baraita</i>: <b>A child who needs his mother may go out by</b> means of <b>his mother’s <i>eiruv</i>, but one who does not need his mother may not go out by</b> means of <b>his mother’s <i>eiruv</i>.</b>
+
+### Part 16
+<b>And we also learned a similar</b> <i>halakha</i> in a mishna <b>with regard to a <i>sukka</i>: A child who does not need his mother is obligated in</b> the mitzva of <b><i>sukka</i></b> by rabbinical law, so that he will be trained in the observance of mitzvot.
+
+### Part 17
+<b>And we discussed</b> this mishna and raised a question: <b>But who is</b> the <b>child who does not need his mother? The</b> Sages of the <b>school of Rabbi Yannai said:</b> This is referring to <b>any</b> child <b>who defecates and his mother does not wipe him.</b> A child who can clean himself is considered sufficiently mature for the purposes of the <i>halakha</i> of <i>sukka</i>.
+
+### Part 18
+<b>Rabbi Shimon ben Lakish said: Any</b> child <b>who wakens</b> from sleep <b>and does not call: Mother,</b> is obligated in the mitzva of <i>sukka</i>. The Gemara expresses surprise at this statement: <b>Can it enter your mind</b> that every child who cries: <b>Mother</b> is considered to be one who needs his mother? Much <b>older</b> children <b>also call</b> out to their mothers for assistance when they awaken. <b>Rather, say</b> that the <i>halakha</i> includes <b>any</b> child <b>who wakens from sleep and does not</b> persistently <b>call: Mother, Mother.</b> A minor who arises only when his mother comes is classified as one who needs his mother.
+
+### Part 19
+The Gemara continues. The Sages who discussed the mishna asked: <b>And</b> at <b>what</b> age is a child no longer considered to be in need of his mother? Such a child is <b>one about four</b> years <b>old</b> or <b>about five</b> years <b>old,</b> as some children become independent of their mothers earlier than others. This poses a difficulty to the opinion of Rav Asi, who maintains that even a six-year-old child is considered to be in need of his mother, and may go out by means of his mother’s <i>eiruv</i>.

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>that they will say a matter of <i>halakha</i> in my name in this world</b> when I have passed on to another world. <b>As Rabbi Yoḥanan said in the name of Rabbi Shimon ben Yoḥai:</b> With regard to <b>any Torah scholar in whose name a matter of <i>halakha</i> is said in this world, his lips mouth</b> the words <b>in the grave,</b> as though he is talking. <b>Rabbi Yitzḥak ben Ze’eira said, and some say</b> this was stated by <b>Shimon the Nazirite: What is the verse</b> from which it is derived? <b>“And the roof of your mouth is like the best wine that glides down smoothly for my beloved, moving gently the lips of those who are asleep”</b> (Song of Songs 7:10).
 
@@ -20,5 +19,47 @@ The Gemara asks a question with regard to the <i>halakha</i> itself: <b>And</b> 
 ### Part 7
 On the same issue, the Gemara relates: <b>When they would come before Rava</b> to inquire about someone who had reached the age of maturity but had not yet developed the physical signs, <b>if</b> the person in question was <b>thin, he would say to them: Go</b> and <b>fatten him</b> up before we decide on his status. <b>And if he</b> was <b>fat, he would say to them: Go</b> and <b>make him thin. As these signs,</b> the pubic hairs of maturity, <b>sometimes they fall off due to thinness and sometimes they fall off due to fatness.</b> It is therefore possible that after his bodily shape is adjusted he will develop the signs of maturity and will not have the status of a eunuch.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> <b>One may marry</b> a relative, e.g., the sister or the mother, <b>of the woman he raped and of the woman he seduced.</b> However, <b>one who rapes and one who seduces</b> a relative <b>of the woman who is married</b> to him <b>is liable</b> to receive capital punishment or <i>karet</i> for engaging in prohibited sexual intercourse, depending on the particular family relationship. <b>A man may marry a woman raped by his father, or a woman seduced by his father,</b> or <b>a woman raped by his son, or a woman seduced by his son. Rabbi Yehuda prohibits</b> marriage <b>in</b> the case of <b>a woman raped by his father or a woman seduced by his father.</b>
+
+### Part 10
+<strong>GEMARA:</strong> <b>We learned</b> in the mishna <b>that which the Sages teach</b> in a <i>baraita</i>: If a man <b>raped a woman, he is permitted to marry her daughter.</b> If <b>he married a woman, it is prohibited</b> for him <b>to marry her daughter. However,</b> the Gemara <b>raises a contradiction</b> from another <i>baraita</i>: <b>One who is alleged</b> to have engaged in intercourse <b>with</b> a particular <b>woman is prohibited</b> from marriage <b>with her mother, and with her daughter, and with her sister.</b> Apparently, as a consequence of non-marital intercourse, there is a prohibition against the man marrying the woman’s relatives. The Gemara answers: This is merely prohibited by <b>rabbinic</b> decree, lest the man continue to engage in intercourse with this particular woman after marrying one of her relatives, thereby transgressing a Torah prohibition.
+
+### Part 11
+The Gemara asks: <b>And anywhere that there is a rabbinic prohibition,</b> does the mishna <b>teach</b> that <b>one may marry</b> the woman <b><i>ab initio</i>?</b> Since the marriage is prohibited by rabbinic decree, the mishna should have taught that if he marries her, he is exempt from punishment. The Gemara answers: <b>When we learned</b> in <b>the mishna</b> that he may marry her <i>ab initio</i>, it was dealing with their marriage <b>after</b> the <b>death</b> of the woman that he raped or seduced. The rabbinic prohibition does not relate to this case, as concern with regard to forbidden relatives is not relevant there.
+
+### Part 12
+The Gemara asks: With regard to the mishna’s ruling, <b>from where are these matters</b> derived? It is <b>as the Sages taught: With</b> regard to <b>all</b> other prohibited sexual relations, <b>lying is stated, whereas here,</b> with regard to a man’s intercourse with his wife’s relatives, <b>taking is stated.</b> This is <b>to tell you</b> that the <b>Torah prohibited</b> intercourse with these relatives only <b>through taking,</b> i.e., the man’s acquisition of his wife through marriage. It did not prohibit intercourse with the relative of a woman with whom he engaged in nonmarital relations.
+
+### Part 13
+<b>Rav Pappa said to Abaye: However, if</b> that interpretation is <b>so,</b> then <b>with regard to</b> intercourse with <b>one’s sister,</b> concerning whom <b>it is written: “And if a man takes his sister, his father’s daughter, or his mother’s daughter”</b> (Leviticus 20:17), you must <b>also</b> say that is it is only intercourse <b>through taking,</b> i.e., marriage, that is <b>prohibited.</b> But intercourse <b>through lying,</b> i.e., without marriage, is <b>permitted.</b> How can this be?
+
+### Part 14
+Abaye <b>said to</b> Rav Pappa: When the term <b>taking is stated in the Torah without specification,</b> it is interpreted in accordance with the context. With regard to the context of a relationship <b>that has potential for taking</b> through marriage, this verb is interpreted as <b>taking</b> through marriage. In the context of a relationship <b>that has potential</b> only <b>for lying,</b> as their marriage would be invalid, taking the woman is understood to mean <b>lying</b> with her.
+
+### Part 15
+<b>Rava said:</b> The <i>halakha</i> that if a man <b>raped a woman it is permitted</b> for him <b>to marry her daughter</b> is derived <b>from here. It is stated: “The nakedness of your son’s daughter, or of your daughter’s daughter,</b> even their nakedness…<b>you may not uncover”</b> (Leviticus 18:10). It may be inferred from here that <b>the daughter of</b> the woman’s <b>own son</b> from a different relationship, <b>and the daughter of her own daughter,</b> may be <b>uncovered,</b> i.e., intercourse with them is not prohibited.
+
+### Part 16
+<b>And it is</b> also <b>written: “You may not uncover the nakedness of a woman and her daughter; you may not take her son’s daughter, or her daughter’s daughter,</b> to uncover her nakedness; they are near kinswomen, it is lewdness” (Leviticus 18:17). <b>How so?</b> How can the two verses be reconciled? Evidently, the former verse is stated <b>with regard to rape.</b> A man may marry the daughter or granddaughter of the woman he raped, provided they are not his own offspring. The latter verse is stated <b>with regard to marriage.</b> Marrying the relatives of one’s wife is prohibited.
+
+### Part 17
+The Gemara asks: Perhaps <b>I should reverse</b> the resolution of the contradiction between the verses and state that the daughter or granddaughter of his rape victim is forbidden, whereas the relatives of his wife are permitted. The Gemara answers: <b>With</b> regard to <b>those with whom intercourse is forbidden,</b> the concept of <b>kinship is stated</b> (see Leviticus 18:13, 17). <b>In marriage there is kinship,</b> whereas <b>in</b> the case of <b>rape there is no kinship.</b> Therefore, the prohibition against intercourse with a woman and her daughter or granddaughter is clearly referring to the daughter and granddaughter of one’s wife and not of the woman he raped.
+
+### Part 18
+§ It is taught in the mishna that <b>Rabbi Yehuda prohibits</b> marrying <b>a woman raped by his father</b> or a woman seduced by his father. <b>Rav Giddel said</b> that <b>Rav said: What is the reasoning</b> for the ruling <b>of Rabbi Yehuda?</b> It is <b>as it is written: “A man may not take his father’s wife, and may not uncover his father’s skirt”</b> (Deuteronomy 23:1), meaning that <b>one may not uncover</b> the <b>skirt that his father has seen.</b>
+
+### Part 19
+<b>And from where</b> is it apparent <b>that</b> this verse <b>is written with regard to a woman raped</b> by his father and not with regard to his father’s wife? It is <b>as it is written</b> just <b>before that verse,</b> with regard to rape: <b>“And the man who lay with her shall give the young woman’s father fifty shekels of silver”</b> (Deuteronomy 22:29).
+
+### Part 20
+<b>And</b> how do <b>the Rabbis,</b> who disagree with Rabbi Yehuda, respond to this proof? <b>If</b> the prohibition stated <b>had been juxtaposed with</b> the verse dealing with rape, it would be <b>as you said.</b> However, <b>now that it is not juxtaposed with it,</b> as there is another prohibition in between, namely “a man may not take his father’s wife” (Deuteronomy 23:1), the prohibition of “he may not uncover his father’s skirt” <b>is necessary to</b> teach <b>that which Rav Anan</b> taught, <b>as Rav Anan said</b> that <b>Shmuel said: The verse is speaking of a widow waiting for her brother-in-law,</b> who is this man’s <b>father,</b> to perform levirate marriage. <b>And what</b> is the meaning of the phrase <b>“his father’s skirt”?</b> The <b>skirt that is potentially his father’s, he may not uncover.</b>
+
+### Part 21
+The Gemara questions this interpretation: Why does the Torah need to explicitly prohibit intercourse with the <i>yevama</i> of one’s father? <b>Derive</b> that intercourse is prohibited <b>due to</b> the fact that she is <b>his aunt,</b> as she is his father’s brother’s widow. The Gemara answers: The Torah purposely rendered this act a more serious offense. By specifying that it is prohibited for one to engage in sexual relations with his father’s <i>yevama</i>, one who engaged in intercourse <b>with her has violated two prohibitions.</b> The Torah specifically prohibited his father’s <i>yevama</i> in order <b>to</b> have one who engages in relations <b>with her violate two prohibitions,</b> the prohibition proscribing relations with his aunt and the prohibition proscribing relations with his father’s <i>yevama</i>, thereby rendering it a more serious offense.
+
+### Part 22
+The Gemara asks: <b>But</b> why not <b>derive</b> that one violates two prohibitions <b>because</b> there is also a prohibition against <b>a <i>yevama</i></b> engaging in intercourse <b>with</b> a member of <b>the public,</b> i.e., someone other than her <i>yavam</i>. The Gemara answers: The Torah prohibited one’s father’s <i>yevama</i> so that one who engaged in intercourse <b>with her</b> will have <b>violated three prohibitions:</b> Intercourse with one’s aunt, with one’s <i>yevama</i>, and with one’s father’s <i>yevama</i>. <b>And if you wish, say</b> instead that the verse that prohibits his father’s <i>yevama</i> is referring to the period <b>after</b> the <b>death</b> of his father, who has no additional brothers, so there is no prohibition against the <i>yevama</i> engaging in intercourse with a member of the public.

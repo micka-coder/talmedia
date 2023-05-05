@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And</b> she is <b>prohibited</b> on the <b>twentieth day, because</b> it is the <b>manner</b> of women that their blood flow <b>comes at its</b> usual <b>time.</b>
 
@@ -8,5 +7,50 @@
 ### Part 3
 <strong>GEMARA:</strong> With regard to the term <i>durkati</i>, the Gemara explains that this means <b>truncated generation [<i>dor katua</i>].</b> As <b>Rabbi Ḥiyya teaches: Just as leaven is good for dough, so too, blood is good for a woman.</b> It was likewise <b>taught in the name of Rabbi Meir: Any woman whose blood is plentiful, her children are plentiful.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> In the case of <b>a young girl whose time to see</b> a menstrual flow, i.e., the age of puberty, <b>has not</b> yet <b>arrived, and she married</b> and engaged in intercourse and her hymen was torn, <b>Beit Shammai say:</b> The Sages <b>give her four nights</b> after intercourse during which the blood is attributed to the torn hymen and she remains ritually pure. Thereafter, any blood is assumed to be menstrual blood and renders her impure. <b>And Beit Hillel say:</b> The blood is attributed to the torn hymen <b>until the wound heals.</b>
+
+### Part 6
+In the case of a young woman <b>whose time to see</b> a menstrual flow <b>has arrived</b> but she has not yet begun to menstruate, <b>and she married</b> and engaged in intercourse and her hymen was torn, <b>Beit Shammai say:</b> The Sages <b>give her the first night</b> during which the blood is attributed to the torn hymen. Thereafter, any blood is assumed to be menstrual blood. <b>And Beit Hillel say:</b> The blood is attributed to the torn hymen <b>until the conclusion of Shabbat,</b> and she may engage in intercourse with her husband for <b>four nights,</b> as it was customary for a virgin to marry on Wednesday.
+
+### Part 7
+In the case of a young woman who <b>saw</b> menstrual blood before marriage while <b>she was still in her father’s house, Beit Shammai say:</b> The Sages <b>give her</b> permission to engage only in <b>relations</b> that consummate a marriage, which are <b>a mitzva,</b> after which she is ritually impure due to the blood. <b>And Beit Hillel say:</b> The husband and wife may engage even in several acts of intercourse, as any blood seen <b>throughout the entire night</b> is attributed to the torn hymen.
+
+### Part 8
+<strong>GEMARA:</strong> The mishna first addresses the case of a young girl who has not yet reached puberty. <b>Rav Naḥman bar Yitzḥak says: And</b> this <i>halakha</i> applies to her <b>even</b> if <b>she has seen</b> menstrual blood. He explains his reasoning: <b>From where</b> do I derive this? I derive it <b>from</b> the fact <b>that</b> the <i>tanna</i> <b>distinguishes in the latter clause</b> of the mishna <b>between</b> a young girl who has <b>seen</b> menstrual blood <b>and</b> a young girl who has <b>not seen</b> menstrual blood. <b>By inference,</b> in <b>the first clause</b> of the mishna the <i>halakha</i> <b>is no different</b> in <b>this</b> case, where the young girl has experienced menstrual bleeding, <b>and</b> it <b>is no different</b> in <b>that</b> case, where she has not yet experienced menstrual bleeding.
+
+### Part 9
+<b>This</b> explanation of Rav Naḥman bar Yitzḥak <b>is also taught</b> in a <i>baraita</i>: <b>Beit Hillel say:</b> With regard to a young girl who has not yet reached puberty, the blood she emits is attributed to the torn hymen <b>until the wound heals,</b> regardless of <b>whether she has seen</b> menstrual blood beforehand or <b>whether she has not</b> yet <b>seen</b> menstrual blood.
+
+### Part 10
+§ The mishna teaches that Beit Hillel say: The blood is attributed to the torn hymen <b>until the wound heals.</b> The Gemara clarifies: <b>Until when</b> can the blood be attributed to the torn hymen? <b>Rav Yehuda says</b> that <b>Rav says: All the time that she is <i>noḥeret</i>.</b> Rav Yehuda continues: <b>When</b> I subsequently <b>said this</b> <i>halakha</i> <b>before Shmuel, he said to me: This <i>noḥeret</i>, I do not know what it is,</b> nor do I know what Rav means by it. <b>Rather, all the time that the saliva is in</b> her <b>mouth due to sexual intercourse,</b> she may attribute the blood to the torn hymen. Shmuel is using a euphemism, i.e., as long as there is blood in her vagina resulting from sexual intercourse.
+
+### Part 11
+The Gemara clarifies: This <b><i>noḥeret</i> that Rav says; what is it like?</b> What did he mean? <b>Rav Shmuel bar Rav Yitzḥak said: It was explained to me by Rav</b> as follows: If the young girl <b>stands</b> up <b>and sees</b> blood, but she <b>sits and does not see</b> blood, <b>it is known that the wound has not</b> yet <b>healed,</b> and the blood is still attributed to the torn hymen. Similarly, if she sits <b>on the ground and sees</b> blood, but she sits <b>on cushions and blankets and does not see</b> blood, <b>it is known that the wound has not</b> yet <b>healed</b> and she may attribute the blood to the torn hymen, as the blood flows due to the strain of sitting on the ground. But if she sometimes sits <b>on all of them,</b> i.e., the ground, cushions, and blankets, <b>and sees</b> blood, and on other occasions she sits <b>on all of them and does not see</b> blood, <b>it is known that the wound has healed,</b> and this blood must now be menstrual blood.
+
+### Part 12
+§ The mishna teaches: In the case of a young woman <b>whose time</b> to see a menstrual flow <b>has arrived,</b> Beit Hillel say: The blood is attributed to the torn hymen until the conclusion of Shabbat and she may engage in intercourse with her husband for four nights. <b>It was stated</b> that there is a dispute between <i>amora’im</i> with regard to the following case: If <b>she engaged in intercourse</b> with her husband <b>during the daytime,</b> in addition to engaging in intercourse at night, <b>Rav says: She has not lost</b> her <b>nights,</b> and the blood is still attributed to the torn hymen for four nights. <b>Levi says: She has lost</b> her <b>nights,</b> since she has engaged in intercourse twice during the daytime and twice at night, and therefore she has already used up the equivalent of four nights.
+
+### Part 13
+The Gemara explains: <b>Rav says</b> that <b>she has not lost</b> her <b>nights,</b> as <b>we learned</b> in the mishna that the blood is attributed to the torn hymen <b>until the conclusion of Shabbat,</b> and it does not limit the number of times she may engage in intercourse during that time. <b>And Levi says: She has lost</b> her <b>nights,</b> as <b>what</b> is the meaning of the term: <b>Four nights, that is taught</b> in the mishna? It means <b>four</b> twelve-hour <b>periods,</b> either days or nights.
+
+### Part 14
+The Gemara asks: <b>And according to</b> the opinion of <b>Rav, why do I</b> need the mishna <b>to teach: Four nights?</b> The mishna should have stated four days, which would include both days and nights. Rav would respond that the mishna <b>teaches us proper conduct, as it is proper that intercourse</b> should be performed only <b>at night.</b> The Gemara suggests: <b>And according to</b> the opinion of <b>Levi, let</b> the mishna <b>teach</b> only: <b>Four nights. Why do I</b> need the mishna to specify: <b>Until the conclusion of Shabbat?</b> Levi would answer that <b>this teaches us that it is permitted to engage in intercourse for the first</b> time <b>on Shabbat.</b> Since the custom was for a virgin to marry on Wednesday, which means that one of the four first nights is Shabbat, it is permitted to engage in intercourse on that night, despite the fact that it may cause her to bleed.
+
+### Part 15
+The Gemara notes that Levi’s ruling is <b>in accordance with</b> the opinion <b>of Shmuel, as Shmuel said: It is permitted to enter into a narrow opening</b> in a wall <b>on Shabbat, and</b> this is the <i>halakha</i> <b>even though</b> doing so <b>causes pebbles to fall</b> from the wall. Similarly, although engaging in intercourse might cause a wound and bleeding, it is permitted on Shabbat.
+
+### Part 16
+It <b>was stated</b> that the <i>amora’im</i> engaged in a dispute: If a husband <b>engaged in intercourse</b> with a virgin <b>and did not find blood, and</b> he <b>went back</b> within the first four nights <b>and</b> again <b>engaged in intercourse</b> with her <b>and</b> this time he <b>found blood, Rabbi Ḥanina says:</b> The wife is <b>ritually impure,</b> as this is menstruation blood. <b>And Rabbi Asi says: She is ritually pure,</b> as it is blood from the wound resulting from the act of intercourse.
+
+### Part 17
+<b>Rabbi Ḥanina says: She is ritually impure, as if it is so that it is blood</b> from her hymen, i.e., the blood of her <b>virginity, it would have come at the outset,</b> after the first time they engaged in intercourse. <b>And Rabbi Asi said: She is ritually pure,</b> as <b>perhaps it happened for him</b> that he engaged in intercourse <b>like Shmuel</b> described. <b>As Shmuel said: I can engage in intercourse several times without</b> the appearance of <b>blood.</b> In other words, I can engage in intercourse with a virgin while leaving her hymen intact. <b>And the other</b> Sage, Rabbi Ḥanina, does not allow for that possibility, since he maintains that <b>Shmuel is different, as his strength</b> was <b>great.</b> Shmuel was particularly skilled at this, while others cannot accomplish this.
+
+### Part 18
+§ The mishna teaches the <i>halakha</i> of a young girl. The Gemara discusses the case of a girl who is older than twelve and a half. <b>Rav says:</b> The Sages <b>give a grown woman,</b> who engaged in intercourse on her wedding night, <b>the</b> entire <b>first night,</b> during which she may engage in intercourse with her husband several times. <b>And this statement</b> applies only <b>if she did not see</b> any blood. <b>But</b> if <b>she saw</b> blood, <b>she has only the relations</b> that consummate a marriage, which are <b>a mitzva, and nothing more.</b>
+
+### Part 19
+The Gemara <b>raises an objection</b> to Rav’s statement from a <i>baraita</i>: There was <b>an incident</b> involving a virgin who married, <b>and Rabbi</b> Yehuda HaNasi <b>gave her four nights</b> in which to engage in intercourse <b>within twelve months</b> of her wedding when the blood is considered to be like blood resulting from the torn hymen. The Gemara asks: <b>What are the circumstances</b> of this case? <b>If we say that</b> Rabbi Yehuda HaNasi <b>gave her all of</b> those nights of purity <b>in</b> her <b>days</b> as <b>a minor,</b>

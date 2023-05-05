@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>of gold. Although</b> the lamb <b>was examined</b> and deemed unblemished earlier <b>in the evening,</b> the priests <b>examine it</b> now <b>by the light of the torches.</b>
 
@@ -32,5 +31,14 @@ The priest <b>who won</b> the right <b>of the removal of ash from the Candelabru
 ### Part 11
 <b>And there was a stone in front of the Candelabrum and in it there</b> were <b>three stairs upon which</b> the <b>priest</b> would <b>stand and prepare the lamps</b> for kindling. Since the Candelabrum was eighteen handbreadths high, it was necessary for the priest to stand on an elevated surface to reach the lamps. <b>And</b> after he placed the ashes and the wicks from the five westernmost lamps in the jug, he would <b>place the jug on</b> the <b>second stair</b> of that stone, <b>and</b> then he <b>emerged</b> from the Sanctuary. When the priest later returned to prepare the two easternmost lamps for kindling, he would remove the jug with the ashes from the Candelabrum, and together with the priest removing the basket with the ashes from the inner altar would pour the ashes from the jug and the basket at the side of the altar.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> In preparing the lamb of the daily offering for sacrifice, the priests <b>would not tie the lamb</b> by fastening all four of its legs together; <b>rather, they would bind it</b> by fastening each hind leg to the corresponding foreleg. The priests <b>who won</b> the right <b>to</b> take <b>the limbs</b> up to the ramp would <b>hold</b> the lamb in place while it was being slaughtered. <b>And this was</b> the manner of <b>its binding:</b> The animal would be stood in the northern part of the courtyard while <b>its head</b> would be directed <b>to the south,</b> toward the altar, <b>and its face</b> would be turned <b>to the west,</b> toward the Sanctuary. <b>And the slaughterer</b> would <b>stand to</b> the <b>east</b> of the animal, <b>and his face</b> would be <b>to the west.</b>
+
+### Part 14
+Twenty-four rings were affixed to the courtyard floor north of the altar, designated for placement of the animal’s neck during its slaughter. The daily offering <b>of the morning was slaughtered at the northwest corner</b> of the altar, <b>at</b> the <b>second ring.</b> The daily offering <b>of the afternoon was slaughtered at the northeast corner</b> of the altar, <b>at</b> the <b>second ring.</b>
+
+### Part 15
+After <b>the slaughterer has slaughtered</b> the lamb <b>and the receiver has received</b> its blood in a vessel to sprinkle on the altar, the priest <b>comes to</b> the <b>northeast corner</b> of the altar <b>and places</b> the first sprinkling in such a manner that the blood will reach the <b>eastern</b> and <b>northern</b> sides of the altar. Next, the priest comes to the <b>southwest</b> corner of the altar <b>and places</b> a second sprinkling in a manner such that the blood will reach the <b>western</b> and <b>southern</b> sides of the altar. With regard to <b>the remainder of the blood,</b> the priest <b>would pour</b> it <b>at</b> the <b>southern base</b> of the altar, at its southwest corner.

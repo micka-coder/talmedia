@@ -1,9 +1,26 @@
-
 ### Part 1
 He stated this <b>with regard to the prohibition of: “You shall not deviate</b> to the left or the right of that which they tell you” (Deuteronomy 17:11). A prohibition by rabbinic law is overridden by human dignity, but not a prohibition by Torah law. Therefore, Mar bar Rav Ashi would have removed his garment had he known about the tear.
 
 ### Part 2
 <b>And there are</b> those <b>who say</b> there is a different version of this discussion: It was <b>when</b> they were <b>there,</b> in the place where the corner of Mar bar Rav Ashi’s garment tore, that Ravina <b>said to him</b> that it had torn, <b>and</b> Mar bar Rav Ashi <b>said to him</b> in response: <b>What is your opinion?</b> Do you think <b>that I should throw</b> the garment off? <b>But doesn’t the Master say: Great is human dignity, as it overrides a prohibition in the Torah?</b> The Gemara raises a difficulty: <b>But Rav bar Shabba interpreted</b> that statement <b>before Rav Kahana:</b> He stated this <b>with regard to the prohibition of: “You shall not deviate,”</b> not the prohibition against carrying in the public domain, which applies by Torah law. The Gemara answers that <b>here too,</b> it is not a prohibition by Torah law, as the place where they were walking was not a full-fledged public domain but <b>a <i>karmelit</i>,</b> in which carrying <b>is</b> prohibited <b>by rabbinic law.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> The absence of <b>the sky-blue [<i>tekhelet</i>]</b> strings <b>does not prevent</b> fulfillment of the mitzva of ritual fringes with <b>the white</b> strings, <b>and the</b> absence of <b>white</b> strings <b>does not prevent</b> fulfillment of the mitzva with <b>the sky-blue</b> strings. If one has only one, he wears it without the other. Absence of the <b>phylacteries of</b> the <b>arm does not prevent</b> fulfillment of the mitzva of the phylacteries <b>of</b> the <b>head, and</b> absence of the phylacteries <b>of</b> the <b>head does not prevent</b> fulfillment of the mitzva of the phylacteries <b>of</b> the <b>arm.</b> If one has only one, he dons it without the other.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara suggests: <b>Let us say</b> that <b>the mishna is not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi. <b>As it is taught</b> in a <i>baraita</i>: When the verse requires one to place white and sky-blue strings upon the corners of his garments and then states: <b>“That you may look upon it”</b> (Numbers 15:39), it <b>teaches</b> that the lack of either <b>one prevents</b> fulfillment of the mitzva <b>with the other;</b> this is <b>the statement of Rabbi</b> Yehuda HaNasi. <b>But the Rabbis say:</b> The lack of one <b>does not prevent the</b> fulfillment of the mitzva with the other.
+
+### Part 6
+The Gemara inquires: <b>What is the reasoning of Rabbi</b> Yehuda HaNasi, i.e., how does he derive his ruling from this verse? The Gemara explains: <b>As it is written:</b> “And they shall put on the fringe of the corner a sky-blue thread” (Numbers 15:38). “The fringe of <b>the corner”</b> is a reference to strings that are of the same <b>type</b> as the <b>corner</b> of the garment. Since garments are usually white, this phrase is referring to white strings. <b>And it is written</b> in this same verse: <b>“A sky-blue thread.” And the Merciful One states</b> in the following verse, referring to both types of strings: “And it shall be to you for a fringe <b>that you may look upon it”</b> (Numbers 15:39), in the singular. This teaches that one does not fulfill his obligation <b>until both</b> types <b>are present together.</b>
+
+### Part 7
+The Gemara asks: <b>And</b> how do <b>the Rabbis,</b> who hold that the one can fulfill one obligation without the other, understand this verse? The Gemara answers: They hold that the phrase <b>“that you may look upon it” indicates</b> that one fulfills a mitzva with <b>each one individually.</b>
+
+### Part 8
+The Gemara concludes its initial suggestion: <b>Shall we say that</b> the mishna, which states that one can fulfill the mitzva with either white or sky-blue strings even in the absence of the other, is <b>not in accordance with</b> the opinion of <b>Rabbi</b> Yehuda HaNasi? The Gemara responds: <b>Rav Yehuda said</b> that <b>Rav said: You</b> may <b>even say</b> that the mishna is in accordance with the opinion of <b>Rabbi</b> Yehuda HaNasi, and the ruling of the mishna <b>is necessary only with regard to granting precedence.</b> The white strings should precede the blue strings, but if the order is reversed, one still fulfills the mitzva.
+
+### Part 9
+This is <b>as it is taught</b> in a <i>baraita</i>: It is <b>a mitzva to</b> insert the <b>white</b> strings into the garment <b>before</b> inserting <b>the sky-blue</b> strings, <b>but if</b> one inserted the <b>sky-blue</b> strings <b>before the white</b> strings, he <b>fulfilled</b> his obligation <b>but omitted</b> the <b>mitzva.</b> The Gemara asks: <b>What</b> does the <i>baraita</i> mean by the phrase: <b>Omitted</b> the <b>mitzva?</b>

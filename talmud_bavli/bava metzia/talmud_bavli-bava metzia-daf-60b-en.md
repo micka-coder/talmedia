@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara explains: It is <b>due to</b> the fact <b>that</b> by lowering the price <b>he eases the</b> market <b>rate,</b> i.e., his actions lead to the establishment of a lower market price.
 
@@ -17,5 +16,41 @@ The Gemara asks: <b>Adornment of a person, what is it?</b> The Gemara relates: I
 ### Part 6
 The slave <b>came before Rav Pappa bar Shmuel,</b> who <b>purchased him. One day</b> Rav Pappa <b>said to</b> the slave: <b>Give me water to drink.</b> The slave <b>went and</b> removed the dye and <b>whitened</b> the hair on <b>his head and his beard.</b> The slave <b>said to</b> Rav Pappa: <b>See that I am older than your father,</b> and I am unfit to serve you. Rav Pappa <b>read about himself: The righteous person is delivered from trouble, and another comes in his stead</b> (see Proverbs 11:8). Rav Pappa applied the verse to the incident of the slave. The righteous person, Rava, was spared the problem of the slave; while another, Rav Pappa bar Shmuel, came in his stead.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> The Torah states the prohibition against taking interest: “And if your brother becomes impoverished, and his hand falters with you, then you shall support him; whether a stranger or a native, he shall live with you. You shall not take from him interest [<i>neshekh</i>] or increase [<i>tarbit</i>]; you shall fear your God and your brother shall live with you. You shall not give him your money with <i>neshekh</i> and with <i>marbit</i> you shall not give him your food” (Leviticus 25:35–37). The mishna asks: <b>Which is <i>neshekh</i>, and which is <i>tarbit</i>?</b>
+
+### Part 9
+<b>Which is</b> the case in which there is <b><i>neshekh</i>?</b> With regard to <b>one who lends</b> another <b>a <i>sela</i>,</b> worth four dinars, <b>for five dinars</b> to be paid later, or one who lends another <b>two <i>se’a</i> of wheat for three</b> <i>se’a</i> to be returned later, this is <b>prohibited, as it is taking interest [<i>noshekh</i>].</b>
+
+### Part 10
+<b>And which is</b> the case in which there is <b><i>tarbit</i>?</b> It is the case of <b>one who</b> enters into a transaction that yields <b>an increase in the produce</b> beyond his investment. <b>How so?</b> For example, <b>one acquired wheat from</b> another at the price <b>of</b> one <b><i>kor</i></b> of wheat <b>for</b> one <b>gold dinar,</b> worth twenty-five silver dinars, with the wheat to be supplied at a later date, <b>and such</b> was <b>the</b> market <b>price</b> of wheat at the time he acquired it. The price of one <i>kor</i> of <b>wheat</b> then increased and <b>stood at thirty dinars.</b>
+
+### Part 11
+At that point, the buyer <b>said to</b> the seller: <b>Give me</b> all of <b>my wheat</b> now, <b>as I wish to sell it and purchase wine with it.</b> The seller <b>said to him:</b> Since it is ultimately wine that you want, not wheat, each <i>kor</i> of <b>your wheat is considered by me</b> to be worth <b>thirty</b> dinars, <b>and you have</b> the right to collect <b>its</b> value in <b>wine from me. And</b> in this case, the seller <b>did not have wine</b> in his possession. If wine then appreciates in value, the result will be an interest-bearing transaction, as the buyer collects from the seller wine worth more than the wheat for which he paid.
+
+### Part 12
+<strong>GEMARA:</strong> The Gemara asks: <b>From</b> the fact <b>that</b> in explaining the term <i>tarbit</i>, the <i>tanna</i> <b>sets aside the topic</b> of <b>interest by Torah law,</b> which is interest decided upon at the time of a loan, <b>and</b> instead <b>explicates</b> a case of lending with interest that is prohibited <b>by rabbinic law,</b> one can conclude <b>by inference</b> that <b>by Torah law, <i>neshekh</i> and <i>tarbit</i> are one matter,</b> and there is no halakhic distinction between them. The Gemara asks: <b>But aren’t</b> the <b>verses written</b> using the term <b><i>neshekh</i></b> for interest that is on a loan of <b>money and</b> <i>tarbit</i> or <i>marbit</i>, which are cognates of the term <b><i>ribit</i>,</b> for interest that is on a loan of <b>food?</b> This is as the verse states: “You shall not give him your money with <i>neshekh</i> and with <i>marbit</i> you shall not give him your food” (Leviticus 25:37).
+
+### Part 13
+The Gemara asks: <b>And can you understand that there is <i>neshekh</i> without <i>tarbit</i>, and <i>tarbit</i> without <i>neshekh</i>?</b> The term <i>neshekh</i>, from a root meaning bite, connotes loss to the borrower, while the term <i>tarbit</i>, literally increase, connotes profit for the lender. The Gemara asks: <b>What are the circumstances</b> where there could be <b><i>neshekh</i> without <i>tarbit</i>?</b>
+
+### Part 14
+<b>If</b> it is in a case where <b>one lends to</b> another <b>one hundred</b> <i>perutot</i> <b>with</b> the agreement to be repaid <b>one hundred and twenty,</b> and <b>initially one hundred</b> copper <i>perutot</i> <b>are</b> worth <b>one-sixth [<i>bedanka</i>]</b> of a dinar, <b>and ultimately,</b> when he pays, <b>one hundred and twenty</b> <i>perutot</i> <b>are</b> worth <b>one-sixth</b> of a dinar, this is not an example of one without the other. Although one might say that <b>there is <i>neshekh</i>, as</b> the lender <b>reduces</b> the borrower’s assets <b>since</b> the lender <b>takes</b> in payment <b>from</b> the borrower coins <b>that he did not give</b> him in the loan, <b>and there is no <i>tarbit</i>, as there is no profit</b> for the lender in this transaction, <b>since he lent him one-sixth</b> of a dinar <b>and he received from him one-sixth</b> of a dinar, that is not correct.
+
+### Part 15
+The Gemara explains: <b>Ultimately, if you go according to the initial</b> value, when the loan was granted, <b>there is <i>neshekh</i> and there is <i>tarbit</i>,</b> as the borrower agreed to pay more than he received. <b>If you go according to the ultimate</b> value, when the loan was repaid, <b>there is neither <i>neshekh</i> nor is there <i>tarbit</i>,</b> as he repaid only the value he received.
+
+### Part 16
+<b>Additionally, what are the circumstances</b> in which there could be <b><i>tarbit</i> without <i>neshekh</i>? If</b> it is in a case where <b>one lends to</b> another <b>one hundred</b> <i>perutot</i> <b>with</b> the agreement to be repaid <b>one hundred,</b> and <b>initially one hundred</b> copper <i>perutot</i> <b>are</b> worth <b>one-sixth</b> of a dinar, <b>and ultimately,</b> when he is repaid, <b>one hundred</b> <i>perutot</i> <b>are</b> worth <b>one-fifth</b> of a dinar, this is not an example of one without the other.
+
+### Part 17
+The Gemara explains: <b>If you go according to the initial</b> value, when the loan was granted, <b>there is neither <i>neshekh</i> nor is there <i>tarbit</i>,</b> as he is repaid only the value that he lent. <b>If you go according to the ultimate</b> value, when the loan was repaid, <b>there is <i>neshekh</i> and there is <i>tarbit</i>,</b> as the value of one hundred <i>perutot</i> has increased.
+
+### Part 18
+<b>Rather, Rava said: You do not find <i>neshekh</i> without <i>tarbit</i> nor <i>tarbit</i> without <i>neshekh</i>, and the verse distinguished</b> between <b>them only so that</b> lending with interest always involves <b>violating two prohibitions.</b>
+
+### Part 19
+<b>The Sages taught</b> in a <i>baraita</i>: The verse states: <b>“You shall not give him your money with <i>neshekh</i> and with <i>marbit</i> you shall not give him your food”</b> (Leviticus 25:37). <b>I have</b> derived <b>only</b> that there is a prohibition of <b><i>neshekh</i> for</b> a loan of <b>money and</b> a prohibition of <b><i>ribit</i> for</b> a loan of <b>food. From where</b> is it derived that there is <b><i>neshekh</i> with regard to</b> a loan of <b>food</b> as well? The <i>baraita</i> answers: A different <b>verse states:</b> “You shall not lend with interest [<i>tashikh</i>] to your brother: <i>Neshekh</i> of money, <b><i>neshekh</i> of food,</b> <i>neshekh</i> of anything that is lent with interest [<i>asher yishakh</i>]” (Deuteronomy 23:20). The <i>baraita</i> continues: <b>From where</b> is it derived that there is <b><i>ribit</i> with regard to</b> a loan of <b>money? The verse states: “<i>Neshekh</i> of money.”</b>

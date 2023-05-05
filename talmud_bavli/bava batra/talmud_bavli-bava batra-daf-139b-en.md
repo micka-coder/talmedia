@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>and one who inherits</b> the property of <b>his wife</b> after her death, i.e., the property is not returned to her family. Evidently, the husband does not have the status of a purchaser, as a purchaser must return the property to its original owner in the Jubilee Year.
 
@@ -14,5 +13,17 @@ The Gemara asks: <b>But with regard to</b> the case <b>of Rabbi Yosei, son of Ra
 ### Part 5
 The Gemara answers: <b>There,</b> the purchasers <b>caused their own loss. Since</b> they knew <b>that there is a husband, they should not have purchased</b> property <b>from a wife living under</b> the authority of <b>her husband,</b> removing it from the husband and his heirs.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> In the case of <b>one who died and left</b> behind both <b>sons and daughters, when the estate is large the sons inherit</b> the estate <b>and the daughters are provided with sustenance</b> from it according to the stipulations of the deceased’s marriage contract with their mother. With regard to <b>a small estate,</b> which is insufficient to provide for both the sons and the daughters, <b>the daughters are provided with sustenance. And</b> if <b>the sons,</b> who receive in this case neither inheritance nor sustenance, have no other means with which to support themselves, <b>they</b> go and <b>request</b> charity <b>at the doors. Admon says,</b> rhetorically: <b>I lost out</b> just <b>because I am male?</b> Rather, he holds that the sons also receive sustenance. <b>Rabban Gamliel said: I see</b> as correct <b>the statement of Admon.</b>
+
+### Part 8
+<strong>GEMARA:</strong> The Gemara asks: <b>And how large</b> must the estate be in order for the sons to inherit it? <b>Rav Yehuda says</b> that <b>Rav says:</b> Large <b>enough to provide sustenance from it for</b> both <b>these,</b> the sons, <b>and those,</b> the daughters, for <b>twelve months.</b> Rav Yehuda continues: <b>When I said this</b> ruling <b>before Shmuel, he said: That is the statement of Rabban Gamliel bar Rabbi</b> Yehuda HaNasi. <b>But the Rabbis say:</b> The estate must be large <b>enough to provide sustenance from it for</b> both <b>these and those until</b> the time <b>that</b> the daughters <b>reach their majority,</b> at age twelve and six months, as indicated in the marriage contract.
+
+### Part 9
+This <b>was also stated</b> by other <i>amora’im</i>: <b>When Ravin came</b> from Eretz Yisrael, he said that <b>Rabbi Yoḥanan says, and some say</b> it was <b>Rabba bar bar Ḥana</b> who <b>says</b> that <b>Rabbi Yoḥanan says: Any</b> estate <b>that</b> is large enough <b>to provide sustenance from it for</b> both <b>these and those until</b> the time <b>that</b> the daughters <b>reach their majority is a large</b> estate; <b>less than that, this is a small</b> estate.
+
+### Part 10
+The Gemara asks: <b>And if there is not</b> enough to provide <b>for these and those until</b> the daughters <b>reach their majority,</b>

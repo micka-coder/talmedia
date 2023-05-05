@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>to its general prohibition,</b> as the fat of an undomesticated animal is permitted. <b>But</b> with regard to <b>a limb</b> from a living animal, <b>where</b> there are <b>no permitted</b> circumstances to <b>its general prohibition,</b> the prohibition of consuming a <i>tereifa</i> does <b>not</b> take effect.
 
@@ -41,5 +40,8 @@ The Gemara explains that Rabbi Elazar knew the answer to his question, but <b>Ra
 ### Part 14
 Rabbi Asi <b>was silent and did not say anything.</b> Rabbi Elazar <b>said to him: Wonder of the generation, did you not say</b> this case <b>many times before Rabbi Yoḥanan, and he said to you:</b> This person is liable <b>because his throat derives pleasure from</b> a full <b>olive-bulk?</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> It is <b>prohibited to cook any meat</b> of domesticated and undomesticated animals and birds <b>in milk, except for the meat of fish and grasshoppers,</b> whose halakhic status is not that of meat. <b>And</b> likewise, the Sages issued a decree that it is <b>prohibited to place</b> any meat together <b>with</b> milk products, e.g., <b>cheese, on</b> one <b>table.</b> The reason for this prohibition is that one might come to eat them after they absorb substances from each other. This prohibition applies to all types of meat, <b>except for the meat of fish and grasshoppers.</b>

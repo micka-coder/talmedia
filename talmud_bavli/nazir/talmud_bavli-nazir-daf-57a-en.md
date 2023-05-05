@@ -1,9 +1,23 @@
-
 ### Part 1
 <strong>GEMARA:</strong> <b>A dilemma was raised before</b> the Sages with regard to the <i>halakha</i> transmitted to Moses from Sinai mentioned in the mishna: Is the <i>halakha</i> that a nazirite must shave for <b>a bone that is a barley-grain</b>-<b>bulk a <i>halakha</i></b> transmitted to Moses from Sinai, <b>and</b> it was the status of <b>a quarter-</b><i>log</i> <b>of blood</b> that Rabbi Akiva sought to derive as <b>an <i>a fortiori</i></b> inference, <b>and</b> with regard to this claim they said: <b>One does not derive an <i>a fortiori</i></b> inference <b>from a <i>halakha</i></b> transmitted to Moses from Sinai?
 
 ### Part 2
 <b>Or perhaps</b> the ruling that <b>a quarter-</b><i>log</i> <b>of blood</b> imparts ritual impurity in a tent is the <b><i>halakha</i></b> transmitted to Moses from Sinai, <b>and</b> Rabbi Akiva sought to use the case of <b>a bone that is a barley-grain</b>-<b>bulk</b> as the source of <b>an <i>a fortiori</i></b> inference that a nazirite must shave for a quarter-<i>log</i> as well, to which the Sages replied that <b>one does not derive an <i>a fortiori</i></b> inference <b>from a <i>halakha</i></b> transmitted to Moses from Sinai. The Gemara answers: <b>Come</b> and <b>hear</b> the unequivocal statement of a <i>baraita</i>: <b>A bone that is a barley-grain</b>-<b>bulk</b> is <b>a <i>halakha</i>, and a quarter-</b><i>log</i> <b>of blood</b> is <b>an <i>a fortiori</i></b> inference, <b>and one does not derive an <i>a fortiori</i></b> inference <b>from a <i>halakha</i>.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> With regard to <b>two nazirites, where one</b> other person <b>said to them: I saw one of you become impure, but I do not know which</b> one <b>of you</b> it was, they must each complete their naziriteship terms, <b>shave</b> their hair, <b>and</b> both together <b>bring an offering of ritual impurity and an offering of purity,</b> due to the uncertainty. <b>And</b> one of them <b>says</b> to the other: <b>If I am</b> the <b>impure</b> one, <b>the offering of impurity is mine and the offering of purity is yours; and if I am</b> the <b>pure</b> one, <b>the offering of purity is mine and the offering of impurity is yours.</b>
+
+### Part 5
+<b>And</b> because of the uncertainty <b>they</b> each <b>count</b> a further <b>thirty days</b> of naziriteship <b>and</b> both together <b>bring an offering of purity. And</b> one of them <b>says: If I am the</b> previously <b>impure one,</b> that <b>offering of impurity</b> sacrificed earlier was <b>mine, and the offering of purity</b> was <b>yours; and this</b> offering sacrificed now <b>is my offering of purity. And if I am the</b> previously <b>pure one, the offering of purity</b> brought earlier was <b>mine, and the offering of impurity</b> was <b>yours; and this</b> current offering <b>is your offering of purity.</b>
+
+### Part 6
+<strong>GEMARA:</strong> The mishna <b>teaches</b> with regard to <b>two nazirites,</b> that <b>if one</b> other person <b>said to them: I saw one of you become impure, but I do not know which one of you</b> it was, they must bring an offering of ritual impurity and an offering of purity. The Gemara expresses surprise at this case: <b>But why</b> should they be defined as having <b>uncertain impurity?</b> After all, the general principle that <b>any uncertain impurity in a private domain</b> is considered impure, <b>from where do we derive this? From</b> the case of <b>a <i>sota</i>.</b>
+
+### Part 7
+Yet this situation is not similar to that of a <i>sota</i>, as <b>just as</b> the case of <b>a <i>sota</i></b> involves only <b>an adulterer and an adulteress, so too any uncertain impurity in a private domain</b> is considered impure only in a case <b>where there are</b> no more than <b>two</b> people present. <b>However,</b> in the mishna <b>here</b> there are <b>two nazirites and this</b> other individual <b>who is standing alongside them,</b> who witnessed one of them become impure, which makes a total of <b>three.</b> Consequently, <b>this is an uncertain impurity in the public domain,</b> as three people are sufficient for the place to be considered a public domain with regard to this <i>halakha</i>, <b>and</b> the <i>halakha</i> with regard to <b>any uncertain impurity in the public domain</b> is that <b>its uncertainty</b> is considered <b>pure.</b>
+
+### Part 8
+<b>Rabba bar Rav Huna said</b> that the mishna is referring <b>to one who says:</b> From a distance <b>I saw an impure</b> item <b>thrown between you.</b> Since he was not with them when one of the nazirites became impure, there were only two people present and therefore this is a case of uncertain impurity in a private domain. <b>Rav Ashi said:</b> The language of the mishna <b>is also precise,</b>

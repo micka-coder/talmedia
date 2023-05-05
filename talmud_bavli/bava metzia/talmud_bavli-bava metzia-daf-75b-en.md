@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>All</b> the <b>dry days</b> during the summer, when it does not rain, are viewed as <b>one</b> period, meaning that if they each agreed to work one day, the dry days are viewed as though they were all exactly equal in length, despite the slight differences between them. Similarly, <b>all</b> the <b>rainy days</b> are treated as <b>one</b> period. But <b>he may not say to him: Plow with me in the dry</b> season <b>and I will plow with you in the rainy</b> season.
 
@@ -38,5 +37,11 @@ The Gemara cites a related incident: <b>The Sages said to Rav Ashi: Ravina fulfi
 ### Part 13
 The Gemara clarifies: One who <b>acquires a master for himself, what is it? There are</b> those <b>who say</b> that it is referring to one who <b>attributes his property to a gentile.</b> He falsely claims that his possessions belong to a gentile in order to evade his obligations, thereby inviting the gentile to take advantage of this declaration. And <b>there are</b> those <b>who say</b> that it is referring to one <b>who writes</b> a document bequeathing <b>his property</b> as a gift <b>to his children in his lifetime,</b> as he becomes financially dependent on them. And <b>there are</b> those <b>who say that</b> it is referring to one <b>who has bad</b> fortune <b>in this town but does not go to a different town.</b> He is consequently responsible for his own misfortunes.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> With regard to <b>one who hires artisans</b> or laborers, <b>and they deceived one another, they have nothing but a grievance against one another,</b> and they have no financial claim against the deceptive party. If one <b>hired a donkey driver or a potter to bring posts [<i>piryafarin</i>]</b> for a canopy <b>or flutes</b> to play in honor <b>of a bride or the dead, or</b> if he hired <b>laborers to bring up his flax from the retting tub,</b> i.e., the container of water in which flax is placed in the first stage of the manufacture of linen, <b>and</b> likewise <b>any matter that</b> involves financial <b>loss</b> if not performed on time <b>and</b> the laborers <b>reneged,</b> if this occurred in <b>a place where there is no</b> other <b>person</b> to perform the task, <b>he may hire</b> replacements for a large fee <b>at</b> the expense of the first workers, <b>or deceive them</b> to get them to return to work.
+
+### Part 16
+The mishna states a related <i>halakha</i>: With regard to <b>one who hires artisans</b> or laborers to perform work <b>and they reneged</b> on the agreement midway through the work, <b>they are at a disadvantage.</b> They must ensure that the employer does not suffer a loss.

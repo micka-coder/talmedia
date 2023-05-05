@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara challenges: <b>If that is so,</b> that the priests are characterized as a congregation, <b>let them bring a bull</b> as an unwitting communal offering if they perform a transgression <b>on</b> the basis of the <b>ruling</b> of the court. <b>And if you would say indeed it is so,</b> that is difficult, as the number of <b>tribes has increased</b> to thirteen.
 
@@ -26,5 +25,17 @@ With regard to a sin-offering <b>whose owners’</b> sin was <b>atoned</b> for <
 ### Part 9
 The Gemara asks: <b>And does one derive</b> the <i>halakha</i> of the <b>possible from</b> the <b>impossible?</b> Some of these cases are by their very nature not relevant to communal sin-offerings. One cannot derive the <i>halakha</i> from them with regard to cases that could be relevant to communal sin-offerings. The Gemara answers: <b>Rabbi Shimon learns</b> all these <i>halakhot</i> of sin-offerings that are left to die as a tradition <b>in one place,</b> i.e., as a single <i>halakha</i>. In cases where not all the categories of sin-offerings left to die apply, no category of sin-offerings that are left to die applies.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> In a case where <b>an anointed priest,</b> i.e., the High Priest, <b>issued</b> an erroneous <b>ruling for himself</b> permitting performance of an action prohibited by Torah law, if he issued the ruling <b>unwittingly and</b> then <b>unwittingly performed</b> the transgression in accordance with his ruling, he is liable to <b>bring a bull</b> as a sin-offering for an unwitting transgression by the anointed priest. If he issued the ruling <b>unwittingly, and performed</b> the transgression <b>intentionally,</b> or if he issued the ruling <b>intentionally and performed</b> the transgression <b>unwittingly,</b> he is <b>exempt</b> from liability to bring any offering, <b>as</b> there is a principle: The legal status of <b>the ruling of an anointed priest for himself is like</b> that of <b>the ruling of the court for the</b> general <b>public.</b> Therefore, the High Priest is liable to bring the bull as a sin-offering for his unwitting transgression in a case when the court would be liable to bring the bull as a communal sin-offering for an unwitting transgression performed by the general public.
+
+### Part 12
+<strong>GEMARA:</strong> The mishna teaches: If he issued the ruling <b>unwittingly and</b> then <b>unwittingly performed</b> the transgression in accordance with his ruling, he is liable to <b>bring a bull.</b> The Gemara asks: Isn’t this <b>obvious?</b> This is certainly a case of an unwitting transgression, for which the Torah deems him liable to bring an offering.
+
+### Part 13
+<b>Abaye said: What are we dealing with here?</b> We are dealing with a case <b>where he issued</b> an erroneous <b>ruling and forgot the reason that</b> was the basis upon which <b>he issued the ruling, and at the moment that he erred</b> and performed the transgression, <b>he said: I am hereby performing</b> this action <b>with</b> my <b>ruling in mind. As, lest you say: Since if the reason</b> that was the basis upon which he issued the ruling <b>became known to him</b> at that moment, <b>perhaps he would have retracted his</b> ruling, therefore if he nevertheless performed his transgression, his status is <b>like</b> that of <b>an intentional</b> transgressor, <b>and let him not be liable</b> to bring an offering; to counter this, the <i>tanna</i> <b>teaches us</b> that this too is a case of an unwitting transgression.
+
+### Part 14
+§ The mishna teaches: If he issued the ruling unwittingly, and performed the transgression intentionally, or if he issued the ruling <b>intentionally and performed</b> the transgression <b>unwittingly,</b> he is exempt. The Gemara asks: <b>From where are these matters,</b> the <i>halakhot</i> unique to the sin-offering for an unwitting transgression by the anointed priest, derived? They are derived from a verse, <b>as the Sages taught</b> in a <i>baraita</i>: It is written: “If the anointed priest shall sin <b>so as to bring guilt upon the people”</b> (Leviticus 4:3), from which it is derived that the liability of the <b>anointed</b> priest <b>is</b> incurred <b>like</b> that of the general <b>public.</b> The Gemara discusses this derivation. <b>As</b> one <b>might</b> have thought that the verse is superfluous: <b>Could this not</b> be derived through <b>logical inference?</b>

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>there are</b> people available <b>to bury it. As it was taught</b> in a <i>baraita</i>: <b>Which is</b> the corpse that is considered <b>a <i>met mitzva</i>?Any</b> corpse <b>that has no one</b> available <b>to bury it.</b> If, however, the deceased has friends or relatives to tend to his burial, his corpse is not considered a <i>met mitzva</i>. Likewise, if the body is in a place where if <b>one calls out, others</b> can <b>answer him, this is not a <i>met mitzva</i>.</b> The <i>Tosefta</i> teaches a novel ruling applicable to the case of a military camp: A solider is buried where he was killed, even if the conditions for <i>met mitzva</i> are not met there.
 
@@ -38,5 +37,23 @@ Rather, <b>this is</b> the <b>difficulty for Rabbi Yonatan:</b> The prohibition 
 ### Part 13
 <b>Rav Ashi said: Is it written</b> in the Torah: <b>No</b> man <b>shall carry out [<i>yotzi</i>],</b> indicating a prohibition against carrying objects from one domain to another on Shabbat? <b>“No</b> man <b>shall go out [<i>yetze</i>]” is written.</b> Indeed, according to its plain meaning, the verse deals exclusively with the prohibition of going beyond the Shabbat limits and not with the prohibition of carrying out. Everyone agrees that there is no death penalty administered by the court in overstepping the Shabbat limit.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> <b>One may arrange</b> upright <b>boards [<i>passin</i>] around a well</b> in the public domain in order to permit drawing water from the well on Shabbat. A well is usually at least four handbreadths wide and ten handbreadths deep. Therefore, it is considered a private domain, and it is prohibited to draw water from it on Shabbat, as that would constitute a violation of the prohibition to carry from a private domain into a public one. The Sages therefore instituted that a virtual partition may be built in the area surrounding the well, so that the enclosed area could be considered a private domain, thus permitting use of the well and carrying of the water within the partitioned area.
+
+### Part 16
+In this specific instance, the Sages demonstrated special leniency and did not require a proper partition to enclose the entire area. For this purpose, it suffices if there are <b>four double posts [<i>deyomadin</i>] that look like eight</b> single posts, i.e., four corner pieces, each comprised of two posts joined together at right angles; this is <b>the statement of Rabbi Yehuda. Rabbi Meir says:</b> There must be <b>eight</b> posts that <b>look like twelve.</b> How so? There must be <b>four double posts,</b> one in each corner, with <b>four plain</b> posts, one between each pair of double posts.
+
+### Part 17
+<b>The height</b> of the double posts must be at least <b>ten handbreadths, their width</b> must be <b>six</b> handbreadths, <b>and their thickness</b> may be even <b>a minimal amount. And between them,</b> i.e., between the posts, there may be a gap <b>the size of two teams [<i>revakot</i>] of three oxen each;</b> this is <b>the statement of Rabbi Meir.</b>
+
+### Part 18
+<b>Rabbi Yehuda</b> disagrees and <b>says:</b> There may be a slightly larger gap, the size of two teams <b>of four</b> oxen each, and this gap is measured with the cows being <b>tied</b> together <b>and not untied,</b> and with the minimal space necessary for <b>one</b> team to be <b>entering</b> while the other <b>one is leaving.</b>
+
+### Part 19
+<b>It is permitted to bring</b> the posts <b>closer to the well, provided that</b> the enclosed area is large enough for <b>a cow to</b> stand with <b>its head and the majority of its</b> body <b>inside</b> the partitioned space while <b>it drinks.</b>
+
+### Part 20
+<b>It is permitted</b>

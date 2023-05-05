@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>MISHNA:</strong> <b>The</b> aforementioned <b>pepper mill</b> is a composite vessel, and each of its parts must be considered independently with respect to ritual impurity. It <b>is susceptible to ritual impurity because of</b> each of the <b>three vessels</b> of which it is comprised: It is susceptible to impurity <b>because</b> it is a wooden <b>receptacle,</b> it is susceptible to impurity <b>because</b> it is <b>a metal vessel, and</b> it is susceptible to impurity <b>because</b> it is <b>a sieve.</b>
 
@@ -18,7 +17,7 @@
 The mishna further teaches that a child’s wagon <b>may be dragged</b> on Shabbat <b>only upon cloth.</b> The Gemara infers: <b>Upon cloth, yes,</b> it is permitted; but directly <b>on the ground, no,</b> it is not permitted. <b>What is the reason</b> for this <i>halakha</i>? It is <b>because he creates a furrow</b> in the ground when he drags the wagon across it. The Gemara asks: In accordance with <b>whose</b> opinion is this mishna? <b>It is</b> in accordance with the opinion of <b>Rabbi Yehuda, who said: An unintentional act,</b> i.e., a permitted action from which an unintended prohibited labor ensues on Shabbat, <b>is prohibited,</b> even though the person performing it does not have the prohibited labor in mind.
 
 ### Part 7
-<b>As, if</b> it were in accordance with the opinion of <b>Rabbi Shimon, didn’t he say: An unintentional act is permitted,</b> since there was no intention to perform the prohibited action? <b>As we learned</b> explicitly in a mishna that <b>Rabbi Shimon says: A person may drag a bed, a chair, or a bench</b> on the ground, <b>provided that he does not intend to make a furrow.</b> Even if one forms a furrow unwittingly, he need one need not be concerned, as this was not his intention.
+<b>As, if</b> it were in accordance with the opinion of <b>Rabbi Shimon, didn’t he say: An unintentional act is permitted,</b> since there was no intention to perform the prohibited action? <b>As we learned</b> explicitly in a mishna that <b>Rabbi Shimon says: A person may drag a bed, a chair, or a bench</b> on the ground, <b>provided that he does not intend to make a furrow.</b> Even if one forms a furrow unwittingly, one need not be concerned, as this was not his intention.
 
 ### Part 8
 The Gemara raises a difficulty: If so, <b>say the latter clause</b> of the mishna as follows: <b>Rabbi Yehuda says: No vessels may be dragged</b> on the ground <b>on Shabbat except for a wagon, because it</b> merely <b>presses</b> the earth down. This is not prohibited as plowing because it does not create a furrow. This indicates that a wagon may be dragged on the ground on Shabbat <b>because, yes, it presses</b> the earth down, <b>but it does not make a furrow.</b> Since it has already been established that the first section of the mishna is also in accordance with the opinion of Rabbi Yehuda, and there it appears that a wagon dragged along the ground makes a furrow, Rabbi Yehuda seems to contradict himself.
@@ -26,5 +25,14 @@ The Gemara raises a difficulty: If so, <b>say the latter clause</b> of the mishn
 ### Part 9
 The Gemara answers: It must be explained that this is a dispute between <b>two <i>tanna’im</i></b> who hold <b>in accordance with</b> the opinion of <b>Rabbi Yehuda</b> but differ with regard to the content of that opinion. The first <i>tanna</i> holds that even a wagon makes a furrow, whereas the other <i>tanna</i> maintains in the name of Rabbi Yehuda that a wagon does not make a furrow.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>One may not trap fish from</b> their <b>ponds on a Festival</b> even with the intention of eating them, as this falls into the category of hunting, a type of labor that is not permitted on a Festival. <b>Nor may one place food before them,</b> as it is not his duty to feed them; rather, they maintain themselves by eating smaller fish or different types of algae that grow in the water.
+
+### Part 12
+<b>However, one may trap an animal or a bird from</b> their <b>enclosures [<i>beivarim</i>],</b> as they are viewed as already captured, and therefore the action is not considered an act of hunting. <b>And one may</b> also <b>place food before them</b> as one does for other household animals.
+
+### Part 13
+<b>Rabban Shimon ben Gamliel says: Not all enclosures are identical</b> with respect to the <i>halakhot</i> of hunting. <b>This is the principle:</b> With regard to <b>any</b> animal

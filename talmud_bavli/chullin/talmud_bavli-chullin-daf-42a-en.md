@@ -1,6 +1,32 @@
-
 ### Part 1
 The Gemara answers: <b>Lest you say: If it is so that</b> his wife <b>gave birth, it would have</b> generated <b>publicity</b> and been common knowledge; therefore, one might conclude that the slaughter is valid even if he declared that the slaughter is for the sake of the burnt offering of his wife after childbirth, as in fact she did not give birth. To counter this, Rabbi Elazar <b>teaches us</b> that the slaughter is not valid. <b>Say</b> that his wife <b>miscarried</b> and is liable to bring an offering, but it is not common knowledge, because the baby was not born alive.<br/>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 2
+end of chapter
+
+### Part 3
+<strong>MISHNA:</strong> <b>These</b> wounds constitute <b><i>tereifot</i> in an animal,</b> rendering them prohibited for consumption: <b>A perforated gullet,</b> where the perforation goes through the wall of the gullet, <b>or a cut windpipe.</b> If <b>the membrane of the brain was perforated,</b> or if <b>the heart was perforated to its chamber;</b> if <b>the spinal</b> column <b>was broken and its cord was cut;</b> if <b>the liver was removed and nothing remained of it,</b> any of these render the animal a <i>tereifa</i>.
+
+### Part 4
+Additionally, <b>a lung that was perforated or that was missing</b> a piece renders the animal a <i>tereifa</i>. <b>Rabbi Shimon says:</b> It is not a <i>tereifa</i> <b>unless it is perforated</b> through <b>to the bronchi.</b> If <b>the abomasum was perforated,</b> or <b>the gallbladder was perforated,</b> or <b>the small intestines were perforated,</b> it is a <i>tereifa</i>. It is also a <i>tereifa</i> in a case <b>where the internal rumen was perforated or where the majority of the external</b> rumen <b>was torn. Rabbi Yehuda says:</b> For <b>a large</b> animal, a tear of <b>one handbreadth</b> renders it a <i>tereifa</i>, while for <b>a small</b> animal, it is a <i>tereifa</i> only if <b>the majority of it</b> was torn. And it is a <i>tereifa</i> where the <b>omasum [<i>hemses</i>] or the reticulum was perforated to the outside,</b> i.e., to the abdominal cavity, but not if the perforation was between the two.
+
+### Part 5
+Likewise, if an animal <b>fell from the roof,</b> or if <b>the majority of its ribs were fractured, or</b> if it was <b>clawed by a wolf,</b> it is a <i>tereifa</i>. <b>Rabbi Yehuda says:</b> If it was <b>clawed by a wolf in</b> the case of <b>a small</b> animal, i.e., a sheep or goat; <b>or clawed by a lion in</b> the case of <b>a large</b> animal, i.e., cattle; or if it was <b>clawed by a hawk in</b> the case of <b>a small bird; or</b> if it was <b>clawed by a large</b> bird of prey <b>in</b> the case of <b>a large bird,</b> then it is a <i>tereifa</i>. <b>This is the principle: Any</b> animal that was injured such <b>that</b> an animal in <b>a similar</b> condition <b>could not live</b> for an extended period is <b>a <i>tereifa</i>,</b> the consumption of which is forbidden by Torah law.
+
+### Part 6
+<strong>GEMARA:</strong> <b>Rabbi Shimon ben Lakish says: Where is there an allusion in the Torah to</b> the prohibition of <b>a <i>tereifa</i>?</b> The Gemara interjects: <b>Where</b> is there an allusion? Doesn’t the Torah state explicitly: <b>“You shall not eat any flesh that is torn of animals [<i>tereifa</i>] in the field”</b> (Exodus 22:30)? <b>Rather,</b> the question is: <b>Where is there an allusion in the Torah to</b> the principle <b>that a <i>tereifa</i> cannot live? As</b> the mishna <b>teaches</b> in <b>the last clause: This is the principle: Any</b> animal that was injured such <b>that</b> an animal in <b>a similar</b> condition <b>could not live</b> for an extended period is <b>a <i>tereifa</i>;</b> one learns <b>by inference that a <i>tereifa</i> cannot live.</b> If so, <b>from where do we</b> derive this?
+
+### Part 7
+It is derived from a verse, <b>as it is written: “These are the living things which you may eat</b> among all the animals that are on the earth” (Leviticus 11:2). The verse indicates that you may <b>eat a living</b> animal, i.e., one that can survive, but <b>you may not eat</b> an animal <b>that is not living,</b> i.e., one that cannot survive. One learns <b>by inference that a <i>tereifa</i> cannot live.</b>
+
+### Part 8
+The Gemara asks: <b>And according to the one who says</b> that <b>a <i>tereifa</i> can live, from where</b> does <b>he</b> derive this? The Gemara responds: He <b>derives it from</b> the same verse: <b>“These are the living things which you may eat</b> among all the animals.” “These” indicates that you may <b>eat</b> only <b>these living things,</b> but <b>you may not eat other living things,</b> i.e., <i>tereifot</i>. One learns <b>by inference that a <i>tereifa</i> can live.</b>
+
+### Part 9
+The Gemara asks: <b>And</b> according to <b>the other</b> opinion, that a <i>tereifa</i> cannot live, <b>what does he do with this</b> word <b>“these”?</b> The Gemara responds: <b>He requires it for that which the school of Rabbi Yishmael taught. As the school of Rabbi Yishmael taught</b> that the verse: <b>“These are the living things which you may eat,” teaches that the Holy One, Blessed be He, seized</b> one <b>of each and every species</b> of animal <b>and showed it to Moses, and said to him: These</b> you <b>may eat, and these you may not eat.</b>
+
+### Part 10
+The Gemara objects: <b>But the other</b> opinion <b>also requires</b> the word “these” for <b>that which the school of Rabbi Yishmael taught.</b> The Gemara replies: <b>Yes,</b> it <b>is indeed so. Rather, from where</b> does <b>he</b> derive the principle <b>that a <i>tereifa</i> can live?</b> He <b>derives it from the other</b> <i>baraita</i> that <b>the school of Rabbi Yishmael taught. As the school of Rabbi Yishmael taught:</b> The verse states: “To make a difference…<b>between the living thing that may be eaten and the living thing that may not be eaten”</b> (Leviticus 11:47). <b>These</b> living things that may not be eaten <b>are the eighteen <i>tereifot</i> that were stated to Moses at Sinai</b> and enumerated in the mishna. The verse, then, makes reference to a <i>tereifa</i> as a living thing.
+
+### Part 11
+The Gemara questions the <i>baraita</i>: <b>And are there no more</b> cases of <i>tereifot</i>? <b>But aren’t there</b> more cases cited in the Mishna and other <i>baraitot</i>, for which a mnemonic is given: <b><i>Beit</i>, <i>samekh</i>, <i>gimmel</i>, <i>reish</i>; and</b> aren’t there <b>seven</b> additional <b><i>halakhot</i>,</b> i.e., cases of <i>tereifot</i>, taught by <i>amora’im</i>?

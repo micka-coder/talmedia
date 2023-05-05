@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>are your children so beautiful? She said to them:</b> My husband <b>does not converse with me</b> while engaging in sexual intercourse, <b>neither at the beginning of the night nor at the end of the night,</b> but <b>rather at midnight. And when he converses</b> with me while engaging in sexual intercourse, <b>he reveals a handbreadth</b> of my body <b>and covers a handbreadth, and</b> he covers himself up <b>as though he were being coerced by a demon</b> and is covering himself out of fear.
 
@@ -35,5 +34,8 @@ The Gemara asks: <b>Is that so? But didn’t Rabbi Shmuel bar Naḥmani say</b> 
 ### Part 12
 The Gemara answers: <b>That</b> <i>baraita</i> is not referring to a woman who demands intercourse explicitly, but rather to one <b>who entices</b> her husband, so that he understands that she wants to engage in sexual intercourse with him. They consequently have excellent children.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> <b>The Sages dissolved four</b> types of <b>vows</b> without the requirement of a request to a halakhic authority: <b>Vows of exhortation, vows of exaggeration, vows that are unintentional, and vows</b> whose fulfillment is impeded by <b>circumstances beyond</b> one’s <b>control.</b> The mishna explains: <b>Vows of exhortation</b> are those by which one encourages another using vow terminology that is exaggerated. <b>How so? One was selling an item and said: I will not lower</b> the price <b>for you</b> to less <b>than a <i>sela</i>,</b> as <b>that is <i>konam</i>,</b> forbidden <b>as if</b> it were <b>an offering,</b> for me. <b>And the other one,</b> the buyer, <b>says: I will not raise</b> my payment <b>to you</b> to <b>more than a shekel,</b> as <b>that is <i>konam</i></b> for me.

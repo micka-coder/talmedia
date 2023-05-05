@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara comments: <b>In accordance with whose</b> opinion did Rav Natan bar Oshaya act? Apparently, it was <b>in accordance with</b> the opinion of <b>Rav Yosef</b> that everyone agrees that he must set out on his way, <b>and in accordance with</b> the opinion of <b>Rabbi Yosei bar Yehuda</b> that he need not declare that he is establishing his residence at the end of his Shabbat limit.
 
@@ -41,5 +40,8 @@ The Gemara raises another difficulty. <b>But wasn’t it taught</b> in a differe
 ### Part 14
 <strong>GEMARA:</strong> With regard to the mishna’s statement: Due to those who err, it is <b>taught</b> in a <i>baraita</i>: <b>Due to those who err in their measurement.</b> In other words, because the surveyors are concerned that they might have erred in their measurements, they are stringent and do not position the mark at the edge of the limit, but move it several cubits within the limit.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> <b>How does one extend</b> the boundaries of <b>cities</b> in order to ensure that all its protrusions are included within the borders of the city? He extends a straight line across the edge of the city, and if <b>a house is recessed and</b> another <b>house protrudes,</b> or <b>a turret [<i>pagum</i>] is recessed and</b> another <b>turret protrudes</b> from that line, and similarly, if <b>there were remnants</b> of walls <b>ten handbreadths high,</b>

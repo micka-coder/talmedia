@@ -1,4 +1,3 @@
-
 ### Part 1
 If <b>a hired laborer</b> claims his wages <b>at</b> the proper <b>time,</b> on the day his wages are due, and the employer claims to have already paid him, the laborer <b>takes an oath</b> that he did not receive his wages <b>and takes</b> his wages. So too, in the case of rent, if the landlord demands payment, and the renter claims to have paid, the landlord should be able to take an oath and then take the payment.
 
@@ -41,5 +40,8 @@ The Gemara asks: <b>If that is so, what</b> is the purpose <b>of stating</b> thi
 ### Part 14
 <b>Rather, when Ravin came,</b> he said that <b>Reish Lakish said:</b> The case is <b>where he said: I am renting to you a house like this.</b> The Gemara persists: <b>But still, what</b> is the purpose <b>of stating</b> this ruling; it is obvious. The Gemara answers: <b>No,</b> the ruling is <b>necessary where</b> the house the landlord spoke of <b>was standing on the bank of a river. Lest you say</b> that <b>what</b> the landlord meant by saying: A house <b>like this,</b> was that he would provide the renter with a house <b>that stands on the bank of a river,</b> therefore, the mishna <b>teaches us</b> that if he uses such an expression, it is taken to refer to the dimensions and structure of the house.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> With regard to <b>one who receives a field from another</b> to cultivate, either as a tenant farmer, who, in exchange for the right to farm the land, gives a set amount of the produce to the owner, or as a sharecropper, who cultivates the land and receives a set proportion of the produce, the <i>halakha</i> is as follows: In <b>a location where</b> those cultivating the land <b>were accustomed to cut</b> the produce, this one <b>must cut</b> it as well. In a location where they were accustomed <b>to uproot</b> the produce, not to cut it with a sickle or a scythe, this one <b>must uproot</b> it as well. If they were accustomed <b>to plow</b> the land <b>after</b> harvesting the produce, this one <b>must plow</b> as well. <b>All</b> farming of the land shall be conducted <b>in accordance with regional custom. Just as</b> the <i>halakha</i> is that the owner of the field and the one cultivating it <b>divide the produce, so</b> too the <i>halakha</i> is that <b>they divide the stubble and the straw. Just as</b> the <i>halakha</i> is that the owner of the field and the one cultivating it <b>divide the wine, so</b> too the <i>halakha</i> is that <b>they divide</b>

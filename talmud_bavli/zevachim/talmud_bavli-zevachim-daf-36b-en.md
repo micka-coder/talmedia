@@ -1,4 +1,3 @@
-
 ### Part 1
 the slaughterer <b>would be liable</b> to receive lashes?
 
@@ -41,5 +40,20 @@ The Gemara rejects Rava’s proof: <b>But it is not so,</b> as <b>there, the sac
 ### Part 14
 The Gemara presents <b>another version</b> of the proof and its rejection: <b>But</b> the <b>sacrificial portions</b> are <b>not fit,</b> and yet one is liable if he consumes them while impure. The Gemara responds: <b>But it is not so,</b> since <b>these</b> sacrificial portions are <b>fit for their matters, and these,</b> i.e., the meat of a Paschal offering that was not roasted and the loaves of a thanks offering from which the priests’ portion was not separated, <b>are not fit at all.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> <b>Beit Shammai say:</b> With regard to <b>all</b> the offerings <b>whose</b> blood is to be <b>placed on the external altar,</b> even those that require that the blood be sprinkled on two opposite corners of the altar so that it will run down each of its four sides, in a case <b>where</b> the priest <b>placed</b> the blood on the altar <b>with</b> only <b>one placement, he facilitated atonement. And in</b> the case of <b>a sin offering,</b> which requires four placements, one on each of the four corners of the altar, at least <b>two placements</b> are necessary to facilitate atonement. <b>And Beit Hillel say: Even</b> with regard to <b>a sin offering,</b> in a case <b>where</b> the priest <b>placed</b> the blood with <b>one placement, he facilitated atonement</b> after the fact.
+
+### Part 17
+<b>Therefore,</b> since the priest facilitates atonement with one placement in all cases other than a sin offering according to Beit Shammai, and even in the case of a sin offering according to Beit Hillel, <b>if he placed the first</b> placement <b>in its proper manner, and the second</b> with the intent to eat the offering <b>beyond its</b> designated <b>time, he facilitated atonement.</b> Since the second placement is not indispensable with regard to achieving atonement, improper intent while performing that rite does not invalidate the offering.
+
+### Part 18
+<b>And</b> based on the same reasoning, <b>if he placed the first</b> placement with the intent to eat the offering <b>beyond its</b> designated <b>time and</b> he placed <b>the second</b> placement with the intent to eat the offering <b>outside its</b> designated <b>area,</b> the second of which does not render an offering <i>piggul</i>, the offering is <b><i>piggul</i>,</b> an offering disqualified by improper intention, <b>and one is liable</b> to receive <b>excision from the World-to-Come [<i>karet</i>] for its</b> consumption. This is because the intent that accompanied the second placement does not supersede the <i>piggul</i> status of the offering.
+
+### Part 19
+All this applies to those offerings whose blood is to be placed on the external altar. But with regard to <b>all</b> the offerings <b>whose</b> blood is to be <b>placed on the inner altar, if</b> the priest <b>omitted</b> even <b>one of the placements, it is as though he did not facilitate atonement. Therefore,</b> if <b>he placed all</b> the placements <b>in their proper manner, and one</b> placement <b>in an improper manner,</b> i.e., with the intent to eat the offering beyond its designated time, the offering is <b>disqualified,</b> as it is lacking one placement; <b>but there is no</b> liability for <b><i>karet</i> for</b> one who partakes of the offering, as the improper intention related to only part of the blood that renders the offering permitted for consumption, and an offering becomes <i>piggul</i> only when the improper intention relates to the entire portion of the offering that renders it permitted for consumption.
+
+### Part 20
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i>: <b>From where</b> is it derived <b>with regard to</b> those offerings whose blood is <b>placed on the external altar, that</b> if the priest <b>placed</b> the blood <b>with one placement, he facilitated atonement? The verse states: “And the blood of your offerings shall be poured</b> upon the altar of the Lord your God” (Deuteronomy 12:27), indicating that a single pouring of blood suffices. The Gemara asks: <b>But does this</b> verse <b>come to</b> teach <b>this</b> <i>halakha</i>? <b>That</b> verse <b>is necessary for that which is taught</b> in another <i>baraita</i> discussing a different matter:

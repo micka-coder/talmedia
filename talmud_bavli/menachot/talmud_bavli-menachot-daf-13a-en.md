@@ -1,4 +1,3 @@
-
 ### Part 1
 According to Abaye, <b>why do I also</b> need <b>this</b> mishna here? <b>If</b> you will suggest that this mishna is necessary, as one can infer from it that if one intended <b>to partake</b> of half an olive-bulk the next day <b>and</b> then intended <b>to partake of</b> another half an olive-bulk the next day, both from <b>an item whose</b> typical <b>manner</b> is such that one <b>partakes</b> of it, the mishna <b>teaches us that</b> they <b>join together</b> in order to render the offering <i>piggul</i>, this suggestion can be rejected: But <b>you</b> already <b>learn</b> the <i>halakha</i> in this case <b>from the first clause of the latter clause</b> of the previous mishna, <b>as it teaches: Half an olive-bulk outside and half an olive-bulk the next day,</b> the offering is <b>unfit.</b> One can infer from this <b>that</b> if his intent was to consume <b>half an olive-bulk the next day and half an olive-bulk the next day,</b> it is <b><i>piggul</i>.</b>
 
@@ -14,5 +13,20 @@ The Gemara responds: <b>Yes;</b> although the mishna teaches the <i>halakha</i> 
 ### Part 5
 The Gemara continues: <b>But here,</b> where his intent was to consume half an olive-bulk and to burn half an olive-bulk, <b>where with regard to this</b> half <b>he intends</b> in <b>accordance with its</b> typical <b>manner, and with regard to this</b> half <b>he intends in accordance with its</b> typical <b>manner,</b> one might <b>say</b> that <b>they should join together,</b> despite the fact that each intention concerns only half an olive-bulk. Therefore, the mishna <b>teaches us</b> that such intentions do not join together, and the mishna can be explained even in accordance with the opinion of the Rabbis.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> In the case of a priest <b>who removes a handful from the meal offering</b> with the intent <b>to partake of its remainder or to burn its handful</b> on <b>the next day, Rabbi Yosei concedes in this</b> instance <b>that it is</b> a case of <b><i>piggul</i> and he is liable</b> to receive <b><i>karet</i> for</b> partaking of <b>it.</b> But if the priest’s intent was <b>to burn its frankincense the next day, Rabbi Yosei says:</b> The meal offering is <b>unfit but</b> partaking of it <b>does not include</b> liability to receive <b><i>karet</i>. And the Rabbis say:</b> It is a case of <b><i>piggul</i> and he is liable</b> to receive <b><i>karet</i> for</b> partaking of the meal offering.
+
+### Part 8
+The Rabbis <b>said to</b> Rabbi Yosei: In <b>what</b> manner does <b>this differ from</b> an animal <b>offering,</b> where if one slaughtered it with the intent to sacrifice the portions consumed on the altar the next day, it is <i>piggul</i>? Rabbi Yosei <b>said to</b> the Rabbis: There is a difference, <b>as</b> in <b>the</b> case of an animal <b>offering, its blood, and its flesh, and its portions</b> consumed on the altar are all <b>one</b> entity. Consequently, intent with regard to any one of them renders the entire offering <i>piggul</i>. <b>But</b> the <b>frankincense is not</b> part <b>of the meal offering.</b>
+
+### Part 9
+<strong>GEMARA:</strong> The Gemara questions the terminology of the mishna: <b>Why do I</b> need the <i>tanna</i> <b>to teach</b> that <b>Rabbi Yosei concedes in this</b> instance? Let the <i>tanna</i> simply state: If one removes the handful from a meal offering with the intent to partake of its remainder or to burn the handful on the next day, Rabbi Yosei says that the offering is <i>piggul</i> and one is liable to receive <i>karet</i> for partaking of the remainder.
+
+### Part 10
+The Gemara responds: It was necessary for the <i>tanna</i> to teach that Rabbi Yosei concedes, <b>because he wants to teach the latter clause</b> of the mishna, that if his intent was <b>to burn its frankincense the next day, Rabbi Yosei says</b> that the meal offering is <b>unfit, but</b> partaking of it <b>does not include</b> liability to receive <b><i>karet</i>.</b>
+
+### Part 11
+The Gemara elaborates: The reason the <i>tanna</i> links the two cases of the mishna is <b>lest you say</b> that <b>the reason that Rabbi Yosei</b> does not render the meal offering <i>piggul</i> is <b>because he holds</b> that one <b>cannot render</b> an offering <b><i>piggul</i> with</b> intent that concerns only <b>half of</b> its <b>permitting factors. And</b> consequently, since the burning of the handful and the frankincense render the remainder of a meal offering permitted for consumption, then <b>even</b> in <b>the first clause</b> of the mishna, where one intends to burn the handful the next day, Rabbi Yosei should hold that the offering is not rendered <i>piggul</i>, as the intent does not refer to the frankincense as well.

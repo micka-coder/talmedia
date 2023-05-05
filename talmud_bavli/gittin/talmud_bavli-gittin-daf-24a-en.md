@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And from the place that you came,</b> i.e., from this inference itself, one establishes: <b>Just as there,</b> those who bring the bill of divorce <b>must say: It was written in our presence and it was signed in our presence, so too, she</b> herself <b>must say: It was written in my presence and it was signed in my presence.</b> This <i>baraita</i> must be referring to a case in which the wife brought the bill of divorce from outside of Eretz Yisrael, as it is only then that she must state that it was written and signed in her presence. Therefore, the <i>baraita</i> supports the opinion of Abaye.
 
@@ -41,5 +40,11 @@ The Gemara answers: According to this opinion, the mishna should be explained as
 ### Part 14
 <b>And if you wish, say</b> that <b>he said to her: Be an agent for delivery until you arrive there, and when you arrive there, say before the court: It was written in my presence and it was signed in my presence, and you should</b> then <b>appoint the court as an agent, and they will give</b> the bill of divorce <b>to you.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> <b>Any bill of divorce that was not written for the sake of</b> a specific <b>woman</b> is <b>invalid. How so?</b> In a case of a man who <b>was passing through the marketplace and heard the sound of scribes</b> who write bills of divorce <b>dictating</b> the text to their students: The <b>man so-and-so divorces so-and-so from the place</b> of <b>such and such; and</b> the man <b>said: This is my name and that is the name of my wife,</b> and he wishes to use this bill for his divorce, this bill is <b>unfit</b> for him <b>to divorce</b> his wife <b>with it,</b> as it was not written for the sake of any woman.
+
+### Part 17
+<b>Moreover,</b> if one <b>wrote</b> a bill of divorce with which <b>to divorce his wife but</b> later <b>reconsidered,</b> and <b>a resident of his town found him and said to him: My name is</b> the same <b>as your name, and my wife’s name is</b> the same <b>as your wife’s name,</b> and we reside in the same town; give me the bill of divorce and I will use it; the bill of divorce is <b>unfit</b> for the second man <b>to divorce</b> his wife <b>with it.</b>

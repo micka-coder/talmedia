@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And is it stated</b> with regard to a meal offering baked in an oven: <b>“Offering,”</b> and again: <b>Offering,</b> for a total of <b>two times,</b> once in connection to a meal offering of loaves and once in connection to a meal offering of wafers? If that were the case, it would indicate that these are two types of offerings. But <b>doesn’t it</b> actually <b>say “offering” only one</b> time: “And when you bring a meal offering baked in an oven, it shall be unleavened loaves of fine flour mixed with oil, or unleavened wafers spread with oil” (Leviticus 2:4)? <b>And it is stated with regard to this</b> meal offering both <b>loaves and wafers,</b> which indicates that these are two varieties of the same offering.
 
@@ -20,5 +19,29 @@ The Gemara asks: <b>And</b> how does <b>Rabbi Shimon</b> respond to this claim? 
 ### Part 7
 The Gemara further inquires: The <i>baraita</i> states that Rabbi Yosei, son of Rabbi Yehuda, holds that loaves and wafers are two different types of meal offerings. The opinion of <b>Rabbi Yosei, son of Rabbi Yehuda, is</b> the same as that of <b>his father,</b> Rabbi Yehuda, whose opinion is also mentioned in the <i>baraita</i>. Why is it necessary to cite Rabbi Yosei bar Rabbi Yehuda’s opinion separately? The Gemara explains: It is necessary to cite the opinion of Rabbi Yosei bar Rabbi Yehuda, because there is a practical difference <b>between</b> his ruling and that of his father; <b>as, if</b> someone transgressed and <b>performed</b> the sacrifice of a meal offering baked in an oven by bringing a mixture of loaves and wafers, according to Rabbi Yehuda the offering is valid after the fact, whereas Rabbi Yosei bar Rabbi Yehuda deems it not valid even after the fact.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> <b>Rabbi Yishmael says:</b> When the day of the sacrifice of the <b><i>omer</i></b> meal offering <b>would</b> occur <b>on Shabbat,</b> the labors performed that would otherwise be prohibited were kept to a minimum, and the one-tenth of an ephah of flour that was <b>brought</b> as an offering was processed <b>from three <i>se’a</i></b> of reaped barley. <b>And</b> if it occurred <b>during the week,</b> the flour was processed <b>from five</b> <i>se’a</i> of reaped barley. <b>And the Rabbis say: Both on Shabbat and</b> during the <b>week,</b> the <i>omer</i> offering <b>would come from three</b> <i>se’a</i> of reaped barley.
+
+### Part 10
+<b>Rabbi Ḥanina, the deputy High Priest, says: On Shabbat</b> the barley <b>was reaped by an individual and with one sickle and with one basket</b> into which the barley was placed; <b>and during the week,</b> it was reaped <b>by three</b> people <b>with three baskets and three sickles. And the Rabbis say: Both on Shabbat and</b> during the <b>week,</b> it was reaped <b>by three</b> people <b>with three baskets and with three sickles.</b>
+
+### Part 11
+<strong>GEMARA:</strong> Rabbi Yishmael and the Rabbis disagree in the mishna with regard to how many <i>se’a</i> of barley were reaped for the <i>omer</i> meal offering on Shabbat. According to Rabbi Yishmael three <i>se’a</i> were reaped when the offering was brought on a Shabbat, and five <i>se’a</i> were reaped when the offering was brought on a weekday. The Rabbis maintain that both during the week and on Shabbat, three <i>se’a</i> were reaped. The Gemara asks: <b>Granted</b> the opinion of <b>the Rabbis</b> is clear, as they maintain that <b>a select tenth</b> of an ephah of flour <b>comes from three <i>se’a</i></b> of reaped barley, <b>and</b> therefore <b>there is no difference</b> whether the barley is reaped <b>during the week or</b> whether it is reaped <b>on Shabbat,</b> as a select tenth is required.
+
+### Part 12
+<b>Rather,</b> there is a question with regard to the opinion of <b>Rabbi Yishmael,</b> who differentiates between Shabbat and during the week. <b>What</b> does he <b>hold? If he holds</b> that <b>a select tenth</b> of an ephah of flour <b>can come only from five</b> <i>se’a</i> of reaped barley, then <b>even on Shabbat</b> five <i>se’a</i> should <b>also</b> be required. And <b>if</b> the select tenth of an ephah of flour <b>can come from</b> even <b>three</b> <i>se’a</i>, then <b>even on a weekday</b> three should suffice.
+
+### Part 13
+<b>Rava said: Rabbi Yishmael holds</b> that <b>a select tenth</b> of an ephah of flour can come <b>without exertion from five</b> <i>se’a</i>, and <b>with exertion from three.</b> Therefore, <b>on a weekday we</b> reap and <b>bring</b> flour <b>from five</b> <i>se’a</i>, <b>as this</b> produces <b>a better</b> final <b>product,</b> since only the highest-quality flour of each <i>se’a</i> is selected. <b>On Shabbat,</b> it is <b>preferable that one</b> should <b>increase</b> the effort involved <b>in one prohibited labor,</b> that <b>of sifting</b> the flour numerous times, <b>and one</b> should <b>not increase</b> the number of prohibited acts involved in performing <b>many prohibited labors,</b> such as reaping and winnowing, which are required for the processing of five <i>se’a</i>.
+
+### Part 14
+§ <b>Rabba said: Rabbi Yishmael and Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, said the same thing. As it is taught</b> in a <i>baraita</i>: If <b>the fourteenth</b> of Nisan <b>occurs on Shabbat,</b> when the Paschal offering is sacrificed but not roasted until Shabbat ends, <b>one flays the Paschal offering up to the breast,</b> to enable removal of the parts of the animal that are sacrificed upon the altar on Shabbat, and flays the rest of the animal after Shabbat. Further skinning is only to facilitate eating the animal and therefore it does not override Shabbat. This is <b>the statement of Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka. And the Rabbis say:</b> One has not performed the obligation properly <b>unless he flays it in its entirety.</b>
+
+### Part 15
+The Gemara explains why the statements of Rabbi Yishmael and Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, are the same. <b>Didn’t Rabbi Yishmael, son of Rabbi Yoḥanan ben Beroka, say there</b> that <b>anywhere that it is possible</b> to perform the necessary task without an additional action, <b>we do not exert</b> ourselves on Shabbat? <b>Here, too, since it is possible</b> to perform the necessary task without the extra flaying, <b>we do not exert</b> ourselves.
+
+### Part 16
+The Gemara rejects this comparison: <b>From where</b> is this conclusion reached? <b>Perhaps Rabbi Yishmael states</b> his ruling <b>only here,</b> in the case of reaping three <i>se’a</i> on Shabbat, <b>where there is no degradation of consecrated</b> items. <b>But there, where there is degradation of consecrated</b> items, as the animal will be left half-flayed overnight,

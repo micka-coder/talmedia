@@ -1,9 +1,41 @@
-
 ### Part 1
 Rather, the <i>baraita</i> <b>should have</b> stated: <b>With regard to the male and with regard to the female,</b> which are the terms the Torah uses with regard to valuations. The terms son and daughter are used in <i>Yotze Dofen</i>.
 
 ### Part 2
 With regard to valuations, the Gemara asks: <b>And what is different</b> with regard to <b>a female, that when she ages</b> past sixty years she <b>stands at</b> a valuation of ten shekels, <b>one-third</b> of her previous valuation of thirty shekels, <b>and what is different</b> with regard to <b>a male, that</b> when he ages past sixty, at which point he has a valuation of fifteen shekels, he does not <b>stand at</b> even <b>one-third</b> of his previous valuation of fifty shekels? <b>Ḥizkiya said</b> that <b>people say</b> a popular saying: If there is <b>an elderly man in the home,</b> there is <b>a burden [<i>paḥa</i>] in the home,</b> as he does not help with anything; if there is <b>an elderly woman in the home,</b> there is <b>a treasure in the home,</b>as she assists with various domestic labors.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> <b>One who says:</b> It is incumbent <b>upon me</b> to donate <b>my weight, gives his weight</b> to the Temple treasury; <b>if</b> he specified <b>silver</b> he donates <b>silver, and if</b> he specified <b>gold</b> he donates <b>gold.</b> There was <b>an incident involving the mother of Yirmatya, who said:</b> It is incumbent <b>upon me</b> to donate the <b>weight of my daughter, and she ascended to Jerusalem and paid her</b> daughter’s <b>weight</b> in <b>gold</b> to the Temple treasury.
+
+### Part 5
+In the case of one who says: It is incumbent <b>upon me</b> to donate the <b>weight of my forearm,</b> how does he ascertain the weight of his forearm? <b>Rabbi Yehuda says: He fills a barrel</b> with <b>water and inserts</b> his arm <b>up to his elbow</b> into the water. <b>And</b> in order to measure the displacement, <b>he weighs donkey flesh, and bones, and sinews and places</b> it <b>into</b> the barrel <b>until it fills,</b> and the water level reaches the top of the barrel. He then donates the weight of the meat and the bones to the Temple treasury. <b>Rabbi Yosei said:</b> Displacement is according to volume not according to weight, <b>and how then is it possible to match</b> the amount of the donkey <b>flesh with the flesh</b> of a person <b>and</b> the volume of the donkey’s <b>bones with</b> his <b>bones? Rather,</b> the court <b>appraises how much the forearm is likely to weigh.</b>
+
+### Part 6
+<strong>GEMARA:</strong> <b>What</b> is the meaning of the mishna’s statement: <b>If silver, silver,</b> and <b>if gold, gold? Rav Yehuda said:</b> If <b>one specified</b> that he vows to donate his weight in <b>silver</b> he donates <b>silver,</b> and if <b>he specified gold</b> he donates <b>gold.</b> The Gemara asks: Isn’t that <b>obvious?</b> The Gemara answers: <b>This</b> is what the mishna <b>is teaching us: The reason</b> he donates silver or gold is <b>that he specified</b> silver or gold, from which it may be inferred that if <b>he did not specify</b> the means of payment, he may <b>exempt himself with any</b> material.
+
+### Part 7
+The Gemara adds: And this is <b>in accordance with</b> a statement of <b>Raḥava, as Raḥava says: In a place where</b> merchants <b>weigh pitch</b> when selling it, one who vows his weight <b>may exempt himself</b> by donating his weight <b>even in pitch.</b> The Gemara asks: Isn’t that <b>obvious?</b> The Gemara answers: <b>No,</b> the statement of Raḥava is <b>necessary</b> in a place <b>where there are</b> merchants <b>who weigh</b> pitch <b>and there are</b> others who <b>measure</b> its volume. <b>Lest you say: Since not all</b> merchants <b>weigh</b> pitch one may <b>not</b> fulfill his vow by donating his weight in pitch, Raḥava <b>teaches us</b> that as there are merchants there who sell pitch by weight, one can fulfill his vow in that manner.
+
+### Part 8
+<b>Rav Pappa says: In a place where</b> merchants <b>weigh onions</b> when selling them, one who vowed his weight <b>may exempt himself</b> by donating his weight <b>even in onions.</b> The Gemara again asks: Isn’t that <b>obvious?</b> The Gemara answers: <b>No,</b> the statement of Rav Pappa is <b>necessary</b> in a place <b>where after they weigh</b> the onions the merchants <b>throw</b> in <b>two</b> or <b>three</b> extra onions to the buyer. <b>Lest you say</b> that its <b>status</b> as a place where onions are sold by <b>weight</b> is <b>void</b> due to the additional onions, Rav Pappa <b>teaches us</b> that it is still considered a place where onions are sold by weight.
+
+### Part 9
+§ The mishna teaches: There was <b>an incident involving the mother of Yirmatya,</b> who said: It is incumbent upon me to donate the weight of my daughter, without specifying silver or gold, and she ascended to Jerusalem and paid her daughter’s weight in gold to the Temple treasury. The Gemara asks: Was <b>an incident</b> cited <b>to contradict</b> the previous ruling of the mishna? The mishna had stated: If silver, silver, and if gold, gold, which indicates that if one did not specify the means of payment he may exempt himself with any material that merchants sell by weight, whereas it can be inferred from the incident that one must pay the weight in gold.
+
+### Part 10
+The Gemara answers: The mishna <b>is incomplete and this</b> is what <b>it is teaching: And if</b> the one who vowed <b>is a distinguished person, even though he did not specify</b> silver or gold <b>we say</b> he must fulfill his vow <b>in keeping with his</b> socioeconomic <b>status. And</b> likewise, there was <b>an incident involving the mother of Yirmatya,</b> a very wealthy woman, <b>who said:</b> It is incumbent <b>upon me</b> to donate <b>the weight of my daughter, and she ascended to Jerusalem and gave her</b> daughter’s <b>weight</b> in <b>gold</b> to the Temple treasury.
+
+### Part 11
+§ <b>Rav Yehuda says</b> that <b>one who says:</b> It is incumbent <b>upon me</b> to donate <b>my height, gives</b> a thick <b>rod that cannot be bent</b> equivalent to his height. One who says: It is incumbent <b>upon me</b> to donate <b>my full height,</b> may <b>give</b> even a thin <b>rod that</b> can be <b>bent,</b> provided it is equivalent to his height. The Gemara <b>raises an objection</b> from a <i>baraita</i> (<i>Tosefta</i> 3:1): With regard to one who says: It is incumbent <b>upon me</b> to donate <b>my height,</b> or: It is incumbent <b>upon me</b> to donate <b>my full height, he gives</b> a thick <b>rod that cannot be bent</b> and that is equivalent to his height.
+
+### Part 12
+The Gemara answers: Rav Yehuda <b>says</b> his statement <b>in accordance with</b> the opinion of <b>Rabbi Akiva, who</b> holds that one can <b>draw an inference</b> from <b>superfluous language. As we learned</b> in a mishna (<i>Bava Batra</i> 64a): If one sold his house without specification, he has sold <b>neither the pit nor the cistern [<i>dut</i>]</b> with it, <b>even if he wrote</b> in the document of sale: With <b>its depth and its height.</b> This is because anything that is ancillary to the house, e.g., pits and cisterns, must be mentioned explicitly in the contract. <b>And</b> the seller <b>must purchase for himself a path</b> through to the pit or cistern that he kept back, as he sold his rights to the area surrounding the house along with the house, and therefore he may no longer walk through that area. This is <b>the statement of Rabbi Akiva.</b>
+
+### Part 13
+<b>And the Rabbis say: He need not</b> purchase a path, as the seller clearly did not intend to keep the pit or cistern without maintaining access to it. <b>And Rabbi Akiva concedes</b> that <b>when</b> the seller <b>states to</b> the buyer in the document of sale: <b>Excluding these,</b> the pit and the cistern, <b>that he need not purchase for himself a path</b> through to the pit or cistern. <b>Evidently,</b> Rabbi Akiva’s reasoning is that <b>since</b> the seller <b>need not</b> specify that the pit and cistern are excluded from the sale, <b>and</b> yet <b>he says</b> that they were excluded, <b>he is coming</b> with this statement <b>to add an element</b> to the agreement, i.e., the right of access. <b>Here too,</b> when one says: It is incumbent upon me to donate my full height, <b>since</b> it is a case where <b>he need not</b> add the word full, <b>and</b> yet <b>he says</b> it, <b>he is coming to add an element</b> to his vow, i.e., the ability to exempt himself with a thin rod.
+
+### Part 14
+<b>A dilemma was raised before</b> the Sages. If one says: It is incumbent upon me to donate <b>my stature, what is</b> the <i>halakha</i>?

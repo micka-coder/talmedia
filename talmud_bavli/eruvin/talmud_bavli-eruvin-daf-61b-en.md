@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>GEMARA:</strong> <b>Rav Yehuda said that Shmuel said:</b> If <b>one established his Shabbat residence in a desolate city</b> whose walls are still standing, <b>according to the Rabbis he may walk through all of it</b> as though it were four cubits, <b>and</b> he may walk an additional <b>two thousand cubits beyond it.</b> If, however, <b>he</b> merely <b>placed his <i>eiruv</i> in a desolate city, he has only two thousand cubits from the place of his <i>eiruv</i>.</b> The Rabbis distinguish between one who establishes his Shabbat residence by actually being present in that location at the onset of Shabbat and one who does so by placing his <i>eiruv</i> there before Shabbat. <b>Rabbi Elazar says: Whether he established his Shabbat residence</b> through his physical presence <b>or he</b> merely <b>placed his <i>eiruv</i></b> there, <b>he may walk through all of it and</b> another <b>two thousand cubits beyond it.</b>
 
@@ -26,5 +25,17 @@ The Gemara relates that <b>Mar Yehuda</b> once <b>found the residents of Mavrakh
 ### Part 9
 <b>Rava said to him: Argumentative one! With regard to</b> the <i>halakhot</i> of <b><i>eiruv</i>, nobody is concerned about this</b> opinion of <b>Rabbi Akiva,</b> as the <i>halakha</i> is in accordance with the opinion of the Rabbis. Consequently, no matter where one places his <i>eiruv</i> in a city, the entire city is considered as though it were four cubits, and he is permitted to walk two thousand cubits beyond the edge of the city.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>One who resides with a gentile in</b> the same <b>courtyard, or</b> one who lives in the same courtyard <b>with one who does not accept</b> the principle of <b><i>eiruv</i>,</b> even though he is not a gentile, such as a Samaritan [<i>Kuti</i>], <b>this</b> person <b>renders it prohibited for him</b> to carry from his own house into the courtyard or from the courtyard into his house, unless he rents this person’s rights in the courtyard, as will be explained below.
+
+### Part 12
+<b>Rabbi Eliezer ben Ya’akov says: Actually,</b> the gentile <b>does not render it prohibited</b> for one to carry, <b>unless there are two Jews</b> living in the same courtyard who themselves would <b>prohibit one another</b> from carrying if there were no <i>eiruv</i>. In such a case, the presence of the gentile renders the <i>eiruv</i> ineffective. However, if only one Jew lives there, the gentile does not render it prohibited for him to carry in the courtyard.
+
+### Part 13
+<b>Rabban Gamliel said:</b> There was <b>an incident involving a certain Sadducee who lived with us in</b> the same <b>alleyway in Jerusalem,</b> who renounced his rights to the alleyway before Shabbat. <b>And Father said to us: Hurry and take out</b> your <b>utensils to the alleyway</b> to establish possession of it, <b>before he</b> changes his mind and <b>takes out</b> his own utensils so as to reclaim his rights, in which case <b>he would render it prohibited for you to</b> use the entire alleyway.
+
+### Part 14
+<b>Rabbi Yehuda says:</b> Rabban Gamliel’s father spoke to them <b>with a different formulation,</b> saying: <b>Hurry and do</b> whatever <b>you must do in the alleyway</b> prior to Shabbat, <b>before he takes out</b> his utensils <b>and renders it prohibited for you to</b> use the alleyway. In other words, you may not bring out utensils to the alleyway at all on Shabbat, as the institution of an <i>eiruv</i> cannot be used in the neighborhood of a Sadducee. This is because, even if he renounced his rights to the alleyway, he can always retract and reclaim them.

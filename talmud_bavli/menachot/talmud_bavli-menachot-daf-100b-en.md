@@ -1,4 +1,3 @@
-
 ### Part 1
 if a rite performed during the night preceding its appointed time is not considered a rite whose time has not yet arrived, then <b>when the night arrives,</b> i.e., the <b>twilight</b> of Shabbat eve, the arrangement of loaves remaining on the Table should <b>be consecrated and</b> subsequently <b>disqualified</b> by being left overnight. <b>Rava says:</b> The mishna is referring <b>to</b> a case <b>where</b> the priest <b>removed</b> the shewbread from the Table <b>before</b> nightfall on Shabbat eve in order to prevent its consecration, and arranged it again the following day.
 
@@ -20,5 +19,23 @@ If the <b>two festival days of Rosh HaShana</b> occur on Thursday and Friday, th
 ### Part 7
 Ravina explains this may be inferred from the mishna, <b>as</b> the offering of <b>the two loaves is an obligation of the day</b> of <i>Shavuot</i>. It is therefore <b>not</b> possible <b>to say</b> that the Sages decreed they may not be prepared on the Festival <b>lest</b> one <b>delay</b> bringing them. <b>And</b> yet the mishna <b>teaches</b> that baking and preparing the two loaves <b>overrides neither Shabbat nor a Festival.</b> All the more so that vow offerings and voluntary offerings, which do not need to be sacrificed specifically on a Festival, may not be sacrificed on a Festival by Torah law.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> With regard to <b>the</b> fine flour for <b>meal offerings or the</b> wine for <b>libations that became ritually impure,</b> as long as they <b>have not yet been consecrated in</b> a service <b>vessel</b> and assumed inherent sanctity, <b>their redemption</b> is possible. If they are redeemed, their sanctity will be transferred to the redemption money. <b>Once they have been consecrated in</b> a service <b>vessel</b> and have assumed inherent sanctity, <b>their redemption</b> is <b>no</b> longer possible, and they are burned like any other offerings that became ritually impure.
+
+### Part 10
+With regard to consecrated <b>birds, wood</b> for the altar, <b>frankincense, and service vessels, once</b> they <b>became ritually impure they have no</b> possibility of <b>redemption, as redemption</b> of items consecrated for the altar <b>was stated only with regard to</b> a consecrated <b>animal</b> that developed a blemish, not with regard to other consecrated items.
+
+### Part 11
+<strong>GEMARA:</strong> According to the mishna, impure meal offerings and libations may be redeemed as long as they have not yet been placed in a service vessel. <b>Shmuel says: Even if they are ritually pure, they</b> also may be <b>redeemed. What is the reason</b> for this? <b>As long as they have not been consecrated in</b> a service <b>vessel,</b> they possess <b>sanctity</b> that inheres only in their <b>value,</b> and items whose <b>sanctity</b> inheres only in their <b>value</b> may be <b>redeemed.</b>
+
+### Part 12
+The Gemara asks: <b>But didn’t we learn</b> in the mishna: The meal offerings and libations that <b>became ritually impure</b> are redeemed? The Gemara answers: <b>The same is true even if they had not become ritually impure. And</b> the <i>tanna</i> mentions a case where they became ritually impure <b>since</b> he <b>wants</b> to <b>teach the latter clause,</b> which states: <b>Once they were consecrated in</b> a service <b>vessel</b> and have assumed inherent sanctity, <b>they have no</b> possibility of <b>redemption,</b> meaning <b>that even</b> when <b>they became ritually impure</b> and are disqualified from use as an offering, they <b>still</b> have <b>no</b> possibility of redemption. Therefore, the <i>tanna</i> <b>also taught the first clause: That became ritually impure before they were consecrated in</b> a service <b>vessel.</b>
+
+### Part 13
+With regard to flour or oil that has been consecrated in a service vessel, the Gemara asks: Isn’t it <b>obvious</b> that they are not redeemed, as <b>they are</b> consecrated with <b>inherent sanctity?</b>
+
+### Part 14
+The Gemara answers: It <b>was necessary</b> to state that items consecrated in a service vessel cannot be redeemed, as it may <b>enter your mind to say: Since a blemished</b> animal <b>is called impure,</b> as the Gemara will explain shortly, this analogy could be reversed and <b>an impure</b> animal could <b>also</b> have a status <b>similar to</b> that of <b>a blemished</b> animal. <b>And</b> just as in the case of a blemished animal, <b>even though</b> it is <b>consecrated</b> with <b>inherent sanctity, when it develops a blemish it is redeemed,</b> so too <b>these</b> impure items discussed in the mishna <b>may also be redeemed</b> despite their possessing inherent sanctity. Therefore, the <i>tanna</i> <b>teaches us that</b> it <b>is not</b> in <b>this</b> context that <b>the Merciful One called a blemished</b> animal <b>“impure.”</b>

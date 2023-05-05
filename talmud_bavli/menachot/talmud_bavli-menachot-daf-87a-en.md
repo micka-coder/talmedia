@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>the flour-</b>like white scum that floats on the surface, <b>nor from</b> the wine at <b>bottom of</b> the cask <b>due to the sediment</b> that collects there. <b>Rather, one brings from</b> the wine in <b>its middle third.</b>
 
@@ -56,5 +55,20 @@ The chapter concludes by quoting an additional prophecy of Isaiah concerning the
 ### Part 19
 <b>Rav Naḥman bar Yitzḥak says:</b> They recite the verse: <b>“The Lord builds up Jerusalem,</b> He gathers together the dispersed of Israel” (Psalms 147:2). The Gemara asks: <b>And initially,</b> when the Temple still stood and the Jewish people were gathered together in Eretz Yisrael, <b>what would</b> the watchmen <b>say? Rava bar Rav Sheila says:</b> They would say: <b>“For the Lord has chosen Zion; He has desired it for His habitation.</b> This is My resting place forever; here will I dwell for I have desired it” (Psalms 132:13–14).
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 20
+end of chapter
+
+### Part 21
+<strong>MISHNA:</strong> <b>Two</b> sizes of <b>measuring vessels for dry</b> substances <b>were</b> used <b>in the Temple</b> for measuring flour for the meal offerings. One held <b>a tenth</b> of an ephah <b>and</b> the other held <b>one-half of a tenth</b> of an ephah. <b>Rabbi Meir says:</b> There were three measuring vessels; one that held <b>a tenth</b> of an ephah, another one that also held <b>a tenth</b> of an ephah, <b>and</b> a third one that held <b>one</b>-<b>half of a tenth</b> of an ephah.
+
+### Part 22
+<b>What</b> purpose <b>did</b> the <b>tenth</b> of an ephah measuring vessel <b>serve?</b> It was the vessel <b>with which one would measure</b> flour <b>for all the meal offerings. One would not measure</b> the flour by using a measuring vessel of a size that held the entire volume of flour required at once, i.e., <b>neither with</b> a vessel of <b>three-</b>tenths of an ephah <b>for</b> the meal offering accompanying the sacrifice of <b>a bull, nor with</b> a vessel of <b>two</b>-tenths of an ephah <b>for</b> the meal offering accompanying the sacrifice of <b>a ram. Rather, one measures</b> the flour for <b>them</b> by repeatedly using the tenth of an ephah measuring vessel to measure the required number of <b>tenths.</b>
+
+### Part 23
+<b>What</b> purpose <b>did</b> the <b>one</b>-<b>half of a tenth</b> of an ephah measuring vessel <b>serve?</b> It was the vessel <b>with which one would measure</b> the flour for the <b>High Priest’s griddle-cake</b> offering. A tenth of an ephah was required each day; he sacrificed <b>half</b> of it <b>in the morning and</b> the other <b>half</b> of it <b>in the afternoon.</b>
+
+### Part 24
+<strong>GEMARA:</strong> The Gemara cites a <i>baraita</i> that clarifies Rabbi Meir’s opinion. It <b>is taught</b> in a <i>baraita</i> that <b>Rabbi Meir would say: What</b> is the meaning when <b>the verse states: “A tenth, a tenth, for every lamb”</b> (Numbers 28:29)? The fact the word “tenth” appears twice <b>teaches that there were two</b> measuring vessels that each held <b>a tenth</b> of an ephah <b>in the Temple. One</b> of them held that volume when it was <b>heaped, and</b> the other <b>one</b> was slightly larger and held that same volume when the flour was <b>leveled</b> with the rim.
+
+### Part 25
+The one that held a tenth of an ephah when <b>heaped</b> was the vessel <b>with which one would measure</b> the flour <b>for all the meal offerings.</b>

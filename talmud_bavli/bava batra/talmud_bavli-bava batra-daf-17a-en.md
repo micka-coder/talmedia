@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>a taste of the World-to-Come. They are: Abraham, Isaac, and Jacob. Abraham, as it is written with regard to him:</b> “And the Lord blessed Abraham <b>with everything”</b> (Genesis 24:1). <b>Isaac, as it is written with regard to him:</b> “And I have eaten <b>from everything”</b> (Genesis 27:33). <b>Jacob, as it is written with regard to him:</b> “Because I have <b>everything”</b> (Genesis 33:11). This teaches that already in their lifetimes they merited everything, i.e., perfection.
 
@@ -17,5 +16,14 @@ The Gemara asks: <b>But with regard to Miriam it is not written: “By the mouth
 ### Part 6
 <b>The Sages taught</b> in a <i>baraita</i>: There were <b>four</b> people <b>who died</b> only <b>because of the counsel of the</b> primordial <b>snake,</b> in the wake of which all of humanity became mortal, and not on account of any personal sin. <b>And they are: Benjamin, son of Jacob; Amram, father of Moses; Yishai, father of David; and Chileab, son of David. And all of these are known through tradition except for Yishai, father of David, with regard to</b> whom <b>it is written explicitly: “And Absalom placed Amasa over the army instead of Joab, and Amasa was the son of a man whose name was Ithra the Israelite, who engaged in intercourse with Abigail, daughter of Nahash, the sister of Zeruiah, mother of Joab”</b> (II Samuel 17:25). <b>But was</b> Abigail <b>the daughter of Nahash? Was she not the daughter of Yishai, as it is written: “And their sisters were Zeruiah and Abigail”</b> (I Chronicles 2:16)? <b>Rather,</b> she was called “daughter of Nahash” to indicate that <b>she was the daughter of one who died</b> only <b>because of the counsel of the snake.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> <b>A person may not dig a pit close to the pit of another,</b> in order to avoid damaging the latter’s pit. <b>And</b> similarly, one <b>may not</b> dig <b>a ditch, nor a cave,</b> i.e., a covered pit, <b>nor a water channel, nor a launderer’s pond,</b> which is a pit used for washing clothes, <b>unless he distanced</b> all of these <b>three handbreadths from the wall of another and he plasters lime</b> on the place where there is water.
+
+### Part 9
+<b>And one must distance the solid residue</b> of produce that has been pressed free of its oil, e.g., the refuse of olives from which oil has been squeezed, <b>and</b> animal <b>manure, and salt, and lime, and rocks three handbreadths from the wall of another,</b> as all these items produce heat and can damage the wall. <b>Or, alternatively, he</b> may <b>plaster</b> the wall <b>with lime</b> to prevent damage. <b>One must</b> likewise <b>distance seeds,</b> i.e., one may not plant seeds, <b>and</b> one may not operate <b>the plow, and</b> one must eliminate <b>urine, three handbreadths from the wall</b> of another.
+
+### Part 10
+The mishna continues: <b>And one must distance a mill</b> from a neighbor’s wall by <b>three</b> handbreadths <b>from the lower stone</b> of the mill, <b>which is four</b> handbreadths <b>from the</b> smaller <b>upper stone</b> of the mill. <b>And</b> there must be a distance of <b>three</b> handbreadths <b>from the</b> protruding <b>base [<i>hakalya</i>]</b> of <b>an oven</b> until the wall, <b>which is four</b> handbreadths <b>from the</b> narrow <b>upper rim [<i>hassafa</i>]</b> of the oven.

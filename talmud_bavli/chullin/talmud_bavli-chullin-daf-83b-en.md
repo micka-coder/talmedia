@@ -1,6 +1,35 @@
-
 ### Part 1
 § <b>Rabbi</b> Yehuda HaNasi <b>says:</b> The verse: “You shall not slaughter it and its offspring both in <b>one day”</b> (Leviticus 22:28), is referring to a special day, and it indicates that <b>a special day requires a proclamation</b> to prevent buyers from slaughtering an animal together with its offspring on that day. <b>From here</b> is derived that which is <b>stated</b> in the mishna: <b>On four occasions during the year,</b> which are special days, <b>one who sells an animal to another must inform him:</b> I sold its mother for slaughter, or: I sold its offspring for slaughter.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 2
+end of chapter
+
+### Part 3
+<strong>MISHNA:</strong> The mitzva of <b>covering the blood</b> after slaughter <b>is in effect</b> both <b>in Eretz</b> Yisrael <b>and outside of Eretz</b> Yisrael, both <b>in the presence,</b> i.e., the time, <b>of the Temple and not in the presence of the Temple.</b> And it is in effect <b>with regard to non-sacred</b> animals, <b>but</b> it is not in effect <b>with regard to sacrificial</b> ones. <b>And it is in effect with regard to</b> the slaughter of <b>an undomesticated animal and a bird, with regard to</b> animals and birds that are readily <b>available</b> in his home, <b>and with regard to</b> those <b>that are not</b> readily <b>available</b> and are hunted in the wild. <b>And it is in effect with regard to a <i>koy</i>, because it is uncertain</b> whether a <i>koy</i> is a domesticated animal and one is exempt from the covering of its blood or whether it is an undomesticated animal and one is obligated to cover it.
+
+### Part 4
+<b>And one may not slaughter</b> a <i>koy</i> <b>on a Festival,</b> because covering its blood entails the performance of prohibited labor that is permitted only if there is a definite obligation to cover the blood. <b>And if one slaughtered</b> a <i>koy</i> on a Festival after the fact, <b>one does not cover its blood</b> until after the Festival.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara asks: <b>What is the reason</b> one is <b>not</b> obligated to cover the blood of <b>sacrificial</b> birds? <b>If we say</b> it is <b>because of</b> the statement <b>of Rabbi Zeira,</b> that is difficult. <b>As Rabbi Zeira says: One who slaughters</b> a bird or an undomesticated animal <b>must place earth beneath</b> the blood <b>and earth above</b> it, <b>as it is stated: “And he shall pour out its blood and cover it with earth”</b> (Leviticus 17:13). It <b>is not stated:</b> Cover it with <b>earth,</b> but <b>rather, “in earth,”</b> indicating that the blood must be concealed inside the earth. The verse <b>teaches that one who slaughters</b> a bird or undomesticated animal <b>must place earth beneath</b> the blood <b>and earth above</b> the blood.
+
+### Part 6
+The Gemara continues: <b>And here,</b> with regard to a bird offering, whose blood is presented on the altar, it is <b>not possible</b> for one to cover the blood with earth from beneath it. As <b>how should one perform</b> the covering of the blood? If one suggests that <b>he should place</b> earth on the altar <b>and nullify</b> that earth to the altar such that it will never be removed from there, this is unfeasible, since by nullifying the earth to the altar, <b>he is adding to the structure</b> of the altar. <b>And it is written</b> with regard to the construction of the Temple: <b>“All was in writing, from the hand of the Lord, which He gave me to understand”</b> (I Chronicles 28:19), indicating that the dimensions of the Temple and all the vessels within were given prophetically and are therefore not subject to change.
+
+### Part 7
+And if one suggests that <b>he should not nullify</b> the earth to the altar, this too is problematic, as the earth <b>constitutes an interposition</b> between the blood of the bird and the altar.
+
+### Part 8
+The Gemara explains why this statement of Rabbi Zeira does not sufficiently explain why one is not required to cover the blood of sacrificial birds. <b>Granted that</b> it is <b>impossible</b> to place earth <b>beneath</b> the blood of the bird, but it is <b>possible</b> to place earth <b>above</b> the blood of the bird. If so, <b>let</b> him <b>perform a covering</b> of the blood from above.
+
+### Part 9
+The Gemara explains this suggestion: <b>Isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yonatan ben Yosef says:</b> If <b>one slaughtered an undomesticated animal,</b> whose blood requires covering, <b>and thereafter slaughtered a domesticated animal,</b> whose blood does not require covering, in the same location as the undomesticated animal, he is <b>exempt from</b> the obligation <b>to cover</b> the blood of the undomesticated animal, as it is covered with the blood of the domesticated animal. But if one slaughtered <b>a domesticated animal and thereafter</b> slaughtered <b>an undomesticated animal</b> he is <b>obligated to cover</b> the latter’s blood despite the fact that there is no earth, but rather blood of the domesticated animal, beneath it. It is evident from this <i>baraita</i> that the mitzva of covering the blood applies even when earth cannot be placed beneath the blood.
+
+### Part 10
+The Gemara responds: The exclusion of sacrificial birds from the mitzva of covering the blood, even from above, is <b>in accordance with</b> another statement <b>of Rabbi Zeira, as Rabbi Zeira says</b> with regard to meal offerings: For <b>any</b> measure of flour <b>that</b> is <b>suitable for mixing</b> with oil in a meal offering, the lack of <b>mixing does not invalidate</b> the meal offering. Even though there is a mitzva to mix the oil with the flour <i>ab initio</i>, the meal offering is fit for sacrifice even if the oil and the flour are not mixed together. <b>And</b> for <b>any</b> measure of flour <b>that</b> is <b>not suitable for mixing</b> with oil in a meal offering, the lack of <b>mixing invalidates</b> the meal offering. Similarly, if one slaughtered a domesticated animal and thereafter an undomesticated animal, since it was possible to cover the blood of the former before slaughtering the latter, which would allow the proper fulfillment of the mitzva of covering the blood, one is still obligated to cover the blood from above. By contrast, it is always impossible to properly perform the mitzva in the case of sacrificial birds.
+
+### Part 11
+The Gemara asks: Still, why is the mitzva of covering the blood not applicable to sacrificial birds? <b>Let one scrape</b> the blood off the altar <b>and cover it</b> elsewhere. <b>Didn’t we learn</b> in a mishna (87b): With regard to <b>blood that spurts</b> outside the pit in which the animal was slaughtered, <b>and</b> blood <b>that</b> remained <b>on the</b> slaughtering <b>knife,</b> one is <b>obligated to cover</b> it? <b>Evidently,</b> the <i>halakha</i> is <b>that</b> one may <b>scrape</b> off the blood <b>and cover it</b> in a location other than where it spilled out. <b>Here too, let us scrape</b> the blood of a sacrificial bird off the altar <b>and cover it</b> elsewhere.
+
+### Part 12
+The Gemara answers: <b>If</b> the ruling of the mishna was dealing <b>with</b> items <b>consecrated for the altar, indeed,</b> the blood must be scraped off and covered elsewhere. But <b>here we are dealing with</b> items <b>consecrated for Temple maintenance,</b> i.e., birds donated to the Temple in order to be sold, the profits of which would be used for repairs. Such birds may not be slaughtered, and if one transgressed and slaughtered them it is prohibited to derive any benefit from them. The <i>tanna</i> of the mishna holds that the mitzva of covering the blood does not apply to a slaughtered animal that is forbidden for consumption.

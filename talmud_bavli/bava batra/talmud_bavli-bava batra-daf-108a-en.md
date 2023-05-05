@@ -1,6 +1,14 @@
-
 ### Part 1
 <b>so that an animal will not jump</b> over the fence, enter the field, and cause damage. The Gemara asks: <b>Let him make</b> only a larger <b>ditch and not make a smaller ditch.</b> The Gemara replies: <b>Since</b> the ditch <b>is wide,</b> the animal <b>can stand inside it and jump</b> from there over the fence. The Gemara asks: If so, <b>then let him make</b> only <b>a smaller ditch and not make</b> a larger <b>ditch? Since the ditch is small,</b> the animal <b>stands on its edge and jumps</b> over the fence. The <i>baraita</i> explains the matter further: <b>And how much</b> space is there <b>between</b> the larger <b>ditch and the smaller ditch? One handbreadth.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 2
+end of chapter
+
+### Part 3
+<strong>MISHNA:</strong> <b>There are</b> family members who both <b>inherit</b> from <b>and bequeath</b> to each other upon their respective deaths; <b>and there are</b> those who <b>inherit</b> from certain relatives <b>but do not bequeath</b> to them; and there are those who <b>bequeath</b> to certain relatives <b>but do not inherit</b> from them; and there are those who, despite being relatives, <b>do not inherit</b> from <b>nor bequeath</b> to one another.
+
+### Part 4
+The mishna lists those referred to above. <b>And these</b> both <b>inherit and bequeath: A father</b> with regard to his <b>sons, and sons</b> with regard to their <b>father, and paternal brothers;</b> all <b>inherit</b> from one another <b>and bequeath</b> to each other. <b>A man</b> with regard to <b>his mother, and a man</b> with regard to <b>his wife, and sons of sisters,</b> i.e., nephews born to the sisters of the deceased, all <b>inherit</b> from their respective relatives <b>but do not bequeath</b> to them. <b>A woman</b> with regard to <b>her sons, and a woman</b> with regard to <b>her husband, and maternal uncles,</b> all <b>bequeath</b> to their respective relatives <b>but do not inherit</b> from them. <b>And maternal brothers,</b> despite being blood relatives, <b>do not inherit</b> from each other <b>nor</b> do they <b>bequeath</b> to one another, as they are not considered relatives for the purpose of inheritance.
+
+### Part 5
+<strong>GEMARA:</strong> The Gemara begins by clarifying the order of the list in the mishna. <b>What is different,</b> i.e., what is the reason, <b>that</b> the mishna <b>teaches: A father</b> with regard to his <b>sons,</b> as <b>the first</b> example? <b>Let</b> it <b>teach: Sons</b> with regard to their <b>father,</b> as <b>the first</b> example. The Gemara explains why this would be preferable: <b>One</b> reason is <b>that we do not</b> want to <b>begin with a calamity,</b> as the death of a son during his father’s lifetime is a calamity; therefore, it would have been appropriate to begin with the example of sons inheriting from their father.

@@ -1,4 +1,3 @@
-
 ### Part 1
 as the Sages decreed that in certain places one may read the Scroll of Esther on the eleventh, twelfth, or thirteenth of Adar, nevertheless, it is <b>permitted to eulogize and fast</b> on these days. The Gemara clarifies: <b>When</b> does this ruling apply? <b>If we say</b> that it applies to <b>those</b> in walled cities, who normally read the scroll on the <b>fifteenth</b> of Adar <b>and</b> yet this year <b>they read it on the fourteenth,</b> a day on which they normally are permitted to fast and eulogize, <b>but</b> this cannot be the case, as <b>are they permitted</b> to fast and eulogize at all on these days?
 
@@ -35,5 +34,11 @@ In relation to the above, the Gemara inquires: <b>What is</b> the origin of <b>N
 ### Part 12
 <b>Rav Yehuda said</b> that <b>Rav said: This</b> <i>halakha</i> of the mishna that a fast that occurs on a festival is not observed, <b>is the statement of Rabbi Meir, who said</b> it <b>in the name of Rabban Gamliel. However, the Rabbis say:</b> If a communal fast occurs on one of these days, one must <b>fast and complete</b> the fast until nightfall. <b>Mar Zutra taught in the name of Rav Huna:</b> The practical <b><i>halakha</i></b> is in accordance with the opinion of the Rabbis, that one <b>fasts and completes</b> his fast until nightfall.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> <b>The order of these fasts</b> of increasing severity, as explained in Chapter One, <b>is stated</b> only <b>in</b> a case when <b>the first rainfall</b> has not materialized. <b>However,</b> if there is <b>vegetation that</b> grew and its appearance <b>changed</b> due to disease, the court does not wait at all; <b>they cry out about it immediately. And likewise, if rain ceased</b> for a period of <b>forty days</b> between <b>one rainfall and another, they cry out about it because it is a plague of drought.</b>
+
+### Part 15
+If sufficient rain <b>fell for the vegetation but not</b> enough <b>fell for the trees;</b> or if it was enough <b>for the trees but not for the vegetation;</b> or if sufficient rain fell <b>for both this and that,</b> i.e., vegetation and trees, <b>but not</b> enough <b>to</b> fill the <b>cisterns, ditches, and caves</b> with water to last the summer, <b>they cry out about it immediately. And likewise,</b> if there is a particular <b>city upon which it did not rain,</b> while the surrounding area did receive rain, this is considered a divine curse, <b>as it is written: “And I caused it to rain upon one city, but caused it not to rain upon another city; one piece was rained upon,</b> and the portion upon which it did not rain withered” (Amos 4:7).

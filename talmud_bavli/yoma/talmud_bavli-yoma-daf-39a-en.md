@@ -1,4 +1,3 @@
-
 ### Part 1
 In the case of one who <b>comes to measure</b> and purchase <b>naphtha,</b> the merchant <b>says to him: Measure</b> it <b>for yourself,</b> as I prefer to keep my distance from the foul odor. With regard to one who <b>comes to measure</b> and purchase <b>balsam,</b> the merchant <b>says to him: Wait for me until I</b> can <b>measure</b> it <b>with you, so that you and I will</b> both <b>be perfumed.</b> Similarly, with regard to sin God merely provides an opening, whereas with regard to mitzvot God assists the individual in their performance.
 
@@ -11,5 +10,41 @@ In <b>the school of Rabbi Yishmael it was taught: Sin stupefies the heart of a p
 ### Part 4
 Conversely, <b>the Sages taught</b> the following with regard to the verse: <b>“Sanctify yourselves and you will be sanctified”</b> (Leviticus 11:44); <b>a person</b> who <b>sanctifies himself a bit, they sanctify him</b> and assist him <b>greatly.</b> If a person sanctifies himself <b>below, they sanctify him above.</b> If a person sanctifies himself <b>in this world, they sanctify him in the World-to-Come.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 5
+end of chapter
+
+### Part 6
+<strong>MISHNA:</strong> The High Priest <b>would mix</b> the lots <b>in the</b> lottery <b>receptacle</b> used to hold them <b>and draw</b> the <b>two lots</b> from it, one in each hand. <b>Upon one was written: For God. And upon</b> the other <b>one was written: For Azazel. The deputy</b> High Priest would stand <b>to</b> the High Priest’s <b>right, and the head of the patrilineal family</b> would stand <b>to his left. If</b> the lot <b>for the name</b> of God <b>came up in his right</b> hand, <b>the Deputy would say to him: My master, High Priest, raise your right</b> hand so that all can see with which hand the lot for God was selected. <b>And if</b> the lot for the <b>name</b> of God <b>came up in his left</b> hand, <b>the head of the patrilineal family would say to him: My master, High Priest, raise your left</b> hand.
+
+### Part 7
+Then <b>he would place</b> the two lots <b>upon the two goats,</b> the lot that arose in his right hand on the goat standing to his right side and the lot in his left hand on the goat to his left. <b>And</b> upon placing the lot for God upon the appropriate goat, <b>he would say: For God,</b> as <b>a sin-offering. Rabbi Yishmael says: He need not say:</b> As <b>a sin-offering. Rather,</b> it is sufficient to say: <b>For God. And</b> upon saying the name of God, the priests and the people <b>respond after him: Blessed be the name of His glorious kingdom forever and all time.</b>
+
+### Part 8
+<strong>GEMARA:</strong> <b>Why do I</b> need the High Priest to have <b>mixed</b> the lots in <b>a receptacle</b> before he draws the lots? <b>In order that he not</b> be able to <b>intentionally take</b> the lot for God specifically with his right hand. Since it is a fortuitous omen for the lot for God to arise in his right hand, there is a concern that he might force the result, in contravention of the requirement that the designation of the goats be made through a random lottery.
+
+### Part 9
+<b>Rava said:</b> The <b>receptacle was</b> made out <b>of wood and</b> did not have the status of a sacred vessel. Rather, it <b>was unconsecrated, and it had enough</b> space inside <b>only for</b> the High Priest’s <b>two hands.</b>
+
+### Part 10
+<b>Ravina strongly objects to this: Granted,</b> it was constructed so that it <b>had enough</b> space inside it <b>only for</b> the High Priest’s <b>two hands.</b> This was done so that he could not maneuver his hands inside the box to feel and examine the lots, <b>in order that he not</b> be able to <b>intentionally take</b> the lot for God specifically with his right hand. <b>But</b> why was the receptacle <b>unconsecrated? Let it be consecrated</b> as a sacred vessel. <b>If so,</b> if it were to be consecrated, <b>it would be a sacred vessel</b> made <b>of wood, and</b> the <i>halakha</i> is that <b>we do not make a sacred vessel from wood.</b> But if this is the only issue, <b>let it be made</b> out <b>of silver</b> or <b>let it be made</b> out <b>of gold.</b> However, <b>the Torah spared the money of the Jewish people</b> and did not want to burden them with the expense of having to make the receptacle from expensive materials. Therefore, it is made from wood, and as such it is precluded from being a sacred vessel.
+
+### Part 11
+The Gemara comments: <b>The mishna is not in accordance with</b> the opinion of <b>this <i>tanna</i></b> whose opinion <b>was taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda says in the name of Rabbi Eliezer: The Deputy and the High Priest insert their hands into the receptacle. If</b> the lot for God <b>comes up in the High Priest’s right</b> hand, <b>the Deputy says to him: My master, High Priest, raise your right</b> hand. <b>And if</b> the lot for God <b>comes up in the right</b> hand <b>of the Deputy, the head of the patrilineal family says to the High Priest: Speak your word</b> and declare the goat to your left side to be the sin-offering for God.
+
+### Part 12
+The Gemara asks: Why should the head of the patrilineal family instruct the High Priest to speak? <b>Let the Deputy say</b> this <b>to him.</b> The Gemara answers: <b>Since the lot</b> for God <b>did not come up in</b> the High Priest’s <b>hand,</b> rather in the Deputy’s, <b>he</b> might <b>be discouraged</b> if the Deputy himself instructs him to speak, as it may appear that he is mocking him.
+
+### Part 13
+<b>With regard to what do</b> the <i>tanna’im</i> of the mishna and <i>baraita</i> <b>disagree?</b> One <b>Sage,</b> the <i>tanna</i> of the <i>baraita</i>, <b>holds</b> that <b>the Deputy’s right</b> hand <b>is preferable to the High Priest’s left</b> hand. As such, the ideal way for the lots to be drawn is for both the Deputy and High Priest to use their right hands. <b>And</b> the other <b>Sage,</b> the <i>tanna</i> of the mishna, <b>holds they are equivalent.</b> Therefore, there is no reason for the Deputy to be involved, and the entire process is performed by the High Priest.
+
+### Part 14
+<b>And who is this <i>tanna</i> who argues with Rabbi Yehuda? It is Rabbi Ḥanina, the Deputy of the priests, as it was taught</b> in a <i>baraita</i>: <b>Rabbi Ḥanina, the Deputy of the priests, says: Why</b> did the <b>Deputy</b> remain <b>at the</b> High Priest’s <b>right</b> side throughout the day’s service? <b>Because if some disqualification befalls the High Priest, the Deputy can step in and serve in his stead.</b> It is apparent from Rabbi Ḥanina’s statement that as long as the High Priest remains qualified, the Deputy has no role in the day’s service, which disputes Rabbi Yehuda’s opinion.
+
+### Part 15
+§ <b>The Sages taught:</b> During all <b>forty years that Shimon HaTzaddik served</b> as High Priest, <b>the lot</b> for God arose in <b>the right</b> hand. <b>From then onward, sometimes it arose in the right</b> hand and <b>sometimes it arose in the left</b> hand. Furthermore, during his tenure as High Priest, <b>the strip of crimson</b> wool that was tied to the head of the goat that was sent to Azazel <b>turned white,</b> indicating that the sins of the people had been forgiven, as it is written: “Though your sins be as crimson, they shall be white as snow” (Isaiah 1:18). <b>From then onward, it sometimes turned white</b> and <b>sometimes it did not turn white.</b> Furthermore, <b>the western lamp</b> of the candelabrum <b>would burn</b> continuously as a sign that God’s presence rested upon the nation. <b>From then onward, it sometimes burned</b> and <b>sometimes it went out.</b>
+
+### Part 16
+<b>And</b> during the tenure of Shimon HaTzaddik, <b>the fire on the arrangement</b> of wood on the altar <b>kept going strongly,</b> perpetually by itself, <b>such that the priests did not need to bring</b> additional <b>wood to the arrangement</b> on a daily basis, <b>except for the two logs</b> that were brought <b>in order to fulfill the mitzva of</b> placing <b>wood</b> upon the arrangement. <b>From then onward,</b> the fire <b>sometimes kept going strongly</b> and <b>sometimes it did not, and so the priests could not avoid bringing wood to the arrangement throughout the entire day.</b>
+
+### Part 17
+<b>And a blessing was sent upon the</b> offering of the <b><i>omer</i>; and to the</b> offering of <b>the two loaves</b> from the new wheat, which was sacrificed on <i>Shavuot</i>; <b>and to the shewbread,</b> which was placed on the table in the Temple. <b>And</b> due to that blessing, <b>each priest that received an olive-bulk</b> of them, <b>there were those</b> who <b>ate it and were satisfied, and there were those</b> who <b>ate</b> only a part <b>of it and left over</b> the rest because they were already satisfied from such a small amount. <b>From then onward, a curse was sent upon the <i>omer</i>, and to the two loaves, and to the shewbread,</b> that there were not sufficient quantities to give each priest a full measure. Therefore, <b>each priest received</b> just an amount the <b>size of a bean; the discreet,</b> pious <b>ones would withdraw their hands,</b> a bean-bulk being less that the quantity needed to properly fulfill the mitzva, <b>and</b> only <b>the voracious ones would take and eat</b> it. <b>And an incident occurred with one who took his portion and that of his fellow, and they called him: Son of</b>

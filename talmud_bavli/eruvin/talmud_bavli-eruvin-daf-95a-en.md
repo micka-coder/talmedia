@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>A</b> cross <b>beam four</b> handbreadths wide <b>renders</b> carrying <b>in a ruin</b> that is breached into a public domain <b>permitted,</b> as the edge of the cross beam is considered to descend and seal the breach. <b>And</b> that which <b>Rav Naḥman said</b> that <b>Rabba bar Avuh said: A</b> cross <b>beam four</b> handbreadths wide <b>renders</b> carrying <b>in water permitted</b> like a partition. In accordance with <b>whose</b> opinion were these rulings stated?
 
@@ -59,5 +58,11 @@ Rabba <b>said to him: From that</b> <i>baraita</i>, <b>yes,</b> it is indeed pos
 ### Part 20
 <b>However, if you say</b> that Rabbi Yehuda permitted the first case as well <b>because he maintains</b> that <b>by Torah law two partitions</b> suffice to create a private domain, <b>what</b> is the need for the introduction: <b>And furthermore?</b> The rationale for the second ruling is no different from the rationale for the first. The Gemara concludes: Indeed, <b>learn from here</b> that this is correct.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 21
+end of chapter
+
+### Part 22
+<strong>MISHNA:</strong> <b>One who finds phylacteries</b> outside the city on Shabbat, where they are in danger of becoming lost or damaged, <b>brings them in</b> to his house <b>pair</b> by <b>pair</b> by donning them in the manner in which they are typically donned for the mitzva. <b>Rabban Gamliel says:</b> He brings them in <b>two</b> pairs by <b>two</b> pairs. <b>In what</b> case <b>is this statement</b> that one is permitted to carry phylacteries inside <b>said?</b> It is <b>with regard to old</b> phylacteries, which have already been used and are designated for the mitzva. <b>However, with regard to new</b> ones, as it is unclear whether they are phylacteries or merely amulets in the form of phylacteries, he is <b>exempt</b> from performing the task.
+
+### Part 23
+If <b>one finds</b> phylacteries <b>tied in bundles or in wrapped piles,</b> in which case he is unable to carry them in pairs, <b>he</b> sits there and <b>waits with them until dark,</b> guarding them until the conclusion of Shabbat, <b>and</b> then <b>brings them in</b> to his house.

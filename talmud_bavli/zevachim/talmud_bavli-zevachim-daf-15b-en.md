@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>to bring it</b> again. Therefore, the second conveying must also be performed by a priest.
 
@@ -20,5 +19,23 @@ This is <b>as we learned</b> in the mishna (13a): <b>Rabbi Eliezer says:</b> Wit
 ### Part 7
 Rava <b>said to him: If this</b> <i>baraita</i> <b>is taught, it is taught,</b> and I cannot disagree with it.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> With regard to <b>all slaughtered offerings,</b> if the one <b>who collected their blood</b> was <b>a non-priest;</b> or a priest who was <b>an acute mourner,</b> i.e., one whose relative has died and has not yet been buried; or <b>one</b> who was ritually impure <b>who immersed that day</b> and is waiting for nightfall for the purification process to be completed; <b>or one who has not yet</b> brought <b>an atonement</b> offering, e.g., a <i>zav</i> or leper after the seventh day of the purification process; <b>or</b> a priest <b>lacking</b> the requisite priestly <b>vestments;</b> or one <b>who did not wash his hands and feet</b> from the water in the Basin prior to performing the Temple service; or <b>an uncircumcised</b> priest; or <b>a ritually impure</b> priest; or if the one who collected the blood was <b>sitting;</b> or if he was <b>standing</b> not on the floor of the Temple but <b>upon vessels,</b> or <b>upon an animal,</b> or <b>upon the feet of another,</b> he has <b>disqualified</b> the offering.
+
+### Part 10
+If <b>he collected</b> the blood <b>with</b> his <b>left</b> hand, he <b>disqualified</b> the blood for offering. In this last case, <b>Rabbi Shimon deems</b> it <b>fit.</b>
+
+### Part 11
+<strong>GEMARA:</strong> <b>From where do we</b> derive that <b>a non-priest</b> who performs sacrificial rites disqualifies an offering? <b>As Levi teaches:</b> The verse states: <b>“Speak to Aaron and to his sons, that they separate themselves from the sacred items of the children of Israel [<i>benei Yisrael</i>]”</b> (Leviticus 22:2). Levi continues: <b>“The children of Israel”</b> serves <b>to exclude what</b> from the prohibition against sacrificing an offering in a state of impurity? <b>If we say</b> that it serves <b>to exclude</b> the offerings of <b>women,</b> and the verse states “<i>benei</i>” in the masculine to indicate sons but not daughters, is it conceivable that <b>an offering of women is sacrificed in</b> a state of <b>impurity?</b>
+
+### Part 12
+<b>Rather,</b> perhaps it serves <b>to exclude</b> offerings of <b>gentiles. Now,</b> if the <b>frontplate</b> of the High Priest, which normally effects acceptance for offerings of Jews sacrificed in a state of impurity, <b>does not effect acceptance</b> for the offerings of gentiles, <b>as the Master said: And with regard to</b> an offering of <b>gentiles, whether</b> it was offered in a state of impurity <b>unintentionally or intentionally, it was not accepted;</b> can it be, then, that such an offering <b>is sacrificed in</b> a state of <b>impurity</b> <i>ab initio</i>?
+
+### Part 13
+<b>Rather, this</b> is what the verse <b>is saying,</b> i.e., it should be read in the following manner: <b>That they separate themselves from the sacred items; the children of Israel, and that they not profane</b> My holy name. That is, the verse states that they, the priests, must separate themselves from the sacred items when they are ritually impure, and that the children of Israel must separate themselves from performing the sacrificial rites, so that they will not profane, i.e., disqualify, the offerings.
+
+### Part 14
+A <i>tanna</i> of the <b>school of Rabbi Yishmael taught:</b> The <i>halakha</i> of a non-priest who performs the sacrificial rites <b>is derived via an <i>a fortiori</i></b> inference <b>from</b> the case of <b>a blemished</b> priest: <b>Just as</b> with regard to <b>a blemished</b> priest, <b>who may partake</b> of the meat of offerings, <b>if he performed</b> sacrificial <b>rites</b> he has nevertheless <b>desecrated</b> the service,

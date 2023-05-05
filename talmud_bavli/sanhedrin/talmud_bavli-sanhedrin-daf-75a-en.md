@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And if it is so</b> that a descendant of Noah is commanded about the sanctification of God’s name, <b>he should not have said to him:</b> “Go in peace.” The Gemara answers: <b>This</b> situation, where Elisha permitted Naaman’s conduct, happened <b>in private.</b> When Naaman bowed down in the house of Rimmon, he did not do so in the presence of ten Jews. Whereas <b>that</b> question that was raised is whether or not a descendant of Noah must sanctify God’s name <b>in public,</b> in the presence of ten Jews. Consequently, the question remains without a solution.
 
@@ -14,5 +13,47 @@ The Gemara comments: <b>Rabbi Ya’akov bar Idi and Rabbi Shmuel bar Naḥmani d
 ### Part 5
 The Gemara asks: <b>But</b> if the woman was unmarried, <b>let</b> the man <b>marry her.</b> The Gemara answers: <b>His mind would not have been eased</b> by marriage, <b>in accordance with</b> the statement <b>of Rabbi Yitzḥak. As Rabbi Yitzḥak says: Since the day the Temple was destroyed, sexual pleasure was taken away</b> from those who engage in permitted intercourse <b>and given to transgressors, as it is stated: “Stolen waters are sweet, and bread eaten in secret is pleasant”</b> (Proverbs 9:17). Therefore, the man could have been cured only by engaging in illicit sexual interaction.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> <b>And these are</b> the transgressors <b>who are burned</b> in the implementation of the court-imposed death penalty: <b>One who engaged in intercourse with a woman and her daughter, and</b> one who is <b>the daughter of a priest</b> and <b>who committed adultery.</b>
+
+### Part 8
+Included <b>in the category of</b> the prohibition of engaging in intercourse with <b>a woman and her daughter</b> and the resulting execution by burning, <b>there are: His daughter, and the daughter of his daughter, and the daughter of his son.</b> Likewise, the following are also included in this category: Intercourse with <b>the daughter of his wife,</b> even though she is not his daughter, <b>and the daughter of her daughter, and the daughter of her son,</b> as well as intercourse with <b>his mother-in-law, and the mother of his mother-in-law, and the mother of his father-in-law.</b> The prohibition and punishment apply both in cases where a man marries a woman and then engages in intercourse with her daughter, and in cases where a man marries a woman and then engages in intercourse with her mother.
+
+### Part 9
+<strong>GEMARA:</strong> The <i>tanna</i> <b>does not teach</b> the case of <b>one who engaged in intercourse with a woman whose daughter he</b> previously <b>married. Rather,</b> the <i>tanna</i> teaches the case of <b>one who engaged in intercourse with a woman and her daughter. By inference,</b> one may conclude <b>that both</b> the woman and her daughter are mentioned in the mishna <b>for</b> the purpose of establishing that there is <b>a prohibition</b> of intercourse with either of them, and when he engages in intercourse with the first of them he is liable to be executed. <b>And who are these</b> women? The reference is to <b>his mother-in-law and the mother of his mother-in-law.</b>
+
+### Part 10
+<b>And</b> the <i>tanna</i> <b>teaches:</b> Additional women are included <b>in the category of</b> the prohibition of and the punishment for engaging in intercourse with <b>a woman and her daughter. By inference,</b> one may conclude <b>that</b> with regard to <b>both</b> his mother-in-law and the mother of his mother-in-law, the prohibition and punishment <b>are written explicitly</b> in the Torah, <b>and</b> with regard to <b>those</b> additional women enumerated in the mishna, the prohibition and punishment <b>are derived by</b> means of <b>interpretation.</b>
+
+### Part 11
+The Gemara comments: <b>This works out well according to Abaye, who says</b> that with regard to the dispute between Rabbi Yishmael and Rabbi Akiva cited later in the Gemara (76b), the difference <b>between their</b> opinions is only concerning <b>the interpretation of the meaning</b> of the verse, but there is no practical difference between their opinions. According to Abaye, <b>whose</b> opinion is expressed in <b>the mishna? It is</b> the opinion of <b>Rabbi Akiva.</b> Abaye explains that Rabbi Akiva maintains that the prohibition of engaging in intercourse with the mother of one’s mother-in-law is stated explicitly in the Torah.
+
+### Part 12
+<b>But according to Rava, who says</b> that the difference <b>between their</b> opinions is with regard to the prohibition of engaging in intercourse with one’s <b>mother-in-law after</b> the <b>death</b> of his wife, <b>whose</b> opinion is expressed in <b>the mishna?</b> The opinion of the <i>tanna</i> of the mishna corresponds neither to the opinion of Rabbi Akiva nor to the opinion of Rabbi Yishmael, as they both maintain that the prohibition of engaging in intercourse with the mother of one’s mother-in-law is not stated explicitly in the Torah. The Gemara answers: <b>Rava</b> could <b>say to you:</b> Emend the mishna and <b>teach: One who engaged in intercourse with a woman whose daughter he</b> previously <b>married.</b>
+
+### Part 13
+The mishna teaches: Included <b>in the category of</b> the prohibition of engaging in intercourse with <b>a woman and her daughter</b> and the resulting execution by burning, <b>there are: His mother-in-law, and the mother of his mother-in-law, and the mother of his father-in-law.</b> The Gemara comments: Abaye holds that everyone agrees that the prohibition of engaging in intercourse with one’s mother-in-law is stated explicitly in the Torah, and the <i>tanna</i> enumerates his mother-in-law together with relatives concerning whom the prohibition is derived by means of interpretation. Therefore, <b>according to Abaye, since</b> the <i>tanna</i> <b>seeks to teach</b> that <b>the mother of his father-in-law</b> is included in the prohibition, <b>he teaches</b> the <i>halakha</i> of <b>his mother-in-law and the mother of his mother-in-law as well,</b> despite the fact the prohibition of engaging in intercourse with one’s mother-in-law is stated explicitly in the Torah.
+
+### Part 14
+By contrast, Rava holds that the woman and her daughter mentioned in the first clause of the mishna are his wife and his mother-in-law. Therefore, <b>according to Rava, since</b> the <i>tanna</i> <b>seeks to teach</b> that <b>the mother of his father-in-law and the mother of his mother-in-law</b> are included in the prohibition, <b>he teaches</b> the <i>halakha</i> of <b>his mother-in-law</b> in the latter clause <b>as well,</b> despite the fact that it is stated explicitly in the Torah.
+
+### Part 15
+§ The mishna enumerates several women with whom intercourse is forbidden who are included in the prohibition of engaging in intercourse with a woman and her daughter, which is punished by execution by burning. The Gemara asks: <b>From where are these matters</b> derived? They are derived <b>as the Sages taught:</b> “And <b>if a man takes a woman and her mother,</b> it is lewdness; they shall be burned with fire both him and them, and there shall be no lewdness among you” (Leviticus 20:14). <b>I have</b> derived <b>only</b> that this punishment applies to one who engages in intercourse with <b>a woman and</b> with <b>her mother. From where</b> is it derived that one who engages in intercourse with <b>the daughter of</b> the <b>woman</b> married to him, <b>or</b> with <b>the daughter of her daughter, or</b> with <b>the daughter of her son,</b> is also liable to be executed by burning?
+
+### Part 16
+The <i>baraita</i> continues: <b>Lewdness is stated here,</b> with regard to the punishment: “There shall be no lewdness among you” (Leviticus 20:14), <b>and lewdness is stated there,</b> with regard to the prohibition: “You shall not uncover the nakedness of a woman and her daughter; you shall not take her son’s daughter, or her daughter’s daughter, to uncover her nakedness; they are near kinswomen, it is lewdness” (Leviticus 18:17). It is derived by means of a verbal analogy that <b>just as there</b> the prohibition applies to the woman’s <b>daughter, and the daughter of her daughter, and the daughter of her son, so too here,</b> the punishment of burning applies to one who engages in intercourse with the woman’s <b>daughter, and</b> to <b>the daughter of her daughter, and</b> to <b>the daughter of her son.</b>
+
+### Part 17
+The <i>baraita</i> continues: <b>From where</b> is it derived <b>to render</b> the status of <b>males like</b> that of <b>females</b> with regard to this punishment? <b>Lewdness is stated here and lewdness is stated there. Just as there,</b> the Torah renders the status of <b>males like</b> that of <b>female</b> relatives, <b>so too here,</b> the Torah renders the status of <b>males like</b> that of <b>females.</b>
+
+### Part 18
+<b>From where</b> is it derived <b>to render</b> the status of relatives <b>below like</b> the status of relatives <b>above? Lewdness is stated here and lewdness is stated there. Just as there,</b> the Torah renders the status of relatives <b>below like</b> that of relatives <b>above, so too here,</b> the Torah renders the status of relatives <b>below like</b> that of relatives <b>above. And just as here,</b> the Torah renders the status of relatives <b>above like</b> that of relatives <b>below, so too there,</b> the Torah renders the status of relatives <b>above like</b> that of relatives <b>below.</b>
+
+### Part 19
+The Gemara proceeds to elaborate on the derivations cited in the <i>baraita</i>. <b>The Master says: From where</b> is it derived <b>to render</b> the status of <b>males like</b> that of <b>females?</b> The Gemara asks: <b>What</b> is the meaning of: The status of <b>males like</b> that of <b>females? If we say</b> that it means that one who engages in intercourse with the <b>daughter of the son of</b> his wife is executed by burning <b>like</b> one who engages in intercourse with <b>the daughter of her daughter,</b> the status of the daughter of her son and the daughter of her daughter <b>are derived together</b> in the first clause of the <i>baraita</i>, as both are written explicitly in the prohibition.
+
+### Part 20
+<b>Rather,</b> this clause in the <i>baraita</i> means that one who engages in intercourse with <b>the mother of his father-in-law</b> is executed by burning <b>like</b> one who engages in intercourse with <b>the mother of his mother-in-law.</b> The Gemara asks: <b>Now, we have not</b> yet <b>established</b> the <i>halakha</i> of one who engages in intercourse with <b>the mother of his mother-in-law,</b> and the <i>baraita</i> <b>is seeking</b> to derive the <i>halakha</i> of one who engages in intercourse with <b>the mother of his father-in-law</b> from the <i>halakha</i> of the mother of his mother-in-law?

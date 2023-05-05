@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>“But if he be too poor for your valuation”</b> (Leviticus 27:8). The word “he” [<i>hu</i>] is interpreted as a variation of <i>havaya</i>, existence or sustenance. In this manner the verse can be read as an instruction to the treasurer: <b>Sustain him from</b> that which he is obligated to pay for <b>your valuation.</b>
 
@@ -21,7 +20,7 @@ The Gemara explains that the ruling is necessary <b>lest you say</b> that <b>unt
 The Gemara explains: It is necessary, <b>lest you say</b> that it is only <b>there,</b> when one consecrates his property, that the <i>halakha</i> <b>is</b> that his phylacteries are taken, <b>as he thinks</b> to himself: <b>I am performing a mitzva,</b> and therefore he intended for his phylacteries to be included. <b>But with regard to a sale, a person</b> would <b>not sell</b> an item used for <b>a mitzva that</b> he performs with <b>his body</b> without explicitly stating so. The Gemara therefore <b>teaches us</b> by means of the above incident that phylacteries are included in the property of such a sale.
 
 ### Part 8
-mishna <b>Both</b> in the case of <b>one who consecrates his property and</b> the case of <b>one who valuates himself,</b> when the Temple treasurer repossesses his property he <b>has</b> the right to repossess <b>neither the garment of his wife nor the garment of his children, nor the dyed</b> garments <b>that he dyed for their sake,</b> even if they have yet to wear them, <b>nor the new sandals that he purchased for their sake.</b>
+<strong>MISHNA:</strong> <b>Both</b> in the case of <b>one who consecrates his property and</b> the case of <b>one who valuates himself,</b> when the Temple treasurer repossesses his property he <b>has</b> the right to repossess <b>neither the garment of his wife nor the garment of his children, nor the dyed</b> garments <b>that he dyed for their sake,</b> even if they have yet to wear them, <b>nor the new sandals that he purchased for their sake.</b>
 
 ### Part 9
 <b>Although</b> the merchants <b>said: Slaves are sold in their garments for profit, as if</b> a fine <b>garment</b> worth <b>thirty dinars would be purchased for him,</b> his sale price <b>appreciates by one hundred dinars; and likewise</b> with regard to <b>a cow, if one waits</b> to sell <b>it until the market [<i>la’itlis</i>]</b> day, when demand is high, <b>its</b> sale price <b>appreciates; and likewise</b> with regard to <b>a pearl, if one brings it to</b> sell it in <b>the city,</b> where demand is high, <b>its</b> sale price <b>appreciates;</b> nevertheless, one does not make such a calculation in this case. Rather, <b>the Temple treasury has</b> the right to collect the item based <b>only</b> on <b>its</b> current <b>location and its</b> price at the present <b>time.</b>
@@ -29,5 +28,26 @@ mishna <b>Both</b> in the case of <b>one who consecrates his property and</b> th
 ### Part 10
 <strong>GEMARA:</strong> With regard to the statement of the mishna that the Temple treasury has the right to collect the item based only on its current location and its present time, <b>the Sages taught</b> in a <i>baraita</i>: The verse states, with regard to the redemption of a consecrated item: <b>“And he shall give your valuation as of that day”</b> (Leviticus 27:23). The phrase “as of that day” indicates <b>that he should not delay</b> the sale of <b>a pearl for the light</b> ones, i.e., for poor people, in order that they should take it to the city to sell it. Rather, it is appraised according to its present location. The verse continues: <b>“As a holy thing unto the Lord,”</b> which teaches that <b>unspecified</b> vows of <b>consecration,</b> e.g., when one states: My property is consecrated, are given <b>for Temple maintenance,</b> rather than to the priests.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> <b>One may neither consecrate</b> an ancestral field, i.e., a field that he inherited, <b>less than two years before the Jubilee</b> Year, <b>nor may one redeem</b> such a field <b>less than one year after the Jubilee</b> Year. When redeeming an ancestral field that has been consecrated, the sum paid to redeem the field is calculated based on the number of years remaining until the Jubilee Year. When performing this calculation, <b>one does not count months</b> of a partial year in order to lower the price to be paid <b>to the Temple</b> treasury; rather, he pays for the entire year. <b>But the Temple</b> treasury may <b>count months</b> in order to raise the price of redemption, as will be explained.
+
+### Part 13
+<strong>GEMARA:</strong> The mishna teaches that one may not consecrate an ancestral field less than two years before the Jubilee Year. <b>And</b> with regard to this, the Gemara <b>raises a contradiction</b> from the following <i>baraita</i>: <b>One may consecrate</b> an ancestral field <b>both before the Jubilee</b> Year <b>and after the Jubilee</b> Year. <b>But during the Jubilee Year itself, one may not consecrate</b> it, <b>and if he</b> nevertheless did <b>consecrate</b> it, <b>it is not consecrated.</b> Although consecration of an ancestral field is ineffective during the Jubilee Year, it is clear that such a field may be consecrated at any time prior to the start of the year.
+
+### Part 14
+In response, <b>Rav and Shmuel both say:</b> The mishna means that <b>one may not consecrate</b> an ancestral field for it <b>to be redeemed with a deduction,</b> i.e., such that the redemption price will be reduced to reflect the number of years remaining until the Jubilee Year, <b>less than two years</b> before the Jubilee Year. If such a field is consecrated less than two years before the Jubilee, it is redeemed according to its full valuation, as though it had been consecrated and redeemed immediately after the Jubilee. <b>And since one may not consecrate</b> an ancestral field for it <b>to be redeemed with a deduction less than two years</b> before the Jubilee, the mishna teaches that <b>a person should be concerned about his property, and should</b> therefore <b>not consecrate</b> an ancestral field <b>less than two years</b> before the Jubilee.
+
+### Part 15
+§ It <b>was stated:</b> With regard to <b>one who consecrates his field during the Jubilee Year itself, Rav says:</b> It <b>is consecrated, and</b> if he wishes to redeem it he <b>gives</b> the full valuation of <b>fifty</b> <i>sela</i>, i.e., fifty silver biblical shekels, per unit of area required for sowing one <i>kor</i> of seed [<i>beit kor</i>], <b>and Shmuel says:</b> It <b>is not consecrated at all,</b> and therefore it is not redeemed for any sum.
+
+### Part 16
+<b>Rav Yosef objects to this: Granted, with regard to</b> the <b>sale</b> of an ancestral field during the Jubilee Year, it is logical <b>that Shmuel disagrees with Rav</b> and maintains that such a sale is invalid, as one <b>can say</b> the following <b><i>a fortiori</i></b> inference: <b>And if</b> a field that was <b>already sold</b> before the Jubilee Year <b>leaves</b> the possession of the buyer and returns to the original owner <b>now</b> in the Jubilee Year, then with regard to a field <b>that has not been sold, is it not logical</b> to conclude <b>that it cannot</b> be <b>sold</b> during the Jubilee Year?
+
+### Part 17
+<b>But here,</b> with regard to the consecration of a field during the Jubilee Year, <b>can</b> one <b>say</b> such an <b><i>a fortiori</i></b> inference? <b>But didn’t we learn</b> in a mishna (25b): If one consecrated his ancestral field and the <b>Jubilee</b> Year <b>arrived and it was not redeemed</b> by the owner, the <b>priests enter into</b> the field <b>and give its</b> redemption <b>payment</b> to the Temple treasury; this is <b>the statement of Rabbi Yehuda?</b> Since a field that was consecrated before the Jubilee Year does not return to its original owner without redemption, one cannot infer that if one consecrates his field during the Jubilee Year itself, it returns to him without redemption.
+
+### Part 18
+The Gemara answers: <b>Shmuel holds in accordance with</b> the opinion of <b>Rabbi Shimon, who says</b> that the priests <b>enter</b> into the field, <b>but they do not give</b> its redemption value to the Temple treasury. According to this opinion, a field consecrated before the Jubilee Year leaves the possession of the Temple treasury without redemption during the Jubilee Year, and therefore by <i>a fortiori</i> inference, if it was consecrated during the Jubilee Year, it does not require redemption.

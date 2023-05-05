@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara answers: <b>This</b> is <b>not difficult. This</b> case, where the vow does not take effect, is <b>where one said: This offering [<i>ha korban</i>],</b> and <b>that</b> case, where the vow does take effect, is <b>where one said: The offering [<i>hakorban</i>]. What is the reason</b> that the vow does not take effect when he says this offering [<i>ha korban</i>]? It is because <b>he is saying</b> that he is taking a vow by <b>the life of</b> this <b>offering,</b> which is not a valid way to express a vow.
 
@@ -14,5 +13,17 @@ The mishna <b>teaches</b> that if one says: That which <b>I will not eat of your
 ### Part 5
 <b>Rav Yehuda said:</b> The mishna is referring <b>to one who says: My mouth shall be forbidden</b> with regard <b>to my speech,</b> or: <b>My hands</b> shall be forbidden with regard <b>to their work,</b> or: <b>My feet</b> should be forbidden with regard <b>to their walking.</b> In these cases the vow applies to a limb, which is a concrete item, and therefore it takes effect. The Gemara comments: The language of the mishna <b>is also precise</b> according to this interpretation, <b>as it teaches:</b> For <b>my mouth</b> to <b>speak with you, and it does not teach: That which I speak with you.</b> This indicates that he imposed the vow upon his mouth and not upon the act of speaking.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> <b>And these are</b> the vows in which the one who takes the vow attempts to create a prohibition on an item by associating it with an item in an ineffective manner, rendering the vow void and leaving the item <b>permitted:</b> If one says: <b>That which I will eat of yours</b> will be <b>non-sacred [<i>ḥullin</i>];</b> or: That which I will eat of yours will be <b>like pig meat;</b> or: <b>Like</b> an object of <b>idol worship;</b> or: <b>Like</b> the <b>hides</b> of animal offerings <b>whose hearts were removed</b> as a form of idol worship, and it is therefore prohibited to derive benefit from those animals; or: <b>Like animal carcasses and animals with a wound that will cause them to die within twelve months [<i>tereifot</i>];</b> or: <b>Like</b> non-kosher <b>repugnant creatures and</b> non-kosher <b>creeping animals;</b> or: <b>Like the <i>ḥalla</i> of Aaron,</b> the first priest, <b>or like his <i>teruma</i>;</b> in all these cases, the food is <b>permitted.</b> Although none of these items may be eaten, they are forbidden by Torah law, not by means of a vow. Therefore, it is impossible to extend their prohibition to other items by means of a vow that associates them with those items.
+
+### Part 8
+With regard to a man <b>who says to his wife: You are hereby to me like</b> my <b>mother,</b> i.e., deriving benefit from you should be forbidden to me like engaging in sexual intercourse with my mother, dissolution <b>is broached with him by</b> suggesting <b>a different extenuation,</b> i.e., a halakhic authority suggests other, extenuating circumstances that enable the dissolution of the vow. Although this vow does not take effect either, as engaging in sexual intercourse with one’s mother is prohibited by Torah law, by rabbinic law this is treated like an actual vow and requires dissolution by a halakhic authority, so <b>that he will not</b> take genuine vows <b>lightly.</b>
+
+### Part 9
+<strong>GEMARA:</strong> It may be inferred from the first case in the mishna that <b>the reason</b> the vow does not take effect is <b>that he said: That which I will eat of yours</b> will be <b><i>ḥullin</i>; but</b> if <b>he said: That which I will eat of yours</b> will be <b><i>laḥullin</i>,</b> that <b>indicates</b> that he is saying: It <b>will not [<i>la</i>] be non-sacred [<i>ḥullin</i>],</b> but <b>rather</b> like <b>an offering,</b> which is a vow that takes effect.
+
+### Part 10
+<b>Whose</b> opinion is expressed in <b>the mishna? If</b> it is the opinion of <b>Rabbi Meir, isn’t he of</b> the opinion that one does <b>not</b> say: <b>From</b>

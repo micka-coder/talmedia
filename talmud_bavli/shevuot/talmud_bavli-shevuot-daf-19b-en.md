@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>even in the first</b> case, where he walked on both of the paths and did not purify himself in between? This is difficult, as <b>whichever</b> way <b>you</b> look at it, <b>he is impure,</b> since he certainly contracted impurity on one of the two paths. <b>Rava said: What are we dealing with here?</b> We are dealing with a case <b>where he walked on the first</b> path, <b>and</b> then afterward <b>when he was walking on the second</b> path <b>he forgot that he had</b> already <b>walked on the first</b> path, <b>so that</b> his lapse of awareness when he entered the Temple <b>was</b> only a lapse of <b>partial awareness.</b> That is, when he entered the Temple he forgot only that he had walked on the first path, and for this lapse of knowledge by itself he is not liable to bring a sin-offering, as it is not certain that he contracted impurity there.
 
@@ -32,5 +31,17 @@ The Gemara comments: <b>Granted,</b> the apparent contradiction between one stat
 ### Part 11
 The Gemara challenges: It is <b>obvious that</b> Rabbi Yishmael <b>does not require</b> awareness at the beginning, <b>since he has no superfluous verses</b> from which to derive such a requirement. Rabbi Akiva learns from the superfluous phrase: <b>“And it is hidden</b> from him” (Leviticus 5:4), that awareness at the beginning is necessary, but Rabbi Yishmael says the verse serves to teach another <i>halakha</i>, <b>that one is liable</b> to bring an offering <b>for a lapse of awareness</b> that he was entering <b>the Temple.</b> The Gemara rejects this challenge: <b>Lest you say: When</b> Rabbi Yishmael <b>does not accept</b> this <i>halakha</i> requiring awareness at the beginning, it means that he does not derive it <b>from a verse, but he accepts</b> it <b>as a tradition;</b> to counter this, Reish Lakish <b>teaches us</b> that according to Rabbi Yishmael there is no requirement whatsoever for awareness at the beginning.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> With regard to <b>oaths</b> attesting to the truth about an utterance, which, when violated, render one liable to bring a sliding-scale offering, there are <b>two</b> types <b>that are</b> actually <b>four</b> types. The initial two oaths, which relate to utterances about the future and are explicitly prohibited in the Torah, are: On my <b>oath I will eat, or:</b> On my oath <b>I will not eat.</b> These are expanded to four, to include oaths concerning utterances about the past: On my oath <b>I ate, or:</b> On my oath <b>I did not eat.</b>
+
+### Part 14
+If one says: On my <b>oath I will not eat, and he</b> then <b>ate any amount,</b> even less than an olive-bulk, he is <b>liable;</b> this is <b>the statement of Rabbi Akiva.</b> The Rabbis <b>said to Rabbi Akiva: Where do we find that</b> one who <b>eats any amount is liable,</b> leading you to say <b>that this</b> person is <b>liable? Rabbi Akiva said to them: And where do we find one who speaks and</b> is liable to <b>bring an offering</b> for it, <b>as this</b> oath taker merely <b>speaks,</b> i.e., takes an oath, <b>and brings an offering</b> for it?
+
+### Part 15
+<strong>GEMARA:</strong> The Gemara asks: Is this <b>to say that</b> phrasing an oath as: On my oath <b>I will eat,</b> always <b>means that</b> I take an oath that <b>I will eat?</b> The Gemara <b>raises a contradiction</b> from a mishna (<i>Nedarim</i> 16a): If one says: On my <b>oath I will not eat of yours,</b> or: On my <b>oath I will eat of yours,</b> or: <b>Not</b> on my <b>oath I will not eat of yours,</b> the food of the other person is <b>forbidden.</b>
+
+### Part 16
+<b>Abaye said: Actually,</b> saying: On my oath I will eat, <b>means that</b> I take an oath that <b>I will eat.</b> It is <b>not difficult,</b> because there is a difference between the contexts of the <i>mishnayot</i>: <b>Here,</b> it is referring to an oath taken <b>in</b> a context where others <b>are importuning him to eat,</b> so when he says: On my oath I will eat of yours, his intention is to indicate his refusal to eat. <b>There,</b> it is a context <b>where</b> others <b>are not</b>

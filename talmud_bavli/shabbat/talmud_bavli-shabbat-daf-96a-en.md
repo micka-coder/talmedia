@@ -1,9 +1,17 @@
-
 ### Part 1
 <b>This</b> statement, that a hole must be large enough to enable a pomegranate to go out in order to purify the vessel, is referring to <b>large</b> vessels. <b>And this</b> statement, that teaches that a vessel is purified only when the majority of the vessel is broken, is referring <b>to small</b> vessels. <b>Rav Asi said</b> that <b>they teach</b> this <i>halakha</i>: With regard to <b>an earthenware vessel,</b> the <b>measure</b> of the hole that renders it unable to become ritually impure is large enough <b>to enable liquid to enter it. And they only said:</b> The measure of a small hole from which <b>liquid seeps,</b> with regard to the <b>impurity</b> of <b>a shard [<i>gistera</i>].</b> The Gemara asks: <b>What is the reason</b> for this? The Gemara answers that <b>Mar Zutra, son of Rav Naḥman, said:</b> A shard is used as a plate beneath a perforated earthenware vessel. If the shard is also perforated and leaks, it is no longer of any use. <b>Because one does not say: Bring</b> another <b>shard to</b> seal the leak of a <b>shard,</b> but throws it out immediately.
 
 ### Part 2
 <b>Ulla said: Two <i>amora’im</i> in the West,</b> Eretz Yisrael, <b>disagree</b> about <b>this</b> topic: They are <b>Rabbi Yosei, son of Rabbi Avin, and Rabbi Yosei bar Zavda. One said:</b> The measure of a hole that purifies an earthenware vessel is large enough <b>to enable a pomegranate to go out. And one said:</b> The size of <b>a small root. And your mnemonic</b> to remember that neither holds that the measure is size of an olive is the expression: <b>Both one who increases and one who decreases.</b> They hold extreme positions in this dispute and eschew the intermediate position. <b>Rav Ḥinnana bar Kahana said</b> an intermediate position <b>in the name of Rabbi Eliezer: An earthenware vessel</b> becomes ritually pure with a hole <b>large enough to enable olives to go out. And Mar Kashisha, son of Rabba, concluded</b> this <i>halakha</i> <b>in the name of Rabbi Eliezer: And</b> vessels that have been perforated <b>are like dung vessels, and</b> so too, <b>stone vessels and earth vessels</b> that were not baked in a kiln, <b>which neither become impure by Torah law nor by rabbinic law. And,</b> as far as <b>the matter of</b> an earthenware vessel with <b>a sealed cover</b> in a room with a corpse, it maintains its impurity <b>until the majority of it is broken.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> <b>One who throws</b> an object on Shabbat <b>from the private domain to the public domain</b> or <b>from the public domain to the private domain is liable.</b> However, one who throws an object <b>from the private domain to the</b> other <b>private domain, and</b> the object passes through <b>the public domain between</b> the two, <b>Rabbi Akiva deems him liable</b> for carrying into the public domain, <b>and the Rabbis deem</b> him <b>exempt.</b>
+
+### Part 5
+<b>How so?</b> If there are <b>two balconies</b> [<b><i>gezuztra’ot</i></b>] that are private domains <b>opposite each other on</b> either side of <b>the public domain, one who passes or throws</b> an object <b>from</b> the one on <b>this</b> side <b>to the</b> one on <b>that</b> side <b>is exempt.</b> However, if the balconies <b>were on the same level</b> on the same side of the public thoroughfare, and the public domain separated the two, <b>one who passes</b> from one to the other <b>is liable, and one who throws is exempt, as that</b> method, passing, <b>was the service of the Levites</b> who carried the beams of the Tabernacle.
+
+### Part 6
+In the Tabernacle, <b>two wagons</b> along the same level stood <b>behind one another in the public domain,</b> and the Levites <b>passed the beams from one</b> wagon <b>to the other</b> through the public domain on the same side of a thoroughfare. <b>But they did not throw</b> from one wagon to another because the beams were heavy. Passing, which was performed in the Tabernacle, is prohibited. Throwing, which was not performed in the Tabernacle, is not prohibited.

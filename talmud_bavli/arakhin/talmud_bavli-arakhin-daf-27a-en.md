@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>But here,</b> with regard to their opinion that even if the son consecrated the field before his father’s death it is considered an ancestral field, this is because they <b>found</b> another allusion in the <b>verse and interpreted</b> it as follows: If the verse meant to indicate only the <i>halakha</i> that Rabbi Meir derives from it, <b>let the Merciful One write:</b> And <b>if</b> he will consecrate unto the Lord <b>a field that he has bought, which is not his ancestral field, or: Which is not an ancestral field. What</b> is the meaning of the extra word “of” in the phrase: “Which is not <b>of his ancestral field”</b> (Leviticus 27:22)? It teaches that only <b>a field that is not due to become</b> his <b>ancestral field</b> is treated like a purchased field, thereby <b>excluding this</b> field, <b>which is due to become</b> his <b>ancestral field.</b>
 
@@ -14,5 +13,38 @@ The Gemara responds: <b>And according to your reasoning,</b> one may similarly a
 ### Part 5
 <b>And</b> similarly, <b>since</b> the <i>tanna</i> <b>taught</b> in the <b>first</b> mishna that Israelites <b>may neither consecrate</b> their fields less than two years before the Jubilee <b>nor redeem</b> them less than one year after the Jubilee, the <i>tanna</i> <b>also taught</b> in the <b>latter</b> mishna that priests and Levites <b>may</b> always <b>consecrate and redeem</b> their fields, despite the fact that there is no novelty with regard to consecrating in this statement either, as Israelites may also consecrate their fields both after the Jubilee and before the Jubilee.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> In the case of <b>one who consecrates his</b> ancestral <b>field during a period when the Jubilee</b> Year <b>is not</b> observed, and therefore the field is not redeemed according to a fixed rate of fifty shekels per <i>beit kor</i> but according to its value, when the treasurer announces the sale of the field <b>he says to</b> the owner: <b>You open</b> the bidding <b>first;</b> how much do you offer for its redemption? This method is advantageous for the Temple treasury, <b>as the owner gives</b> an additional payment of <b>one-fifth</b> of the value of the field, <b>and every</b> other <b>person does not give</b> an additional <b>one-fifth</b> payment.
+
+### Part 8
+There was <b>an incident involving one who consecrated his field due to its inferior quality.</b> The treasurers <b>said to him: You open</b> the bidding <b>first. He said:</b> It is <b>hereby mine for an <i>issar</i>,</b> a small sum. <b>Rabbi Yosei says: That</b> person <b>did not say</b> he would purchase it <b>for an <i>issar</i>; rather,</b> he said he would purchase it <b>for an egg, as consecrated</b> items <b>may be redeemed with money or with the equivalent</b> value of <b>money.</b> The treasurer <b>said to him:</b> The field <b>has come into your</b> possession based on your bid. As <b>a result, he loses an <i>issar</i> and his field</b> remains <b>before him</b> in his possession.
+
+### Part 9
+<strong>GEMARA:</strong> The mishna teaches that with regard to <b>one who consecrates his</b> ancestral <b>field during a period</b> when the Jubilee Year is not observed, the treasurer says to him: You open the bidding first. The Gemara asks: Why does the treasurer merely <b>say</b> this to him? <b>But isn’t it taught</b> in a <i>baraita</i> that the treasurer <b>forces</b> him to open the bidding? The Gemara responds: <b>What is</b> the meaning of the phrase: The treasurer <b>says</b> to him? It means that the treasurer <b>forces</b> him to open the bidding. <b>And if you wish, say</b> instead that <b>initially</b> the treasurer <b>says</b> to him that he should open the bidding; <b>if he complies, he complies; and if not,</b> the treasurer <b>forces</b> him to comply.
+
+### Part 10
+The mishna teaches that the one who consecrated the field opens the bidding, <b>as the owner gives</b> an additional <b>one-fifth</b> payment whereas others do not give an additional one-fifth payment. The Gemara asks: <b>Why</b> does the mishna state that the reason he opens the bidding is <b>specifically</b> because <b>the owner gives</b> an additional <b>one-fifth? Let</b> the <i>tanna</i> <b>derive</b> it from the reason <b>that since</b> the field <b>is dear to</b> the owner <b>he</b> would <b>increase</b> his bid <b>and redeem it</b> for a higher price. <b>And furthermore,</b> doesn’t the <b>mitzva of redemption</b> begin <b>with the owner</b> of the field by Torah law?
+
+### Part 11
+The Gemara answers: The <i>tanna</i> <b>states one</b> reason <b>and</b> there are <b>another</b> two reasons: <b>One</b> reason is <b>that since it is dear to him he</b> would <b>increase</b> his bid <b>and redeem it</b> for a higher price; <b>another</b> reason is that the <b>mitzva of redemption</b> begins <b>with the owner; and another</b> reason is that <b>the owner gives</b> an additional <b>one-fifth</b> payment and every other person does not give an additional one-fifth payment.
+
+### Part 12
+§ The mishna teaches: There was <b>an incident involving one who consecrated his field,</b> which was causing him a loss due to its low quality. The treasurers said to him: You open the bidding first. He said: It is hereby mine for an <i>issar</i>. Rabbi Yosei says: That person did not say he would purchase it for an <i>issar</i>; rather, he said he would purchase it for an egg, as consecrated items may be redeemed with money or with the equivalent value of money. The Gemara suggests: <b>Let us say they disagree about this, that Rabbi Yosei holds</b> that the <b>equivalent</b> value of <b>money</b> is the same <b>as money, and the Rabbis hold</b> that the <b>equivalent</b> value of <b>money</b> is <b>not</b> the same <b>as money.</b>
+
+### Part 13
+The Gemara asks: <b>But don’t we maintain</b> as an accepted principle <b>that</b> the <b>equivalent</b> value of <b>money</b> is the same <b>as money?</b> The Gemara answers: <b>Everyone agrees</b> that the <b>equivalent</b> value of <b>money</b> is the same <b>as money, and here they disagree with regard to</b> whether <b>one may redeem with an item one-fifth of whose</b> value is <b>not worth one <i>peruta</i>. The first <i>tanna</i> holds</b> that <b>one may redeem</b> with <b>an <i>issar</i>,</b> which is worth eight <i>perutot</i>, <b>as one-fifth of its</b> value is greater than <b>the value of one <i>peruta</i>, and Rabbi Yosei</b> holds that <b>one may even redeem</b> with an item <b>such as an egg,</b> despite the fact that one-fifth of its value is not worth one <i>peruta</i>.
+
+### Part 14
+The mishna relates that after the owner made his bid the treasurer <b>said to him:</b> The field <b>has come into your</b> possession based on your bid. As <b>a result, he loses an <i>issar</i> and his field</b> remains <b>before him</b> in his possession. The Gemara notes: This statement, whose source is <b>unspecified,</b> is <b>in accordance with</b> the opinion of <b>the Rabbis,</b> who hold that in the incident in the mishna, the man redeemed the field with an <i>issar</i>.
+
+### Part 15
+<strong>MISHNA:</strong> If <b>one said:</b> The field is <b>hereby mine for ten <i>sela</i>, and one</b> other person <b>said:</b> It is mine <b>for twenty, and one said for thirty, and one said for forty, and one said for fifty;</b> and then the one who bid <b>fifty reneged</b> on his offer, the treasurer <b>repossesses from his property up to ten</b> <i>sela</i> and the field is redeemed by the one who bid forty. This ensures that the Temple treasury does not lose. If the one who bid <b>forty</b> <i>sela</i> subsequently <b>reneged</b> on his offer, the treasurer <b>repossesses from his property up to ten</b> <i>sela</i> and the field is redeemed by the one who bid thirty.
+
+### Part 16
+If the one who bid <b>thirty</b> subsequently <b>reneged</b> on his offer, the treasurer <b>repossesses from his property up to ten</b> <i>sela</i> and the field is redeemed by the one who bid twenty. If the one who bid <b>twenty reneged</b> on his offer, the treasurer <b>repossesses from his property up to ten</b> <i>sela</i> and it is redeemed by the one who bid ten. If the one who bid <b>ten reneged</b> on his offer, the treasurer <b>sells</b> the field <b>at its value and collects the remainder from</b> the property <b>of the one</b> who bid <b>ten,</b> to complete the sum of ten <i>sela</i>.
+
+### Part 17
+If <b>the owner says</b> he will pay <b>twenty</b> <i>sela</i> <b>and any</b> other <b>person says</b> he will pay <b>twenty</b> <i>sela</i>, the offer of <b>the owner takes precedence, due to</b> the fact <b>that</b> he <b>adds one-fifth.</b> If the owner says he will pay twenty <i>sela</i> and <b>one</b> other person <b>said:</b> The field <b>is hereby mine for</b> a payment of <b>twenty-one</b> <i>sela</i>,

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And</b> the other <b>one said:</b> They studied there for <b>seven</b> days. <b>And some say</b> they studied there for <b>thirty</b> days.
 
@@ -32,5 +31,14 @@ The Gemara explains how this is derived from the verse: <b>As it is stated: “H
 ### Part 11
 <b>There are</b> some <b>who say</b> that the comparison should be understood in a different manner. <b>His enemies will fall before him</b> just <b>like</b> in the blessing given by Moses to the tribe of <b>Joseph, as it is written</b> in the blessing bestowed by Moses to the tribe of Joseph: “His horns are the horns of the wild-ox; <b>with them he shall gore the nations, even to the ends of the earth”</b> (Deuteronomy 33:17). <b>And he merits the understanding of Issachar, as it is written: “And of the children of Issachar, men that had understanding of the times, to know what Israel ought to do”</b> (I Chronicles 12:33).
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> The mishna in the previous chapter (15b) teaches that the owner of an animal is always forewarned with regard to the category of Trampling. The mishna elaborates: For <b>what</b> damage caused with <b>the hoof</b> is the animal deemed <b>forewarned?</b> It is deemed forewarned with regard <b>to</b> trampling objects and <b>breaking</b> them <b>in the course of its walking. An animal is</b> deemed <b>forewarned with regard to walking in its</b> typical <b>manner and,</b> by doing so, <b>breaking</b> objects as it proceeds.
+
+### Part 14
+By contrast, if the animal <b>was kicking</b> while it was walking, <b>or</b> it transpired <b>that pebbles were</b> inadvertently <b>propelled from under its feet and</b> those pebbles <b>broke vessels,</b> cases of that kind do not fit precisely into the primary category of Trampling. In both of these cases the owner of the animal <b>pays half</b> the cost of <b>the damage.</b> If an animal <b>trod upon a vessel and broke it and</b> then a shard of that vessel <b>fell upon</b> a second <b>vessel and broke it,</b> the owner <b>pays</b> the <b>full</b> cost of the <b>damage for the first</b> vessel, as its action is classified under the primary category of Trampling, <b>and he pays half</b> the cost of <b>the damage for the latter</b> vessel, as the damage caused by the shard is tantamount to damage caused by pebbles inadvertently propelled by the foot of an animal.
+
+### Part 15
+<b>Chickens are</b> deemed <b>forewarned</b> with regard <b>to walking in their</b> typical <b>manner and breaking</b> objects, and therefore, the owner of a chicken pays the full restitution for the damage done to any objects broken by his chicken. If there <b>was a string [<i>delil</i>] tied to</b> a chicken’s <b>leg</b> as an indication of ownership and it wrapped around a vessel and broke it, <b>or</b> if the chicken <b>was hopping</b> in an atypical manner <b>and breaking vessels,</b> its owner <b>pays half</b> the cost of <b>the damage.</b>

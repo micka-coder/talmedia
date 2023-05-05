@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>my brooch [<i>kevinati</i>] to my daughter, and</b> the brooch is worth <b>twelve hundred dinars. And</b> this woman subsequently <b>died, and the Sages fulfilled her statement.</b> Rabbi Elazar <b>said to them</b> that <b>the sons of Rokhel should be buried by their mother,</b> i.e., he cursed them. Rabbi Elazar meant that it is not possible to bring a proof from this incident, as these sons were wicked people. Consequently, when dealing with them the Sages did not act in accordance with the <i>halakha</i>, but allowed their mother to give this valuable piece of jewelry to their sister, circumventing the <i>halakhot</i> of inheritance.
 
@@ -17,5 +16,26 @@ The Gemara returns to <b>the</b> matter <b>itself: Rav Yosef says: The <i>halakh
 ### Part 6
 The Gemara answers: <b>Rav Yosef establishes</b> this <i>halakha</i> <b>with regard to a healthy person,</b> not someone on his deathbed. The Gemara asks: <b>But he said</b> that the money should be returned <b>to the heirs of the sender, and we maintain</b> that <b>it is a mitzva to fulfill the statement of the dead,</b> even if he issued these instructions when he was healthy. The Gemara answers: Emend Rabbi Shimon HaNasi’s statement and <b>teach: Return</b> the money <b>to the sender,</b> not to his heirs, as this is referring to a case where the sender had not died.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> With regard to <b>one who brings a bill of divorce from a country overseas and says:</b> The bill of divorce <b>was written in my presence but it was not signed in my presence;</b> or if he said: <b>It was signed in my presence but it was not written in my presence;</b> or: <b>All of it was written in my presence and half of it was signed in my presence,</b> i.e., he observed the signing of only one witness; or: <b>Half of it was written in my presence and all of it was signed in my presence,</b> in all these cases the document is <b>invalid.</b>
+
+### Part 9
+If <b>one</b> agent bringing a bill of divorce <b>says: It was written in my presence, and one</b> other agent <b>says: It was signed in my presence,</b> it is <b>invalid.</b> If <b>two</b> agents <b>say: It was written in our presence, and one says: It was signed in my presence,</b> it is <b>invalid. And Rabbi Yehuda deems</b> the document <b>valid.</b> If <b>one</b> agent <b>says: It was written in my presence, and two</b> agents <b>say: It was signed in our presence,</b> it is <b>valid.</b>
+
+### Part 10
+<strong>GEMARA:</strong> The Gemara asks with regard to the entire mishna: <b>Why do I</b> need all <b>these further</b> examples? <b>Didn’t it teach</b> these <i>halakhot</i> <b>once,</b> as the mishna states (2a): <b>One who brings a bill of divorce from a country overseas is required to say: It was written in my presence and it was signed in my presence?</b> This indicates that if one did not state this declaration, then the bill of divorce is invalid. The Gemara explains: <b>If</b> the <i>halakha</i> were derived <b>from that</b> mishna alone, <b>I would say:</b> He is <b>required</b> to issue this statement <i>ab initio</i>, <b>but if he did not say</b> it the bill of divorce is nevertheless <b>valid</b> after the fact. Therefore, this mishna <b>teaches us</b> that the bill of divorce is invalid.
+
+### Part 11
+§ The mishna taught that if the agent said: <b>Half of it was written in my presence and all of it was signed in my presence,</b> the document is <b>invalid.</b> The Gemara asks: With regard to <b>which half</b> of the bill of divorce did he claim he saw written? <b>If we say</b> that he saw <b>its first half</b> written, <b>but didn’t Rabbi Elazar say: Even if</b> the husband or scribe <b>wrote only one line of it for her sake,</b> the agent <b>is no longer required</b> to check if the rest of the bill of divorce was written properly? <b>Rather, Rav Ashi said:</b> He testifies that he saw that <b>its latter half</b> was written, and he does not testify with regard to the first half, which is the primary section of the bill of divorce.
+
+### Part 12
+§ The mishna taught that if he said: <b>All of it was written in my presence and half of it was signed in my presence,</b> i.e., the agent observed the signing of only one of the witnesses, it is <b>invalid. Rav Ḥisda says: And even</b> if <b>two</b> people <b>testify to the signature</b> of the <b>second</b> witness, and the court ratifies this signature, nevertheless it is <b>invalid. What is the reason</b> for this ruling? After all, the court has the agent’s testimony with regard to one signature and the confirmation of two witnesses for the second signature.
+
+### Part 13
+The Gemara answers: The document must be authenticated <b>either entirely through</b> the process of <b>the ratification of a bill of divorce,</b> i.e., the bill of divorce must be ratified like any other legal document, by two people attesting to the validity of the signatures of both witnesses, <b>or it</b> must be <b>entirely</b> ratified <b>via</b> the <b>rabbinic decree</b> that the agent is deemed credible when he states: It was written in my presence and it was signed in my presence.
+
+### Part 14
+<b>Rava objects to this: Is there any</b> situation in <b>which if one</b> person <b>said</b> it, the document is <b>valid,</b> i.e., if the agent would have attested to the signature of the second witness the bill of divorce would be valid, and <b>now that there are two</b> witnesses who attest to the signatures it is <b>invalid? Rather, Rava says: Even</b> if

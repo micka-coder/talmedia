@@ -1,6 +1,35 @@
+#### Partie 1
+<b>Nous avons besoin</b> d'une <b>mesure</b> minimale pour accomplir ces mitzvot. Un shofar doit être suffisamment grand pour que, lorsqu'on le saisit, une partie dépasse des deux côtés de la main, et un <i>lulav</i> doit être long d'au moins quatre pouces. <b>Et</b> puisqu'un objet d'adoration de <b>idole</b> et ses effets doivent être brûlés, <b>sa taille</b> requise pour la mitzva <b>est considérée</b> par <i>halakha</i> <b>comme écrasée</b> en poudre. Puisqu'un <i>shofar</i> ou <i>lulav</i> de culte idolâtre est destiné à être brûlé, il est considéré comme s'il était déjà brûlé, et il n'a donc pas la taille requise pour accomplir la mitzva. En revanche, <b>ici,</b> en ce qui concerne les cendres utilisées pour accomplir la mitzva de couvrir le sang, aucune mesure minimale n'est requise pour accomplir la mitzva ; en fait, <b>plus</b> la cendre <b>est écrasée, meilleure elle est pour</b> la mitzva de <b>couvrir</b> le sang.
 
-### Partie 1
-<b>On exige</b> une <b>mesure minimale</b> afin d'accomplir ces mitzvot. Un shofar doit être suffisamment grand pour que, lorsqu'on le saisit, une partie dépasse des deux côtés de la main, et un <i>lulav</i> doit avoir une longueur d'au moins quatre coudées. <b>Et</b> puisqu'un objet d'<b>adoration d'idole</b> et ses effets doivent être brûlés, <b>sa taille</b> telle que requise pour la mitsva <b>est vue</b> par <i>halakha</i> <b>comme réduite</b> en poudre. Puisqu'un <i>shofar</i> ou <i>lulav</i> d'adoration d'une idole est destiné à être brûlé, il est considéré comme s'il était déjà brûlé, et il lui manque donc la mesure requise pour accomplir la mitsva. En revanche, <b>ici,</b> en ce qui concerne les cendres utilisées pour accomplir la mitzva de couvrir le sang, aucune mesure minimale n'est requise pour accomplir la mitzva ; en fait, <b>plus</b> la cendre <b>est broyée, meilleure elle est pour</b> la mitzva de <b>couvrir</b> le sang.
+#### Partie 2
+fin du chapitre
 
->Crédit : William Davidson Edition
->Licence : CC BY-NC
+### Partie 3
+<strong>MISHNA:</strong> L'interdiction de manger <b>le nerf sciatique s'applique</b> à la fois <b>en Eretz</b> Yisrael <b>et hors d'Eretz</b> Yisrael, <b>en présence du,</b> c'est-à-dire à l'époque du <b>Temple et non en présence du Temple,</b> et <b>en ce qui concerne les animaux non sacrés</b> <b>et en ce qui concerne les animaux sacrifiés</b>. <b>Et elle s'applique aux animaux domestiques et aux animaux non domestiques, à</b> la <b>cuisse de la jambe droite</b> <b>et à</b> la <b>cuisse de la jambe gauche</b>. <b>Mais elle ne s'applique pas à un oiseau, en raison</b> du fait que</b> le verset fait référence au nerf sciatique comme étant "sur la cuillère de la cuisse" (Genèse 32:33), et qu'un oiseau <b>n'a pas de cuillère</b> de la cuisse.
+
+### Partie 4
+Et l'interdiction <b>s'applique</b> à un <b>fœtus [<i>shalil</i>]</b> animal en fin de vie dans le ventre de sa mère. abbi Yehouda dit : Elle ne s'applique pas à un fœtus ; et</b> de même, <b>sa graisse est permise.</b>
+
+### Partie 5
+<b>Et les bouchers ne sont pas jugés crédibles</b> pour dire que <b>le nerf sciatique</b> a été enlevé ; c'est <b>la déclaration de Rabbi Meir. Et les rabbins disent : Ils sont jugés crédibles à propos</b> du nerf sciatique <b>et à propos de la</b> <b>graisse interdite.</b>
+
+### Partie 6
+<strong>GEMARA:</strong> La mishna enseigne que l'interdiction de manger le nerf sciatique s'applique à la fois aux animaux non sacrés et aux animaux sacrifiés. La Guemara demande : N'est-il pas <b>évident</b> que l'interdiction s'applique aux <b>animaux sacrifiés</b> ? Serait-il raisonnable de suggérer que <b>parce qu'on l'a consacré, on a abrogé l'interdiction de</b> manger le <b>nerf sciatique de cet animal?</b>
+
+### Partie 7
+<b>Et si vous dites</b> que les <b>nerfs sciatiques ont</b> la capacité d' <b>imputer de la saveur,</b> c'est-à-dire qu'ils possèdent de la saveur, ils possèdent une saveur, <b>et</b> la mishna enseigne que <b>l'interdiction de</b> manger de la viande d'animaux <b>sacrificiels</b> <b>vient et prend effet sur</b> le nerf sciatique en dépit du fait qu'il est déjà soumis à l'<b>interdiction de</b> manger le <b>nerf sciatique,</b> la mishna aurait dû <b>déclarer</b> : L'interdiction de manger de la viande d'animaux <b>sacrificiels</b> <b>s'applique au</b> <b>nerve sciatique.</b> La Gemara suggère : <b>Plutôt,</b> la <i>tanna</i> de la mishna <b>tient</b> que le <b>nerf sciatique n'a pas</b> la capacité de <b>donner de la saveur, et</b> la mishna enseigne que <b>en ce qui concerne les animaux sacrificiels</b> <b>il y a une interdiction</b> de manger le nerf sciatique</b> mais <b>il n'y a pas</b> d'autre <b>interdiction</b> de manger la viande d'un <b>animal sacrificiel</b>.
+
+#### Partie 8
+La Guemara conteste cette explication : <b>Et</b> la <i>tanna</i> de notre</b> mishna <b>tient</b> que le <b>nerf sciatique n'a pas</b> la capacité de <b>donner de la saveur</b> ? Mais n'avons-nous pas appris</b> dans une mishna (96b) : Dans le cas d'une <b>cuisse qui a été cuite</b> avec <b>le nerf sciatique dedans, s'il y a</b> suffisamment de nerf sciatique <b>dans</b> la cuisse pour <b>imputer</b> sa <b>saveur</b> à la viande, la cuisse entière <b>est interdite ?</b> Par conséquent, il est clair que la <i>tanna</i> de la mishna soutient que le nerf sciatique possède de la saveur.
+
+### Partie 9
+ans la mishna, il s'agit plutôt de la progéniture d'animaux sacrifiés. <b>Et</b> le <i>tanna</i> <b>tient</b> que l'interdiction de manger le nerf sciatique <b>s'applique à un fœtus, et</b> il <b>tient</b> également que les <b>progénitures des animaux sacrifiés</b> <b>sont consacrées</b> même lorsqu'elles sont <b>dans le ventre de leur mère.ar conséquent, l'interdiction de manger le nerf sciatique et l'interdiction de manger des animaux sacrifiés entrent en vigueur en même temps et les deux interdictions s'appliquent et on ne dit pas qu'une interdiction n'entre pas en vigueur là où une autre interdiction existe déjà.
+
+#### Partie 10
+La Guemara conteste cette explication : <b>Pouvez-vous interpréter</b> cette clause de la mishna comme se référant <b>à un fœtus ? D'après le fait que cette dernière clause enseigne : Elle s'applique à</b> un <b>fœtus à terme</b> et que Rabbi Yehouda soutient qu'elle ne s'applique pas à un fœtus à terme, <b>on peut en déduire que</b> dans la <b>première</b> clause <b>nous n'avons pas affaire à un fœtus.</b> La Guemara explique : <b>C'est</b> ce que dit la <i>tanna</i> de la mishna : Cette question</b> qui a été enseignée dans la première clause <b>est</b> une question de <b>dispute</b> entre <b>Rabbi Yehuda et les Rabbins.</b>
+
+#### Partie 11
+La Gemara conteste à nouveau l'explication selon laquelle la première clause de la mishna fait référence à un fœtus : <b>Et comment pouvez-vous dire que les deux</b> interdictions <b>entrent</b> en vigueur <b>en même temps ? Mais n'avons-nous pas appris</b> dans une mishna (<i>Nazir</i> 49b) : <b>Un naziréen se rase pour</b> être devenu impur par <b>ces</b> sources d'impureté <b>rituelle : Pour</b> l'impureté transmise par <b>un cadavre et pour</b> l'impureté transmise par <b>un noyau d'olive d'un cadavre.</b>
+
+### Partie 12
+<b>Et</b> la clause : Pour l'impureté transmise par un cadavre, est <b>difficile pour nous,</b> car elle semble inutile ; si un naziréen <b>doit se raser pour</b> l'impureté transmise par <b>un noyau d'olive d'un cadavre,</b> n'est-il <b>pas d'autant plus vrai</b> qu'il doit se raser <b>pour</b> l'impureté transmise par <b>un cadavre entier</b> ? t Rabbi Yoḥanan dit : <b>C'est <b>nécessaire seulement pour un <b>fœtus humain avorté dont les membres n'ont pas</b> encore été joints à ses <b>sinus.</b> Puisque la colonne vertébrale est complète, le fœtus est considéré comme un cadavre complet, mais comme les membres n'ont pas encore été joints aux sinus, il ne contient pas un paquet de chair d'olive.

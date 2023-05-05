@@ -1,4 +1,3 @@
-
 ### Part 1
 With regard to an <i>am ha’aretz</i> who accepts upon himself the stringent practices of a <i>ḥaver</i>, <b>the Sages taught</b> in a <i>baraita</i>: <b>And</b> with regard to <b>all of them, when they retract</b> and return to being <i>amei ha’aretz</i>, <b>they are never accepted</b> as <i>ḥaverim</i>; this is <b>the statement of Rabbi Meir. Rabbi Yehuda says:</b> If <b>they retracted in private,</b> while in public they continue to act as <i>ḥaverim</i>, <b>they are not accepted,</b> but if they retract <b>in public [<i>befarheseya</i>], they are accepted,</b> as they can be trusted.
 
@@ -35,5 +34,14 @@ The <i>baraita</i> also teaches: <b>And</b> he may rule with regard to <b>his</b
 ### Part 12
 Finally, the <i>baraita</i> states: <b>And</b> one <b>may ask</b> himself <b>with regard to his ritually pure</b> foods, i.e., he may decide for himself whether or not they have become impure, and he is not suspected of claiming that impure food is actually pure. The Gemara explains that his vested interested in this case is not so great, <b>as</b> the food <b>is fit for him</b> to eat <b>in his days of impurity.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> With regard to <b>all disqualified consecrated</b> animals that were disqualified for sacrifice due to blemishes and were redeemed, all <b>benefit</b> accrued from <b>their</b> sale belongs <b>to the Temple</b> treasury. In order to ensure that the Temple treasury will not suffer a loss, these animals <b>are sold in the butchers’ market [<i>ba’itliz</i>] and slaughtered in the butchers’ market,</b> where the demand is great and the price is consequently higher. <b>And</b> their meat <b>is weighed</b> and sold <b>by the <i>litra</i>,</b> in the manner that non-sacred meat is sold.
+
+### Part 15
+This is the <i>halakha</i> with regard to all consecrated animals <b>except for the firstborn</b> offering <b>and</b> an animal <b>tithe</b> offering. When these become blemished and their slaughter is permitted, they are sold and slaughtered only in the owner’s house and are not weighed; rather, they are sold by estimate. The reason is <b>that</b> all <b>benefit</b> accrued from <b>their</b> sale belongs <b>to the owner,</b> i.e., the priest in the case of the firstborn and the owner in the case of the animal tithe offering. It is not permitted to treat disqualified consecrated animals as one treats non-sacred animals merely to guarantee that the owner will receive the optimal price. This is in contrast to <b>disqualified consecrated</b> animals, where all <b>benefit</b> accrued from <b>their</b> sale belongs <b>to the Temple</b> treasury, and therefore the animal is sold in the market to ensure that the optimal price is received.
+
+### Part 16
+<b>And</b> although the meat of the firstborn is not weighed and sold by the <i>litra</i>, nevertheless, if one has non-sacred meat weighing one hundred dinars, <b>one may weigh one portion</b> of non-sacred meat <b>against one portion</b> of the meat <b>of the firstborn,</b> because that is unlike the manner in which non-sacred meat is weighed.

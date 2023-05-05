@@ -1,4 +1,3 @@
-
 ### Part 1
 If so, these two passages are <b>difficult,</b> as they contradict <b>one another.</b>
 
@@ -26,5 +25,11 @@ The Gemara challenges: The <b>anointed priest, too, equals</b> the congregation 
 ### Part 9
 <b>Rabbi Yoḥanan said: Rabbi Eliezer concedes that</b> a king <b>does not bring a guilt-offering</b> for the defiling of the Temple or its sacrificial foods. <b>The <i>tanna</i></b> who recited <i>mishnayot</i> and <i>baraitot</i> in the study hall <b>recited</b> a <i>baraita</i> <b>before Rav Sheshet:</b> In the case of a king, <b>a provisional guilt-offering comes for the defiling of</b> the <b>Temple or its sacrificial</b> foods. Rav Sheshet <b>said to him: Who said</b> this <b>to you? Is it Rabbi Eliezer, who said: Since <i>karet</i> is stated in its</b> regard <b>as</b> it is stated <b>in</b> all matters where there is liability to bring <b>a fixed</b> sin-offering, <b>a king brings a goat for</b> the defiling of the Temple? Since the status of his offering is like that of a fixed sin-offering, in cases of uncertainty, he is liable to bring a provisional guilt-offering. Rav Sheshet asks: <b>But didn’t Rabbi Yoḥanan say: Rabbi Eliezer concedes that</b> a king <b>does not bring</b> a provisional <b>guilt-offering?</b> The Gemara concludes: Indeed, based on the statement of Rabbi Yoḥanan, the <i>baraita</i> is <b>difficult.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> In the case of <b>an anointed priest who sinned</b> on the basis of his own erroneous halakhic ruling <b>and thereafter moved on from his anointment,</b> e.g., if he was disqualified due to a blemish that befell him before he brought his sin-offering, <b>and likewise</b> in the case of <b>a king [<i>nasi</i>] who sinned and thereafter moved on from his prominence</b> before he had brought an offering, <b>an anointed priest brings a bull</b> despite the fact that he is no longer the High Priest, <b>and the king brings a goat,</b> as he would have done during his reign. In the case of <b>an anointed</b> priest <b>who moved on from his anointment and thereafter sinned, and likewise the king who moved on from his prominence and thereafter sinned, an anointed priest brings a bull,</b> which he would have brought while he was High Priest, <b>and the</b> status of the <b>king</b> is <b>like</b> that of <b>a commoner [<i>kehedyot</i>].</b>
+
+### Part 12
+<strong>GEMARA:</strong> The Gemara questions the formulation of the mishna: <b>Now it can be said:</b> An anointed priest <b>who moved on from his anointment</b>

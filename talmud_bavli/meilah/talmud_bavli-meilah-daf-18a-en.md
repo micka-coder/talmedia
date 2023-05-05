@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>MISHNA:</strong> <b>The fruit of a tree during the first three years after its planting [<i>orla</i>]</b> (see Leviticus 19:23), <b>and diverse kinds,</b>i.e., grain sown <b>in a vineyard</b> (see Deuteronomy 22:9) <b>join together</b> to constitute the requisite measure to prohibit a mixture that they are mixed into. This applies when the volume of the permitted produce is less than two hundred times the prohibited produce. <b>Rabbi Shimon says: They do not join together.</b>
 
@@ -17,5 +16,26 @@
 ### Part 6
 The Gemara asks: <b>What</b> is the reason for the <i>halakha</i> in the case where one intended to use it <b>for holding?</b> Why is this cloth classified as a garment? <b>Reish Lakish says</b> that <b>Rabbi Yannai says:</b> It is considered a garment <b>because it stands</b> to be used as protection for the hands <b>when weaving [<i>lenavla</i>],</b> so that the weaver does not cut his fingers when straightening the threads. It <b>was taught in a <i>baraita</i>:</b> It is considered a garment <b>since it is suited for fig cutters</b> to place the material on their hands, to prevent them from getting dirty.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> <b>One who derives benefit equal to</b> the value of <b>one <i>peruta</i> from a consecrated item, even though he did not damage</b> it, is <b>liable for</b> its <b>misuse;</b> this is <b>the statement of Rabbi Akiva. And the Rabbis say:</b> With regard to <b>any</b> consecrated <b>item that has</b> the potential to be <b>damaged,</b> one is <b>not liable for misuse until he</b> causes it one <i>peruta</i> of <b>damage; and</b> with regard to an item <b>that does not have</b> the potential to be <b>damaged, once he derives benefit</b> from it he is <b>liable for misuse.</b>
+
+### Part 9
+The mishna elaborates: <b>How so?</b> If a woman <b>placed</b> a consecrated gold <b>chain [<i>ketala</i>] around her neck,</b> or a gold <b>ring on her hand,</b> i.e., her finger, or if <b>one drank from</b> a consecrated <b>gold cup,</b> since they are not damaged through use, <b>once he derives benefit</b> equal to the value of one <i>peruta</i> from them, he is <b>liable for misuse.</b> If <b>one wore</b> a consecrated <b>robe, covered</b> himself <b>with</b> a consecrated <b>garment,</b> or <b>chopped</b> wood <b>with</b> a consecrated <b>ax,</b> he is <b>not liable for misuse until he</b> causes them one <i>peruta</i> of <b>damage.</b>
+
+### Part 10
+<b>One who derives benefit from a sin offering while it is alive</b> is <b>not liable for misuse until he</b> causes it one <i>peruta</i> of <b>damage. When it is dead, once he derives benefit</b> equal to the value of <b>one <i>peruta</i></b> from it, he is <b>liable for misuse.</b>
+
+### Part 11
+<strong>GEMARA:</strong> The Sages <b>taught</b> in a <i>baraita</i>: <b>Rabbi Akiva concedes to the Rabbis in</b> the case of <b>an item that has</b> the potential to be <b>damaged</b> through its use that one is liable for misuse only if he causes one <i>peruta</i> of damage. The Gemara asks: Since this is apparently exactly the same as the opinion of the Rabbis, <b>with regard to what</b> do Rabbi Akiva and the Rabbis <b>disagree?</b>
+
+### Part 12
+<b>Rava said:</b> With regard to outer garments such as coats, which are exposed to the weather and other elements, and garments worn touching the skin, which can be damaged by perspiration, Rabbi Akiva and the Rabbis agree that one is liable for misuse only when the garments are damaged at least by the value of one <i>peruta</i>. They disagree <b>in</b> the case of <b>a middle garment,</b> i.e., that which is neither an outer garment nor one that is worn against the body. <b>And</b> they also disagree in the case of a garment made of <b><i>malmala</i>,</b> very thin fabric; since this garment is expensive, one who wears it would be very careful not to let it be damaged, and consequently it is not subject to measurable depreciation each time it is worn. In these cases, Rabbi Akiva holds that one is liable for misuse if he derives benefit equal to the value of one <i>peruta</i> even though the garments were not depreciated by one <i>peruta</i>, whereas the Rabbis maintain that as there is cumulative depreciation, one is liable for misuse only when he causes one <i>peruta</i> of damage.
+
+### Part 13
+§ <b>The Sages taught</b> in a <i>baraita</i>: With regard to misuse of consecrated property, the verse states: “If <b>anyone</b> commits a misuse, and sins through error, in the sacred items of the Lord” (Leviticus 5:15). It is derived from the general term “anyone” that this <i>halakha</i> applies <b>whether</b> the guilty person is a common <b>individual, and whether</b> he is <b>the king, and whether</b> he is <b>the anointed</b> High Priest. Although in other contexts they have obligations to bring different offerings, these individuals have a uniform liability with regard to the sin of misuse.
+
+### Part 14
+The <i>baraita</i> further interprets the verse: “If anyone <b>commits a misuse [<i>ma’al</i>],</b> and sins” (Leviticus 5:15). The term <b><i>ma’al</i> means nothing other than deviation</b> from the norm. <b>And similarly,</b> the verse <b>states</b> with regard to a woman suspected of adultery: <b>“If any man’s wife goes aside, and acts unfaithfully [<i>ma’al</i>] against him”</b> (Numbers 5:12). <b>And</b> it <b>states</b> with regard to idol worship: <b>“And they broke faith [<i>vayimalu</i>] with the God of</b>

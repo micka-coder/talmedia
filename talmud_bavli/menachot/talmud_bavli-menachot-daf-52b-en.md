@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>according to the Rabbis,</b> who hold that generally one handful of frankincense is divided between the morning and afternoon offerings, <b>is the</b> amount of <b>frankincense doubled or not? Do we say</b> that <b>since</b> in this case <b>its fine flour is doubled,</b> as a complete tenth of an ephah of fine flour is sacrificed in both the morning and evening, <b>its frankincense</b> is also <b>doubled? Or perhaps that which</b> the verse <b>reveals,</b> i.e., that a complete tenth of an ephah is sacrificed in the morning and afternoon, <b>it reveals,</b> and <b>that which</b> it <b>does not reveal,</b> it <b>does not reveal;</b> and therefore, since the verse does not indicate that the amount of frankincense is doubled, only one handful is brought.
 
@@ -29,5 +28,17 @@ This discussion in the Gemara began with Rabbi Yoḥanan presenting the dispute 
 ### Part 10
 The Gemara answers: <b>They are</b> different <b><i>amora’im</i>, and</b> they disagree <b>with regard to</b> the opinion <b>of Rabbi Yoḥanan.</b> One said that Rabbi Yoḥanan rules in accordance with Abba Yosei ben Dostai, and one said that according to Rabbi Yoḥanan the <i>halakha</i> is always in accordance with an unattributed mishna.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> <b>All the meal offerings come</b> to be offered as <b><i>matza</i>,</b> with care taken to prevent leavening, <b>except for</b> ten loaves of <b>leavened bread</b> among the forty loaves <b>that</b> accompany <b>the thanks offering, and</b> the meal offering of <b>the two loaves</b> that are brought on the festival of <i>Shavuot</i>, <b>as they come</b> to be offered as <b>leavened bread.</b>
+
+### Part 13
+The Sages disagree as to the manner in which those meal offerings are leavened. <b>Rabbi Meir says:</b> With regard to <b>the leaven</b> added to the dough to facilitate leavening, <b>one separates [<i>bodeh</i>]</b> part of the flour <b>for</b> the meal offerings <b>from within</b> the flour of the meal offerings themselves, causes it to become leaven, <b>and leavens</b> the meal offerings with it.
+
+### Part 14
+<b>Rabbi Yehuda says: That is also not the optimal</b> manner in which to fulfill the mitzva, as aged leaven is a more effective leavening agent. <b>Rather, one brings the leaven</b> from another, aged, dough <b>and places it into the measuring</b> vessel, <b>and</b> then he adds flour until he <b>fills the measuring</b> vessel, to ensure the appropriate measure of a tenth of an ephah of flour. The Rabbis <b>said to</b> Rabbi Yehuda: <b>That too</b> is inappropriate, as in that manner the meal offering <b>will</b> either be <b>lacking</b> the requisite measure <b>or</b> be <b>greater</b> than the required measure, as the Gemara will explain.
+
+### Part 15
+<strong>GEMARA:</strong> <b>Rabbi Perida raised a dilemma before Rabbi Ami: From where</b> is it derived with regard <b>to all the meal offerings that they come</b> to be offered as <b><i>matza</i>?</b> Rabbi Ami was puzzled by this question, and replied: What do you mean when you say: <b>From where do we</b> derive this? Concerning every meal offering <b>with regard to which it is written</b> explicitly in the Torah that it comes as <i>matza</i>, <b>it is written with regard to it,</b> and therefore the dilemma does not arise. And concerning any meal offering where <b>it is not written</b> explicitly <b>with regard to it</b> that it must be <i>matza</i>, nevertheless <b>it is written with regard to it:</b>

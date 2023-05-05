@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>states</b> his opinion <b>in accordance with</b> the opinion of <b>that <i>tanna</i>, as it is taught</b> in a <i>baraita</i>: <b>All the meal offerings where</b> one <b>increased the measure of their loaves or where</b> one <b>decreased the measure of their loaves</b> are nevertheless <b>fit, except for</b> the twelve loaves of <b>the shewbread and</b> the twelve loaves of <b>the High Priest’s griddle-cake</b> offering. <b>And some say: Even the</b> ten <b>loaves</b> of each variety <b>of the thanks offering and</b> the ten loaves that accompany the guilt offering of <b>naziriteship</b> are fit only when brought in their prescribed measures. Shmuel agrees with the first <i>tanna</i>, according to whom the loaves of the thanks offering and the loaves of naziriteship are fit even when not offered in the proper quantities.
 
@@ -38,5 +37,8 @@ The mishna stated that <b>the shewbread</b> would come from <b>twenty-four tenth
 ### Part 13
 <b>Rabbi Elazar says: What is</b> the meaning of: <b>Because</b> of <b>the sparing? Rabbi Elazar says: The Torah spared the money of the Jewish people.</b> Due to the large quantity of grain needed for the shewbread every week, purchasing sifted fine flour would be a substantial expense. The Gemara explains: <b>Where is the allusion</b> to this principle? It is found in a verse, <b>as it is written</b> that when the Jewish people were thirsty in the wilderness in the aftermath of Miriam’s death, God instructed Moses: “And speak to the rock before their eyes, so that it will give forth its water; and you shall bring forth to them water out of the rock; <b>so you shall give drink for the congregation and for their cattle”</b> (Numbers 20:8). Evidently, the miracle of extracting water from the rock was performed even for the purpose of providing water for the livestock.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> The flour for the loaves accompanying <b>the thanks offering would come</b> from a measure of <b>five Jerusalem <i>se’a</i> offering, which are</b> equivalent to <b>six wilderness</b> <i>se’a</i>. The <i>se’a</i> referred to in the Bible when the Jewish people were in the wilderness is smaller than the <i>se’a</i> used later in Jerusalem. This is equivalent to <b>two ephahs,</b> each <b>ephah</b> being <b>three</b> wilderness <b><i>se’a</i>.</b> These two ephahs are <b>twenty</b> measures of <b>a tenth</b> of an ephah. <b>Ten</b> of these tenths were used <b>to</b> make <b>leavened</b> loaves <b>and ten</b> of these tenths were used <b>to</b> make unleavened loaves, i.e., <b><i>matza</i>.</b>

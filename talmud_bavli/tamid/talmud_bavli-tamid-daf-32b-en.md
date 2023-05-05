@@ -1,4 +1,3 @@
-
 ### Part 1
 Alexander <b>said to</b> the women: <b>Do people eat bread of gold? They said to him: But if</b> all <b>you wanted</b> was actual <b>bread, didn’t you have bread to eat in your</b> own <b>place?</b> It was not for bread <b>that you took</b> up a campaign and toiled <b>and came here.</b> You must have come to increase your wealth. <b>When</b> Alexander <b>left and came</b> back to his land, he <b>wrote upon the gate of the town: I, Alexander of Macedon, was a fool until I came to the country of Africa of women, and I learned sense from women.</b>
 
@@ -17,5 +16,20 @@ The Gemara cites a statement related to its earlier account of Alexander’s jou
 ### Part 6
 The chapter, as well as the talmudic portion of the tractate, concludes with words of praise for those who study Torah. <b>Rabbi Ḥiyya taught:</b> With regard to <b>anyone who occupies</b> himself <b>with Torah at night, the Divine Presence is across from him, as it is stated: “Arise, cry out in the night, at the beginning of the watches; pour out your heart like water before the face of the Lord,</b> lift up your hands toward Him” (Lamentations 2:19). <b>Rabbi Elazar ben Azarya said: Torah scholars increase peace in the world, as it is stated: “And all your children [<i>banayikh</i>] shall be taught of the Lord, and great shall be the peace of your children”</b> (Isaiah 54:13). This can be read as <i>bonayikh</i>, your builders, i.e., scholars build and increase peace for the entire world.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> 5:1 After the priests completed laying the parts of the daily offering on the ramp, they went to the Chamber of Hewn Stone to recite <i>Shema</i>. <b>The appointed</b> priest who oversaw the lotteries in the Temple <b>said to</b> the priests: <b>Recite a single blessing</b> of the blessings that accompany <i>Shema</i>. <b>And</b> the members of the priestly watch <b>recited a blessing,</b> and then <b>they recited the Ten Commandments, <i>Shema</i></b> (see Deuteronomy 6:4–9), <b><i>VeHaya im Shamoa</i></b> (see Deuteronomy 11:13–21), and <b><i>VaYomer</i></b> (see Numbers 15:37–41), the standard formula of <i>Shema</i>.
+
+### Part 9
+Additionally, <b>they blessed with the people three blessings.</b> These blessings were: <b>True and Firm,</b> the blessing of redemption recited after <i>Shema</i>; <b>and</b> the blessing of the Temple <b>service,</b> which is also a blessing recited in the <i>Amida</i> prayer; <b>and the Priestly Benediction,</b> recited in the form of a prayer, without the lifting of hands that usually accompanies that blessing (<i>Tosafot</i>). <b>And on Shabbat,</b> when the new priestly watch would begin its service, the priests would <b>add one blessing</b> recited <b>by the outgoing priestly watch,</b> that love, fraternity, peace, and friendship should exist among the priests of the incoming watch.
+
+### Part 10
+MISHNA 5:2 The appointed priest <b>said to them:</b> Let only those priests who are <b>new to</b> burning <b>the incense come and participate in the lottery</b> for the incense. <b>Whoever won</b> that lottery <b>won</b> the privilege to burn the incense. The appointed priest <b>said to them:</b> Those <b>new</b> priests, i.e., those who had never performed the service, together <b>with</b> those <b>old</b> priests, i.e., those who had already performed it, may <b>come and participate in the lottery</b> to determine <b>who takes the limbs from</b> the bottom half of <b>the ramp,</b> where they had been placed earlier, <b>up to the altar. Rabbi Eliezer ben Ya’akov says:</b> The priest <b>who takes the limbs up to the ramp is</b> the one who <b>takes them up</b> from the ramp and places them <b>upon the altar.</b>
+
+### Part 11
+MISHNA 5:3 The priests who did not win a lottery were still dressed in the priestly vestments that they were required to don when entering the lottery, so that if they won they would be prepared for immediate service. The appointed priest <b>handed over</b> these priests <b>to</b> the care of <b>the attendants [<i>laḥazanim</i>].</b> The attendants <b>would undress</b> these priests and remove <b>their garments, and they would leave only their trousers on them.</b> After the priests donned their non-sacred garments, they would remove the priestly trousers and don their non-sacred trousers. <b>And there were</b> four storage <b>compartments there</b> in the Temple for the storage of priestly vestments for each priestly watch, <b>and on</b> each of <b>them was written the use of the garment</b> stored there: Trousers, tunic, belt, and mitre.
+
+### Part 12
+MISHNA 5:4 The priest <b>who won</b> the lottery to burn <b>the incense would take the spoon</b> used for carrying the incense. <b>And the spoon</b> was <b>similar to</b> a large <b>gold vessel</b> that <b>held three <i>kav</i>, and the smaller vessel was</b> placed <b>inside</b> the spoon.

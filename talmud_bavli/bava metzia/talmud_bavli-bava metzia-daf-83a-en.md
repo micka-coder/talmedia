@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And even on an inclined plane,</b> this <b>works out well where there is no evidence,</b> i.e., in a case without witnesses. <b>But where there is evidence, let him bring evidence and be exempt.</b> Why then is he forced to take an oath? <b>As it is taught</b> in a <i>baraita</i>: <b>Isi ben Yehuda says,</b> with regard to the verse: “And it died or was hurt or driven away <b>without an eyewitness, an oath of the Lord shall be between them”</b> (Exodus 22:9–10), that one can infer from here that if <b>there is an eyewitness,</b> let <b>him bring evidence and be exempt.</b>
 
@@ -29,5 +28,20 @@ The Gemara relates: <b>Rav Ḥiyya bar Yosef issued a decree in</b> the city of 
 ### Part 10
 The Gemara relates an incident involving <b>Rabba bar bar Ḥanan: Certain porters broke his barrel of wine</b> after he had hired them to transport the barrels. <b>He took their cloaks</b> as payment for the lost wine. <b>They came and told Rav.</b> Rav <b>said</b> to Rabba bar bar Ḥanan: <b>Give them their cloaks.</b> Rabba bar bar Ḥanan <b>said to him:</b> Is <b>this the <i>halakha</i>?</b> Rav <b>said to him: Yes,</b> as it is written: <b>“That you may walk in the way of good men”</b> (Proverbs 2:20). Rabba bar bar Ḥanan <b>gave them their cloaks.</b> The porters <b>said to</b> Rav: <b>We are poor people and we toiled all day and we are hungry and we have nothing.</b> Rav <b>said to</b> Rabba bar bar Ḥanan: <b>Go</b> and <b>give</b> them <b>their wages.</b> Rabba bar bar Ḥanan <b>said to him:</b> Is <b>this the <i>halakha</i>?</b> Rav <b>said to him: Yes,</b> as it is written: <b>“And keep the paths of the righteous”</b> (Proverbs 2:20).
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> With regard to <b>one who hires laborers and tells them to rise</b> exceptionally <b>early and to continue</b> working until exceptionally <b>late,</b> if this is in <b>a locale where</b> laborers <b>are not accustomed to rising</b> so <b>early or to continuing</b> to work until so <b>late,</b> the employer is <b>not permitted to compel them</b> to do so. In <b>a locale where</b> employers <b>are accustomed to feeding</b> their laborers, the employer <b>must feed</b> them. If they are in a locale where an employer is accustomed <b>to providing</b> their laborers <b>with sweet</b> foods, <b>he must provide</b> such food. <b>Everything is in accordance with the regional custom</b> in these matters.
+
+### Part 13
+There was <b>an incident involving Rabbi Yoḥanan ben Matya, who said to his son: Go out</b> and <b>hire laborers for us.</b> His son <b>went,</b> hired them, <b>and pledged</b> to provide <b>sustenance for them</b> as a term of their employment, without specifying the details.
+
+### Part 14
+<b>And when he came</b> back <b>to his father</b> and reported what he had done, Rabbi Yoḥanan ben Matya <b>said to him: My son, even if you were to prepare a feast for them like that of</b> King <b>Solomon in his time, you would not have fulfilled your obligation to them, as they are the descendants of Abraham, Isaac, and Jacob. Rather, before they begin</b> engaging <b>in</b> their <b>labor, go out and say to them:</b> The stipulation that food will be provided is <b>on the condition that you have</b> the right to claim <b>from me only</b> a meal of <b>bread and legumes,</b> which is the typical meal given to laborers. <b>Rabban Shimon ben Gamliel says:</b> Rabbi Yoḥanan ben Matya’s son <b>did not need to state</b> this condition, as the principle is that <b>everything is in accordance with the regional custom.</b>
+
+### Part 15
+<strong>GEMARA:</strong> With regard to the mishna’s statement that an employer may not compel his laborers to rise exceptionally early and continue working until exceptionally late, the Gemara asks: Isn’t this <b>obvious?</b> By what right can he force them to do so? The Gemara explains: <b>No,</b> the mishna’s ruling is <b>necessary</b> only in a case <b>where</b> the employer <b>increased their wages</b> beyond the standard in that place. <b>Lest you say</b> that the employer could <b>say to</b> the laborers: The fact <b>that I increased your wages</b> was <b>with the understanding that you would rise early and continue</b> working <b>late for me,</b> the mishna therefore <b>teaches us that</b> the laborers can <b>say</b> in response <b>to</b> the employer: The fact <b>that you increased our</b> wages was <b>with the understanding that we</b> would <b>perform quality work for you,</b> not that we would work longer hours.
+
+### Part 16
+§ <b>Reish Lakish says:</b>

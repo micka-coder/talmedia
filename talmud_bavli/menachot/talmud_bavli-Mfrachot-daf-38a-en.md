@@ -1,0 +1,26 @@
+### Partie 1
+Il a déclaré ceci <b>en ce qui concerne l'interdiction de : "Tu ne t'écarteras ni à droite ni à gauche de ce qu'on te dira" (Deutéronome 17:11). La dignité humaine l'emporte sur une interdiction de la loi rabbinique, mais pas sur une interdiction de la loi de la Torah. Par conséquent, Mar bar Rav Ashi aurait retiré son vêtement s'il avait eu connaissance de la déchirure.
+
+### Partie 2
+<b>Et il y a</b> ceux <b>qui disent</b> qu'il y a une version différente de cette discussion : C'est <b>lorsque</b> ils étaient <b>là,</b> à l'endroit où le coin du vêtement de Mar bar Rav Ashi s'est déchiré, que Ravina <b>lui a dit</b> qu'il s'était déchiré, <b>et</b> Mar bar Rav Ashi <b>lui a dit</b> en guise de réponse : <b>Quelle est ton opinion ?</b> Penses-tu <b>que je dois jeter</b> le vêtement ? <b>Mais le Maître ne dit-il pas : Grande est la dignité humaine, puisqu'elle l'emporte sur une interdiction de la Torah?</b> La Guemara soulève une difficulté : <b>Mais Rav bar Shabba a interprété</b> cette déclaration <b>avant Rav Kahana :</b> Il a déclaré ceci <b>en ce qui concerne l'interdiction de : "Tu ne dévieras pas"</b> et non de l'interdiction de porter dans le domaine public, qui s'applique par la loi de la Torah. La Guemara répond qu'ici aussi, il ne s'agit pas d'une interdiction par la loi de la Torah, car l'endroit où ils marchaient n'était pas un domaine public à part entière, mais un <i>karmelit</i>,</b> dans lequel le port <b>est</b> interdit <b>par la loi rabbinique.</b>
+
+### Partie 3
+fin du chapitre
+
+### Partie 4
+<strong>MISHNA:</strong>L'absence des <b>cordes bleues ciel [<i>tekhelet</i>]</b> n'empêche pas</b> l'accomplissement de la mitzva des franges rituelles avec <b>les cordes blanches</b>, <b>et l'absence</b> de <b>cordes blanches</b> n'empêche pas</b> l'accomplissement de la mitzva avec <b>les cordes bleues ciel</b>. Si quelqu'un n'en a qu'une, il la porte sans l'autre. L'absence des <b>phylactères du</b> bras n'empêche pas</b> l'accomplissement de la mitzva des phylactères <b>du</b> tête, et</b> l'absence des phylactères <b>du</b> tête n'empêche pas</b> l'accomplissement de la mitzva des phylactères <b>du</b> bras.</b> Si l'on n'en a qu'un, on le porte sans l'autre.
+
+### Partie 5
+<strong>GEMARA:</strong> La Guemara suggère : <b>Disons</b> que <b>la mishna n'est pas conforme</b> à l'opinion de <b>Rabbi</b> Yehuda HaNasi. <b>Comme cela est enseigné</b> dans une <i>baraita</i> : Lorsque le verset exige que l'on place des cordes blanches et bleues aux coins de ses vêtements et qu'il précise ensuite : <b>"Afin que vous le regardiez"</b> (Nombres 15:39), il <b>enseigne</b> que l'absence de l'un ou l'autre <b>empêche</b> l'accomplissement de la mitzva <b>avec l'autre;</b> c'est <b>la déclaration de Rabbi</b> Yehouda HaNasi. <b>Mais les rabbins disent:</b> Le manque de l'un <b>n'empêche pas l'accomplissement</b> de la mitzva avec l'autre.
+
+### Partie 6
+La Guemara s'interroge : uel est le raisonnement de Rabbi Yehouda HaNasi, c'est-à-dire comment tire-t-il sa décision de ce verset ? La Guemara explique : <b>Comme il est écrit :</b> "Et ils mettront sur la frange de l'angle un fil bleu ciel" (Nombres 15:38). "La frange du coin est une référence aux cordes qui sont du même type que le coin du vêtement. Comme les vêtements sont généralement blancs, cette phrase fait référence à des cordes blanches. <b>Et il est écrit</b> dans ce même verset : <b>"Un fil bleu ciel". Et le Miséricordieux déclare</b> dans le verset suivant, en se référant aux deux types de cordes : "Et il vous servira de frange <b>pour que vous puissiez le regarder"</b> (Nombres 15:39), au singulier. Ceci enseigne que l'on ne remplit pas son obligation <b>jusqu'à ce que les deux</b> types <b>soient présents ensemble.</b>
+
+### Partie 7
+La Guemara demande : <b>Et</b> comment les rabbins, qui soutiennent que l'on peut remplir une obligation sans l'autre, comprennent-ils ce verset ? La Guemara répond : Ils soutiennent que l'expression <b>"pour que vous la regardiez" indique</b> que l'on accomplit une mitzva avec <b>chacun individuellement.</b>
+
+### Partie 8
+La Gemara conclut sa suggestion initiale : <b>Devons-nous dire que</b> la mishna, qui déclare que l'on peut accomplir la mitzva avec des cordes blanches ou bleues même en l'absence de l'autre, n'est <b>pas en accord</b> avec l'opinion de <b>Rabbi</b> Yehouda HaNasi ? La Gemara répond : <b>Rav Yehuda a dit</b> que <b>Rav a dit : Vous</b> pouvez <b>même dire</b> que la mishna est en accord avec l'opinion de <b>Rabbi</b> Yehouda HaNasi, et la décision de la mishna <b>est nécessaire seulement en ce qui concerne l'octroi de la préséance.</b> Les cordes blanches doivent précéder les cordes bleues, mais si l'ordre est inversé, on accomplit quand même la mitzva.
+
+### Partie 9
+C'est <b>comme cela est enseigné</b> dans une <i>baraita</i> : C'est une <b>mitsva</b> d'insérer les <b>cordes blanches</b> dans le vêtement <b>avant</b> d'insérer <b>les cordes bleu ciel</b>, <b>mais si</b> on insère les <b>cordes bleu ciel</b> <b>avant les cordes blanches</b>, on <b>accomplit</b> son obligation <b>mais on omet</b> la <b>mitzva.a Guemara demande : <b>Que</b> veut dire la <i>baraita</i> par l'expression : <b>Omis</b> la <b>mitzva?</b>

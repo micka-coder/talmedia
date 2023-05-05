@@ -1,4 +1,3 @@
-
 ### Part 1
 The vessel was <b>filled to overflow</b> with <b>incense. And it had a cover</b> to prevent spillage of the incense, <b>and there was a type of cloth</b> placed <b>upon it from above,</b> to preserve the fragrance of the incense.
 
@@ -17,5 +16,23 @@ MISHNA 5:6 The priest with the spoonful of incense and the priest with the gold 
 ### Part 6
 <b>And</b> that sound <b>would serve three purposes:</b> Any <b>priest who hears its sound knows that his brethren the priests are entering to prostrate</b> themselves in the Sanctuary at that time, <b>and he</b> would <b>run and come</b> to prostrate himself with them. <b>And</b> any <b>Levite who hears its sound knows that his brethren the Levites are entering</b> the courtyard to stand on their platform <b>to recite the psalm</b> accompanying the libation, <b>and he</b> would <b>run and come</b> to sing with them. <b>And the head of the</b> non-priestly <b>watch,</b> which stands in the courtyard as the agents of the Jewish people, <b>would position the ritually impure</b> priests and singers <b>at the eastern gate</b> of the courtyard, to make it clear that those priests were not performing the Temple service due to their ritual impurity.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> 6:1 The priest with the panful of incense and the priest with the gold coal pan filled with coals <b>began ascending</b> the twelve <b>stairs of the Entrance Hall.</b> The priests <b>who won</b> the rights <b>of the removal of ash from the inner altar and</b> the removal of ash from <b>the Candelabrum would precede them,</b> to remove the vessels that remained in the Sanctuary. The priest <b>who won</b> the right <b>of the removal of ash from the inner altar entered</b> the Sanctuary <b>and took the basket</b> that he had left there after removing the ashes from the altar. <b>And</b> when he completed his tasks, he <b>prostrated</b> himself with his hands and feet spread <b>and emerged</b> from the Sanctuary.
+
+### Part 9
+The priest <b>who won</b> the right <b>of the removal of ash from the Candelabrum entered</b> the Sanctuary, <b>and</b> if he <b>found</b> the <b>two western lamps,</b> i.e., the easternmost and the one immediately to its west, of the Candelabrum <b>burning,</b> he would <b>remove the ash from the easternmost</b> lamp and prepare it anew. <b>But</b> he would <b>leave burning the</b> lamp immediately <b>west</b> of the easternmost lamp, <b>as from</b> that lamp <b>he would kindle</b> the lamps of <b>the Candelabrum in the afternoon.</b> If <b>he found that</b> the lamp west of the easternmost lamp <b>was extinguished, he</b> would <b>remove the ashes and kindle it</b> from the fire on <b>the altar of the burnt offering.</b> He then <b>took the jug</b> in which he had placed the ashes and wicks of the Candelabrum <b>from</b> the <b>second stair</b> of the stone before the Candelabrum <b>and prostrated</b> himself <b>and emerged</b> from the Sanctuary.
+
+### Part 10
+MISHNA 6:2 The priest <b>who won</b> the right <b>to</b> bring <b>the coal pan</b> filled with coals to the inner altar for the burning of the incense first <b>piled the coals on the</b> inner <b>altar and</b> then <b>flattened them,</b> distributing them evenly on the altar <b>with the bottom of the coal pan. And</b> when he finished distributing the coals, he <b>prostrated</b> himself <b>and emerged</b> from the Sanctuary.
+
+### Part 11
+MISHNA 6:3 The priest <b>who won</b> the right <b>to</b> burn <b>the incense would take the smaller vessel</b> containing the incense <b>from within the spoon, and</b> would <b>give it to</b> a priest who is <b>his friend or his relative,</b> whom he designated to assist him, and enter the Sanctuary with him. If the incense <b>was scattered from</b> the smaller vessel <b>into</b> the spoon, the priest accompanying him would <b>give</b> the incense <b>to</b> the priest burning the incense <b>in his handfuls. And</b> the experienced priests would <b>teach</b> the priest burning the incense: <b>Be careful,</b> because if you are not careful <b>you might begin</b> scattering the incense on the side of the altar that is <b>before you;</b> rather, start scattering on the far side of the altar, <b>so</b> that <b>you will not be burned</b> by the burning incense when you are scattering it.
+
+### Part 12
+The priest <b>began flattening it,</b> distributing the incense evenly on the coals on the altar, <b>and</b> when the Sanctuary would become filled with the smoke of the incense, he would <b>emerge</b> from the Sanctuary. The priest <b>burning</b> the incense <b>would not burn</b> it until <b>the appointed</b> priest would <b>say to him: Burn</b> the incense. <b>And if it was the High Priest</b> who was burning the incense, <b>the appointed</b> priest would <b>say to him</b> deferentially: <b>My master,</b> the <b>High Priest, burn</b> the incense.
+
+### Part 13
+It is derived from the verse: “And there shall be no man in the Tent of Meeting when he goes in to make atonement in the Sanctuary, until he comes out” (Leviticus 16:17), that no one may be standing between the Entrance Hall and the outer altar when the priest burns the incense. Therefore, <b>the people,</b> i.e., the priests, <b>left</b> that area. <b>And</b> the priest <b>burned</b> the incense on the inner altar <b>and prostrated</b> himself <b>and emerged</b> from the Sanctuary.

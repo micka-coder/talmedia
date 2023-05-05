@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>is analogous to its prohibition. Just as its prohibition is</b> only when it is the size of an <b>olive-bulk, so too,</b> the requirement to <b>return it is</b> only when it is the size of an <b>olive-bulk.</b>
 
@@ -62,5 +61,8 @@ The verse states: “On that day shall the Lord be one <b>and His name one.”</
 ### Part 21
 <b>Rabbi Avina raised a contradiction: It is written</b> in the verse: <b>“This is My name forever,”</b> implying a requirement to conceal the name of God, and in the very next phrase it states: <b>“And this is My memorial unto all generations”</b> (Exodus 3:15), which indicates that the name of God is to be publicized and remembered by all. Rather, <b>the Holy One, Blessed be He, said: I,</b> i.e., My name, is <b>not read as I am written. I am written with</b> the letters <b><i>yod</i></b> and <b><i>heh</i>, and I am read with</b> the letters <b><i>alef</i></b> and <b><i>dalet</i>.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 22
+end of chapter
+
+### Part 23
+<strong>MISHNA:</strong> In <b>a place where</b> the people were <b>accustomed to perform labor on Passover eve until midday, one</b> may <b>do</b> so on that day. In <b>a place where</b> the people were <b>accustomed not to perform</b> labor, <b>one</b> may <b>not do</b> so. The performance of labor on the eve of Passover is not prohibited by Torah law, but is dependent on local custom. If one <b>travels from a place where</b> people <b>perform</b> labor on Passover eve <b>to a place where</b> people <b>do not perform</b> labor, <b>or from a place where</b> people <b>do not perform</b> labor on Passover eve <b>to a place where</b> people <b>perform</b> labor, the Sages <b>impose upon him the stringencies of</b> both <b>the place from which he left and the stringencies of the place to which he went.</b> In both cases, he may not perform labor.

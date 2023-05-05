@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>From where</b> is it derived with regard <b>to one who acts unawares</b> in the case <b>of consecrated</b> items, i.e., if one slaughtered an offering without intending to perform the act of slaughter at all, but rather like one occupied with other matters, <b>that</b> the offering <b>is disqualified?</b> Rav Huna said to Shmuel: It is derived from a verse, <b>as it is stated: “And he shall slaughter the young bull before the Lord”</b> (Leviticus 1:5), teaching that the mitzva is not performed properly <b>unless the slaughter is for the sake of a young bull,</b> i.e., knowing that he is performing an act of slaughter.
 
@@ -29,5 +28,14 @@ The Gemara further differentiates between the opinions of those two Sages themse
 ### Part 10
 But <b>Rabbi Eliezer does not</b> necessarily <b>accept</b> as <i>halakha</i> the ruling <b>of Rabbi Shimon ben Elazar: Perhaps it is</b> only <b>with regard to idol worship that you say</b> that one person’s intention is effective for the action of another, as idol worship is somewhat <b>similar to</b> service performed <b>inside</b> the Temple. Consequently, it is reasonable that one person’s intention is effective for the action of another in the case of idolatry, as it does for offerings. <b>But</b> with regard to <b>Shabbat, the Torah prohibited</b> only <b>planned,</b> constructive <b>labor,</b> i.e., one is liable only for an action that includes the creative intent of the doer, and here the one who took the item out did not intend to perform a labor.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> <b>What is the location</b> of the slaughtering and consumption <b>of offerings?</b> The principle is that with regard to <b>offerings of the most sacred order, their slaughter</b> is <b>in the north</b> of the Temple courtyard.
+
+### Part 13
+Specifically, with regard to <b>the bull and the goat of Yom Kippur, their slaughter</b> is <b>in the north and the collection of their blood in a service vessel</b> is <b>in the north, and their blood requires sprinkling between the staves</b> of the Ark in the Holy of Holies, <b>and upon the Curtain</b> separating the Sanctuary and Holy of Holies, <b>and on the golden altar.</b> Concerning all those sprinklings, failure to perform even <b>one placement of their</b> blood <b>disqualifies</b> the offering. As to <b>the remainder of the blood,</b> which is left after those sprinklings, a priest <b>would pour</b> it <b>onto the western base of the external altar. But if he did not place</b> the remainder of the blood on the western base, it does <b>not disqualify</b> the offering.
+
+### Part 14
+With regard to <b>bulls that are burned and goats that are burned, their slaughter</b> is <b>in the north</b> of the Temple courtyard, <b>and the collection of their blood in a service vessel</b> is <b>in the north, and their blood requires sprinkling upon the Curtain</b> separating the Sanctuary and Holy of Holies, <b>and upon the golden altar,</b>

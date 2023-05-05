@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>But isn’t it taught</b> in a <i>baraita</i>: With regard to <b>one whose donkey drivers and workers,</b> who were <i>amei ha’aretz</i>, <b>were bearing pure</b> food, without touching the pure food itself but only the earthenware vessels containing them, even if <b>he distanced himself from them</b> as they walked by <b>more than a <i>mil</i>, his pure</b> foods <b>are pure.</b> Since the workers are unaware of his departure, he is still considered to be guarding the food in their possession and need not be concerned that they may have touched the pure foods. <b>But if he said to them: Go, and I will follow behind you,</b> then <b>once they are no longer within his eyesight, his pure</b> foods <b>are impure.</b>
 
@@ -14,5 +13,20 @@ The Gemara counters: <b>If so,</b> in <b>the first</b> clause of the <i>baraita<
 ### Part 5
 The Gemara raises a difficulty: <b>If so,</b> in <b>the latter clause, too,</b> since he can arrive from around a corner at any given moment, they should certainly be cautious. The Gemara responds: <b>Since he said to them: Go and I will follow behind you, they rely</b> on this, and they do not consider themselves to be under observation. Consequently, they are not particular about the contact of another <i>am ha’aretz</i>.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> Concerning several matters there is greater <b>stringency with regard to sacrificial</b> food <b>than with regard to <i>teruma</i>,</b> a portion of the produce designated for the priest. This expresses itself in many ways, the first being <b>that one may immerse vessels inside</b> other <b>vessels</b> to purify them <b>for <i>teruma</i>; but not for sacrificial</b> food, for which one must immerse each vessel separately. Another difference is that the <i>halakhot</i> of <b>the back</b> of a vessel <b>and</b> its <b>inside and</b> its <b>place for gripping</b> apply <b>to</b> vessels used for <b><i>teruma</i>,</b> meaning that each part of the vessel has its own use and is considered a separate vessel in that it does not convey impurity to the other parts of the vessel when it contracts impurity; <b>but not to sacrificial</b> food, for which an impure section of the vessel does convey impurity to all the other sections.
+
+### Part 8
+Likewise, <b>one who carries an object trodden</b> on by a <i>zav</i>, a man suffering from gonorrhea, <b>may carry <i>teruma</i></b> at the same time, if he is careful that neither he nor the impure object should come into contact with the <i>teruma</i>, <b>but</b> this may <b>not</b> be done with <b>sacrificial</b> food. <b>The garments of those who eat <i>teruma</i></b> are like an object trodden on by a <i>zav</i> <b>with regard to sacrificial</b> food.
+
+### Part 9
+The mishna lists other stringencies that apply to sacrificial foods but not to <i>teruma</i>: <b>The characteristics of <i>teruma</i> are not like the characteristics of sacrificial</b> food, <b>as in</b> the case of vessels that are used with <b>sacrificial</b> food, if one has a garment or vessel that is tied up <b>he must untie</b> it <b>and dry</b> it if there was any moisture on it, as both a knot and absorbed moisture are considered interpositions that prevent the water of the ritual bath from reaching the entire garment. <b>And he may</b> then <b>immerse</b> them, <b>and afterward he may tie</b> them up again if he wishes. <b>But with regard to <i>teruma</i> he may,</b> if he so desires, <b>tie</b> up the garment <b>and then immerse</b> it without any concern that the knot might be considered an interposition.
+
+### Part 10
+<b>Vessels</b> that were fashioned and <b>completed in purity</b> nevertheless <b>require immersion</b> to be considered pure <b>for sacrificial</b> food<b>s, but not for <i>teruma</i>. A vessel combines</b> all the food <b>that is in it</b> with regard <b>to sacrificial</b> food, meaning that if one piece of food becomes impure all the other pieces become impure as well; <b>but not</b> with regard <b>to <i>teruma</i>,</b> concerning which each piece is treated independently.
+
+### Part 11
+The mishna continues the list of differences between sacrificial food and <i>teruma</i>. <b>Sacrificial</b> food <b>that is impure with fourth-degree</b> impurity <b>is disqualified,</b> meaning that the sacrificial food is rendered impure but it does not impart impurity to other items. <b><i>Teruma</i> is disqualified when it is impure with third-degree</b> impurity; it is not susceptible to fourth-degree impurity at all. <b>And with regard to <i>teruma</i>, if one of one’s hands became impure</b> by rabbinic law that renders only the hands impure, <b>its counterpart,</b> i.e., the other hand, remains <b>pure. But with regard to sacrificial</b> food, if one hand becomes impure <b>he must immerse them both, as one hand renders its counterpart impure with regard to sacrificial</b> food <b>but not with regard to <i>teruma</i>. One may eat dry foods,</b> i.e., foods that have never come into contact with liquid and are therefore not susceptible to impurity, <b>with impure hands when</b> it is <b><i>teruma</i>, but not</b> when it is <b>sacrificial</b> food.

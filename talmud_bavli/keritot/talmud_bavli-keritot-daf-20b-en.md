@@ -1,4 +1,3 @@
-
 ### Part 1
 This is referring to a case <b>where he intended</b> both <b>to extinguish and to kindle.</b> The Torah singles out the labor of kindling on Shabbat, as it is written: “You shall not kindle fire in all your dwelling places on the day of Shabbat” (Exodus 35:3). The Sages disagree with regard to the interpretation of this verse. <b>As the first <i>tanna</i> holds in accordance with</b> the opinion of <b>Rabbi Yosei, who says: Kindling was</b> singled <b>out</b> from the general category of prohibited labors in order to teach that it is unlike other labors, teaching <b>that</b> it is a regular <b>prohibition,</b> i.e., it is punishable only with lashes and does not entail <i>karet</i> or stoning for an intentional transgression, or a sin offering for an unwitting transgression. Consequently, he is not liable to bring a sin offering for the kindling.
 
@@ -14,5 +13,20 @@ This is referring to a case <b>where he intended</b> both <b>to extinguish and t
 ### Part 5
 <b>The Sages taught</b> in a <i>baraita</i>: Concerning <b>one who stokes coals on Shabbat</b> with the intention to move them in order <b>to be warmed by them, and they ignited by themselves; it is taught</b> in <b>one</b> <i>baraita</i> that he is <b>liable and it is taught</b> in <b>another</b> <i>baraita</i> that he is <b>exempt.</b> The Gemara explains: The reason for <b>that which is taught</b> in the first <i>baraita</i>, i.e., that he is <b>liable,</b> is that this <i>tanna</i> <b>holds</b> that one who performs <b>a labor</b> on Shabbat that is <b>not necessary for its own sake,</b> i.e., he performs the labor for a purpose other than the direct result of the action, is held <b>liable for it. And</b> the reason for <b>that which is taught</b> in the second <i>baraita</i>, i.e., that he is <b>exempt,</b> is that <b>he holds</b> that one who performs <b>a labor</b> that is <b>not necessary for its own sake is exempt</b> from liability <b>for it.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> If <b>one consumed</b> an olive-bulk of <b>blood</b> that spurted during the <b>slaughter of a domesticated animal, an undomesticated animal, or a bird, whether</b> it is <b>a kosher or non-kosher</b> species; or if one consumed <b>blood</b> that flowed after <b>stabbing</b> an animal or killing it in a manner other than by ritual slaughter, or <b>blood</b> that spurted after <b>ripping</b> the animal’s windpipe or gullet, or <b>blood</b> that spurted during <b>bloodletting with which the soul departs, one is liable</b> to receive <i>karet</i> <b>for</b> consuming <b>it</b> intentionally or to bring a sin offering for consuming it unwittingly.
+
+### Part 8
+But with regard to <b>blood of the spleen, blood of the heart, blood of eggs, blood of grasshoppers,</b> or <b>blood of exudate [<i>tamtzit</i>],</b> i.e., that oozes from the neck of the animal after the initial spurt of its slaughter concludes,<b>one is not liable for</b> consuming <b>it. Rabbi Yehuda deems</b> one <b>liable in</b> the case of <b>blood of exudate.</b>
+
+### Part 9
+<strong>GEMARA:</strong> <b>The Sages taught</b> in a <i>baraita</i>: The verse states: <b>“And you shall consume no manner of blood”</b> (Leviticus 7:26). <b>I</b> would <b>derive</b> from here that <b>even</b> with regard to the <b>blood of bipeds,</b> i.e., human beings, and the <b>blood of eggs,</b> the <b>blood of grasshoppers,</b> and the <b>blood of fish, all</b> these are <b>included</b> in the prohibition against consuming blood. Therefore, <b>the verse states: “Whether it is of bird or of animal”</b> (Leviticus 7:26).
+
+### Part 10
+The <i>baraita</i> explains the derivation from the verse: <b>Just as birds and animals are unique</b> in <b>that they have</b> the capacity for both <b>a light</b> form of <b>ritual impurity,</b> if they become impure after they are slaughtered, in which case they are considered impure food, <b>and a severe</b> form of <b>impurity,</b> if they die without valid ritual slaughter, <b>and they have</b> the possibility of being <b>forbidden or permitted, and they are a type of meat, so too, everything</b> that has the capacity for both <b>a light</b> form of <b>impurity</b> and a severe form of ritual impurity, and has the possibility of being forbidden or permitted, and is a type of meat, is included in the prohibition.
+
+### Part 11
+<b>I will</b> therefore <b>exclude</b> the <b>blood of bipeds, as they have</b> the capacity for <b>a severe</b> form of <b>ritual impurity,</b> i.e., the impurity of a corpse, <b>but they do not have</b> the capacity for <b>a light</b> form of <b>ritual impurity,</b> since the <i>halakhot</i> of the impurity of food do not apply to the human body.

@@ -1,9 +1,35 @@
-
 ### Part 1
 <b>Any</b> oath, including one incurred by rabbinic law, <b>may be extended</b> to render the person who takes it liable to take an additional oath, <b>except for</b> the oath of <b>a hired worker, which may not be extended,</b> since the hired worker’s oath was instituted only to alleviate the concerns of the employer. <b>Rav Ḥisda says:</b> For <b>everyone,</b> the Sages <b>are not lenient,</b> in that they extend any oath they incur to impose upon them additional oaths, <b>except for a hired worker,</b> for <b>whom they are lenient.</b> The Gemara asks: <b>What</b> is the difference <b>between</b> the rulings of Rav Huna and Rav Ḥisda? The Gemara answers: <b>There is</b> a practical difference <b>between them</b> as to whether the court <b>initiates</b> extending an oath <b>for him,</b> i.e., even when the other litigant has not suggested it, the court extends the original oath to include an oath about other claims.
 
 ### Part 2
 § The mishna teaches: <b>The Sabbatical</b> Year <b>abrogates</b> the obligation to take an oath about a debt, just like it abrogates a debt. The Gemara asks: <b>From where is this matter</b> derived? <b>Rav Giddel says</b> that <b>Rav says:</b> It is derived from the fact <b>that the verse states: “And this is the matter [<i>devar</i>] of the release:</b> Every creditor shall release that which he has lent to his neighbor; he shall not exact it of his neighbor and his brother, because the Lord’s release has been proclaimed” (Deuteronomy 15:2). Since the word <i>devar</i> also means statement, <b>this teaches that the Sabbatical Year releases,</b> i.e., abrogates, <b>even a statement,</b> i.e., an oath.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> <b>There are four</b> types of <b>bailees,</b> to whom different <i>halakhot</i> apply. They are as follows: <b>An unpaid bailee,</b> who receives no compensation for safeguarding the item in his care; <b>and a borrower,</b> who receives an item on loan for his own use without paying a rental fee; <b>a paid bailee,</b> who is paid a salary for safeguarding the deposited item; <b>and a renter,</b> i.e., one who pays a fee for the use of an item or animal.
+
+### Part 5
+In the event that one of these bailees is unable to return the deposited item to its owner, the <i>halakha</i> with regard to liability is dependent upon what happened to the item, and upon the type of bailee: <b>An unpaid bailee takes an oath</b> attesting to the fact that he was not negligent with the care of the item and is then exempt from liability <b>for everything,</b> meaning for all types of damage, whether the item was lost, stolen, damaged, or if the animal died. Conversely, <b>a borrower</b> does not have the option of taking an oath, and <b>pays for everything,</b> whether the item was stolen, lost, damaged, or the animal died, even if it was by unavoidable accident.
+
+### Part 6
+The <i>halakhot</i> of <b>a paid bailee and a renter</b> are the same: They <b>take an oath concerning an injured</b> animal, <b>and concerning a captured</b> one, <b>and concerning a dead</b> animal, attesting to the fact that these mishaps were not caused by negligence, but rather by unavoidable accident, and then are exempt from liability. <b>But they must pay</b> if the deposit cannot be returned due to <b>loss or theft,</b> even if these were not caused by negligence.
+
+### Part 7
+The mishna clarifies: If the owner of an ox <b>said to an unpaid bailee: Where is my ox?</b> And the unpaid bailee <b>said to him: It died, but</b> the truth was <b>that it was injured or captured or stolen or lost;</b> or if the bailee responded: <b>It was injured, but</b> the truth was <b>that it died or was captured or stolen or lost;</b> or if he responded: <b>It was captured, but</b> the truth was <b>that it died or was injured or stolen or lost;</b> or if he responded: <b>It was stolen, but</b> the truth was <b>that it died or was injured or captured or lost;</b> or if he responded: <b>It was lost, but</b> the truth was <b>that it died or was injured or captured or stolen,</b> in any of the above cases, if the owner of the ox then said: <b>I administer an oath to you</b> concerning your claim, <b>and</b> the unpaid bailee <b>said: Amen,</b> he is <b>exempt</b> from bringing a guilt-offering, despite the fact that he took a false oath. The reason is that his false oath did not render him exempt from liability to pay.
+
+### Part 8
+If the owner says to an unpaid bailee: <b>Where is my ox?</b> And the unpaid bailee <b>said to him: I do not know what you are talking about, but</b> the truth was <b>that it died or was injured or captured or stolen or lost,</b> and the owner said: <b>I administer an oath to you</b> concerning your claim, <b>and</b> the unpaid bailee <b>said: Amen,</b> he is <b>exempt</b> from bringing a guilt-offering, since he would not have been liable to pay in any of these cases.
+
+### Part 9
+But if the owner said to the unpaid bailee: <b>Where is my ox?</b> And the unpaid bailee <b>said to him: It is lost,</b> and the owner said: <b>I administer an oath to you</b> concerning your claim, <b>and</b> the unpaid bailee <b>said: Amen, and</b> then <b>witnesses testify that</b> the bailee <b>consumed it,</b> he <b>pays</b> the owner <b>the principal,</b> since he took the ox for himself. But if there were no witnesses, but after he took the oath <b>he admitted of his own</b> accord that he stole the ox and took a false oath, then he <b>pays</b> the owner the <b>principal and</b> the additional <b>one-fifth</b> payment, <b>and</b> he brings <b>a guilt-offering</b> to achieve atonement, as in any other case where one takes a false oath with regard to a deposit.
+
+### Part 10
+Similarly, if the owner said to the unpaid bailee: <b>Where is my ox? And</b> the unpaid bailee <b>said to him: It was stolen,</b> and the owner said: <b>I administer an oath to you</b> concerning your claim, <b>and</b> the unpaid bailee <b>said: Amen, and</b> then <b>witnesses testify that</b> the bailee <b>stole it,</b> he <b>pays double</b> the principal. <b>If he admitted of his own</b> accord that he stole it, then he is exempt from double payment for theft, but <b>pays</b> the <b>principal and</b> the additional <b>one-fifth</b> payment, <b>and</b> brings <b>a guilt-offering</b> to achieve atonement.
+
+### Part 11
+If the owner of an ox <b>said to someone in the marketplace,</b> i.e., a stranger who was not a bailee: <b>Where is my ox that you stole?</b> And the accused <b>says: I did not steal</b> it, <b>and</b> then <b>witnesses testify that</b> the accused <b>did steal it,</b> he <b>pays the double payment.</b> If <b>he slaughtered or sold</b> it, he <b>pays the fourfold or fivefold payment.</b> If the accused <b>saw witnesses that were approaching</b> to testify against him, and at that point <b>he said:</b> I admit that <b>I stole</b> the animal <b>but I did not slaughter or sell</b> it, <b>he pays only</b> the <b>principal.</b>
+
+### Part 12
+If the owner <b>said to a borrower: Where is my ox?</b> And the borrower <b>said to him:</b>

@@ -1,4 +1,3 @@
-
 ### Part 1
 we have <b>such and such men with us; such and such dogs with us,</b> and <b>such and such slings [<i>zukata</i>] with us.</b> In other words, we are fully protected and you should not dare to take anything from us. If the thief subsequently <b>went and took</b> an animal <b>from him, what</b> is the <i>halakha</i>? Rava <b>said to</b> Abaye: It is as though <b>he has taken them to a place of groups of beasts and bandits,</b> as his taunting of the thief motivated the theft.
 
@@ -41,5 +40,8 @@ A Sage <b>taught</b> in a <i>baraita</i>: Just as a bailee can issue a condition
 ### Part 14
 <b>Rav Naḥman says</b> that <b>Rav says:</b> The <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yehuda ben Teima. Rav Naḥman bar Yitzḥak said: The mishna is also precisely</b> formulated in accordance with this opinion, <b>as it teaches:</b> With regard to <b>any</b> condition <b>that ultimately he can fulfill, and he stipulated with regard to it initially, his condition is valid.</b> This indicates that if <b>he cannot fulfill it, his condition is void.</b> The Gemara affirms: One can <b>learn from this</b> formulation that the unattributed mishna does in fact represent the opinion of Rabbi Yehuda ben Teima.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 15
+end of chapter
+
+### Part 16
+<strong>MISHNA:</strong> In the case of <b>one who borrowed a cow and borrowed</b> the services of <b>its owner with it, or</b> he borrowed a cow and <b>hired its owner with it,</b> or he <b>borrowed</b> the services of <b>the owner or hired him and afterward borrowed the cow;</b> in all such cases, if the cow <b>died,</b> the borrower is <b>exempt</b> from liability. Although a borrower is generally liable to pay if a cow he borrowed dies, here he is exempt, <b>as it is stated: “If its owner is with him, he does not pay”</b> (Exodus 22:14).

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>that silence ratifies</b> a vow, <b>but silence does not cancel,</b> i.e., nullify, a vow. If the husband <b>ratified</b> a vow <b>in his heart, it is ratified,</b> but if <b>he nullified</b> it <b>in his heart, it is not nullified.</b> The <i>baraita</i> adds: <b>If he ratified</b> a vow <b>he can no longer nullify</b> it; and similarly, <b>if he nullified</b> a vow <b>he can no longer ratify</b> it. In any case, the <i>baraita</i> <b>teaches that silence ratifies</b> a vow. <b>What, is it not</b> referring even <b>to one who is silent in order to annoy</b> his wife?
 
@@ -26,5 +25,8 @@ The Gemara asks about this <i>baraita</i>: <b>And let</b> the <i>tanna</i> <b>in
 ### Part 9
 Rav Ashi asks rhetorically: <b>But why</b> may he not nullify according to Rabbi Meir’s opinion? <b>Let</b> his silence by mistake be <b>like</b> that of <b>one who is silent in order to annoy,</b> who, according to Rabbi Ḥanina, can nullify the vow at a later stage. This is <b>a conclusive refutation</b> of Rabbi Ḥanina’s opinion.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>And these are</b> the <b>vows that he,</b> the husband or father, <b>can nullify:</b> The first category consists of <b>matters that involve affliction</b> for the woman who took the vow. For example, if a woman vowed: <b>If I bathe, or: If I do not bathe;</b> if she vowed: <b>If I adorn myself [<i>etkashet</i>], or: If I do not adorn myself.</b>

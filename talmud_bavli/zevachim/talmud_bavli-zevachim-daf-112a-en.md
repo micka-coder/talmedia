@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>GEMARA:</strong> The Gemara discusses the first clause of the mishna: <b>Granted</b> that one is liable in a case where he first placed the blood on an altar <b>outside</b> the courtyard <b>and then placed</b> the remaining blood on the altar <b>inside</b> the courtyard; that is because, as the mishna explains: <b>As</b> the blood in <b>its entirety is fit to be</b> placed <b>inside</b> the courtyard. <b>But</b> in a case where he first placed its blood on the altar <b>inside</b> the courtyard <b>and then offered up</b> the remaining blood on an altar <b>outside</b> the courtyard, why he is liable? That blood <b>is</b> merely <b>a remainder,</b> and one should not be liable for offering it up outside.
 
@@ -26,5 +25,20 @@ The Gemara asks: <b>Why do I</b> need to ask: <b>To what is this matter comparab
 ### Part 9
 The Gemara asks: <b>Are</b> these cases <b>comparable? There,</b> in Rav’s ruling, it is logical that the animal is considered fit, as <b>a guilt offering</b> is <b>a male</b> animal <b>and a burnt offering</b> is <b>a male</b> animal, so it is possible to bring an animal as the latter even if it had been designated as the former. Therefore, a guilt offering left to graze is still considered fit. <b>But</b> in the mishna’s case, just because the animal is left to graze does not necessarily indicate that it itself is fit to be brought, as <b>a sin offering is a female</b> animal, which can never be brought as a burnt offering. Therefore, it should be considered unfit. <b>Rav Ḥiyya from Yostiniyya said:</b> The ruling of the mishna is <b>with regard to the goat of</b> the <b><i>Nasi</i>,</b> which is a male sin offering. Therefore, in a case where it is left to graze it is still considered fit, as it can be brought as a burnt offering.<br/>This chapter discussed two distinct prohibitions: That of slaughtering an offering outside the Temple courtyard and that of offering up an offering by placing it upon an altar outside the Temple courtyard. Since they are considered two distinct prohibitions, one is liable even if he performs only one of them, and he is liable twice if he performs both.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> With regard to <b>the</b> red <b>heifer of purification that one burned outside its pit,</b> the pit being an excavation on the Mount of Olives opposite the entrance to the Sanctuary designated for its slaughter and its burning, <b>and likewise the scapegoat that one sacrificed outside</b> the Temple courtyard rather than casting it off a cliff as prescribed, he is <b>exempt</b> from punishment for violating the transgression of slaughtering and sacrificing outside the Temple courtyard.
+
+### Part 12
+The source for this is <b>as it is stated</b> with regard to slaughter of sacrificial animals outside the courtyard: “Whatever man…that slaughters outside the camp, <b>and to the entrance of the Tent of Meeting he did not bring it,</b> to present it as an offering to the Lord before the Tabernacle of the Lord” (Leviticus 17:3–4). From that verse it is derived: For <b>any</b> offering <b>that is not fit to come to the entrance of the Tent of Meeting</b> for sacrifice on the altar, e.g., the red heifer and the scapegoat, <b>one is not liable for its</b> slaughter and sacrifice outside its place.
+
+### Part 13
+With regard to <b>an animal that</b> actively <b>copulated with a person, or an animal that was the object of bestiality, or</b> an animal <b>that</b> was <b>set aside</b> for idol worship, <b>or</b> an animal <b>that was worshipped</b> as a deity, <b>or</b> an animal given as <b>the price</b> of a dog that was purchased, <b>or</b> an animal that was given as <b>payment</b> to a prostitute, <b>or</b> an animal born of a mixture of <b>diverse kinds, or an animal with a wound that will cause it to die within twelve months [<i>tereifa</i>], or</b> an animal <b>born by caesarean section,</b> any of <b>which one sacrificed outside</b> the Temple courtyard, he is <b>exempt.</b>
+
+### Part 14
+The source for this is <b>as it is stated:</b> “And to the entrance of the Tent of Meeting he did not bring it to present it as an offering to the Lord <b>before the Tabernacle of the Lord.”</b> From this verse, it is derived: For <b>any</b> animal <b>that is not fit to come to the entrance of the Tent of Meeting</b> for sacrifice on the altar, <b>one is not liable for its</b> slaughter and sacrifice outside the courtyard.
+
+### Part 15
+For <b>blemished</b> animals, <b>whether</b> they are <b>permanently blemished</b> or <b>whether</b> they are

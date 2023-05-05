@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>as you do not clean</b> yourselves <b>with an earthenware shard, and you do not kill lice on your garments, and you do not pull out a vegetable and eat it</b> before you untie <b>the bundle that was tied by the gardener?</b> This implies that all these actions carry with them the danger of witchcraft.
 
@@ -29,5 +28,11 @@ The Gemara continues to discuss the issue: <b>One who needed to defecate and is 
 ### Part 10
 We learned in the mishna that <b>Rabbi Yosei said to him:</b> Is there <b>proof from there?</b> He cites proof for his opinion from the conclusion of that same verse. The Gemara comments: <b>Rabbi Yosei spoke well to Rabbi Meir. And</b> how does <b>Rabbi Meir</b> address that proof? He explains that the verse <b>is stated</b> employing the style of: <b>There is no need.</b> It should be understood as follows: <b>There is no need</b> to say that <b>an item</b> that is <b>significant to people,</b> e.g., a large shard of earthenware to stoke a fire, <b>shall not be found, but even an item</b> that is <b>insignificant to people,</b> i.e., a shard to extract water, <b>shall not be found.</b> Therefore, the conclusion of the verse does not contradict Rabbi Meir’s opinion.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> <b>Rabbi Akiva said: From where</b> is it derived <b>that idolatry, e.g.,</b> a statue of a deity<b>, transmits impurity</b> imparted <b>by carrying</b> even when the person who carries it does not come into contact with it<b>, just as</b> a <b>menstruating woman</b> does? <b>As it is stated: “</b>And you will defile the silver overlays of your statues<b>,</b> and the golden plating of your idols<b>, you will cast them away as you would a menstruating woman [<i>dava</i>], you will tell it, get out”</b> (Isaiah 30:22). <b>Just as a menstruating woman transmits impurity</b> imparted <b>by carrying, so too, idolatry transmits impurity</b> imparted <b>by carrying.</b>
+
+### Part 13
+<strong>GEMARA:</strong> Since the <i>halakhot</i> of idolatry and the impurity it causes are beyond the scope of tractate <i>Shabbat</i>, the fundamentals of this <i>halakha</i> are cited from tractate <i>Avoda Zara</i>. <b>We learned</b> in a mishna <b>there: One whose house was adjacent to</b> a house of <b>idolatry,</b> sharing a common wall, <b>and</b> the dividing wall <b>fell, it is prohibited to rebuild it</b> as he would thereby have built a wall for idol worship. <b>What should one do? He moves four cubits into his own</b> land <b>and builds</b> the wall there.

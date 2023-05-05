@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>This,</b> the mishna here, is in accordance with the opinion of <b>Rabbi Eliezer, while that,</b> the other mishna, is in accordance with the opinion of <b>the Rabbis.</b>
 
@@ -44,5 +43,17 @@ Abaye <b>said to</b> Rav Pappa in answer to his question: <b>Both according to t
 ### Part 15
 The mishna records yet another teaching handed down by Rabbi Elai: <b>And I also heard from</b> Rabbi Eliezer another <i>halakha</i>, <b>that one may fulfill his obligation</b> to eat bitter herbs <b>on Passover with <i>arkablin</i>,</b> a certain bitter herb. The Gemara asks: <b>What is <i>arkablin</i>? Reish Lakish said:</b> It is <b><i>Atzvata ḥaruziyata</i>,</b> a type of fiber that wraps itself around a date palm.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 16
+end of chapter
+
+### Part 17
+<strong>MISHNA:</strong> <b>One may establish a joining</b> of houses in courtyards [<i>eiruv ḥatzerot</i>] in order to permit carrying on Shabbat in a courtyard shared by two or more houses, and one may establish a joining of Shabbat borders [<i>eiruv teḥumin</i>] in order to extend the distance one is permitted to walk on Shabbat; <b>and</b> similarly, <b>one may merge</b> courtyards in order to permit carrying in an alleyway shared by two or more courtyards. This may be done <b>with all</b> kinds of food <b>except for water and salt,</b> as they are not considered foods and therefore may not be used for these purposes.
+
+### Part 18
+The mishna continues with two similar principles: <b>All</b> types of food <b>may be bought with</b> second-<b>tithe money,</b> which must be taken to Jerusalem and used to purchase food (Deuteronomy 14:26), <b>except for water and salt.</b> Similarly, <b>one who vows that nourishment</b> is prohibited to him <b>is permitted</b> to eat <b>water and salt,</b> as they are not considered sources of nourishment.
+
+### Part 19
+It was further stated with regard to the laws of joining courtyards that <b>one may establish an <i>eiruv</i></b> <i>teḥumin</i> <b>for a nazirite with wine,</b> even though he is prohibited to drink it, because it is permitted to others. <b>And</b> similarly, one may establish an <i>eiruv teḥumin</i> <b>for an Israelite with <i>teruma</i>,</b> even though he may not eat it, because it is permitted to a priest. The food used for an <i>eiruv teḥumin</i> must be fit for human consumption, but it is not essential that it be fit for the consumption of the one for whom it is being used. <b>Summakhos,</b> however, <b>says:</b> One may only establish an <i>eiruv teḥumin</i> for an Israelite <b>with unconsecrated</b> food.
+
+### Part 20
+It was additionally stated that one may establish an <i>eiruv teḥumin</i> <b>for a priest in a <i>beit haperas</i>,</b> a field containing a grave that was plowed over. There is doubt as to the location of bone fragments in the entire area. A priest is prohibited to come into contact with a corpse, and therefore may not enter a <i>beit haperas</i>. <b>Rabbi Yehuda says:</b> An <i>eiruv teḥumin</i> may be established for a priest <b>even between the graves</b> in a graveyard, an area which the priest may not enter by Torah law,

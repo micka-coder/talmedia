@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>for</b> their <b>defiling of</b> the <b>Temple or its sacrificial</b> foods. <b>Through which</b> means, then, <b>do they achieve atonement</b> for this? Is it through the internal goat or the bull of Aaron? It is <b>better</b> to say <b>that they achieve atonement through the bull of Aaron, as</b> in any event <b>with regard to his household an exception was made to its rule</b> that it atones only for Aaron. <b>And</b> one should <b>not</b> say that <b>they achieve atonement through the goat whose</b> blood presentation is <b>performed inside</b> the Sanctuary, <b>as it is not</b> found that with regard to Aaron’s household <b>an exception was made to its rule.</b>
 
@@ -29,5 +28,20 @@ If both mentions of the phrase “his own” are necessary to teach about the ow
 ### Part 10
 The Gemara answers: Two confessions are necessary, <b>one for</b> the High Priest <b>himself, and one for his household,</b> i.e., the priests, <b>as the school of Rabbi Yishmael taught:</b> The High Priest must first confess his own transgressions and only afterward those of the priests, because <b>that is</b> how <b>the attribute of justice functions:</b> It is <b>better that the innocent come and atone for the guilty, than</b> that <b>the guilty come and atone for the guilty.</b> When the High Priest confesses the transgressions of those in his house, it is better that he already be considered innocent, having confessed and been absolved of his own transgressions.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> With regard to cases of <b>awareness of the defiling</b> of the Temple by entering it while one is ritually impure, or defiling its sacrificial foods by partaking of them while one is ritually impure, there are <b>two</b> types <b>that are</b> actually <b>four.</b> How so? If <b>one became ritually impure and he was aware</b> that he was impure, <b>but</b> afterward his <b>impurity was hidden from him, though he remembered</b> that he was partaking of <b>sacrificial</b> food, which is forbidden to one who is in a state of ritual impurity; this is one of the four types of awareness of impurity.
+
+### Part 13
+If the fact that he was partaking of <b>sacrificial</b> food <b>was hidden from him, though he remembered the ritual impurity</b> that he had contracted; this is the second of the four types of awareness of impurity. And the same <i>halakha</i> applies if both <b>this and that were hidden from him,</b> both the fact that he was impure and the fact that he was partaking of sacrificial food. In all these cases, if <b>he partook of the sacrificial</b> food <b>and was unaware</b> either that he was impure, or that the food was sacrificial food, or both, <b>and after he partook of</b> it <b>he became aware</b> of that which he had forgotten, <b>he is</b> required to bring <b>a sliding-scale</b> offering. In this type of offering, the sinner sacrifices an animal, bird, or meal-offering, depending on his financial status.
+
+### Part 14
+And similarly with regard to entering the Temple: If <b>one became ritually impure and he was aware</b> that he was impure, <b>but</b> afterward his <b>impurity was hidden from him,</b> though <b>he remembered</b> that he was entering <b>the Temple,</b> which is prohibited for one who is in a state of ritual impurity; this is the third of the four types of awareness of impurity. If the fact that he was entering <b>the Temple was hidden from him,</b> though <b>he remembered the ritual impurity</b> that he had contracted; this is the fourth type of awareness of impurity. And the same <i>halakha</i> applies if both <b>this and that were hidden from him,</b> both the fact that he was impure and the fact that he was entering the Temple. In all these cases, if <b>he entered the Temple and was unaware</b> either that he was impure, or that he was entering the Temple, or both, <b>and after he left he became aware</b> of what was hidden from him, <b>he is</b> required to bring <b>a sliding-scale</b> offering.
+
+### Part 15
+As for the boundaries of the Temple with regard to the <i>halakhot</i> of impurity, <b>the same</b> <i>halakha</i> applies to <b>one who enters the</b> area that was part of the original Temple <b>courtyard and</b> to <b>one who enters the</b> later <b>addition to the</b> Temple <b>courtyard,</b> because the additional section is sanctified with the full sanctity of the Temple courtyard. The mishna notes: <b>As, additions can be made to the city</b> of Jerusalem <b>or to the</b> Temple <b>courtyards only by</b> a special body comprising the <b>king, a prophet, the <i>Urim VeTummim</i>, and the Sanhedrin of seventy-one</b> judges, <b>and with two thanks-offerings and with</b> a special <b>song.</b> Once the addition to the courtyard is made by this body and this process, it is given the full sanctity of the original courtyard area.
+
+### Part 16
+The mishna provides certain details of the consecration ceremony. <b>And the court</b> would <b>move</b> forward, <b>and two thanks-offerings</b> would be brought <b>after them, and all of the Jewish people</b> would follow <b>behind them.</b>

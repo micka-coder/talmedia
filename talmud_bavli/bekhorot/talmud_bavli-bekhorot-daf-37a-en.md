@@ -1,4 +1,3 @@
-
 ### Part 1
 is <b>to the exclusion of</b> the opinion <b>of Rabbi Yosei</b> in the mishna, who prohibits any number of laymen to deem a firstborn animal permitted. The ruling that a group of <b>three</b> laymen may <b>dissolve a vow in a place where there is no Sage</b> is <b>to the exclusion of</b> the opinion <b>of Rabbi Yehuda, as it is taught</b> in a <i>baraita</i>: <b>Dissolution of vows</b> requires a court of <b>three. Rabbi Yehuda says:</b> This is the <i>halakha</i> only if at least <b>one of them</b> is <b>a Sage.</b> If no Sage is available, laymen may not dissolve a vow.
 
@@ -38,5 +37,23 @@ The Gemara adds that with regard to <b>untithed produce,</b> although one could 
 ### Part 13
 <b>As we learned</b> in a mishna (<i>Avoda Zara</i> 74a): In the case of <b>wine</b> used for <b>a libation</b> in idol worship <b>that fell into</b> a wine <b>cistern,</b> it is <b>prohibited</b> to <b>derive benefit</b> from <b>all</b> the wine in the cistern, even if the volume of the wine used for a libation was small in comparison to the volume of the rest of the wine in the cistern. <b>Rabban Shimon ben Gamliel says: All of the</b> wine in the cistern <b>may be sold to a gentile,</b> and the money paid for it is permitted, <b>except for the value of the wine</b> used for <b>a libation</b> that is <b>in it.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> <b>For these blemishes, one may slaughter the firstborn</b> animal outside the Temple: If the firstborn’s <b>ear was damaged</b> and lacking <b>from the cartilage [<i>haḥasḥus</i>], but not</b> if <b>the skin</b> was damaged; and likewise, if the ear <b>was split, although it is not lacking;</b> or if the ear <b>was pierced</b> with a hole <b>the size of a bitter vetch,</b> which is a type of legume; <b>or</b> if it was an ear <b>that</b> is <b>desiccated. What is a desiccated</b> ear that is considered a blemish? It is <b>any</b> ear <b>that</b> if <b>it is pierced it does not discharge a drop of blood. Rabbi Yosei ben HaMeshullam says: Desiccated</b> means that the ear is so dry <b>that it will crumble</b> if one touches it.
+
+### Part 16
+<strong>GEMARA:</strong> With regard to the blemishes mentioned in this mishna and in the subsequent <i>mishnayot</i>, the Gemara asks: <b>Why</b> is it permitted to slaughter and eat a firstborn that sustained these blemishes? Only <b>a lame</b> animal <b>and a blind</b> animal are <b>written</b> in the verse that discusses this <i>halakha</i>. That verse states: “And if there be any blemish therein, lameness, or blindness, any ill blemish whatsoever, you shall not sacrifice it to the Lord your God. You shall eat it within your gates” (Deuteronomy 15:21–22).
+
+### Part 17
+The Gemara answers: <b>It is also written</b> in the beginning of the verse: <b>“If there be any blemish therein,”</b> which indicates that other blemishes are also included. The Gemara asks: <b>But</b> why not <b>say</b> that the phrase <b>“if there be any blemish therein”</b> is <b>a generalization,</b> while <b>“lameness, or blindness”</b> is <b>a detail.</b> According to the principles of midrashic exegesis, if <b>a generalization and a detail</b> are mentioned, <b>the generalization includes only that which is</b> specified <b>in the detail.</b> Therefore, it should be concluded that in the event of <b>lameness and blindness, yes,</b> one may slaughter the firstborn, but in the event of <b>another matter,</b> one may <b>not</b> slaughter it.
+
+### Part 18
+The Gemara answers: By subsequently stating: <b>“Any ill blemish,” it then generalized</b> again. Consequently, it is <b>a generalization and a detail and a generalization,</b> represented in the phrases “any blemish,” “lameness or blindness,” and “any ill blemish,” and according to the principles of midrashic exegesis, <b>you may deduce</b> that the verse is referring <b>only</b> to items <b>similar to the detail. Just as</b> the items mentioned in <b>the detail,</b> i.e., in the phrase “lameness or blindness,” are clearly <b>defined as blemishes that are exposed and do not regenerate, so too, all blemishes that are exposed and do not regenerate</b> are considered blemishes with regard to a firstborn.
+
+### Part 19
+The Gemara suggests: <b>But say</b> instead that <b>just as</b> the items mentioned in <b>the detail,</b> i.e., in the phrase “lameness or blindness,” are clearly <b>defined as blemishes that are exposed and</b> that cause an animal to <b>desist from its</b> normal <b>labor, and</b> they are blemishes that <b>do not regenerate, so too, all blemishes that are exposed and</b> that cause an animal to <b>desist from its labor and do not regenerate</b> are included in this <i>halakha</i>. If so, a blemish that does not fit these criteria would not render the firstborn permitted to be slaughtered. <b>Why</b> then <b>did we learn</b> in the mishna that if the firstborn’s <b>ear was damaged</b> and lacking <b>from the cartilage, but not</b> if it is lacking <b>from the skin,</b> it is considered a blemish, despite the fact that this does not cause the animal to desist from its labor?
+
+### Part 20
+The Gemara answers: The word “any” in <b>“any ill blemish” is an amplification,</b> and it includes even blemishes that are different from those defined by the detail. The Gemara challenges: <b>If so, blemishes that are hidden</b> should <b>also</b> be included. <b>Why</b> then <b>did we learn</b> in the mishna (39a) that animals with <b>external gums that were damaged</b> and lacking <b>or that were scratched [<i>veshenigmemu</i>] and</b> likewise animals with <b>internal</b> gums <b>that were</b> entirely <b>extracted</b> are considered blemished?

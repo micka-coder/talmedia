@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>this is Ḥadyab. The river of Gozan; this is Ginzak. And the cities of the Medes; this is Ḥamadan and its surroundings. And some say: This is Nihar and its surroundings.</b> The Gemara asks: <b>Which are its surroundings? Shmuel said: Kerakh, Mushkhei, Ḥidkei, and Domakya</b> are the surroundings of Ḥamadan. <b>Rabbi Yoḥanan said: And all of them are for disqualification.</b> In other words, if someone from one of these places wishes to convert, there is concern that he might be a descendant of a Jew and therefore a <i>mamzer</i>. Consequently, they all are disqualified.
 
@@ -26,5 +25,14 @@ The Gemara comments: <b>Those</b> who are <b>disqualified from Harpanya</b> are 
 ### Part 9
 The Gemara comments: <b>And this</b> explains the folk saying <b>that people say</b> in this regard: <b>A large ephah and a small ephah,</b> which are both inaccurate utensils that may not be used for measuring, <b>roll onward to the netherworld, and from the netherworld to Tarmod, and from Tarmod to Meishon, and from Meishon to Harpanya.</b> The same idea expressed by the Sages with regard to the disqualification of lineage was also incorporated into a well-known adage among commoners.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> Each of the women enumerated in the first chapter causes exemption from levirate marriage and <i>ḥalitza</i> for her rival wives. This is due to the close family relationship she has with her brother-in-law, making her forbidden to him. The single exception is the case explained in this mishna. <b>What</b> is the case of <b>the wife of a brother with whom he did not coexist?</b> For example: If there were <b>two brothers, and one of them died</b> childless, <b>and</b> subsequently <b>a brother of theirs was born, after which the second brother,</b> the elder, <b>took his</b> deceased <b>brother’s wife in levirate marriage, and</b> then <b>died</b> as well. Consequently, two women require levirate marriage: The widow of the first brother who had been taken in levirate marriage by the second brother, and the widow of the second brother, the first widow’s rival wife. <b>The first</b> widow, who had been the wife of the first brother to die, <b>goes out</b> without any obligation to be taken in levirate marriage by the youngest brother who was born later, <b>since</b> she is <b>the wife of a brother with whom he did not coexist.</b> The first deceased brother never lived at the same time as the newly born brother. <b>The second</b> widow, who had been married to the second brother, is exempt <b>due to her rival wife.</b>
+
+### Part 12
+The mishna discusses an additional situation: If the second brother had <b>performed</b> only <b>levirate betrothal with her,</b> meaning that he had not yet consummated the marriage, <b>and</b> then <b>died,</b> both the wife betrothed by a levirate betrothal to the second brother and the wife of the second brother fall before the youngest brother born after the death of the first brother. In that case, the first wife certainly goes out and is exempt from both <i>ḥalitza</i> and levirate marriage, since she is to him the wife of a brother with whom he did not coexist. <b>The second,</b> however, was never effectively the rival wife of the first brother’s wife, as the first brother’s wife had only been betrothed by levirate betrothal and was not fully married to the second brother. Therefore, <b>she performs <i>ḥalitza</i> and may not enter into levirate marriage.</b>
+
+### Part 13
+<strong>GEMARA:</strong> <b>Rav Naḥman said: He who taught</b> the version of the mishna which reads: <b>The first</b> widow goes out, <b>is not mistaken</b> in his version, and <b>he who taught</b> a variant version of the mishna which reads: <b>The second</b> widow goes out, <b>is not mistaken</b> either, since it is possible to understand the mishna both ways. Both versions of the text can refer to the same woman, i.e., the wife of the first brother, by different titles. The Gemara explains that <b>he who taught:</b>

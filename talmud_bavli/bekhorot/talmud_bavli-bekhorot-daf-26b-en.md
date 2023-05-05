@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>being brought for atonement</b> is <b>not</b> its <b>primary</b> function, there is a concern that <b>one</b> might <b>keep it? Or perhaps, since a burnt offering also effects atonement for</b> neglecting to perform <b>a positive</b> mitzva, <b>one does not keep</b> the animal longer than necessary.
 
@@ -17,5 +16,47 @@ The Gemara asks: <b>But didn’t we learn</b> in the mishna that the hair <b>was
 ### Part 6
 <b>And what is the reason Reish Lakish did not state</b> his explanation <b>in accordance with</b> the opinion of <b>Rav Natan bar Oshaya,</b> whose explanation is the more straightforward meaning of the phrase: That which does not appear to be part of the fleece? <b>Rabbi Ile’a says: Reish Lakish holds</b> that the Sages did not deem strands of wool that are not compressed together with the rest of the fleece prohibited, <b>because it is impossible for</b> there to be <b>fleece without dangling hairs.</b> If Rav Natan bar Oshaya’s explanation were accepted, it would never be permitted to use such fleece of a dead firstborn animal. Consequently, Reish Lakish explains the statement of the mishna in a more lenient manner.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> <b>Until when must an Israelite tend to</b> and raise <b>a firstborn</b> animal before giving it to the priest? <b>With regard to a small animal,</b> e.g., a sheep or goat, it is <b>thirty days, and with regard to a large animal,</b> e.g., cattle, it is <b>fifty days. Rabbi Yosei says: With regard to a small animal,</b> it is <b>three months.</b> If <b>the priest said to</b> the owner <b>within that period: Give it to me, that</b> owner <b>may not give it to him. And if it is a blemished</b> firstborn <b>and</b> the priest <b>said to him: Give it to me so I may eat it,</b> it is <b>permitted</b> for the owner to give it to him. <b>And at the time</b> that <b>the Temple</b> is standing, <b>if it is unblemished</b> and the priest <b>said to him: Give it to me and I will sacrifice it,</b> it is <b>permitted</b> for the owner to give it to him.
+
+### Part 9
+<b>The firstborn</b> animal <b>is eaten year by year,</b> i.e., within its first year, <b>whether</b> it is <b>blemished</b> or <b>whether</b> it is <b>unblemished, as it is stated: “You shall eat it before the Lord your God year by year”</b> (Deuteronomy 15:20). If <b>a blemish developed within its</b> first <b>year,</b> it is permitted for the owner <b>to maintain</b> the animal for the <b>entire twelve months.</b> If a blemish developed <b>after twelve months</b> have passed, it is permitted for the owner <b>to maintain</b> the animal for <b>only thirty days.</b>
+
+### Part 10
+<strong>GEMARA:</strong> The mishna teaches that an Israelite must raise a firstborn animal for thirty or fifty days, depending on the type of animal, before giving it to a priest. The Gemara asks: <b>From where are these matters</b> derived? <b>Rav Kahana said:</b> They are derived from a verse, <b>as the verse states:</b> “You shall not delay to offer of the fullness of your harvest, and of the outflow of your presses; <b>you shall give to Me your firstborn sons. So you shall do</b> with your oxen, and <b>with your sheep;</b> seven days it shall be with its mother, on the eighth day you shall give it to Me” (Exodus 22:28–29). The second part of verse 28 is juxtaposed to the second animal mentioned in verse 29. This juxtaposition teaches that just as a firstborn son is redeemed when he is thirty days old (Numbers 18:16), so too a sheep is given to the priest only when it is thirty days old.
+
+### Part 11
+The verses also state: <b>“You shall not delay the fullness of your harvest, and of the outflow of your presses…So you shall do with your oxen”</b> (Exodus 22:28–29). Just as the first fruits are brought on the festival of <i>Shavuot</i>, fifty days after Passover, so too the firstborn oxen are given to a priest when they are fifty days old. Here, the first part of verse 28 is juxtaposed with the first animal mentioned in verse 29.
+
+### Part 12
+The Gemara challenges: If these verses are the source, one can <b>reverse</b> the cases and derive that a firstborn ox must be given to the priest after thirty days, and a firstborn sheep after fifty days. The Gemara explains: <b>It stands to reason</b> that the time period <b>that is</b> alluded to <b>earlier</b> in the first verse corresponds <b>to</b> the animal <b>that is</b> mentioned <b>earlier</b> in the second verse, while the time period <b>that is</b> alluded to <b>later</b> in the first verse corresponds <b>to</b> the animal <b>that is</b> mentioned <b>later</b> in the second verse. The Gemara rejects this: <b>On the contrary,</b> it stands to reason that the time period <b>that is</b> alluded to <b>closer to</b> the mention of an animal should correspond <b>to</b> the animal, i.e., oxen, <b>that is closest to it.</b>
+
+### Part 13
+<b>Rather, Rava says</b> that the <i>halakha</i> of both a firstborn sheep and a firstborn ox are juxtaposed with the <i>halakha</i> of a firstborn child, which teaches that both require at least thirty days. But since <b>the verse states: “So you shall do</b> with your oxen” (Exodus 22:29), <b>the verse adds an extra</b> act of <b>doing for you in</b> the case of <b>your oxen.</b> In other words, the verse requires that the owner take care of an ox for additional time before giving it to the priest.
+
+### Part 14
+The Gemara challenges: <b>But</b> if so, one can <b>say</b> that the owner must care for the ox an additional thirty days, making a total of <b>sixty</b> days. From where is the total of fifty days derived? The Gemara answers: The interpretation of <b>the verse</b> with regard to the exact amount of time <b>was given only to the Sages,</b> and they determined that the owner must take care of his ox for fifty days.
+
+### Part 15
+<b>This is also taught</b> in a <i>baraita</i>: “You shall not delay to offer of the fullness of your harvest, and of the outflow of your presses; <b>you shall give to Me your firstborn sons. So you shall do</b> with your oxen, and <b>with your sheep;</b> seven days it shall be with its mother; on the eighth day you shall give it to Me” (Exodus 22:28–29). One <b>might</b> have thought that this time period, i.e., thirty days, applies <b>also to your oxen.</b> Therefore, <b>the verse states: “You shall do.” The verse adds an extra</b> act of <b>doing for you in</b> the case of <b>your oxen,</b> and the interpretation of <b>the verse was given only to the Sages.</b>
+
+### Part 16
+<b>From here</b> the Sages <b>stated: Until when must an Israelite tend to</b> and raise <b>a firstborn</b> animal before handing it to the priest? <b>With regard to a small</b> animal, e.g., a sheep or goat, it is <b>thirty days, and with regard to a large</b> animal, e.g., cattle, it is <b>fifty days. Rabbi Yosei says: With regard to a small</b> animal, it is <b>three months, because its tending is extensive,</b> i.e., a great deal of work and effort are required in order to raise it before it can be given to a priest. A <i>tanna</i> <b>taught</b> that so much effort is required to raise a sheep <b>because its teeth are small</b> and it cannot eat most foods.
+
+### Part 17
+§ The mishna teaches: If <b>the priest said to</b> the owner <b>within that period: Give it to me, that</b> owner <b>may not give it to him.</b> The Gemara asks: <b>What is the reason? Rav Sheshet says: Because</b> such a priest <b>appears like a priest who assists at the threshing floor</b> so that he can be given <i>teruma</i>. Since this arrangement benefits the owner of the firstborn, as he is spared the effort of taking care of the animal throughout this period, it is as though this priest has paid for the right to receive the firstborn, which is prohibited.
+
+### Part 18
+<b>The Sages taught</b> in a <i>baraita</i>: With regard to <b>the priests, the Levites, and the poor</b> people <b>who assist in the home of the shepherd, or at the threshing floor, or in the slaughterhouse, one may not give them <i>teruma</i> or tithe as their wages. And if one did so, he desecrated</b> the sanctity of the item. <b>And with regard to them the verse states:</b> “But you are turned aside out of the way; you have caused many to stumble in the law; <b>you have corrupted the covenant of Levi,</b> says the Lord of hosts” (Malachi 2:8). <b>And</b> another verse <b>states:</b> “And you shall bear no sin by it, seeing that you have set apart the best from it; <b>and you shall not desecrate the sacred items of the children of Israel, that you shall not die”</b> (Numbers 18:32).
+
+### Part 19
+The Gemara asks: <b>What</b> is the reason that the Gemara cites the second verse introduced with the phrase: <b>And</b> another verse <b>states?</b> The Gemara answers: <b>And if you would say</b> that the first verse indicates merely that <i>teruma</i> and tithe become desecrated, but one who does this is <b>not</b> punished by <b>death, come</b> and <b>hear</b> the second verse cited by the Gemara: <b>“And you shall not desecrate the sacred items of the children of Israel, that you shall not die”</b> (Numbers 18:32).
+
+### Part 20
+The <i>baraita</i> continues: <b>And the Sages wished to penalize</b> those who gave <i>teruma</i> or tithe to the priests, Levites, or poor people who helped them, <b>and to</b> require them to <b>separate in their</b> place <b>complete <i>teruma</i>,</b> so that the owners of the produce would not benefit from their improper actions. <b>And for what</b> reason did the Sages <b>not penalize them? Perhaps</b> they would mistakenly think that the produce has not yet been tithed at all, and they would <b>come to separate</b> <i>teruma</i> and tithes <b>from</b> it when it is actually <b>exempt</b> produce, as by Torah law it has already had its tithes removed. They might then separate <i>teruma</i> and tithes from it <b>on</b> behalf of produce to which the <b>obligation</b> of separating tithes still applies, i.e., regular untithed produce.
+
+### Part 21
+The <i>baraita</i> adds: <b>And in all of</b> these cases, although it is prohibited to give the <i>teruma</i> and tithe to a priest or Levite as his wages, nevertheless <b>there is</b>

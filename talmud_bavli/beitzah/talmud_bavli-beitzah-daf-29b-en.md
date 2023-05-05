@@ -1,4 +1,3 @@
-
 ### Part 1
 it is reasonable to conclude that <b>Shmuel came to teach us the practical <i>halakha</i>.</b> Knowing that a <i>baraita</i> permits the practice, Shmuel found it necessary to state that the <i>halakha</i> is otherwise.
 
@@ -23,5 +22,8 @@ The Gemara relates that <b>Rav Yosef’s wife was</b> once <b>sifting flour</b> 
 ### Part 8
 <b>And</b> one may go on a Festival <b>to a grocer</b> from <b>whom he is accustomed</b> to buy <b>and say to him: Give me twenty eggs, or fifty nuts,</b> or <b>ten peaches, or five pomegranates, or one <i>etrog</i>, provided that he does not mention any measure.</b> In other words, he must not specify a unit of measurement, e.g., a <i>kav</i>; rather, he must state a number, which is not the usual manner of making a purchase. <b>Rabbi Shimon ben Elazar says:</b> This is permitted, <b>provided that he does not mention the amount of</b> the <b>purchase,</b> meaning that he must not mention the sum of money that he is spending, but rather he must take what he needs and after the Festival they will calculate how much he owes.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 9
+end of chapter
+
+### Part 10
+<strong>MISHNA:</strong> <b>One who brings wine jugs from</b> one <b>place to</b> another <b>place may not bring</b> a large number of <b>them in a basket or in a tub</b> in the usual weekday manner on a Festival, as this is disrespectful of the Festival; <b>but he may bring</b> one or two barrels <b>on his shoulder or</b> carry them <b>in front of himself. Similarly, one who brings straw</b> for kindling or for feeding animals <b>may not place the tub behind him</b> while carrying it, as this is the usual weekday manner; <b>but he may transport it</b> in front of him <b>in his hand,</b> in an unusual fashion. <b>And one may begin</b> taking straw for kindling

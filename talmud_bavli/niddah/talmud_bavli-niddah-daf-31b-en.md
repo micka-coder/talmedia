@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>they delay</b> while <b>in</b> their wives’ <b>abdomen,</b> initially refraining from emitting semen <b>so that their wives will emit seed first,</b> in order <b>that their children will be male, the verse ascribes them</b> credit <b>as though they have many sons and sons’ sons. And this</b> statement <b>is</b> the same as that <b>which Rav Ketina said: I could have made all of my children males,</b> by refraining from emitting seed until my wife emitted seed first. <b>Rava says</b> another method through which one can cause his children to be males: <b>One who wishes to make all of his children males should engage in intercourse</b> with his wife <b>and repeat</b> the act.
 
@@ -47,5 +46,20 @@ By contrast, <b>when a female comes into the world, nothing,</b> i.e., no susten
 ### Part 16
 The students continued to ask Rabbi Dostai: <b>For what</b> reason <b>is a woman’s voice pleasant, but a man’s voice is not pleasant?</b> He answered: <b>This</b> man is similar to <b>the place from which he was created,</b> the earth, which does not issue a sound when it is struck, <b>and that</b> woman is similar to <b>the place from which she was created,</b> a bone, which makes a sound when it is struck. The proof that a woman’s voice is pleasant is <b>that it is stated</b> in Song of Songs that the man says to his beloved: <b>“For sweet is your voice, and your countenance is beautiful”</b> (Song of Songs 2:14).
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 17
+end of chapter
+
+### Part 18
+<strong>MISHNA:</strong> Samaritan <b>girls</b> are considered <b>menstruating women from</b> the time they lie in <b>their cradle. And the Samaritan</b> men <b>impart ritual impurity</b> to the <b>lower bedding like the upper</b> bedding, i.e., all layers of bedding beneath them are impure, and their status is like the bedding above a man who experiences a gonorrhea-like discharge [<i>zav</i>]: The status of both levels of bedding is that of first-degree ritual impurity, which can impart impurity to food and drink. This is <b>due to</b> the fact <b>that</b> Samaritan men are considered men who <b>engage in intercourse with menstruating women.</b>
+
+### Part 19
+<b>And</b> they are considered men who engage in intercourse with menstruating women because Samaritan women <b>observe</b> the seven-day menstrual period of ritual impurity <b>for each and every</b> emission of <b>blood,</b> even for blood that does not render them impure. Accordingly, if a Samaritan woman has an emission of impure blood during the seven-day period, she will nevertheless continue counting seven days from the first emission. It is therefore possible that the Samaritan men will engage in intercourse with their wives while they are still halakhically considered menstruating women, as the seven-day period of impurity should have been counted from the emission of the impure blood.
+
+### Part 20
+<b>But</b> one who enters the Temple while wearing <b>those</b> garments upon which a Samaritan had lain <b>is not liable</b> to bring an offering <b>for entering the Temple</b> in a status of impurity, <b>nor does one burn <i>teruma</i></b> that came into contact with <b>those</b> garments, <b>because their impurity</b> is <b>uncertain.</b>
+
+### Part 21
+<strong>GEMARA:</strong> The mishna teaches that Samaritan girls are considered menstruating women from the time they lie in their cradle. The Gemara asks: <b>What are the circumstances</b> of this statement? <b>If</b> the mishna is referring to girls <b>who</b> already <b>see</b> menstrual blood, then <b>even our own,</b> i.e., Jewish girls, are <b>also</b> considered menstruating women under such circumstances. <b>And if</b> it is referring to girls <b>who do not</b> yet <b>see</b> menstrual blood, then <b>their</b> girls, i.e., those of the Samaritans, should <b>also not</b> have the status of menstruating women.
+
+### Part 22
+<b>Rava, son of Rav Aḥa bar Rav Huna, says</b> that <b>Rav Sheshet says: Here we are dealing with an unspecified</b> case, i.e., it is unknown whether these girls have experienced their first menstrual period. <b>Since there is a minority</b> of girls <b>who see</b> menstrual blood, <b>we are concerned</b> with regard to each Samaritan girl that she might be from this minority. The Gemara asks: <b>And who</b> is the <i>tanna</i> who <b>taught that one must be concerned for the minority?</b>

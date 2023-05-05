@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara asks: <b>And did Rabbi Elazar, son of Rabbi Shimon, not know</b> of this? He must have known of his father’s statement that a mitzva performed at its proper time overrides Shabbat. If so, his ruling that reaping at an improper time is unfit cannot be proven from the fact that reaping the <i>omer</i> overrides Shabbat, as claimed earlier.
 
@@ -50,5 +49,35 @@ The <i>baraita</i> continues: But if <b>one slaughtered them not for their</b> o
 ### Part 17
 <b>Rav Naḥman bar Yitzḥak says:</b> Actually, Rabbi Yehuda HaNasi does hold that the oven consecrates the loaves. What the <i>baraita</i> <b>is saying</b> when it uses the categories of consecrated and not consecrated with regard to the slaughter of the lambs is that either the two loaves <b>are fixed</b> as <i>Shavuot</i> meal offerings and cannot be used for any other offering, <b>or</b> they <b>are not fixed</b> as <i>Shavuot</i> meal offerings. In other words, if the lambs were slaughtered and the blood sprinkled in the proper manner, one cannot change the designation of the loaves, whereas if they were not slaughtered and their blood was not sprinkled properly, one can change their designation. If the lambs were slaughtered properly but their blood was sprinkled improperly, the status of the loaves is subject to a dispute. This has nothing to do with when the loaves are consecrated.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 18
+end of chapter
+
+### Part 19
+<strong>MISHNA:</strong> <b>And these are the meal offerings</b> from which <b>a handful is removed and</b> the <b>remainder</b> of the offering is eaten <b>by the priests: The meal offering of fine flour; and the</b> meal offering prepared in a <b>pan; and the</b> meal offering prepared in a <b>deep pan;</b> and <b>the</b> meal offering baked in an oven that is brought entirely of <b>loaves; and the</b> meal offering baked in an oven that is brought entirely of <b>wafers;</b> the <b>meal offering of gentiles; and</b> the <b>meal offering of women; and the <i>omer</i> meal offering,</b> i.e., the measure of barley brought as a communal offering on the sixteenth of Nisan; <b>and the meal offering of a sinner; and</b> the <b>meal offering of jealousy,</b> brought by a <i>sota</i>.
+
+### Part 20
+<b>Rabbi Shimon says:</b> Although its remainder is not eaten by priests, as meal offerings of priests are burned in their entirety, as it is written: “And every meal offering of the priest shall be offered in its entirety; it shall not be eaten” (Leviticus 6:16), nevertheless, with regard to the <b>meal offering of a sinner</b> brought <b>by</b> one of the <b>priests, a handful is removed. And the handful is sacrificed</b> on the altar <b>by itself, and</b> the <b>remainder is sacrificed</b> on the altar <b>by itself.</b>
+
+### Part 21
+<strong>GEMARA:</strong> <b>Rav Pappa stated</b> a principle with regard to all the <i>mishnayot</i> in tractate <i>Menaḥot</i>: <b>Anywhere that we learned</b> in a mishna that one brings a meal offering, <b>we learned</b> that one must bring <b>ten</b> items of the same type, either loaves or wafers. The Gemara asks: <b>What is</b> Rav Pappa <b>teaching us,</b> as this is already stated by Rabbi Yehuda in the mishna (76a)?
+
+### Part 22
+The Gemara answers: This statement of Rav Pappa serves <b>to exclude</b> the opinion <b>of Rabbi Shimon, who said:</b> One who takes a vow to bring a meal offering baked in an oven must bring ten items. If he wishes, he may bring ten loaves or ten wafers, and if he wishes <b>he may bring half</b> of them as <b>loaves and</b> the other <b>half</b> as <b>wafers.</b> Rav Pappa <b>teaches us that</b> the <i>tanna</i> of the mishna maintains <b>that</b> one may <b>not</b> do so; all ten must be of the same type.
+
+### Part 23
+§ The mishna teaches: <b>And their remainder</b> is eaten <b>by the priests.</b> The Gemara asks: <b>From where do we</b> derive this <i>halakha</i>? The Gemara challenges the question: That <b>which is written</b> explicitly, <b>is written.</b> In the case of several meal offerings, including the gift meal offering brought by an individual, the Torah clearly states that the priests eat the remainder. <b>And</b> with regard to that <b>which is not written</b> explicitly, <b>it is written of it: “And this is the law of the meal offering: The sons of Aaron shall offer it</b> before the Lord…And he shall take up from it his handful…and shall make the memorial part of it smoke upon the altar….<b>And the remainder of it shall Aaron and his sons eat”</b> (Leviticus 6:7–9). These verses establish the principle that the priests eat the remainders of meal offerings, even where the Torah does not state this explicitly. Therefore, it is unnecessary to ask for a source.
+
+### Part 24
+The Gemara explains the original question: With regard to a meal offering that <b>comes</b> from <b>wheat, we did not ask,</b> as that is included in the cited verse. <b>When we asked</b> it was with regard to a meal offering that <b>comes</b> from <b>barley,</b> i.e., the <i>omer</i> meal offering and the meal offering brought by a <i>sota</i>: From where is it derived that the remainders of those offerings are given to the priests? The Gemara responds: With regard to one that <b>comes</b> from <b>barley also, since a handful</b> of it <b>is removed,</b> as the Torah states with regard to all meal offerings (see Leviticus 6:8), clearly <b>its remainder</b> is given <b>to the priests,</b> as why else would a handful be removed and offered?
+
+### Part 25
+The Gemara clarifies: <b>According to</b> the opinion <b>of the Rabbis,</b> who hold that the priests eat the remainder of all meal offerings from which a handful is removed, <b>we did not ask</b> about the source. <b>When we asked</b> it was <b>according to</b> the opinion <b>of Rabbi Shimon, who said: There is</b> a type of <b>meal offering of which a handful is removed but</b> its remainder <b>is not eaten.</b>
+
+### Part 26
+<b>As we learned</b> in the mishna: <b>Rabbi Shimon says:</b> From the <b>meal offering of a sinner</b> brought <b>by a priest, a handful is removed.</b> Subsequently, <b>the handful is sacrificed</b> on the altar <b>by itself, and the remainder is sacrificed</b> on the altar <b>by itself.</b> Therefore, the question is: According to Rabbi Shimon, who says that the priests do not always eat the remainder when a handful is removed, <b>from where do we</b> derive that the priests eat the remainder of barley-based meal offerings?
+
+### Part 27
+The Gemara answers. <b>Ḥizkiyya said:</b> The source is from a verse, <b>as the verse states: “And every meal offering, mixed with oil, or dry, shall all the sons of Aaron have”</b> (Leviticus 7:10). The verse is analyzed: <b>If</b> it <b>is not</b> necessary for <b>the matter of a mixed</b> meal offering <b>of wheat,</b> which is derived from the verse cited earlier, <b>apply it</b> to the <b>matter of a mixed</b> meal offering <b>of barley,</b> i.e., the meal offering of the <i>omer</i>. <b>And if</b> the verse <b>is not</b> necessary for <b>the matter of a dry</b> meal offering <b>of wheat,</b> which is derived from the verse cited earlier, <b>apply it</b> to the <b>matter of a dry</b> meal offering <b>of barley,</b> i.e., the meal offering of a <i>sota</i>.
+
+### Part 28
+The Gemara asks: <b>And this</b> verse, <b>does it come to</b> teach <b>this</b> <i>halakha</i>? <b>Isn’t</b> the verse <b>necessary for that which is taught</b> in a <i>baraita</i>: <b>From where</b> is it derived <b>that</b> priests <b>may not receive a share</b> of <b>meal offerings in exchange for</b> a share of animal <b>offerings,</b> i.e., one may not exchange his share of a meal offering for the equivalent value of meat from an animal offering of which he did not receive a share?

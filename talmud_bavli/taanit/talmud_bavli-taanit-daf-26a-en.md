@@ -1,9 +1,8 @@
-
 ### Part 1
 <b>only on a satisfied soul and a full stomach.</b> Consequently, it is preferable to return home to eat and drink so as to recite <i>hallel</i> in the proper frame of mind. The Gemara asks: <b>Is that so? But Rav Pappa happened</b> to come to <b>the synagogue of Avi Govar</b> in Meḥoza, <b>and he decreed a fast, and rain fell for them before midday, and</b> yet <b>he recited <i>hallel</i></b> immediately, <b>and</b> only afterward <b>they ate and drank.</b> The Gemara explains: <b>The inhabitants of</b> the city of <b>Meḥoza are different, as drunkenness is common among them.</b> Had Rav Pappa told them to go home to eat and drink, they would have become drunk and been unable to pray.
 
 ### Part 2
-We will return to you the order of "these fasts".
+end of chapter
 
 ### Part 3
 <strong>MISHNA:</strong> <b>At three times in the year priests raise their hands</b> to recite the Priestly Benediction <b>four times in</b> a single <b>day, in the morning prayer, in the additional prayer, in the afternoon prayer, and</b> in the evening <b>in the closing of the gates,</b> i.e., the <i>ne’ila</i> prayer. And these are the three times: <b>During</b> communal <b>fasts</b> held due to lack of rain, on which the closing prayer is recited; <b>and during non-priestly watches [<i>ma’amadot</i>],</b> when the Israelite members of the guard parallel to the priestly watch come and read the act of Creation from the Torah, as explained below; <b>and on Yom Kippur.</b>
@@ -40,6 +39,3 @@ The mishna resumes its list. <b>On the twentieth of</b> Av, <b>the descendants o
 
 ### Part 14
 The mishna discusses the five major communal fast days. <b>Five</b> calamitous <b>matters occurred to our forefathers on the seventeenth of Tammuz, and five</b> other disasters happened <b>on the Ninth of Av. On the seventeenth of Tammuz</b>
-
->Credit : William Davidson Edition
->License : CC-BY-NC

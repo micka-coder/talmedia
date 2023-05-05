@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>that have a handle may be moved on Shabbat. And Rav Yehuda bar Sheila said</b> that <b>Rav Asi said</b> that <b>Rabbi Yoḥanan said: And that is</b> specifically when <b>the status of a vessel applies to them,</b> i.e., when the cover itself is suited for use as a vessel. This is contrary to the opinion of Rabban Shimon ben Gamliel, who holds that preparation alone is sufficient.
 
@@ -26,5 +25,29 @@ The Gemara answers: <b>Rabbi Yoḥanan holds in accordance with</b> the opinion 
 ### Part 9
 <b>Another version</b> of this statement: <b>When they disagree</b> in the mishna, it is with regard to <b>the cover of an oven; this Sage likens it to a cover for the ground, and this Sage likens it to a cover of a vessel.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> On Shabbat<b>, one</b> may <b>move even four or five baskets of straw and</b> baskets <b>of produce, due to the guests,</b> who require that place to sit<b>, and due to suspension</b> of Torah study in <b>the study hall,</b> where space is required to seat the students<b>. However,</b> one may <b>not</b> move these items to create space in <b>the storeroom.</b>
+
+### Part 12
+<b>One</b> may <b>move ritually pure <i>teruma</i>,</b> although it may only be eaten by a priest; <b>and doubtfully tithed produce</b> [<b><i>demai</i></b>], which may not be eaten until tithes are separated from it due to concern that an <i>am ha’aretz</i> did not separate its tithes; and <b>first tithe whose <i>teruma</i></b> of the tithe <b>has</b> already <b>been taken</b> and given to priests; <b>and second tithe and consecrated items that were redeemed; and</b> even <b>dry lupine,</b> which is not fit for consumption by a person, <b>because it is goat food.</b>
+
+### Part 13
+<b>However,</b> one may <b>neither</b> move <b>untithed produce, nor first tithe whose <i>teruma</i> has not been taken, nor second tithe and consecrated items that were not redeemed, nor</b> raw <b>arum and</b> raw <b>mustard,</b> as all of these items are not fit for consumption and are therefore set aside. <b>Rabban Shimon ben Gamliel permits</b> moving <b>in</b> the case of <b>arum because it is food</b> for <b>ravens.</b>
+
+### Part 14
+With regard to <b>bundles of straw, and bundles of wood, and bundles of twigs, if one prepared them</b> on Shabbat eve <b>for animal food, one may move them. And if not, one may not move them.</b>
+
+### Part 15
+<strong>GEMARA:</strong> The Gemara asks: <b>Now</b> that the mishna stated that <b>one</b> may <b>move five</b> baskets, <b>is</b> mentioning <b>four</b> baskets <b>necessary?</b>
+
+### Part 16
+<b>Rav Ḥisda said:</b> The mishna means that one may move <b>four</b> out <b>of five</b> baskets, but not all of them. <b>Some say:</b> It is permitted to move <b>four</b> baskets <b>from a small storeroom and five</b> baskets <b>from a large storeroom.</b>
+
+### Part 17
+The Gemara asks: <b>And what</b> then is the meaning of: <b>However,</b> one may <b>not</b> move these items to create space in <b>the storeroom?</b> It means that <b>one may not</b> use <b>the storeroom</b> for the <b>first time.</b> If he has never taken supplies from this storeroom, he may not begin moving baskets from it. <b>And whose</b> opinion is cited in this mishna? It is the opinion of <b>Rabbi Yehuda, who is</b> of the opinion that this constitutes a prohibition of <b>set-aside.</b> The contents of a storeroom that was never used are set-aside.
+
+### Part 18
+<b>And Shmuel says:</b> The difficulty in the mishna should be explained as a figure of speech: <b>Four and five,</b>

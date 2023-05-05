@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And that which is taught</b> in the second <i>baraita</i>, that Rabban Gamliel deems a person <b>liable</b> if he wrote two letters over two <i>Shabbatot</i>, can also be explained: It is referring to a case <b>where</b> he acts <b>unwittingly</b> in that he does not know it is <b>Shabbat, and intentionally</b> in that he knows his actions constitute prohibited <b>labors.</b> In such a situation he deems an individual liable despite the fact <b>that</b> different <b><i>Shabbatot</i> are comparable</b> to separate <b>entities, as he holds</b> that although the intervening days are generally considered awareness of his transgression, <b>there is no awareness for a half-measure.</b> Since he performed only half the prohibited labor on the first Shabbat, he is not considered to have become aware of his transgression on the intervening days.
 
@@ -71,5 +70,8 @@ Rabbi Eliezer <b>said to him:</b> The case of <b>one who engages in intercourse 
 ### Part 24
 Rabbi Akiva <b>said to him: No, if you said</b> that one is liable for each one <b>with regard to minors, who</b> are <b>separate entities,</b> shall you also say that he should be liable for each act with regard to one who engages in intercourse five times with his wife while she is menstruating? Rabbi Eliezer <b>said to him:</b> The case of <b>one who copulates with an animal</b> multiple times during a single lapse of awareness <b>will prove</b> that one should be held separately liable for each act, <b>as there are no separate entities, and</b> yet one is <b>liable for each and every</b> act. Rabbi Akiva <b>said to him:</b> The case of <b>the animal is like</b> the case of <b>the menstruating woman,</b> and one is liable to bring only one sin offering.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 25
+end of chapter
+
+### Part 26
+<strong>MISHNA:</strong> If there is <b>uncertainty</b> whether <b>one ate</b> forbidden <b>fat</b> and <b>uncertainty</b> whether <b>one did not eat</b> forbidden <b>fat, or even</b> if <b>one ate</b> forbidden fat and there is <b>uncertainty</b> whether <b>there is the measure</b> that determines liability <b>in</b> the piece he ate <b>and uncertainty</b>

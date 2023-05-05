@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>this</b> outer house <b>becomes a gatehouse to this</b> courtyard, <b>and that</b> outer house <b>becomes a gatehouse to that</b> courtyard, and therefore the residents of the outer houses need not contribute to the <i>eiruv</i>. <b>The middle</b> house between them <b>is the house in which the <i>eiruv</i> is placed,</b> and therefore its residents <b>need not contribute bread</b> for the <i>eiruv</i>.
 
@@ -14,5 +13,38 @@ Raḥava asked: <b>What</b> makes this case <b>different from</b> the ruling of 
 ### Part 5
 The Sages respond: <b>How can</b> these cases <b>be compared? There,</b> where there is <b>uncertainty</b> whether it is <b>day</b> and <b>uncertainty</b> whether it is <b>night, the matter is not noticeable,</b> as no one sees exactly when each <i>eiruv</i> was established. <b>But here,</b> where the houses are clearly distinguishable, <b>if with regard to this</b> one, who placed his <i>eiruv</i> there, it is <b>a house,</b> then <b>with regard to that</b> one, who passed through it, it should also be regarded as <b>a house.</b> And <b>if, with regard to this</b> one, who passed through it, it is <b>a gatehouse,</b> then <b>with regard to that</b> one, who placed his <i>eiruv</i> there, it should <b>also</b> be considered <b>a gatehouse.</b> Therefore, neither of them acquires his <i>eiruv</i>.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> If there is <b>a window</b> in a wall that separates <b>between two courtyards,</b> and the window measures <b>four by four</b> handbreadths and is <b>within ten</b> handbreadths of the ground, the inhabitants of the courtyards <b>establish two <i>eiruvin</i>,</b> one for each courtyard. <b>And if they desire, they</b> may <b>establish one <i>eiruv</i>,</b> thereby merging the two courtyards, as they may be considered as one due to the window.
+
+### Part 8
+However, if the window measures <b>less than four by four</b> handbreadths, or if it is <b>above ten</b> handbreadths from the ground, it is no longer considered a valid opening, and the two courtyards cannot be considered a single courtyard. Therefore, the residents <b>establish two <i>eiruvin</i>, but they</b> may <b>not establish one <i>eiruv</i>.</b>
+
+### Part 9
+<strong>GEMARA:</strong> With regard to the mishna’s determination that the size of the window must be four by four handbreadths, the Gemara asks: <b>Let us say</b> that <b>we learned</b> an <b>unattributed</b> mishna <b>in accordance with</b> the previously cited opinion of <b>Rabban Shimon ben Gamliel, who said: Any</b> gap <b>less than four</b> handbreadths <b>is considered <i>lavud</i>,</b> i.e., two objects are considered connected if the space between them is less than four handbreadths. That would explain why the window must be four handbreadths in size, as otherwise it would be considered as though it were sealed, based on the principle of <i>lavud</i>.
+
+### Part 10
+The Gemara rejects this suggestion: <b>Even if you say</b> that the mishna is <b>in accordance with</b> the opinion of <b>the Rabbis</b> that only gaps of less than three handbreadths are included in the principle of <i>lavud</i>, <b>the Rabbis disagreed with Rabban Shimon ben Gamliel only with regard to</b> the <i>halakhot</i> of <b><i>lavud</i>,</b> i.e., what is considered connected. <b>But with regard to an opening, even the Rabbis agree that if there is</b> an opening of <b>four by four</b> handbreadths, it is <b>significant, and if not, it is not significant.</b>
+
+### Part 11
+It was taught in the mishna: If the window is <b>less than four</b> by four handbreadths, or above ten handbreadths from the ground, the residents of each courtyard must establish a separate <i>eiruv</i>. The Gemara objects: <b>This</b> is <b>obvious. Since</b> the mishna <b>stated</b> in the previous clause that if the window is <b>four by four</b> handbreadths and <b>within ten</b> handbreadths from the ground, they establish one <i>eiruv</i>, <b>from</b> this <i>halakha</i> <b>itself I know</b> that if the window is <b>less than four</b> by four handbreadths <b>or above ten</b> handbreadths, they may <b>not</b> establish one <i>eiruv</i>. Why was it necessary to teach this in the mishna?
+
+### Part 12
+The Gemara answers: It <b>teaches us this</b> matter: <b>The reason</b> is specifically that <b>the entire</b> window is <b>above ten</b> handbreadths; <b>however,</b> if <b>part of it is within ten</b> handbreadths of the ground, <b>they establish two <i>eiruvin</i>, and if they desire, they</b> may <b>establish one <i>eiruv</i>.</b>
+
+### Part 13
+The Gemara comments: According to this explanation, <b>we</b> already <b>learned</b> in the mishna <b>that</b> which <b>the Sages taught</b> in a <i>baraita</i>: If nearly <b>all of</b> the window <b>is above ten</b> handbreadths <b>and</b> only a small <b>part of it is within ten</b> handbreadths, or if nearly <b>all of it is within ten</b> handbreadths <b>and</b> only a small <b>part of it is above ten</b> handbreadths, <b>they establish two <i>eiruvin</i>, and if they desire, they</b> may <b>establish one <i>eiruv</i>.</b>
+
+### Part 14
+The essential meaning of this <i>baraita</i> is clear, but the Gemara raises a question with regard to its formulation: <b>Now,</b> if nearly <b>all of it is above ten</b> handbreadths <b>and</b> only a small <b>part of it is within ten</b> handbreadths, <b>you said</b> that <b>they establish two <i>eiruvin</i>, and if they desire, they</b> may <b>establish one <i>eiruv</i>,</b> i.e., the window has the status of an opening and therefore the two courtyards may establish a joint <i>eiruv</i>, then <b>is it necessary</b> to state the <i>halakha</i> governing the case where almost <b>all of it is within ten and</b> only a small <b>part of it is above ten?</b>
+
+### Part 15
+The Gemara answers that indeed, this <i>baraita</i> <b>teaches</b> employing the style: <b>This, and it is unnecessary to say that,</b> moving from the more difficult and novel case to the easier, more straightforward one.
+
+### Part 16
+<b>Rabbi Yoḥanan said: A circular window must have a circumference of twenty-four handbreadths, with two and a bit of them within ten</b> handbreadths of the ground, <b>so that when he squares</b> the window, i.e., if he forms the shape of a square inside it, it measures four by four handbreadths, and <b>a bit</b> of it <b>is then within ten</b> handbreadths of the ground.
+
+### Part 17
+The Gemara poses a question with regard to this calculation: <b>Now, since</b> there is a general principle that <b>any</b> circle <b>with a circumference of three handbreadths is one handbreadth in diameter,</b> then according to this formula, a window with a circumference <b>of twelve</b> handbreadths, meaning that it has a diameter of four handbreadths, should be <b>sufficient</b> to create a window of four by four.

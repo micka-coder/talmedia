@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>However,</b> if <b>she is rumored</b> to have engaged in intercourse <b>with him, even if she is</b> also <b>rumored</b> to have engaged in intercourse <b>with others, we cast</b> the child <b>after him.</b>
 
@@ -29,5 +28,38 @@ The Gemara asks: <b>But didn’t you</b> already <b>derive</b> from that phrase 
 ### Part 10
 § It was taught in the mishna that even <b>a High Priest sometimes disqualifies</b> his grandmother from partaking of <i>teruma</i>. <b>The Sages taught</b> that she can say in disapproval: <b>I am hereby atonement for my daughter’s son, the small jug [<i>kuza</i>],</b> i.e., the <i>mamzer</i>. He is dear to me and I am willing to suffer to atone for him, <b>as he</b> is my offspring from a priest and therefore <b>enables me to partake of <i>teruma</i>. However, I am not</b> willing to be <b>atonement for my daughter’s son, the large jug [<i>kada</i>],</b> the High Priest, <b>as he</b> is my offspring from an Israelite and therefore <b>disqualifies me from</b> partaking of <b><i>teruma</i>.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> <b>An uncircumcised</b> priest, e.g., one for whom circumcision was considered too dangerous, <b>and all</b> those <b>who are ritually impure</b> with any type of impurity, <b>may not partake of <i>teruma</i>,</b> the portion of produce that must be set aside for the priests. However, <b>their wives and their slaves may partake of <i>teruma</i>.</b>
+
+### Part 13
+With regard to both <b>a man with crushed testicles</b> or with other wounds to his genitals <b>[<i>petzua dakka</i>] and one whose penis has been severed [<i>kerut shofkha</i>],</b> it is prohibited for them to marry a woman who was born Jewish. If they are priests <b>they and their slaves may partake</b> of <i>teruma</i>, as this condition does not disqualify them or their property. However, <b>their wives may not partake</b> of <i>teruma</i>, because if a priest has relations with his wife after suffering his injury, he renders her a <i>ḥalala</i>, a woman who is disqualified from marrying a priest, as he has engaged in forbidden sexual relations with her. <b>If</b> such a priest <b>did not know</b> his wife, i.e., did not engage in sexual relations with her, <b>after his testicles were crushed or his penis was severed, she may partake</b> of <i>teruma</i>, as she had married the priest in a permitted manner.
+
+### Part 14
+<b>And who is</b> deemed <b>a man with crushed testicles?</b> It is <b>anyone whose testicles have been wounded, even one of them. And one whose penis has been severed</b> is <b>anyone whose</b> sexual <b>member has been cut off.</b> As for the measure that renders him unfit, <b>if there remains</b> a portion <b>of the corona, even</b> as much <b>as a hairsbreadth,</b> he is still <b>fit.</b> However, if nothing at all is left of the corona, he is considered as one with a severed penis, for whom it is prohibited by Torah law to marry a Jewish woman.
+
+### Part 15
+<strong>GEMARA:</strong> <b>It is taught</b> in a <i>baraita</i> that <b>Rabbi Elazar said: From where</b> is it derived <b>that an uncircumcised</b> priest <b>may not partake of <i>teruma</i>? It is stated: “A sojourner and a hired servant</b> shall not eat thereof” (Exodus 12:45) <b>with regard to the Paschal lamb, and it is stated: “A sojourner</b> of a priest <b>and a hired servant</b> shall not eat of the holy thing” (Leviticus 22:10) <b>with regard to <i>teruma</i>. Just as “a sojourner and a hired servant” stated with regard to the Paschal lamb</b> indicates that <b>an uncircumcised</b> man <b>is prohibited</b> from eating <b>it, so too, “a sojourner and a hired servant” stated with regard to <i>teruma</i></b> teaches that <b>an uncircumcised</b> man <b>is prohibited</b> from eating <b>it.</b>
+
+### Part 16
+<b>Rabbi Akiva says:</b> This proof <b>is not necessary, as</b> the verse <b>states: “Any man [<i>ish ish</i>]</b> from the seed of Aaron who is a leper or a <i>zav</i> shall not eat of the holy things until he be pure” (Leviticus 22:4). The repetition of the word <i>ish</i>, meaning man, comes <b>to include an uncircumcised</b> man, indicating that he is like one who is ritually impure and therefore may not partake of consecrated food.
+
+### Part 17
+The Gemara analyzes this <i>baraita</i> in detail. <b>The Master said: Rabbi Eliezer says</b> that <b>it is stated: “A sojourner and a hired servant” with regard to the Paschal lamb, and it is stated: “A sojourner and a hired servant” with regard to <i>teruma</i>. Just as “a sojourner and a hired servant” stated with regard to the Paschal lamb</b> indicates that <b>an uncircumcised</b> man <b>is prohibited</b> from eating <b>it, so too, “a sojourner and a hired servant” stated with regard to <i>teruma</i></b> teaches that <b>an uncircumcised</b> man <b>is prohibited</b> from eating <b>it.</b>
+
+### Part 18
+With regard to this verbal analogy the Gemara comments: The phrase “a sojourner and a hired servant” must be <b>available,</b> i.e., superfluous in its context and therefore available for the purpose of establishing a verbal analogy. <b>As, if it is not available,</b> the verbal analogy <b>can be refuted</b> logically, as it is possible to say: <b>What</b> is unique <b>to the Paschal lamb?</b> It is <b>that one is liable</b> to receive <i>karet</i> <b>for</b> eating <b>it due to</b> its being <b><i>piggul</i>,</b> an offering that was sacrificed with the intent to consume it after its appointed time, or due to its being <b><i>notar</i>,</b> the flesh of an offering that is left over beyond its allotted time, <b>or</b> due to the one consuming it being <b>ritually impure.</b> Therefore, it could be argued that it is owing to the Paschal lamb’s special sanctity and severity that an uncircumcised man may not partake of it. But from where is it derived that an uncircumcised priest may not eat <i>teruma</i>? The Gemara concludes: This is <b>not so [<i>la’ei</i>],</b> as the phrase <b>is</b> in fact <b>available</b> for establishing the verbal analogy.
+
+### Part 19
+The Gemara asks: <b>Which</b> of the instances of the phrase “a sojourner and a hired servant” <b>is</b> not needed in its own context and is therefore <b>available</b> for establishing a verbal analogy? <b>If</b> one would claim that it is that which is stated with regard to <b><i>teruma</i>,</b> certainly those words <b>are necessary, as it is taught</b> in a <i>baraita</i>: <b>“A sojourner”; this</b> is referring to a Hebrew slave who was <b>acquired as a permanent acquisition</b> until the Jubilee Year, i.e., a slave who did not wish to terminate his servitude and underwent a ceremony in which his ear was pierced with an awl. <b>“A hired servant”; this</b> is referring to a Hebrew slave who was <b>acquired as an acquisition for</b> a period of six <b>years.</b>
+
+### Part 20
+The <i>baraita</i> asks: <b>And let</b> the verse <b>state</b> only that <b>“a sojourner”</b> may not eat <i>teruma</i>, <b>and not state</b> anything about <b>“a hired servant,” and I</b> would <b>say</b> by way of an <i>a fortiori</i> inference: If a slave who was <b>acquired as a permanent acquisition may not partake</b> of <i>teruma</i>, then with regard to one who was <b>acquired as an acquisition for</b> only six <b>years, all the more so</b> is it <b>not</b> clear that he should be prohibited from eating it?
+
+### Part 21
+The <i>baraita</i> answers: <b>If it was</b> written <b>so, I would have said</b> with regard to <b>“a sojourner”</b> that <b>this</b> is referring to a slave who was <b>acquired as an acquisition for</b> a period of six <b>years,</b> as he may not eat <i>teruma</i>; <b>but</b> one who was <b>acquired as a permanent acquisition may</b> in fact <b>partake</b> of <i>teruma</i>. Therefore, the term <b>“a hired servant” comes and teaches</b> that <b>“a sojourner”</b> is referring to a slave who had his ear pierced and must now remain with his master until the Jubilee Year, and <b>that although he was acquired as a permanent acquisition,</b> he <b>may not partake</b> of <i>teruma</i>.
+
+### Part 22
+The Gemara proposes: <b>Rather,</b> it is the phrase with regard to <b>the Paschal lamb</b> that <b>is available</b> for establishing a verbal analogy. <b>This</b> phrase: <b>“A sojourner and a hired servant,” that the Merciful One writes with regard to the Paschal lamb,</b> to <b>what is it</b> referring? <b>If we say</b> that the verse is referring to <b>an actual sojourner and</b> to <b>a hired servant,</b> i.e., a Hebrew slave who was acquired permanently or for a fixed number of years, can it possibly be that <b>because he is a sojourner or a hired servant he is exempt from</b> the mitzva of <b>the Paschal lamb?</b> If one answers in the affirmative and argues that a Hebrew slave, like his Canaanite counterpart, is considered his master’s property and is therefore no longer obligated in all the mitzvot like a freeman, this conclusion is difficult, <b>as we maintain with regard to <i>teruma</i> that</b> a Hebrew slave <b>may not partake</b> of it on account of his priestly master.

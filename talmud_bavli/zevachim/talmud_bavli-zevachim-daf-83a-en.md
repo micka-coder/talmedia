@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>and</b> then <b>brought out</b> the blood <b>to the</b> golden <b>altar</b> in the Sanctuary and sprinkled the blood there, as required (see Leviticus 16:18), <b>but</b> subsequently <b>brought</b> the remainder of the blood <b>in</b> toward the Curtain dividing the Sanctuary from the Holy of Holies, <b>what is</b> the <i>halakha</i>?
 
@@ -38,5 +37,20 @@ The <i>baraita</i> answers <b>that</b> if the term “sin offering” had appear
 ### Part 13
 The Gemara notes: <b>And Rabbi Yehuda does not learn</b> anything from the term <b>“to atone.” What is the reason</b> for this? Is it <b>not because he requires</b> this phrase <b>for a verbal analogy,</b> to derive that the blood of an external sin offering that was taken inside the Sanctuary is disqualified only if the priest sprinkled it, in accordance with the opinion of Rabbi Shimon? This answers the Gemara’s question, as Rabbi Yehuda evidently follows the opinion of Rabbi Shimon.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> Certain unfit items, once they have been placed on the altar, are nevertheless sacrificed. The mishna teaches: <b>The altar sanctifies</b> only items <b>that are suited to it.</b> The <i>tanna’im</i> disagree as to the definition of suited for the altar.
+
+### Part 16
+<b>Rabbi Yehoshua says: Any</b> item <b>that is suited to</b> be consumed by <b>the fire</b> on the altar, e.g., burnt offerings and the sacrificial portions of other offerings, which are burned on the altar, <b>if it ascended</b> upon the altar, even if it is disqualified from being sacrificed <i>ab initio</i>, <b>it shall not descend.</b> Since it was sanctified by its ascent upon the altar, it is sacrificed upon it, <b>as it is stated: “It is the burnt offering on the pyre</b> upon the altar” (Leviticus 6:2), from which it is derived: <b>Just as</b> with regard to <b>a burnt offering, which is suited to</b> be consumed by <b>the fire</b> on the altar, <b>if it ascended it shall not descend, so too,</b> with regard to <b>any</b> item <b>that is suited to</b> be consumed by <b>the fire</b> on the altar, <b>if it ascended it shall not descend.</b>
+
+### Part 17
+<b>Rabban Gamliel says:</b> With regard to <b>any</b> item <b>that is suited to</b> ascend upon <b>the altar,</b> even if it is not typically consumed, <b>if it ascended, it shall not descend,</b> even if it is disqualified from being sacrificed <i>ab initio</i>, <b>as it is stated: “It is the burnt offering on the pyre upon the altar,”</b> from which it is derived: <b>Just as</b> with regard to <b>a burnt offering, which is fit for the altar, if it ascended it shall not descend, so too, any</b> item <b>that is fit for the altar, if it ascended it shall not descend.</b>
+
+### Part 18
+The mishna comments: <b>The difference between the statement of Rabban Gamliel and the statement of Rabbi Yehoshua is only</b> with regard to disqualified <b>blood and</b> disqualified <b>libations,</b> which are not consumed by the fire but do ascend upon the altar, <b>as Rabban Gamliel says: They shall not descend,</b> as they are fit to ascend upon the altar, <b>and Rabbi Yehoshua says: They shall descend,</b> as they are not burned on the altar.
+
+### Part 19
+<b>Rabbi Shimon says:</b> Whether <b>the offering was fit and</b> the accompanying <b>libations</b> were <b>unfit,</b> e.g., if they became ritually impure or they were brought outside their designated area, or whether <b>the libations</b> were <b>fit and the offering</b> was <b>unfit,</b> rendering the accompanying libations unfit as well, and <b>even</b> if both <b>this and that were unfit, the offering shall not descend,</b> as it was sanctified by the altar, <b>but the libations shall descend.</b>

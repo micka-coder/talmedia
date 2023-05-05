@@ -1,4 +1,3 @@
-
 ### Part 1
 If <b>he gave</b> the stone or the beam <b>to another, he is liable for</b> its <b>misuse and the other</b> person <b>is not liable for</b> its <b>misuse.</b> If <b>he built</b> the stone or the beam <b>into his house, he is not liable for</b> its <b>misuse until he resides beneath it</b> and derives benefit equal to <b>the value of one <i>peruta</i></b> from it.
 
@@ -29,5 +28,11 @@ In light of Reish Lakish’s interpretation, the Gemara objects: <b>But</b> if <
 ### Part 10
 The Gemara explains: One can <b>say</b> that although the <i>tanna</i> could have taught the case of the built house instead of a cave, he preferred to mention a cave, as <b>this</b> case of the cave is <b>conclusive for him.</b> Under all circumstances, one who lives in a consecrated cave is exempt from misuse, because the cave was always attached to the ground. By contrast, <b>that</b> case of the built house is <b>not conclusive for him,</b> as a consecrated house is not always exempt from misuse. If the house is built from previously consecrated materials, one who lives within it is liable for misuse.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> With regard to <b>an agent who performed his agency</b> properly, if he was tasked to make use of a particular item, and the one who appointed him forgot that it was a consecrated item, <b>the homeowner,</b> who appointed him, <b>is liable for misuse</b> of the consecrated item, as the agent acted on his behalf. Contrary to other cases of agency, where the guiding principle is that there is no agency in the performance of a transgression, and the agent is liable, in this case there is agency, and the homeowner is liable for the action of the agent. But if he <b>did not perform his agency</b> properly, <b>the agent is liable for misuse</b> of the consecrated item, as once the agent deviates from his agency, he ceases to be an agent, and his actions are attributable to him.
+
+### Part 13
+<b>How so?</b> If the homeowner <b>said to</b> the agent: <b>Give meat to the guests, and he gave them liver;</b> or if he said: Give them <b>liver, and he gave them meat, the agent is liable for misuse</b> of the consecrated item, as he deviated from his agency. If the homeowner <b>said to</b> the agent: <b>Give them</b> meat, <b>a piece</b> for this guest and <b>a piece</b> for that guest, <b>and</b> the agent <b>says:</b> Each of you <b>take two</b> pieces, <b>and</b> each of the guests <b>took three</b> pieces, <b>all of them are liable for misuse.</b> The homeowner is liable for their consumption of the first piece of meat, as with regard to that piece his instructions were fulfilled. The agent is liable for the second piece, which he added to the instructions of the homeowner. Finally, the guests are liable for the third piece, which they took at their own initiative beyond the instructions of the agent.

@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>GEMARA:</strong> The mishna teaches that one is liable for the prohibition of <i>notar</i> and the prohibition of eating an item while ritually impure, both with regard to items that have permitting factors and items that do not have permitting factors. The Gemara asks: <b>From where are these matters</b> derived? The Gemara answers that this is <b>as the Sages taught</b> in a <i>baraita</i>: One <b>might</b> have thought that one is <b>liable due to</b> partaking of sacrificial food in a state of <b>ritual impurity only with regard to an item that has permitting factors.</b>
 
@@ -14,5 +13,11 @@ Therefore, <b>the verse states: “Say to them: Anyone of all your seed througho
 ### Part 5
 The <i>baraita</i> explains that <b>Rabbi Elazar said: But is there</b> a case of one who <b>touches</b> an item <b>who is liable?</b> Rather, <b>how</b> is <b>this</b> possible? The answer is that the phrase “approaches [<i>yikrav</i>] the sacred items” can also be understood as: The sacred items that are fit to be sacrificed [<i>yikarev</i>], and therefore with regard to <b>any item that has permitting factors,</b> one is <b>not liable until the permitting factors</b> have been <b>sacrificed. And</b> in the case of <b>any item that does not have permitting factors,</b> one is <b>not liable until it is sanctified in</b> a service <b>vessel.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> This mishna, which also appears in tractate <i>Temura</i>, deals with the five sin offerings left to die. It is cited here because of its relevance to the <i>halakhot</i> of misuse. The mishna first mentions three of those offerings: <b>The offspring of a sin offering, and</b> an animal that is <b>the substitute for a sin offering,</b> whether or not the owners achieved atonement by means of another offering, <b>and a sin offering whose owners have died</b> before the offering was sacrificed, <b>shall die.</b>
+
+### Part 8
+<b>And</b> the other two sin offerings left to die are the sin offering <b>whose year</b> since birth <b>passed</b> and is therefore unfit for sacrifice, <b>and</b> a sin offering <b>that was lost and</b> when it was <b>found</b> it was <b>blemished,</b> with regard to which the <i>halakhot</i> are as follows: <b>If</b> the sin offering was found <b>after the owner achieved atonement</b> through the sacrifice of another animal as a sin offering, then the blemished animal <b>shall die, and it does not render</b> a non-sacred animal exchanged for it <b>a substitute,</b> as it is has neither inherent sanctity, which would make it fit for sacrifice on the altar, nor sanctity that inheres in its value. <b>And</b> one <b>may not derive benefit</b> from the found animal <i>ab initio</i>, <b>but</b> if he derived benefit from the animal he is <b>not</b> liable for its <b>misuse.</b>

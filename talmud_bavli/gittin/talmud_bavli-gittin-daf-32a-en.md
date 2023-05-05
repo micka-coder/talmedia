@@ -1,6 +1,35 @@
-
 ### Part 1
 <b>the handle in the hole [<i>kofina</i>] of the hoe [<i>mara</i>] becomes loose [<i>rafya</i>],</b> as he understands the word <i>yafri</i> to refer to separating connected items. Similarly, <b>Rav Yosef said: Even the peg</b> hammered <b>into the wall becomes loose. Rav Aḥa bar Ya’akov said: Even the reed</b> woven <b>into the basket becomes loose.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 2
+end of chapter
+
+### Part 3
+<strong>MISHNA:</strong> In the case of <b>one who sends a bill of divorce to his wife</b> with an agent, <b>and he reached the agent, or where he sent</b> another <b>agent after him, and he said to</b> the agent delivering the bill of divorce: <b>The bill of divorce that I gave you, it is void,</b> then <b>this</b> bill of divorce <b>is hereby void.</b> Similarly, if the husband reached <b>his wife before</b> the bill of divorce reached her, <b>or</b> in a case <b>where he sent an agent to her, and he said,</b> or had the agent say, <b>to</b> his wife: <b>The bill of divorce that I sent to you, it is void,</b> then <b>this</b> bill of divorce <b>is hereby void.</b> However, <b>if</b> he stated this <b>once the bill of divorce had entered her possession, he can no longer render it void,</b> as the divorce had already taken effect.
+
+### Part 4
+The mishna relates that <b>initially,</b> a husband who wished to render the bill of divorce void <b>would convene a court elsewhere and render</b> the bill of divorce <b>void</b> in the presence of the court before it reached his wife. <b>Rabban Gamliel the Elder instituted</b> an ordinance <b>that one should not do this, for the betterment of the world.</b> The Gemara will explain what this means.
+
+### Part 5
+<strong>GEMARA:</strong> The mishna states that if one sends a bill of divorce with an agent and then meets the agent and renders void the bill of divorce in his presence, then it is void. The Gemara points out: The mishna <b>does not teach: He reached</b> the agent after pursuing <b>him; rather: He reached</b> the agent, meaning <b>and even</b> if he reached him <b>incidentally,</b> without intent, he renders the bill of divorce void with his statement. <b>And we do not say</b> that in that case <b>he intends</b> only <b>to vex</b> his wife and does not actually intend to render the bill of divorce void.
+
+### Part 6
+The Gemara asks: <b>Why do I</b> need the mishna to state that the bill of divorce is void when he reached the agent, <b>or</b> in a case <b>where he sent</b> another <b>agent after him?</b> The legal status of a person’s agent is like that of himself, so it seems obvious that just as the husband can nullify the agency of the first agent, so too, can the second agent nullify the agency of the first agent. The Gemara answers: This principle was stated <b>lest you say</b> that <b>the agency of the latter,</b> the second agent, <b>is not stronger than the agency of the former,</b> and <b>that</b> the latter agent cannot <b>nullify</b> the agency of the first agent and only the husband can nullify it. Therefore, the mishna <b>teaches us</b> that the second agent can nullify the agency of the first agent.
+
+### Part 7
+The Gemara continues and asks: <b>Why do I</b> need the mishna to teach a case where a husband reached <b>his wife before</b> the bill of divorce reached her? It is obvious that a husband can render void the bill of divorce before it reaches his wife. The Gemara explains: This principle was stated <b>lest you say</b> that <b>when we don’t say</b> that he <b>intends</b> only <b>to vex her</b> like in the case above, and the bill of divorce is in fact void, <b>this matter applies</b> only when he said <b>to the agent</b> that the bill of divorce is void; <b>however,</b> if he said that <b>to her, he certainly intends</b> only <b>to vex her,</b> and he does not actually intend to render the bill of divorce void. Therefore, the mishna <b>teaches us</b> that even in this case the bill of divorce is void.
+
+### Part 8
+The Gemara continues and asks: <b>Why do I</b> need the mishna to state: <b>Or where he sent an agent to her,</b> which, as stated above, means that the legal status of a person’s agent is like that of himself? The Gemara answers: It is necessary <b>lest you say</b> that only <b>he would not exert</b> himself <b>with the</b> sole <b>intent to vex her,</b> by informing her falsely that the bill of divorce is void; <b>however,</b> with regard to the <b>agent, as</b> the husband <b>does not care</b> if <b>he exerts</b> himself for no reason, and the husband <b>certainly intends</b> only <b>to vex her</b> when he sends an agent and not actually to render the bill of divorce void. Therefore, the mishna <b>teaches us</b> that in this case as well the bill of divorce is void.
+
+### Part 9
+The mishna states further: <b>If</b> he stated this <b>once the bill of divorce had entered her possession, he can no longer render it void,</b> as the divorce had already taken effect. The Gemara asks: <b>Isn’t</b> this <b>obvious?</b> Once the bill of divorce has entered her possession, they are divorced. The Gemara answers: <b>No,</b> it is <b>necessary</b> for the mishna to state that even in a case <b>where he was going around searching for</b> the bill of divorce <b>from the beginning</b> in order <b>to render it void</b> before it reached his wife, once it enters her possession it is too late. <b>Lest you say:</b> Once he renders the bill of divorce void, even after it had entered her possession, <b>it has become clear retroactively that he rendered it void</b> from the beginning, before it reached his wife, therefore the mishna <b>teaches us</b> that since the bill of divorce was rendered void only after it had entered her possession, they are divorced.
+
+### Part 10
+§ <b>The Sages taught:</b> If a husband made one of the following statements with regard to a bill of divorce that he sent: <b>It is void [<i>batel hu</i>],</b> or: <b>I do not desire it,</b> then <b>his statement takes effect</b> and the bill of divorce is void. However, if he said: <b>It is invalid,</b> or: <b>It is not a bill of divorce,</b> then it is as though <b>he said nothing,</b> as the bill of divorce has nothing disqualifying it.
+
+### Part 11
+The Gemara asks: <b>Is this to say that</b> the formulation: <b><i>Batel</i>, is a</b> prescriptive <b>formulation that means: Let it become void,</b> and not a descriptive formulation that means that the bill of divorce is already void? <b>But didn’t Rabba bar Aivu say</b> that <b>Rav Sheshet said, and some say</b> that <b>Rabba bar Avuh says:</b> With regard to <b>one who receives a gift, who, after the gift had entered his possession, said: This gift is rendered void;</b> or if he said: <b>Let it become void;</b> or if he said: <b>I do not desire it,</b> it is as though <b>he said nothing.</b> He has already acquired the gift, and he cannot undo his acquisition. However, if he said: <b>It is void [<i>betela he</i>],</b> or: <b>It is not a gift, his statement is effective,</b> as these formulations indicate that he had never agreed to acquire the gift in the first place. <b>Apparently,</b> the formulation: <b><i>Batel</i>, means</b> that it is void <b>from the beginning,</b> and not that it should become void, in opposition to the <i>baraita</i>.
+
+### Part 12
+<b>Abaye said:</b> The formulation: <b><i>Batel</i>,</b>

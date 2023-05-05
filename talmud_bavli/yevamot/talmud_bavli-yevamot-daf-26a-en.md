@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>we do not remove her</b> from her husband owing to suspicion <b>due to rumor</b> alone. <b>Here too, we do not remove her</b> from her husband <b>due to a rumor.</b>
 
@@ -38,5 +37,35 @@ The Gemara answers: There is a distinction between the situations, for <b>it is 
 ### Part 13
 The Gemara asks: <b>If so, one’s father</b> should be permitted to marry a woman set free by his son <b>as well.</b> So why does the mishna say: Their sons or their brothers, and not: Their fathers? The Gemara answers: Certainly his father is allowed as well, but the mishna <b>is speaking</b> utilizing the style of: <b>It is not necessary. It is not necessary</b> to mention the case of <b>his father</b> because he is most certainly permitted to marry a woman set free by his son, <b>as his son is embarrassed [<i>baziz</i>] before him</b> and so would not come to sleep with his father’s wife. <b>But I might say that</b> since <b>the father is not embarrassed before his son,</b> she <b>may not</b> be married to the son of one for whom there is suspicion. Therefore, <b>this comes to teach us</b> that there is no such concern.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> In the case of <b>four brothers, two of whom were married to two sisters, and the ones married to the sisters died, then those</b> sisters must <b>perform <i>ḥalitza</i> and may not enter into levirate marriage.</b> Since both sisters require levirate marriage with each of the surviving brothers, a levirate bond exists between each sister and the brothers. Each of them is considered the sister of a woman with whom each brother has a levirate bond and is therefore forbidden to him by rabbinic law. <b>And if they married</b> the sisters <b>before</b> consulting the court, <b>they should divorce</b> them, for the Sages decreed that in this situation they may not remain married. <b>Rabbi Eliezer says</b> that there is a dispute in this matter: <b>Beit Shammai say: He may maintain</b> her as his wife, <b>while Beit Hillel say: They</b> must <b>divorce</b> them.
+
+### Part 16
+If <b>one of</b> the sisters <b>was forbidden to one</b> of the brothers due to <b>a prohibition against forbidden relations</b> because she was a relative of his wife or a relative on his mother’s side, then <b>he is forbidden to</b> marry <b>her but permitted to</b> marry <b>her sister.</b> Because she is his close relative, she is exempt from levirate marriage with him, and therefore she is not bound to him with a levirate bond. Consequently, her sister is not considered the sister of a woman with whom he has a levirate bond, and he is permitted to enter into levirate marriage with her. But <b>the second</b> brother, who is not a close relative of either sister, <b>is forbidden to</b> marry <b>both of them.</b> Indeed, for him each woman remains the sister of a woman with whom he has a levirate bond.
+
+### Part 17
+If <b>a prohibition</b> resulting from <b>a mitzva</b> or <b>a prohibition</b> stemming from <b>sanctity</b> will be transgressed when one of the women marries one of the brothers, then her sister must <b>perform <i>ḥalitza</i> and may not enter into levirate marriage,</b> as she is considered the sister of a woman with whom he has a levirate bond. In this case, the sister who is forbidden to the brother due to a mitzva or due to sanctity is bound to the brother for the purpose of <i>ḥalitza</i>.
+
+### Part 18
+If <b>one of those</b> women <b>was forbidden to this</b> one brother due to <b>a prohibition against forbidden relations and the second</b> woman <b>was forbidden to that</b> second brother due to <b>a prohibition against forbidden relations,</b> then <b>she who is forbidden to this</b> brother <b>is permitted to that</b> brother, <b>and she who is forbidden to that</b> brother <b>is permitted to this</b> one.
+
+### Part 19
+<b>And this is</b> the case that was referred to when <b>they said: When her sister is</b> also <b>her <i>yevama</i>,</b> i.e., in a case where two sisters are also <i>yevamot</i> and therefore happened for levirate marriage before two brothers, <b>she either performs <i>ḥalitza</i> or enters into levirate marriage.</b> This must be referring to a case where each sister is forbidden to one of the brothers due to a prohibition concerning forbidden relatives. In this case, each sister has a levirate bond only with the one brother to whom she is permitted, and the prohibition against marrying the sister of a woman with whom one has a levirate bond does not apply. Therefore, each brother can either perform the act of <i>ḥalitza</i> or consummate the levirate marriage with the sister to whom he is not related.
+
+### Part 20
+<strong>GEMARA:</strong> The Gemara deduces from the <i>halakha</i> cited in the mishna: <b>Conclude from here</b> that the <b>levirate bond is substantial.</b> That is, the very obligation of levirate marriage creates a bond that is similar to marriage. <b>For if the levirate bond were not substantial,</b> why would these two women not enter into levirate marriage? <b>After all, these</b> two women <b>come from two households,</b> as each had a different husband, and they both require levirate marriage. <b>Let this</b> brother <b>consummate the levirate marriage with one</b> sister <b>and let that</b> brother <b>consummate the levirate marriage with</b> the <b>other</b> sister. The fact that the mishna requires <i>ḥalitza</i> in this situation indicates that the levirate bond is substantial and resembles marriage to the extent that each sister is forbidden to each brother due to the prohibition against marrying the sister of a woman to whom one has a levirate bond.
+
+### Part 21
+The Gemara rejects this: <b>Actually, I</b> could <b>say to you</b> that according to this <i>tanna</i> <b>the levirate bond is not substantial,</b> and yet they are prohibited from entering levirate marriage for a different reason. It is <b>because</b> the <i>tanna</i> <b>holds that it is prohibited to negate the mitzva of levirate marriage.</b> It is prohibited to act in a way that would lead to a situation where the mitzva to perform levirate marriage is negated. How would this situation arise? <b>Perhaps before one</b> brother <b>consummates the levirate marriage, the other</b> brother <b>dies,</b> and only one brother remains. In that case, the second sister would also happen before him for levirate marriage, <b>and</b> by performing levirate marriage with one sister <b>he would</b> thereby <b>negate the mitzva of levirate marriage</b> with the other sister. When the remaining brother marries one of the sisters, the mitzva to enter into levirate marriage or perform <i>ḥalitza</i> is automatically negated from the second sister, as she is then forbidden to him as his wife’s sister.
+
+### Part 22
+The Gemara asks: <b>If so,</b> if this is the rationale behind the ruling in the mishna, then the same concern would exist if there were <b>three</b> brothers, <b>as well.</b> Why did the mishna specify four brothers? It could have cited the case of three brothers, two of whom were married to two sisters. In these circumstances, the concern for negating the mitzva of levirate marriage also exists.
+
+### Part 23
+The Gemara answers: Indeed, the ruling would be the same in that case. However, the mishna <b>is speaking</b> utilizing the style of: <b>It is not necessary. It is not necessary</b> to specify that the women must perform <i>ḥalitza</i> in a case involving <b>three</b> brothers, <b>as certainly the mitzva of levirate marriage is negated</b> with one of the sisters when the <i>yavam</i> marries the other sister. <b>But</b> in the case of <b>four</b> brothers, where there is concern only over the possibility that one of the brothers might die, we might have said that <b>we are not concerned over</b> the possibility of <b>the death</b> of a brother and therefore allow the brothers to consummate the levirate marriage. The mishna therefore <b>teaches us</b> that even in the case where there is concern only for the negation of the mitzva, they must perform <i>ḥalitza</i> and not consummate the levirate marriage.
+
+### Part 24
+The Gemara asks: <b>If so,</b> i.e., if we are concerned over the possibility that the remaining brother might die,

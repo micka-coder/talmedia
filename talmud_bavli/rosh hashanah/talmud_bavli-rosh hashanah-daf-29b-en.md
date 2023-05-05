@@ -1,4 +1,3 @@
-
 ### Part 1
 With regard to <b>the blessing over bread</b> that is recited before eating <b><i>matza</i></b> at the Passover seder <b>and the blessing over wine</b> recited as part <b>of the sanctification of the day</b> of Shabbat or a Festival, <b>what is</b> the <i>halakha</i>? The Gemara analyzes the question: Do we say that <b>since there is an obligation</b> to recite these blessings due to the mitzva involved, therefore <b>one can discharge</b> the obligation for others, even if he himself has already fulfilled his obligation? <b>Or perhaps</b> we say that <b>the blessing</b> itself <b>is not an obligation,</b> but rather the obligation lies in the eating and drinking, and the blessing is recited over one’s physical enjoyment; therefore, if he already fulfilled his own obligation, he cannot recite the blessing for others, as he derives no pleasure at this time.
 
@@ -8,5 +7,41 @@ The Gemara answers: <b>Come</b> and <b>hear</b> an answer to this question from 
 ### Part 3
 <b>The Sages taught</b> in a <i>baraita</i>: <b>One should not break bread</b> and recite a blessing <b>for guests unless he is eating with them,</b> so that he is obligated to recite a blessing for himself. <b>But he may break</b> bread <b>for his children and for</b> the other <b>members of his household</b> and recite the blessing, <b>in order to educate them to</b> perform <b>the mitzvot,</b> so that they know how to recite a blessing. <b>And with regard to <i>hallel</i> and the Scroll</b> of Esther, the <i>halakha</i> is that <b>even if he</b> already <b>fulfilled</b> his obligation, <b>he can</b> still <b>discharge</b> the obligation of others.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> With regard to the <b>Festival day of Rosh HaShana that occurs on Shabbat, in the Temple they would sound</b> the <i>shofar</i> as usual. <b>However,</b> they would <b>not</b> sound it <b>in the</b> rest of the <b>country</b> outside the Temple. <b>After the Temple was destroyed, Rabban Yoḥanan ben Zakkai instituted that</b> the people <b>should sound</b> the <i>shofar</i> on Shabbat <b>in every place where there is a court</b> of twenty-three judges. <b>Rabbi Elazar said: Rabban Yoḥanan ben Zakkai instituted</b> this practice <b>only in Yavne,</b> where the Great Sanhedrin of seventy-one judges resided in his time, but nowhere else. <b>They said to him:</b> He instituted the practice <b>both</b> in <b>Yavne and</b> in <b>any place where there is a court.</b>
+
+### Part 6
+The mishna adds: <b>And Jerusalem</b> in earlier times <b>had this additional superiority over Yavne</b> after Rabban Yoḥanan ben Zakkai instituted this practice, <b>for</b> in <b>any city whose</b> residents <b>could see</b> Jerusalem <b>and hear</b> the sounding of the <i>shofar</i> from there, <b>and</b> which <b>was near</b> to Jerusalem <b>and</b> people <b>could come</b> to Jerusalem from there, <b>they</b> would <b>sound</b> the <i>shofar</i> there as well, as it was considered part of Jerusalem. <b>But in Yavne they would sound</b> the <i>shofar</i> <b>only in the court</b> itself, not in the surrounding cities.
+
+### Part 7
+<strong>GEMARA:</strong> The Gemara asks: <b>From where</b> are <b>these matters;</b> from where is it derived that the <i>shofar</i> is not sounded on Shabbat? <b>Rabbi Levi bar Laḥma said</b> that <b>Rabbi Ḥama bar Ḥanina said: One verse says,</b> with regard to Rosh HaShana: <b>“A solemn rest, a memorial of blasts”</b> (Leviticus 23:24), which indicates that one should merely remember the <i>shofar</i> without actually sounding it. <b>And another verse says: “It is a day of blowing for you”</b> (Numbers 29:1), i.e., a day on which one must actually sound the <i>shofar</i>. This apparent contradiction is <b>not difficult: Here,</b> the verse in which the <i>shofar</i> is only being remembered but not sounded, is referring <b>to a Festival that occurs on Shabbat; there,</b> the verse in which the <i>shofar</i> is actually sounded, is referring <b>to a Festival that occurs on a weekday.</b>
+
+### Part 8
+<b>Rava said:</b> This explanation is difficult, for <b>if</b> the distinction between Shabbat and the rest of the week applies <b>by Torah law, how does one sound</b> the <i>shofar</i> on Shabbat <b>in the Temple?</b> If it is prohibited to sound the <i>shofar</i> on Shabbat, it should be prohibited everywhere. <b>And furthermore,</b> there is an additional problem with this explanation: Although the Sages prohibited sounding a <i>shofar</i> and playing other musical instruments on Shabbat, by Torah law sounding a <i>shofar</i> <b>is not a prohibited labor</b> on Shabbat such <b>that a verse is necessary to exclude</b> it when Rosh HaShana occurs on Shabbat.
+
+### Part 9
+The Gemara cites a proof for this last claim: <b>As</b> a Sage <b>of the school of Shmuel taught</b> in a <i>baraita</i>, with regard to the verse that prohibits performing prohibited labor on Festivals: <b>“Any prohibited labor of work you shall not perform”</b> (Numbers 29:1). This comes <b>to exclude</b> from the category of prohibited labors <b>the sounding of the <i>shofar</i> and the removal of bread</b> from the oven, each of <b>which is a skill and not a labor,</b> and therefore they are not included in the category of prohibited labor. Apparently, sounding the <i>shofar</i> is not prohibited by Torah law.
+
+### Part 10
+<b>Rather, Rava said: By Torah law one is permitted</b> to sound the <i>shofar</i> on Rosh HaShana even on Shabbat, <b>and it was the Sages who decreed</b> that <b>it</b> is prohibited. This is <b>in accordance with</b> the opinion of <b>Rabba, as Rabba said: All are obligated to sound the <i>shofar</i></b> on Rosh HaShana, <b>but not all are experts in sounding the <i>shofar</i>.</b> Therefore, the Sages instituted <b>a decree</b> that the <i>shofar</i> should not be sounded on Shabbat, <b>lest one take</b> the <i>shofar</i> <b>in his hand and go to an expert to learn</b> how to sound it or to have him sound it for him, <b>and</b> due to his preoccupation <b>he</b> might <b>carry it four cubits in the public domain,</b> which is a desecration of Shabbat.
+
+### Part 11
+The Gemara comments: <b>And this is</b> also <b>the reason for</b> the rabbinical decree that <b>the palm branch</b> [<b><i>lulav</i></b>] may not be taken on Shabbat, <b>and this is</b> likewise <b>the reason for</b> the decree that <b>the Megilla</b> of Esther may not be read on Shabbat. The Sages were concerned that one might carry the <i>lulav</i> or the Megilla four cubits in the public domain to take it to an expert who will teach him the proper manner to perform these mitzvot.
+
+### Part 12
+§ The mishna taught: <b>After the Temple was destroyed, Rabban Yoḥanan ben Zakkai instituted that</b> the people should sound the <i>shofar</i> even on Shabbat in every place where there is a court of twenty-three judges. The background to this decree is related in greater detail in a <i>baraita</i>, as <b>the Sages taught: Once Rosh HaShana occurred on Shabbat, and all the cities gathered</b> at the Great Sanhedrin in Yavne for the Festival prayers. <b>Rabban Yoḥanan ben Zakkai said to the sons of Beteira,</b> who were the leading halakhic authorities of the generation: <b>Let us sound</b> the <i>shofar</i>, as in the Temple. <b>They said to him: Let us discuss</b> whether or not this is permitted.
+
+### Part 13
+<b>He said to them:</b> First <b>let us sound</b> it, <b>and afterward,</b> when there is time, <b>let us discuss</b> the matter. <b>After they sounded</b> the <i>shofar</i>, the sons of Beteira <b>said to</b> Rabban Yoḥanan ben Zakkai: <b>Let us</b> now <b>discuss</b> the issue. <b>He said to them: The horn has already been heard in Yavne, and one does not refute</b> a ruling <b>after action</b> has already been taken. There is no point in discussing the matter, as it would be inappropriate to say that the community acted erroneously after the fact.
+
+### Part 14
+§ The mishna further stated that <b>Rabbi Elazar said: Rabban Yoḥanan ben Zakkai instituted</b> this practice <b>only in Yavne. They said to him:</b> He instituted the practice <b>both</b> in <b>Yavne and</b> in <b>any place where there is a court.</b> The Gemara asks: This last statement of the Rabbis: <b>They said to him,</b> etc.; <b>is</b> the same as the opinion of <b>the first <i>tanna</i></b> of the mishna. Why did the mishna repeat this opinion?
+
+### Part 15
+The Gemara answers: The practical difference <b>between</b> the opinion of the first <i>tanna</i> and the opinion of the Rabbis who issued that last statement is with regard to <b>a temporary court,</b> i.e., one that is not fixed in a certain place. According to the opinion of the first <i>tanna</i>, the <i>shofar</i> is sounded there as well, whereas according to the opinion of the Rabbis who responded to Rabbi Elazar, the <i>shofar</i> is sounded only in a place where there is a permanent court, similar to that in Yavne.
+
+### Part 16
+§ The mishna taught that <b>they said to him:</b> He instituted the practice <b>both</b> in <b>Yavne and</b> in <b>any place where there is a court. Rav Huna said:</b>

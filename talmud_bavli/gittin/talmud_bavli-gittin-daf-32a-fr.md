@@ -1,6 +1,35 @@
-
 ### Partie 1
-<b>Le manche dans le trou [<i>kofina</i>] de la houe [<i>mara</i>] se détache [<i>rafya</i>],</b> car il comprend le mot <i>yafri</i> comme faisant référence à la séparation d'éléments connectés. De même, <b>Rav Yosef a dit : Même la cheville</b> martelée <b>dans le mur se détache. Rav Aḥa bar Ya'akov a dit : Même le roseau</b> tressé <b>dans le panier devient lâche.</b>
+<b>Le manche dans le trou [<i>kofina</i>] de la houe [<i>mara</i>] devient lâche [<i>rafya</i>],</b> car il comprend le mot <i>yafri</i> comme se référant à la séparation d'éléments liés. De même, <b>Rav Yosef a dit : Même la cheville</b> martelée <b>dans le mur se détache. Le Rav Aḥa bar Ya'akov a dit : Même le roseau</b> tissé <b>dans le panier devient lâche.</b>
 
->Crédit : William Davidson Edition
->Licence : CC BY-NC
+### Partie 2
+fin du chapitre
+
+### Partie 3
+<strong>MISHNA:</strong> Dans le cas de <b>qui envoie une lettre de divorce à sa femme</b> avec un agent, <b>et qu'il a atteint l'agent, ou qu'il a envoyé</b> un autre <b>agent après lui, et qu'il a dit à</b> l'agent délivrant la lettre de divorce : <b>L'acte de divorce que je vous ai donné est nul,</b> alors <b>cet</b> acte de divorce <b>est par la présente nul.</b> De même, si le mari a atteint <b>sa femme avant</b> que l'acte de divorce ne lui parvienne, <b>ou</b> dans un cas <b>où il a envoyé un agent auprès d'elle, et qu'il a dit,</b> ou fait dire par l'agent, <b>à</b> sa femme : outefois, <b>si</b> il a déclaré cela <b>une fois que l'acte de divorce est entré en sa possession, il ne peut plus le rendre nul,</b> puisque le divorce a déjà pris effet.
+
+### Partie 4
+La mishna rapporte qu'à l'origine, un mari qui souhaitait rendre l'acte de divorce nul devait convoquer un tribunal ailleurs et rendre l'acte de divorce nul en présence du tribunal avant qu'il ne parvienne à sa femme. abban Gamliel l'Ancien a institué une ordonnance interdisant de faire cela, pour le bien du monde.
+
+### Partie 5
+<strong>GEMARA:</strong> La mishna déclare que si l'on envoie un acte de divorce avec un agent et que l'on rencontre ensuite l'agent et rend l'acte de divorce nul en sa présence, alors il est nul. La Guemara souligne : La mishna n'enseigne pas : Il a atteint</b> l'agent après l'avoir poursuivi ; plutôt : Il a atteint</b> l'agent, ce qui signifie <b>et même</b> s'il l'a atteint <b>incidemment,</b> sans intention, il rend l'acte de divorce nul avec sa déclaration. <b>Et nous ne disons pas</b> que dans ce cas <b>il a l'intention</b> seulement <b>de vexer</b> sa femme et qu'il n'a pas réellement l'intention de rendre l'acte de divorce nul.
+
+#### Partie 6
+La Gemara demande : ourquoi ai-je besoin que la Michna déclare que l'acte de divorce est nul lorsqu'il a atteint l'agent, ou dans un cas où il a envoyé un autre agent après lui ? Le statut légal de l'agent d'une personne est comme celui de l'agent lui-même, il semble donc évident que tout comme le mari peut annuler l'agent du premier agent, de même le second agent peut annuler l'agent du premier agent. La Guemara répond : Ce principe a été énoncé <b>de peur que vous ne disiez</b> que <b>le pouvoir du second, </b> le second agent, <b>n'est pas plus fort que le pouvoir du premier,</b> et <b>que</b> le second agent ne peut <b>annuler</b> le pouvoir du premier agent et que seul le mari peut l'annuler. Par conséquent, la mishna <b>nous enseigne</b> que le second agent peut annuler l'agence du premier agent.
+
+#### Partie 7
+La Gemara continue et demande : ourquoi ai-je besoin de la mishna pour enseigner un cas où un mari a atteint sa femme avant que l'acte de divorce ne l'atteigne ? Il est évident qu'un mari peut annuler l'acte de divorce avant qu'il ne parvienne à sa femme. La Guemara explique : Ce principe a été énoncé <b>de peur que vous ne disiez</b> que <b>lorsque nous ne disons pas</b> qu'il <b>a l'intention</b> seulement <b>de la vexer</b> comme dans le cas ci-dessus, et que l'acte de divorce est en fait nul, <b>cette question ne s'applique</b> que lorsqu'il a dit <b>à l'agent</b> que l'acte de divorce est nul ; ependant, s'il lui a dit cela, il a certainement l'intention de la contrarier et non de rendre l'acte de divorce nul. Par conséquent, la mishna nous enseigne que même dans ce cas, l'acte de divorce est nul.
+
+#### Partie 8
+La Guemara continue et demande : <b>Pourquoi ai-je</b> besoin que la mishna déclare : <b>Ou lorsqu'il lui a envoyé un agent,</b> ce qui, comme indiqué ci-dessus, signifie que le statut juridique de l'agent d'une personne est le même que celui de la personne elle-même ? La Gemara répond : Il est nécessaire <b>de ne pas dire</b> que seulement <b>il n'exercerait pas</b> lui-même <b>avec le</b> seul <b>intention de la vexer,</b> en l'informant faussement que l'acte de divorce est nul ; outefois, en ce qui concerne l'agent, le mari ne se préoccupe pas de savoir s'il se démène sans raison, et le mari a certainement l'intention de la vexer lorsqu'il envoie un agent et non pas de rendre l'acte de divorce nul. Par conséquent, la mishna nous enseigne que dans ce cas également, l'acte de divorce est nul.
+
+### Partie 9
+La mishna poursuit : i</b> il a déclaré cela <b>après que l'acte de divorce soit entré en sa possession, il ne peut plus le rendre nul,</b> puisque le divorce a déjà pris effet. La Guemara demande : <b>N'est-ce pas</b> évident ? <b>Une fois que l'acte de divorce est entré en sa possession, ils sont divorcés. La Guemara répond : <b>Non,</b> il est <b>nécessaire</b> que la mishna déclare que même dans un cas <b>où il cherchait</b> l'acte de divorce <b>depuis le début</b> afin de le rendre nul</b> avant qu'il ne parvienne à sa femme, une fois qu'il est entré en sa possession, il est trop tard. i vous dites : <b>Une fois qu'il a rendu l'acte de divorce nul, même après qu'il soit entré en sa possession, <b>il est devenu clair rétroactivement qu'il l'a rendu nul</b> depuis le début, avant qu'il n'atteigne sa femme, par conséquent la Michna <b>nous enseigne</b> que puisque l'acte de divorce a été rendu nul seulement après qu'il soit entré en sa possession, ils sont divorcés.
+
+### Partie 10
+§ <b>Les Sages ont enseigné :</b> Si un mari fait l'une des déclarations suivantes à propos d'un acte de divorce qu'il a envoyé : <b>Elle est nulle [<i>batel hu</i>],</b> ou : <b>Je ne le désire pas,</b> alors <b>sa déclaration prend effet</b> et l'acte de divorce est nul. Cependant, s'il a dit : <b>C'est invalide,</b> ou : <b>Ce n'est pas un acte de divorce,</b> alors c'est comme s'il <b>n'avait rien dit,</b> car l'acte de divorce n'a rien qui le disqualifie.
+
+#### Partie 11
+La Guemara demande : <b>Est-ce pour dire que</b> la formulation : <b><i>Batel</i>, est une <b>formulation prescriptive qui signifie : Qu'elle devienne nulle,</b> et non une formulation descriptive qui signifie que l'acte de divorce est déjà nul ? <b>Mais Rabba bar Aivu n'a-t-il pas dit</b> que <b>Rav Sheshet a dit, et certains disent</b> que <b>Rabba bar Avuh dit :</b> A l'égard de <b>quiconque reçoit un cadeau, qui, après que le cadeau soit entré en sa possession, dit : Ce don est rendu nul;</b> ou s'il a dit : <b>Laissez-le devenir caduc</b> ou s'il a dit : l a déjà acquis le don et il ne peut défaire son acquisition. Cependant, s'il a dit : <b>C'est nul [<i>betela he</i>],</b> ou : <b>Ce n'est pas un don, sa déclaration est efficace,</b> car ces formulations indiquent qu'il n'avait jamais accepté d'acquérir le don en premier lieu. <b>Apparemment,</b> la formulation : <b><i>Batel</i>, signifie</b> qu'il est nul <b>depuis le début,</b> et non pas qu'il devrait devenir nul, en opposition au <i>baraita</i>.
+
+### Partie 12
+<b>Abaye a dit :</b> La formulation : <b><i>Batel</i>,</b>

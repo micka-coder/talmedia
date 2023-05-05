@@ -1,4 +1,3 @@
-
 ### Part 1
 if he does so <b>with</b> the <b>consent</b> of the one obligated to bring the offering <b>he has fulfilled</b> his obligation, but if he does so <b>without</b> the <b>consent</b> of the one obligated to bring the offering <b>he has not fulfilled</b> his obligation.
 
@@ -32,5 +31,20 @@ The Gemara answers: <b>No,</b> the statement of Rav Sheshet is <b>necessary</b> 
 ### Part 11
 The Gemara explains how Rav Sheshet derives his conclusion from the mishna. The reason is <b>that if it were so,</b> i.e., if his original declaration is canceled even without an explicit retraction, <b>let</b> the mishna <b>teach:</b> The court coerces him <b>until he gives</b> the bill of divorce of his own volition. <b>What</b> is the significance of the clause: The court coerces him <b>until he says:</b> I want to do so? This indicates that the court coerces him <b>until he</b> explicitly <b>cancels his</b> original <b>declaration.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> One proclaims, i.e., publicly announces, <b>the appraisal of the</b> property inherited by minor <b>orphans,</b> which is being sold to repay their father’s debt, for <b>thirty days,</b> in order to receive the maximal price. <b>And</b> one proclaims <b>the appraisal of consecrated</b> property that is being sold by the Temple treasury for <b>sixty days, and one proclaims</b> it <b>in the morning and in the evening.</b>
+
+### Part 14
+<strong>GEMARA:</strong> The Gemara asks: <b>What is different</b> about those times that one proclaims the appraisal of the property specifically <b>in the morning and in the evening? Rav Yehuda says</b> that <b>Rav says:</b> One proclaims <b>during the time</b> that <b>workers leave</b> to work in the fields <b>and during the time</b> that <b>workers enter</b> the city after completing their workday. Rav Yehuda elaborates: One proclaims <b>during the time</b> that <b>workers leave</b> to work in the fields, so <b>that</b> if <b>there is</b> a person <b>who is amenable to purchasing</b> the property, he may <b>say to</b> the <b>workers: Go</b> and <b>examine</b> the property <b>for me.</b> And one proclaims <b>during the time</b> that <b>workers enter</b> the city so <b>that</b> that individual <b>will be reminded that he said to</b> the workers that they should inspect the property, and he will <b>go</b> and <b>ask them</b> for their opinion of it.
+
+### Part 15
+The Gemara notes: <b>That</b> explanation <b>is also taught</b> in a <i>baraita</i>: One proclaims <b>the appraisal of the</b> property inherited by minor <b>orphans</b> for <b>thirty days, and</b> one proclaims <b>the appraisal of consecrated</b> property for <b>sixty days. And one proclaims</b> it <b>in the morning and in the evening, during the time</b> that <b>workers leave</b> to work in the fields <b>and during the time</b> that <b>workers enter</b> the city after completing their workday.
+
+### Part 16
+The <i>baraita</i> adds that the one who proclaims <b>states:</b> The <b>field</b> of <b>so-and-so</b> that is identifiable <b>by its markers and by its borders, such is its quality,</b> i.e., it produces such-and-such quantities of grain annually, <b>and such is</b> its <b>appraisal; anyone who wishes to purchase</b> the field let <b>him come and purchase</b> it. He adds that the field is being sold <b>in order to give</b> the proceeds <b>to a wife</b> as payment <b>of her marriage contract, or</b> in order <b>to</b> give <b>a creditor</b> payment <b>of</b> a deceased man’s <b>debt.</b>
+
+### Part 17
+The Gemara asks: <b>Why do I</b> need the one making the proclamation <b>to say</b> that the field is being sold <b>in order to give</b> the proceeds <b>to a wife</b> as payment of <b>her marriage contract or</b> in order <b>to</b> give <b>a creditor</b> payment of <b>his debt?</b> The Gemara responds: This declaration is necessary <b>as there are</b> individuals <b>for whom</b> it is <b>preferable</b> to do business <b>with a creditor, as he is lenient with dinars</b> and will accept even damaged coins, <b>and there are</b> others <b>for whom</b> it is <b>preferable</b> to deal <b>with a wife, as she takes</b> her money <b>bit by bit,</b> i.e., in incremental payments.

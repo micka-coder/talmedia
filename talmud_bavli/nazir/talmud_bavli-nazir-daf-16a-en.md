@@ -1,9 +1,23 @@
-
 ### Part 1
 <b>And</b> Rabbi Oshaya <b>said to</b> Rabbi Yoḥanan: <b>Rabbi Yosei holds in accordance with your</b> opinion, <b>as he</b> too <b>says</b> that in this case one <b>becomes impure from now and onward,</b> and any impurity after the start of the seventh day does not cause him to forfeit the previous clean days. The Gemara analyzes Rabbi Oshaya’s statement: <b>But didn’t Rabbi Yosei say</b> that the impurity is <b>retroactive,</b> as stated above? Rather, Rabbi Oshaya must certainly hold as follows: <b>What is</b> the meaning of Rabbi Yosei’s ruling that he is impure <b>retroactively?</b> It means that he is rendered impure only <b>by rabbinic law,</b> but not by Torah law.
 
 ### Part 2
 The Gemara poses a question with regard to Rabbi Yosei’s statement: <b>And</b> as to <b>Rabbi Yosei, now, he holds</b> that the status of <b>part of the day is like</b> that <b>of an entire</b> day. <b>How can you find a full-fledged <i>zava</i> who brings an offering? Since she sees</b> a discharge <b>at the midpoint of the day, the other half of the day counts for her</b> as a full day of <b>observing,</b> as part of the day is considered to be like all of a day. The Gemara answers: <b>If you wish, say that</b> she <b>continuously discharges</b> blood for <b>three days consecutively. And if you wish, say that she saw</b> a discharge on <b>three</b> consecutive <b>days close to sunset.</b> In that case she is impure on each occasion at the end of one day and the beginning of the next, so that <b>there was not</b> any <b>time</b> to become pure on the following day so as <b>to be included for her counting</b> of a clean day corresponding to an impure one.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 3
+end of chapter
+
+### Part 4
+<strong>MISHNA:</strong> <b>One who said: I am hereby a nazirite,</b> without specifying how long his term of naziriteship would last, <b>shaves</b> his hair on the <b>thirty-first day</b> after the start of his naziriteship, as an unspecified term of naziriteship lasts thirty days. <b>And if he shaved on the thirtieth day, he has fulfilled</b> his obligation. If he explicitly said: <b>I am hereby a nazirite</b> for <b>thirty days,</b> then, <b>if he shaved on the thirtieth day, he has not fulfilled</b> his obligation. Since the naziriteship would have been for thirty days even without him stating: For thirty days, this addition is understood to indicate that he will observe naziriteship for a full thirty days.
+
+### Part 5
+<b>One who accepted two</b> terms of <b>naziriteship shaves</b> at the close of <b>the first</b> naziriteship on the <b>thirty-first day, and</b> at the close of <b>the second</b> term on the <b>sixty-first day.</b> Since his second term of naziriteship begins after shaving on the thirty-first day, the sixty-first day of the first term is the thirty-first day of his second term. <b>And if he shaved</b> for <b>the first</b> term on the <b>thirtieth day, he shaves</b> for <b>the second</b> term on the <b>sixtieth day,</b> which is the thirty-first day after the start of his second term of naziriteship. <b>And if he shaved</b> for the second term on <b>day sixty less one, he has fulfilled</b> his obligation, as this is the thirtieth day of his second term.
+
+### Part 6
+<b>And this testimony was attested to</b> by <b>Rabbi Pappeyas,</b> who heard from his teachers <b>with regard to one who vowed</b> to observe <b>two</b> terms of <b>naziriteship, that if he shaved</b> for <b>the first</b> term on the <b>thirtieth day, he shaves</b> for <b>the second</b> term <b>on the sixtieth day. And if he shaved</b> for the second term <b>on</b> the <b>day sixty less one, he has fulfilled</b> his obligation, <b>because the thirtieth day</b> of the first term of naziriteship <b>counts</b> as part <b>of his tally</b> of the second term.
+
+### Part 7
+<b>One who said: I am hereby a nazirite,</b> without further specification, if <b>he became ritually impure</b> through contact with a corpse on the <b>thirtieth day</b> of his term of naziriteship, <b>it negates the entire</b> tally, and he must start his naziriteship afresh. <b>Rabbi Eliezer says: It negates only seven</b> days, which he must observe until his purification, after which he brings his offerings. If he said: <b>I am hereby a nazirite</b> for <b>thirty days,</b> and <b>he became impure</b> on the <b>thirtieth day,</b> everyone agrees that <b>it negates the entire</b> tally. If he said: <b>I am hereby a nazirite</b> for <b>one hundred days,</b> if <b>he became impure</b> on the <b>one hundredth day, it negates the entire</b> tally. <b>Rabbi Eliezer says: It negates only thirty</b> days, and he observes the final thirty days again. If <b>he became impure</b> on the <b>one hundred and first day</b> before bringing his offerings, <b>it negates</b> only <b>thirty days,</b> but does not negate all of the observed days. <b>Rabbi Eliezer says: It negates only seven</b> days.
+
+### Part 8
+<strong>GEMARA:</strong> The mishna taught: <b>One who said: I am hereby a nazirite,</b> and <b>became ritually impure</b> on the <b>thirtieth day, it negates the entire</b> tally; <b>Rabbi Eliezer says: It negates only seven.</b>

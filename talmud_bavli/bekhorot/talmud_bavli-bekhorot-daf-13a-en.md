@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>Rav Sheshet says:</b> The mitzva of redeeming a firstborn donkey takes effect immediately after it is born, as is stated in the first <i>baraita</i>. The second <i>baraita</i>, which states that it applies only after thirty days, means <b>to say that</b> until that time, <b>one does not transgress</b> a prohibition if he has not yet performed the redemption. After thirty days, though, one transgresses a prohibition if he still has not redeemed his firstborn donkey.
 
@@ -20,5 +19,59 @@ The mishna proceeds to enumerate other mitzvot in which one option takes precede
 ### Part 7
 With regard to a non-kosher animal that was consecrated to the Temple, <b>the mitzva of redemption by the owner</b> who consecrated it <b>takes precedence over</b> redemption by <b>any</b> other <b>person, as it is stated:</b> “And if it is of a non-kosher animal…<b>and if it is not redeemed, it shall be sold according to your valuation”</b> (Leviticus 27:27).
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> With regard to <b>one who purchases the fetus of a cow</b> that <b>belongs to a gentile; one who sells</b> the fetus of his cow <b>to</b> a gentile, <b>even though one is not permitted</b> to sell a large animal to a gentile; <b>one who enters into a partnership with</b> a gentile with regard to a cow or its fetus; <b>one who receives</b> a cow <b>from</b> a gentile to tend to it in exchange for partnership in its offspring; <b>and one who gives</b> his cow to a gentile <b>in receivership,</b> so that the gentile owns a share of the cow’s offspring; in all of these cases, one is <b>exempt from</b> the obligation of redeeming <b>the firstborn</b> offspring, <b>as it is stated:</b> “I sanctified to Me all the firstborn <b>in Israel,</b> both man and animal” (Numbers 3:13), indicating that the mitzva is incumbent upon the Jewish people, <b>but not upon others.</b> If the firstborn belongs even partially to a gentile, the sanctity of firstborn does not apply to it.
+
+### Part 10
+The mishna continues: <b>The priests and the Levites are obligated</b> in the mitzva, i.e., their animals have firstborn sanctity, <b>as they were not exempted from</b> the mitzva of the male <b>firstborn of a kosher animal; rather,</b> they were exempted only <b>from redemption of the</b> firstborn <b>son and from</b> the redemption of <b>the firstborn donkey.</b>
+
+### Part 11
+<strong>GEMARA:</strong> The first chapter of this tractate began with the <i>halakhot</i> pertaining to a firstborn donkey. The Gemara asks: <b>Why does</b> the <i>tanna</i> <b>specifically teach</b> the <i>halakhot</i> of <b>the fetus of his donkey first, and</b> only <b>then teach</b> the <i>halakhot</i> of <b>the fetus of his cow? Let him first teach</b> the <i>halakhot</i> of <b>the fetus of his cow, as it is</b> a case of <b>inherent sanctity,</b> i.e., the animal cannot be redeemed and is sacrificed upon the altar, <b>and let him then teach</b> the <i>halakhot</i> of <b>the fetus of his donkey, as it is</b> a case of <b>sanctity</b> that inheres in its <b>value.</b>
+
+### Part 12
+<b>They said in the West,</b> Eretz Yisrael: <b>If you wish, say</b> that the <i>halakhot</i> of a firstborn donkey were taught first <b>since</b> they are <b>dear to</b> the <i>tanna</i>, <b>in accordance with</b> the statement of <b>Rabbi Ḥanina</b> (5b) that donkeys helped the Jews when they departed from Egypt, as the Jews loaded their gold and silver on donkeys. <b>And if you wish, say</b> that these <i>halakhot</i> were taught first <b>since the matters</b> pertaining to <b>a non-kosher animal are</b> relatively <b>few,</b> and therefore the <i>tanna</i> <b>completes</b> its treatment <b>and sets it</b> aside.
+
+### Part 13
+§ With regard to the mishna’s discussion of sales involving Jews and gentiles, <b>Rabbi Yitzḥak bar Naḥmani says</b> that <b>Reish Lakish said in the name of Rabbi Oshaya:</b> In the case of <b>a Jew who gave money to a gentile to</b> buy the gentile’s <b>animal</b> from him <b>according to their laws,</b> as explained further on, <b>even though</b> the Jew <b>did not pull</b> the animal in the manner of a formal acquisition, as required by <i>halakha</i>, <b>he has</b> legally <b>acquired</b> it, <b>and</b> the Jewish owner <b>is obligated</b> to give the animal’s <b>firstborn</b> offspring to a priest. <b>And</b> in the case of <b>a gentile who gave money to a Jew to</b> buy the Jew’s <b>animal</b> from him <b>according to their laws, even though</b> the gentile <b>did not pull</b> the animal <b>he has acquired</b> it, <b>and</b> the Jew <b>is</b> therefore <b>exempt from</b> giving the animal’s <b>firstborn</b> offspring to a priest.
+
+### Part 14
+<b>The Master said:</b> In the case of <b>a Jew who gave money to a gentile</b> to buy the gentile’s animal from him <b>according to their laws, even though he did not pull</b> the animal <b>he has</b> legally <b>acquired</b> it, <b>and</b> the Jew <b>is obligated</b> to give the animal’s <b>firstborn</b> offspring to a priest.
+
+### Part 15
+The Gemara asks: <b>What</b> is meant by: <b>According to their laws? If we say</b> that it is referring <b>to the laws</b> relating <b>to</b> the purchase of a gentile’s <b>person</b> as a slave, i.e., the <i>halakhot</i> of purchasing gentiles themselves rather than the methods by which gentiles can acquire property, this must be based on the assumption that the <i>halakha</i> with regard to the purchase of a gentile’s animal <b>is derived by</b> the following <b><i>a fortiori</i></b> inference: <b>If</b> a gentile’s <b>person is acquired by a Jew</b> as a Canaanite slave <b>through</b> payment of <b>money, as it is written:</b> “And you may make them an inheritance for your children after you, <b>to hold for an ancestral possession”</b> (Leviticus 25:46), the same <i>halakha</i> should apply to acquiring a gentile’s property.
+
+### Part 16
+The Gemara elaborates: <b>The verse</b> thereby <b>compares</b> a gentile slave <b>to an ancestral possession,</b> i.e., land: <b>Just as an ancestral possession is acquired by</b> the transfer <b>of money, or with a bill of sale, or through taking possession, so too, a Canaanite slave is acquired by</b> the transfer of <b>money.</b> If this is the <i>halakha</i> with regard to a gentile’s person, <b>is it not all the more so</b> reasonable that a gentile’s <b>property</b> is acquired through the transfer of money?
+
+### Part 17
+The Gemara rejects this conclusion: <b>If so,</b> then according to <i>halakha</i> it should be possible to acquire a gentile’s property <b>even with a bill of sale or by taking possession,</b> which is not so. The Gemara adds: <b>And furthermore,</b> the <i>halakha</i> pertaining to <b>a Jew</b> purchasing goods <b>from a Jew proves</b> that the entire premise of the <i>a fortiori</i> inference is false, <b>as he acquires</b> a Jew’s <b>person with money</b> alone, but he acquires <b>his property</b> only <b>by pulling.</b> It is therefore evident that the ability to acquire one’s person with money does not indicate that his property can be purchased in the same manner.
+
+### Part 18
+<b>Rather, Abaye says</b> that the term: Their laws, is referring to <b>their laws that the Torah prescribed for their</b> methods of purchase, by stating: <b>“Or buy of your counterpart’s hand”</b> (Leviticus 25:14), which teaches that <b>it is</b> only <b>from the hand of your counterpart,</b> i.e., a Jew, <b>that</b> property <b>is</b> acquired <b>by</b> the formal act of acquisition of <b>pulling.</b> This indicates that acquiring property <b>from the hand of a gentile</b> is accomplished <b>through</b> payment of <b>money.</b>
+
+### Part 19
+The Gemara raises an objection: <b>But</b> one can <b>say</b> that it should be inferred from the verse that one <b>cannot</b> purchase anything <b>at all from the hand of a gentile.</b> The Sages <b>said</b> in response: That <b>cannot enter your mind,</b> as there <b>is an <i>a fortiori</i></b> inference which indicates otherwise: <b>If</b> a Jew can <b>purchase</b> a gentile’s <b>person</b> as a slave, is it <b>not all the more so</b> reasonable that he can purchase a gentile’s <b>property?</b>
+
+### Part 20
+The Gemara raises another objection: <b>But</b> one can <b>say</b> that the verse teaches that whereas a Jew’s property is acquired through pulling, property purchased <b>from the hand of a gentile</b> is not acquired <b>until two</b> formal acts of acquisition have been performed, both pulling and payment of money. The Sages <b>said</b> in response: <b>Isn’t it</b> indicated otherwise by <b>an <i>a fortiori</i></b> inference: If <b>his person</b> is acquired <b>through</b> only <b>one</b> act of acquisition, could it be that <b>his property</b> must be acquired <b>through two</b> acts? The Gemara further suggests: <b>But</b> one can <b>say</b> that it is derived from the verse that one can acquire property from a gentile <b>either</b> through <b>this</b> method of pulling <b>or</b> through <b>that</b> method of money. The Gemara explains: The <i>halakha</i> derived from the phrase “of your counterpart” must be <b>similar to</b> an acquisition from <b>your counterpart:</b>
+
+### Part 21
+<b>Just as</b> from the hand of <b>your counterpart</b> it is <b>with one</b> act, with pulling, <b>so too,</b> from the hand of <b>a gentile,</b> it is <b>also with one</b> act, <b>with money.</b>
+
+### Part 22
+The Gemara discusses the statement of Rabbi Oshaya. <b>The Master said: And a gentile who gave money to a Jew to</b> buy the Jew’s <b>animal</b> from him <b>according to their laws, even though</b> the gentile <b>did not pull</b> the animal <b>he has acquired</b> it, <b>and</b> the Jew <b>is</b> therefore <b>exempt from</b> giving the animal’s <b>firstborn</b> offspring to a priest. <b>The Gemara clarifies: What is</b> the meaning of <b>according to their laws? If we say</b> that it means: <b>According to their laws of the person</b> of the Jew himself, i.e., the manner in which he purchases the person of a Jew with money, and it is reasonable to say so, <b>as it may be derived</b> through <b>an <i>a fortiori</i></b> inference: <b>If</b> a gentile <b>acquires the body of a Jew with money, as it is written</b> in that regard: <b>“From the money of his purchase”</b> (Leviticus 25:51), then with regard to the <b>property</b> of a Jew, is it <b>not all the more so</b> reasonable that the gentile can acquire it with money?
+
+### Part 23
+This can be rejected, as the acquisition of <b>a Jew from a Jew will prove</b> that the inference is not valid, as the <b>person</b> of a Hebrew slave <b>one acquires with money, while the property</b> of a Jew can be acquired only <b>by pulling. Rather, Abaye said:</b> That which it states, that a gentile purchases an animal with money <b>according to their laws,</b> means: With the acts of acquisition <b>that the Torah prescribed</b> to gentiles, the manner in which they acquire items from Jews, i.e., with money, as it is stated: <b>“And if you sell a sale item to your counterpart”</b> (Leviticus 25:14), from which it may be inferred: <b>To your counterpart,</b> i.e., a Jew, property <b>is</b> acquired <b>by pulling,</b> but property <b>from the hand of a gentile</b> is acquired <b>with money.</b>
+
+### Part 24
+The Gemara suggests: <b>But say</b> that the inference should be: <b>To a gentile, not at all,</b> i.e., neither with money nor with pulling can a gentile acquire an item from a Jew. The Sages <b>said</b> in response: <b>But isn’t it an <i>a fortiori</i></b> inference to the contrary: <b>If</b> a gentile can <b>purchase</b> a Jew’s <b>person</b> as a slave, then is it <b>not all the more so</b> reasonable that he can purchase the Jew’s <b>property?</b>
+
+### Part 25
+The Gemara suggests: <b>Say</b> and infer as follows: To your counterpart you sell with pulling, <b>but to a gentile</b> you do not sell <b>until two</b> formal acts of acquisition have been performed: Pulling and money. The Sages <b>said</b> in response: <b>But isn’t it an <i>a fortiori</i></b> inference to the contrary: If the <b>person</b> of a Jew is acquired <b>with one</b> act of acquisition, is it reasonable that <b>his property</b> is acquired <b>with two</b> acts?
+
+### Part 26
+The Gemara further suggests: <b>But say</b> that a gentile acquires property from a Jew <b>either with this</b> act of pulling <b>or with that</b> act of <b>paying</b> money. The Gemara explains: The acquisition of the gentile must be <b>similar to</b> the acquisition of <b>your counterpart,</b> from which it is derived:

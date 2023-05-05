@@ -1,4 +1,3 @@
-
 ### Part 1
 and it is practiced both <b>in</b> the cases of offerings when they are <b>alive,</b> e.g., the guilt offering of a leper and the lambs of <i>Shavuot</i>, <b>and in</b> the cases of offerings after they are <b>slaughtered,</b> e.g., the breast and thigh. By contrast, placing hands is practiced with a live animal. A further stringency is that waving is practiced both <b>in</b> the case of <b>an item in which there is a living spirit,</b> i.e., an animal offering, <b>and in</b> the case of <b>an item in which there is not a living spirit,</b> e.g., the <i>omer</i> offering, the <i>sota</i> meal offering, and the loaves accompanying a thanks offering and the ram of the nazirite, whereas placing hands is only ever performed upon living beings.
 
@@ -26,5 +25,23 @@ The mishna concludes: <b>And when</b> the High Priest <b>wants, he</b> may merel
 ### Part 9
 This mishna apparently demonstrates an instance of placing hands performed upon a slaughtered animal. In resolution of this difficulty, <b>Abaye said:</b> In the mishna <b>there,</b> the placing of hands is not in fulfillment of the requirement to do so to an offering; rather, it is done merely <b>due to the eminence of the High Priest,</b> so that his sacrifice of the limbs of an offering is more distinguished than when performed by ordinary priests.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>The two loaves</b> that are brought on the festival of <i>Shavuot</i> from the new wheat are each made from a tenth of an ephah of fine flour. They <b>are kneaded one</b> by <b>one and they are baked one</b> by <b>one,</b> i.e., each loaf is placed separately in the oven. <b>The</b> loaves of the <b>shewbread are kneaded one</b> by <b>one and baked two</b> by <b>two,</b> i.e., two loaves are placed in the oven at the same time. <b>And</b> the baker <b>would prepare</b> the shewbread <b>in a mold [<i>defus</i>]</b> when he made the dough. <b>When he removes</b> the shewbread from the oven <b>he</b> again <b>places</b> the loaves <b>in a mold so that their</b> shape <b>will not be ruined.</b>
+
+### Part 12
+<strong>GEMARA:</strong> The mishna teaches that the two loaves are kneaded one by one and baked one by one. The loaves of the shewbread are also kneaded one by one but are baked two at a time. The Gemara asks: <b>From where are these matters</b> derived? They are derived from a verse, <b>as the Sages taught</b> in a <i>baraita</i>: The verse states: “And you shall take fine flour, and bake twelve cakes from it; two-tenths of an ephah shall be in one cake. And you shall set them in two arrangements, six in an arrangement, upon the pure Table before the Lord” (Leviticus 24:5–6). The phrase <b>“Two-tenths of an ephah shall be in one cake” teaches that</b> the loaves of the shewbread <b>are kneaded one</b> by <b>one.</b>
+
+### Part 13
+The <i>baraita</i> continues: <b>From where</b> is it derived <b>that this</b> is <b>also</b> the <i>halakha</i> with regard to <b>the two loaves,</b> i.e., that they are kneaded one at a time? <b>The verse states: “Shall be,”</b> to include the two loaves. <b>And from where</b> is it derived <b>that the baking</b> of the loaves of the shewbread is performed <b>two</b> by <b>two? The verse states: “And you shall set them [<i>vesamta otam</i>],”</b> the plural form indicating that two loaves should be baked together. One <b>might</b> have thought that <b>the two loaves</b> brought on <i>Shavuot</i> should <b>also</b> be baked in <b>this</b> manner. <b>The verse states: “Them [otam],”</b> which is a term of exclusion, indicating that only the loaves of the shewbread are baked two at a time, but not the two loaves brought on <i>Shavuot</i>.
+
+### Part 14
+The Gemara asks: <b>Didn’t you</b> already <b>derive</b> from <b>this</b> term: <b>“Them,”</b> that the shewbread must be baked two loaves at a time? The Gemara answers: <b>If so,</b> i.e., if the term “them” teaches only that the shewbread is baked two loaves at a time, <b>let the verse say: And you shall set them [<i>vesamtam</i>],</b> using the shortened form. <b>What</b> is the verse teaching by using the longer form <b>“<i>vesamta otam</i>”? You</b> may <b>learn from</b> the verse <b>two</b> matters, both that the loaves of the shewbread should be baked two at a time and that this requirement does not apply to the two loaves brought on <i>Shavuot</i>.
+
+### Part 15
+§ The mishna teaches that the shewbread was placed in a mold, and with regard to this <b>the Sages taught</b> in a <i>baraita</i>: The verse states: <b>“And you shall set them”</b> (Leviticus 24:6), which means to set them <b>in a mold. There are three molds</b> that are used in the Temple in the preparation of the loaves. First, the baker <b>places</b> the shewbread <b>in a mold</b> while <b>it is still dough. And</b> second, <b>there was a type of mold for</b> the shewbread <b>in the oven,</b> in which the loaves were baked. <b>And when he removes [<i>rodah</i>]</b> the shewbread from the oven, <b>he places it in</b> a third <b>mold so that its</b> shape <b>will not be ruined.</b> The Gemara asks: <b>But</b> why is a third mold necessary? <b>Let him return</b> the shewbread <b>to the first mold,</b> in which the dough was kneaded. The Gemara answers: <b>Once</b> the dough <b>is baked, it rises,</b> and no longer fits into the first mold.
+
+### Part 16
+§ <b>It was stated: How is the shewbread prepared,</b> i.e., in what shape?

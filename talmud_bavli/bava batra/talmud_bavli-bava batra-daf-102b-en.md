@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>Rav Sheisha, son of Rav Idi, said: Actually,</b> the mishna <b>is</b> in accordance with the opinion of <b>Rabbi Shimon, and here we are dealing with</b> a case <b>where</b> the corpses found were of <b>non-viable newborns</b> buried in a smaller chamber only six cubits long. Adding a courtyard of six cubits and another regular-sized chamber of eight cubits yields a total length of the catacomb of twenty cubits.
 
@@ -20,5 +19,11 @@ The Gemara answers: The fact that one ruling <b>of Rabbi Shimon</b> is contradic
 ### Part 7
 Similarly, the fact that one ruling <b>of the Rabbis</b> is contradicted <b>by</b> the other ruling <b>of the Rabbis</b> is <b>not difficult. Here,</b> with regard to burial, <b>since it is a disgrace</b> to bury bodies so close together, <b>it is not called</b> an area of <b>graves.</b> But <b>there,</b> with regard to vineyards, the owner of the vineyard <b>says</b> to himself: <b>Whichever of</b> the vines <b>will flourish, will flourish</b> and I will leave them, <b>and</b> whichever ones <b>do not flourish,</b> I will uproot them and <b>they will be for firewood.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 8
+end of chapter
+
+### Part 9
+<strong>MISHNA:</strong> <b>If one says to another: I am selling you</b> a plot of <b>earth</b> of the size <b>required for sowing one <i>kor</i> of seed [<i>beit kor</i>],</b> and <b>there</b> on that plot <b>there were crevices</b> [<b><i>neka’im</i></b>] <b>ten handbreadths deep or rocks ten handbreadths high, they are not measured</b> together <b>with</b> the rest of the field. Rather, the buyer must be provided with land measuring a <i>beit kor</i> exclusive of those crevices or rocks. If the crevices or rocks measured <b>less than</b> ten handbreadths, <b>they are measured</b> together <b>with</b> the rest of the field. <b>But if</b> the seller <b>said to</b> the buyer: I am selling you a plot of <b>earth</b> that is <b>about</b> the size of <b>a <i>beit kor</i>,</b> then <b>even if there</b> on that plot <b>there were crevices deeper than ten handbreadths or rocks higher than ten handbreadths, they are measured</b> together <b>with</b> the rest of the field.
+
+### Part 10
+<strong>GEMARA:</strong> <b>We learned</b> in a mishna <b>elsewhere</b> (<i>Arakhin</i> 25a): With regard to <b>one who consecrates his</b> ancestral <b>field during the time</b> that the <i>halakhot</i> <b>of the Jubilee</b> Year are practiced, if he wishes to redeem the field <b>he must give</b> the Temple treasurer <b>fifty silver shekels for</b> every <b>place that is fit for sowing a <i>ḥomer</i> of barley seed,</b> which is the biblical equivalent of a <i>kor</i>, for all the years of the Jubilee cycle, as this is the sum fixed by the Torah for this purpose (see Leviticus 27:16). But if <b>there were crevices ten handbreadths deep there,</b> in the field, <b>or rocks ten handbreadths high,</b>

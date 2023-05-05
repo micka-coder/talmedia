@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>MISHNA:</strong> In the case of <b>a spark that emerged from under the hammer</b> of a blacksmith and started a fire, <b>causing damage,</b> the blacksmith is <b>liable</b> for the damage caused.
 
@@ -14,5 +13,38 @@ The Sages <b>say</b> in response: <b>No,</b> there is no proof from here. <b>Act
 ### Part 5
 Further on the subject of the height of a Hanukkah lamp, <b>Rav Kahana says</b> that <b>Rav Natan bar Minyumi taught in the name of Rabbi Tanḥum: A Hanukkah lamp that is placed higher than twenty cubits</b> from the ground is <b>unfit</b> to be used for the mitzva, since people do not generally look up to such a height, and the main purpose of the Hanukkah lamp is for it to be seen by others. In this regard, the <i>halakha</i> of the height of a Hanukkah lamp is <b>like</b> the <i>halakha</i> of the height of <b>a <i>sukka</i> and</b> the <i>halakha</i> of the height of a cross beam at the entrance to <b>an alleyway,</b> which are unfit for their respective purposes if they are higher than twenty cubits.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> <b>The principle of double payment</b> applies <b>more broadly than the principle of fourfold or fivefold payment, as the principle of double payment applies both to</b> the theft of <b>something that is alive and to</b> the theft of <b>something that is not alive, but the principle of fourfold or fivefold payment applies only to</b> the theft of <b>an ox or a sheep, as it is stated: “If a man steal an ox or a sheep, and slaughter it or sell it,</b> he shall pay five oxen for an ox and four sheep for a sheep” (Exodus 21:37).
+
+### Part 8
+Having stated a limitation to the <i>halakha</i> of fourfold and fivefold payment, the mishna mentions a further limitation, which applies to all three types of payments. <b>One who steals</b> an item <b>after a thief</b> has already stolen it, i.e., one who steals a stolen item, <b>does not pay</b> the <b>double payment</b> to the thief or to the prior owner, <b>nor does one who slaughters or sells</b> an ox or a sheep <b>after a thief</b> has already stolen it <b>pay</b> the <b>fourfold or fivefold payment.</b> Rather, he pays only the principal, i.e., the value of the item he stole.
+
+### Part 9
+<strong>GEMARA:</strong> The mishna teaches one particular difference between double payment and fourfold or fivefold payment, <b>while it does not teach</b> this difference between them: <b>The principle of double payment applies both in</b> the case of <b>a thief and in</b> the case of a bailee who falsely <b>states the claim</b> that <b>a thief</b> stole the deposit entrusted to him and who takes an oath to that effect. <b>But the principle of fourfold or fivefold payment applies only in</b> the case of <b>a thief,</b> not in the case of one who falsely claims that a deposit was stolen.
+
+### Part 10
+The fact that the mishna does not teach the latter distinction <b>supports</b> the opinion of <b>Rabbi Ḥiyya bar Abba, as Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says:</b> In the case of <b>one who</b> falsely <b>states the claim</b> that <b>a thief</b> stole a <b>deposit</b> from him, and it is discovered that he himself is the thief, he <b>pays double payment.</b> And if the stolen item is an ox or sheep and <b>he slaughtered or sold</b> it, <b>he pays</b> the <b>fourfold or fivefold payment.</b> According to Rabbi Ḥiyya bar Abba, there is no difference between the applications of double payment and fourfold or fivefold payment in this case.
+
+### Part 11
+<b>There are</b> those <b>who say</b> a different version of this discussion: <b>Let us say</b> that the mishna <b>supports</b> the opinion of <b>Rabbi Ḥiyya bar Abba, as Rabbi Ḥiyya bar Abba says</b> that <b>Rabbi Yoḥanan says:</b> In the case of <b>one who</b> falsely <b>states the claim</b> that <b>a thief</b> stole a <b>deposit</b> from him, and it is discovered that he himself is the thief, he <b>pays double payment.</b> And if the stolen item is an ox or sheep, and <b>he slaughtered or sold</b> it, <b>he pays</b> the <b>fourfold or fivefold payment.</b>
+
+### Part 12
+The Gemara rejects the inference: <b>Does</b> the mishna <b>teach</b> that <b>there is no</b> difference <b>between</b> double payment and fourfold or fivefold payment except for the one mentioned in the mishna? <b>It teaches</b> merely that the principle of double payment applies <b>more broadly</b> than the principle of fourfold or fivefold payment, and it provides an example of this statement. This does not mean that this is the only difference, and it is possible that the <i>tanna</i> <b>taught</b> this one case <b>and omitted</b> others.
+
+### Part 13
+§ The mishna teaches <b>that the principle of double payment applies</b> both to the theft of something that is alive and to the theft of something that is not alive. The Gemara asks: <b>From where are these matters</b> derived? It is <b>as the Sages taught</b> in a <i>baraita</i> with regard to the verse that discusses double payment: “For any matter of trespass, whether it be for an ox, for a donkey, for a sheep, for a garment, or for any manner of lost thing about which one shall say: This is it, the claims of both of them shall come before the judges, the one whom the judges convict shall pay double to his neighbor” (Exodus 22:8). <b>“For any matter of trespass”</b> is <b>a generalization; “whether it be for an ox, for a donkey, for a sheep, for a garment”</b> is <b>a detail.</b> And when the verse states: <b>“Or for any manner of lost thing,” it then generalizes</b> again.
+
+### Part 14
+Consequently, this verse contains <b>a generalization, and a detail, and a generalization,</b> and one of the thirteen rules of exegesis states that in such a case <b>you may deduce</b> that the verse is referring <b>only</b> to items <b>similar to the detail.</b> Therefore, <b>just as</b> each of the items mentioned in <b>the detail</b> is clearly <b>defined as an item that is movable property and</b> has <b>intrinsic monetary</b> value, <b>so too</b> double payment is practiced with regard to <b>any item that is movable property and</b> has <b>intrinsic monetary</b> value.
+
+### Part 15
+<b>Land is excluded, as it is not movable property.</b> Canaanite <b>slaves are excluded, as they are compared to land</b> in many areas of <i>halakha</i>. Financial <b>documents are excluded, as, although they are movable property, they do not</b> have <b>intrinsic monetary</b> value. The value of the material on which the document is written is negligible; documents are valuable only because they serve as proof for monetary claims. Finally, <b>consecrated</b> property <b>is excluded</b> because <b>it is written</b> in the verse that the one found liable shall pay double to <b>“his neighbor,”</b> i.e., to another person, rather than to the Temple treasury.
+
+### Part 16
+The Gemara asks: <b>If</b> the <i>halakha</i> of double payment is limited to cases similar to the details mentioned in the verse, it should also be derived that <b>just as</b> each of the items mentioned in <b>the detail</b> is clearly <b>defined as an item whose carcass transmits impurity through contact and carrying, so too any item whose carcass transmits impurity through contact and carrying</b> it is subject to double payment. <b>But birds,</b> whose carcasses do not transmit impurity through contact or carrying, should <b>not</b> be subject to double payment.
+
+### Part 17
+The Gemara objects to the question: <b>But how can you say this? But isn’t “garment” written</b> in the list of specified items (Exodus 22:8)? It is impossible to speak of the impurity of carcasses with regard to clothing. The Gemara responds: <b>Say,</b> in response to this objection: <b>We are speaking</b> specifically <b>of animals,</b> and this is the question that was asked: Why not <b>say</b> that <b>with regard to animals,</b> an animal <b>whose carcass transmits impurity through contact and carrying, yes,</b> it is subject to double payment, whereas an animal <b>whose carcass does not transmit impurity through contact and carrying,</b> such as a bird, <b>no,</b> a thief would not pay double payment for stealing it?

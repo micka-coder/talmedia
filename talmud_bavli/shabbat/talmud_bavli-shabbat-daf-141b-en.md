@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>With what does one scrape it off? Rabbi Abahu said: With the back of a knife,</b> which is a departure from the typical manner of doing so.
 
@@ -50,5 +49,35 @@ The Gemara infers: <b>The reason</b> it is permitted is only <b>because it is lo
 ### Part 17
 The Gemara answers: <b>That</b> <i>baraita</i> <b>is</b> the opinion of <b>Rabbi Yehuda in the name of Rabbi Eliezer,</b> and it is not a clarification of the opinion of the Rabbis. Although Rabbi Eliezer holds that the shoe is not yet completed, nevertheless, Rabbi Yehuda says in the name of Rabbi Eliezer that it is permitted to carry it. <b>As it was taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda says in the name of Rabbi Eliezer: If it was</b> already <b>loose</b> and no longer requires a last, <b>it is permitted</b> to move it, since it is a completed vessel and no longer needs the last to shape it.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 18
+end of chapter
+
+### Part 19
+<strong>MISHNA:</strong> <b>A person may take his son</b> in his hands on Shabbat, <b>and</b> even though there <b>is a stone,</b> which is a set-aside item, <b>in</b> the child’s <b>hand,</b> it is not prohibited to pick up the child. <b>And</b> it is permissible to take <b>a basket with a stone inside it</b> on Shabbat. <b>And one may move ritually impure <i>teruma</i>,</b> which may not be eaten and is set-aside, <b>with ritually pure</b> <i>teruma,</i> <b>as well as with non-sacred</b> produce.
+
+### Part 20
+<b>Rabbi Yehuda says: One may even lift</b> a measure of <i>teruma</i> that was nullified from <b>a mixture of one hundred</b> measures of non-sacred produce <b>and one</b> measure of <i>teruma.</i> When a measure of <i>teruma</i> is mixed with non-sacred produce, if the non-sacred produce is one hundred times the measure of <i>teruma,</i> the <i>teruma</i> is nullified. However, the Sages instituted that one must remove an amount equivalent to that measure of <i>teruma</i> and give it to a priest. The remainder is considered non-sacred produce. Rabbi Yehuda permits removing that measure on Shabbat to render the mixture permitted to eat.
+
+### Part 21
+<strong>GEMARA:</strong> <b>Rava said:</b> If one <b>carried out a living baby</b> to the public domain on Shabbat, <b>and</b> the baby had <b>a purse</b> that <b>was hanging</b> around <b>his neck, he is liable for</b> carrying out <b>the purse.</b> However, one who carried out <b>a dead baby, with a purse hanging</b> around <b>his neck, is exempt.</b>
+
+### Part 22
+Rava said: If one <b>carried out a living baby</b> to the public domain on Shabbat, <b>and a purse was hanging</b> around the baby’s <b>neck, he is liable for</b> carrying out <b>the purse.</b> The Gemara asks: <b>And let him be liable for</b> carrying out the <b>baby as well.</b>
+
+### Part 23
+The Gemara responds: <b>Rava holds in accordance with</b> the opinion of <b>Rabbi Natan, who said: A living being carries itself.</b> Therefore, one who carries a living being from one domain to another is not liable.
+
+### Part 24
+The Gemara asks: <b>And let</b> the <b>purse be negated relative to</b> the <b>baby;</b> and he should be exempt for carrying out the purse as well. <b>Didn’t we learn in a mishna:</b> One who carries out a <b>living</b> person <b>on a bed is exempt even for</b> carrying out <b>the bed, because the bed is secondary to</b> the person? The same should be said with regard to the purse, relative to the baby.
+
+### Part 25
+The Gemara answers: In a case where <b>a bed</b> is <b>relative to a living being,</b> the living being <b>negates it,</b> as the bed is needed to carry the person and is secondary to him. However, in a case where <b>a purse</b> is <b>relative to a baby,</b> the baby does <b>not negate it,</b> since it is independently significant.
+
+### Part 26
+And Rava said: One who carried out <b>a dead baby with a purse hanging</b> around the baby’s <b>neck is exempt.</b> The Gemara asks: <b>And let him be liable for</b> carrying out the <b>baby.</b> The Gemara answers: <b>Rava holds in accordance with</b> the opinion of <b>Rabbi Shimon, who said:</b> With regard to <b>any labor that is not needed for its own sake, one is exempt for</b> performing <b>it</b> on Shabbat. One who carries out a corpse does not do so because he needs it; rather, he does so for the sake of the corpse, i.e., to bury it or to move it from a degrading place. Therefore, he has not performed a labor prohibited by Torah law. Similarly, he is also exempt for carrying out the purse because due to his distress and mourning he negates the purse, as it is insignificant relative to the baby.
+
+### Part 27
+<b>We learned</b> in the mishna: <b>A person may take his son</b> in his hands on Shabbat; <b>and</b> this is permitted even though there <b>is a stone in</b> the child’s <b>hand.</b> As it can be inferred from this mishna that the stone is negated relative to the child, why, then, is he liable in the case of a purse hanging around a live baby’s neck? Let the purse be negated relative to the baby. The Sages <b>of the school of Rabbi Yannai say:</b> You cannot infer from this mishna that the stone is negated and therefore it is permitted to move it. Rather, the mishna is referring <b>to a baby who has longings for his father.</b> It is permitted for the father to move the stone because if the father does not lift him, the baby might take ill.
+
+### Part 28
+The Gemara asks: <b>If so,</b>

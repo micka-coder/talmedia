@@ -1,4 +1,3 @@
-
 ### Part 1
 The Gemara expresses wonder at Rabbi Zeira’s equation of these two issues: <b>But isn’t there</b> the burning of <b>the limbs and the fats?</b> The Gemara answers: That is not difficult, because the burning of the limbs and the fats <b>is the end of the daytime service.</b> The Gemara asks further: <b>But isn’t there the removal of the ashes?</b> The Gemara rejects that argument: Removing the ashes is <b>the start of the daytime service,</b> as <b>Rabbi Yoḥanan said:</b> If a priest <b>sanctified his hands</b> at night by washing them <b>for the removal of the ashes, the next day,</b> i.e., after daybreak, <b>he need not sanctify</b> his hands again, <b>as he already sanctified</b> them <b>at the start of the service.</b> Rabbi Zeira’s equation between services that are incomplete by themselves and services for which a non-priest does not incur the death penalty therefore remains intact. <b>If so,</b> the question that he asked concerning Rabbi Yoḥanan’s statement remains <b>difficult.</b>
 
@@ -23,5 +22,11 @@ As explained above, the reason Rabbi Yoḥanan holds that the arrangement of the
 ### Part 8
 The Gemara rejects this proof: The reason the mishna mentions slaughtering is that it prefers to <b>teach</b> this statement with regard to <b>that which has no rectification</b> if it is done at night, such as slaughtering the offering, which is rendered irreparably invalid if performed before daybreak. <b>It does not</b> want to <b>teach</b> it with regard to <b>something that has rectification</b> if done at night, such as arranging the two logs, which can always be removed and replaced properly. However, it is possible that the proper time for arranging the logs is daytime, and therefore it may be regarded as a service that is completed by the subsequent burning of limbs on the altar.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 9
+end of chapter
+
+### Part 10
+<strong>MISHNA:</strong> <b>The appointed</b> priest <b>said to</b> the other priests: <b>Go out and observe if</b> it is day and <b>the time for slaughter</b> has <b>arrived. If</b> the time has <b>arrived, the observer says: There is light [<i>barkai</i>]. Matya ben Shmuel says</b> that the appointed priest phrased his question differently: <b>Is the entire eastern sky illuminated even to Hebron? And</b> the observer <b>says: Yes. And why did they need to</b> ascertain whether or not it is day, which is typically evident to all? It was necessary, <b>as once, the light of the moon rose, and they imagined that the eastern</b> sky <b>was illuminated</b> with sunlight, <b>and they slaughtered the daily offering</b> before its appropriate time. The animal was later <b>taken out to the place</b> designated for <b>burning</b> and burned because it was slaughtered too early. In order to prevent similar errors in the future, the Sages instituted that they would carefully assess the situation until they were certain that it was day.
+
+### Part 11
+After the priests announced the start of the day, <b>they led the High Priest down to the Hall of Immersion.</b> The Gemara comments: <b>This was the principle in the Temple: Anyone who covers his legs,</b> a euphemism for defecating, <b>requires immersion</b> afterward; <b>and anyone who urinates requires sanctification of the hands and feet</b> with water from the basin afterward.

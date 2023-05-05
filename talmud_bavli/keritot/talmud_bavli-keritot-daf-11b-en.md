@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>It should teach the opposite,</b> i.e., it should say: They made one who engages in the initial stage of intercourse like one who completes the act, as it is obvious that one who completes the act is liable.
 
@@ -11,5 +10,53 @@ Similarly, they rendered <b>one who</b> engages <b>intentionally</b> in <b>atypi
 ### Part 4
 The Gemara concludes: It <b>has been determined</b> that <b>one who</b> engages in intercourse <b>intentionally or engages</b> in the <b>initial stage of intercourse with</b> an espoused <b>maidservant is like one who</b> does so <b>unintentionally with all those with whom relations are forbidden,</b> meaning that he is exempt. Similarly, <b>one who</b> engages in intercourse with an espoused maidservant <b>in a typical manner</b> while <b>sleeping is like one who</b> does so, while <b>sleeping, with</b> all <b>those</b> others <b>with whom relations are forbidden,</b> and he is likewise exempt. Furthermore, it has also been <b>determined</b> that <b>one who</b> engages in <b>atypical</b> intercourse <b>with</b> an espoused <b>maidservant</b> while <b>awake is like one who</b> does so <b>with all those with whom relations are forbidden, while sleeping,</b> and he is also exempt.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 5
+end of chapter
+
+### Part 6
+<strong>MISHNA:</strong> If witnesses <b>said to</b> a person: We saw that <b>you ate</b> forbidden <b>fat,</b> he is liable to <b>bring a sin offering</b> if he did so unwittingly. If <b>a witness says: He ate</b> forbidden fat, <b>and a witness says: He did not eat</b> forbidden fat, or if <b>a woman says: He ate</b> forbidden fat, <b>and a woman says: He did not eat</b> forbidden fat, he is liable to <b>bring a provisional guilt offering,</b> brought by one who is uncertain as to whether he committed a sin that requires a sin offering. If <b>a witness says: He ate</b> forbidden fat, <b>and</b> the person himself <b>says: I did not eat</b> forbidden fat, he is <b>exempt.</b>
+
+### Part 7
+If <b>two</b> witnesses <b>say: He ate</b> forbidden fat, <b>and</b> the person himself <b>says: I did not eat</b> forbidden fat, <b>Rabbi Meir deems</b> him <b>liable</b> to bring a sin offering. <b>Rabbi Meir said:</b> This conclusion can be derived <i>a fortiori</i>: <b>If two</b> witnesses could have <b>brought him</b> liability <b>to</b> receive the <b>severe</b> punishment of <b>death,</b> can <b>they not bring him</b> liability <b>to</b> sacrifice <b>an offering, which is</b> relatively <b>lenient?</b> The Rabbis <b>said to him:</b> Witnesses are unable to render another person liable to bring an offering contrary to his statement, as <b>what if he wishes to say: I did</b> so <b>intentionally,</b> in which case he would be <b>exempt</b> from bringing an offering?
+
+### Part 8
+If one unwittingly <b>ate</b> an olive-bulk of forbidden <b>fat and</b> then ate another olive-bulk of forbidden <b>fat during one lapse of awareness,</b> i.e., in a case where he did not discover in the interim that fat is forbidden, or that the food he is eating is forbidden fat, <b>he is liable</b> to bring <b>only one</b> sin offering. If one <b>ate</b> forbidden <b>fat, and blood, and <i>piggul</i>, and <i>notar</i> in one lapse of awareness,</b> he is <b>liable</b> to bring a sin offering <b>for each and every one</b> of them. <b>This is a stringency</b> that applies <b>to</b> one who eats <b>several types</b> of forbidden food and does not apply to one who eats <b>one type</b> of forbidden food.
+
+### Part 9
+<b>And a stringency</b> that applies <b>to</b> one who eats <b>one type</b> of forbidden food and not to one who eats <b>several types</b> of forbidden food is <b>that if one ate half an olive-bulk and then ate another half an olive-bulk during one lapse of awareness,</b> in a case where they were both <b>from one type</b> of forbidden food, he is <b>liable</b> to bring a sin offering. If they were <b>from two types,</b> he is <b>exempt,</b> because he did not eat an olive-bulk of any specific forbidden food.
+
+### Part 10
+<strong>GEMARA:</strong> The mishna <b>teaches:</b> If witnesses <b>said to him: You ate</b> forbidden <b>fat,</b> he is liable to <b>bring a sin offering.</b> The Gemara analyzes the first clause of the mishna: Since the mishna employs the plural form of the word <b>said, how many</b> witnesses <b>are</b> involved in the case? There must be at least <b>two</b> witnesses. <b>And what does he say to them</b> in response? <b>If we say that he is silent and does not contradict them,</b> then it may be inferred that it is <b>only</b> when he responds with <b>silence</b> in response to the claim <b>of two</b> witnesses <b>that he brings a sin offering,</b> but <b>for silence</b> in response to the claim <b>of one</b> witness, he does <b>not</b> bring a sin offering.
+
+### Part 11
+But <b>say the middle clause:</b> If <b>a witness says</b> that <b>he ate</b> forbidden fat, <b>and</b> the person himself <b>says: I did not eat</b> it, he is exempt. The Gemara infers: <b>The reason</b> that he is exempt is <b>that he contradicts him. But</b> if he is <b>silent, he is liable, and all the more so</b> if he is silent when <b>two</b> witnesses claim that he ate forbidden fat. This contradicts the inference from the first clause that silence in response to one witness does not render one liable to bring a sin offering.
+
+### Part 12
+<b>Rather,</b> the first clause is referring to a case <b>where he contradicts</b> the claim of the two witnesses. <b>Whose</b> opinion is this? It <b>is</b> that of <b>Rabbi Meir, who says</b> in the continuation of the mishna that the person’s <b>contradiction</b> of the testimony <b>of two</b> witnesses <b>is not</b> considered <b>a contradiction,</b> and he is liable to bring a sin offering. <b>But according to</b> the opinion of <b>the Rabbis,</b> he is <b>exempt.</b>
+
+### Part 13
+The Gemara asks: <b>And</b> according to this answer, <b>what</b> does the <i>tanna</i> <b>teach us</b> in the first clause? <b>From the latter clause you</b> already <b>learn</b> that according to Rabbi Meir, one is liable to bring a sin offering as a result of the testimony of two witnesses, even if he contradicts them. The Gemara answers: The latter clause is clarifying the first clause, and <b>this</b> is what it <b>teaches us: This matter</b> that was stated in the first clause is actually the subject of <b>a dispute</b> between <b>Rabbi Meir and the Rabbis, and that</b> dispute pertains to a case <b>where he contradicts their</b> testimony.
+
+### Part 14
+<b>Some say</b> a different explanation of the first clause: The case is where only one witness asserts that the individual ate forbidden fat, and occasionally the plural verb form in the expression: Witnesses <b>said to him,</b> can <b>also</b> be used to <b>refer</b> to <b>one</b> witness. <b>As we learned</b> in a mishna (<i>Yevamot</i> 87b): With regard to <b>a woman whose husband went overseas, and</b> witnesses <b>came and said to her: Your husband died, and she married</b> another man on the basis of this testimony, <b>and afterward her husband came</b> back, <b>she must leave</b> both <b>this</b> man, her first husband, <b>and that</b> one, whom she married subsequently. This mishna indicates that the plural expression can be used in the case of a single witness, <b>as we maintain that</b> this mishna is referring <b>even</b> to a case <b>where one</b> witness testified that her husband died.
+
+### Part 15
+<b>From where</b> is this inferred? It is inferred <b>from</b> the fact <b>that the latter clause</b> of that mishna <b>teaches:</b> If <b>she married without consent</b> and then her first husband returned, <b>she is permitted to return to him. What</b> does the mishna mean when it states that she remarried <b>without consent?</b> It means she remarried <b>without the consent of the court,</b> which would be granted based on the testimony of <b>one witness.</b> Rather, two witnesses testified that her husband had died. Since that is full-fledged halakhic testimony, she is permitted to remarry independently, even without the explicit consent of the court.
+
+### Part 16
+<b>By inference,</b> one may conclude <b>that the first clause</b> is referring to a case where she married <b>with the consent of the court and</b> on the basis of the testimony <b>of one witness. Evidently,</b> that mishna <b>teaches</b> the plural form of the word: <b>Said,</b> when it is referring <b>to one witness, and here, too,</b> in this mishna <b>where it teaches</b> the phrase: Witnesses <b>said to him,</b> it <b>indicates</b> that <b>even one witness</b> renders one liable to bring a sin offering.
+
+### Part 17
+The Gemara asks: <b>And what does he say</b> in response to the witness? <b>If we say that he contradicts</b> the witness, <b>does he bring</b> an offering? <b>But doesn’t the middle clause teach:</b> If <b>a witness says: He ate</b> forbidden fat, <b>and</b> the person himself <b>says: I did not eat</b> forbidden fat, he is <b>exempt?</b>
+
+### Part 18
+<b>Rather,</b> if it is referring to a case <b>where he is silent,</b> the clause is unnecessary, as one can <b>learn</b> this <i>halakha</i> <b>from the middle clause,</b> which states: If <b>a witness says:</b> He ate forbidden fat, and the person himself says: I did not eat forbidden fat, he is exempt from bringing a sin offering. This indicates that <b>the reason</b> he is exempt is <b>that he contradicts</b> the witness, <b>but</b> if <b>he was silent,</b> he is <b>liable</b> to bring a sin offering.
+
+### Part 19
+The Gemara rejects this reasoning: <b>Actually,</b> the first clause of the mishna is referring to a case <b>where he does not contradict</b> the witness but remains silent. <b>And this</b> is what the mishna <b>is teaching:</b> If <b>they,</b> i.e., even one witness, <b>said to him: You ate</b> forbidden <b>fat,</b> he is liable to <b>bring a sin offering.</b> The middle clause then clarifies: <b>In what</b> case <b>is this statement said?</b> It is said <b>where he was silent</b> in response to this accusation, <b>but if he contradicts</b> the witness, he is <b>exempt.</b>
+
+### Part 20
+The Gemara asks: <b>And from where do we</b> derive <b>that by Torah law that</b> if <b>he does not contradict</b> the witness, <b>he is liable</b> to bring a sin offering? It is <b>as the Sages taught</b> in a <i>baraita</i> with regard to a verse that deals with a sin offering: <b>“Or if his sin is known to him”</b> (Leviticus 4:28), that this is referring to a case where he found out himself <b>but not</b> a case <b>where others informed him</b> of his sin. One <b>might</b> have thought he is exempt <b>even</b> if <b>he does not contradict</b> the claim of the witness. Therefore, <b>the verse states: “Or if</b> his sin <b>is known to him,”</b> which teaches that <b>in any case</b> where he knows that he sinned, even if others informed him of it, he is liable. He is exempt only if he denies it.
+
+### Part 21
+The Gemara asks: <b>What are we dealing with,</b> in the case where he is informed by others? <b>If we say</b> that it is referring <b>to two</b> witnesses who inform him, in a case where <b>two</b> witnesses testify <b>and he does not contradict them</b> does one <b>need a verse</b> to render him liable?

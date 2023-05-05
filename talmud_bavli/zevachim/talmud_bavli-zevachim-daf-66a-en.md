@@ -1,4 +1,3 @@
-
 ### Part 1
 It means that the priest <b>does not have to separate</b> it, but not that it is prohibited to do so. <b>Rav Aḥa, son of Rava, said to Rav Ashi: If that is so,</b> then <b>with regard to a pit</b> in the public domain, <b>where it is written:</b> “And if a man shall open a pit…<b>and does not cover it”</b> (Exodus 21:33), can one claim that this verse <b>also</b> means <b>that he does not have to cover</b> it?
 
@@ -14,5 +13,17 @@ Consequently, it is obvious that whereas the priest must completely separate the
 ### Part 5
 The Gemara asks: <b>What is the</b> biblical <b>derivation</b> for the opinion that the offering is valid if the priest squeezed out only the blood of the body but not if he squeezed out only the blood of the head? <b>Ravina said:</b> There is no conclusive proof from the language of the verse itself, but it <b>stands to reason</b> that this is the case, <b>as most of the blood is found in the body,</b> not the head.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> If the priest <b>sacrificed a bird sin offering</b> in its designated place <b>below</b> the red line, and he sacrificed it <b>according to the procedure of a sin offering</b> with pinching, i.e., cutting from the nape with a fingernail, and sprinkling, and he sacrificed it <b>for the sake of a sin offering,</b> the offering is <b>fit.</b> This is the manner in which a priest is to sacrifice a sin offering <i>ab initio</i>.
+
+### Part 8
+If the priest sacrificed the bird sin offering below the red line in the middle of the altar and <b>according to the procedure of a sin offering,</b> but he sacrificed it <b>for the sake of a burnt offering;</b> or if he sacrificed it <b>according to the procedure of a burnt offering,</b> even if he sacrificed it <b>for the sake of a sin offering;</b> or if he sacrificed it <b>according to the procedure of a burnt offering for the sake of a burnt offering;</b> in all these cases the sin offering is <b>disqualified.</b> If <b>one sacrificed</b> a bird sin offering <b>above</b> the red line <b>according to the procedure of any of</b> the offerings, it is <b>disqualified,</b> because he did not sacrifice it in its designated place.
+
+### Part 9
+<b>A bird burnt offering that one sacrificed</b> in its designated place <b>above</b> the red line <b>according to the procedure of a burnt offering</b> and <b>for the sake of a burnt offering</b> is <b>fit.</b> This is the manner in which a priest is to sacrifice a burnt offering <i>ab initio</i>. If he sacrificed a bird burnt offering above the red line <b>according to the procedure of</b> the <b>burnt offering</b> but <b>for the sake of a sin offering,</b> the offering is <b>fit, but it did not satisfy the obligation of its owner.</b>
+
+### Part 10
+If the priest sacrificed a bird burnt offering <b>according to the procedure of a sin offering for the sake of a burnt offering,</b> or <b>according to the procedure of a sin offering for the sake of a sin offering,</b> the offering is <b>disqualified.</b> If <b>he sacrificed it below</b> the red line <b>according to the procedure of any of</b> the offerings, it is <b>disqualified,</b> because he did not sacrifice it in its designated place.

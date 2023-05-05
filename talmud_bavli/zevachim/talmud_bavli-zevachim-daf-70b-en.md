@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>When one approaches</b> the matter <b>this</b> first <b>way,</b> the <i>halakha</i> that forbidden fat is pure <b>applies</b> specifically <b>to kosher</b> animals, but <b>when one approaches</b> the matter <b>that</b> second <b>way,</b> the <i>halakha</i> <b>applies</b> specifically <b>to non-kosher</b> animals. To decide the matter, <b>the verse states:</b> “The fat of <b>a <i>tereifa</i></b> may be used for any other service” (Leviticus 7:24), indicating that only the forbidden fat of <b>those</b> animals <b>to whose species</b> the <i>halakha</i> of <b><i>tereifa</i> applies,</b> i.e., kosher animals, is ritually pure. The status of <i>tereifa</i> is immaterial to a non-kosher animal as its consumption is prohibited in any event.
 
@@ -38,5 +37,8 @@ The Gemara asks: <b>But</b> the <b>slaughter</b> itself <b>should be effective i
 ### Part 13
 The Gemara asks: If the <i>baraita</i> is referring only to a heifer that died before its neck could be broken, and it describes benefitting from it as being prohibited, <b>by inference,</b> is it <b>prohibited</b> to derive benefit from the heifer <b>while</b> it is still <b>alive?</b> The Gemara responds: <b>Indeed,</b> as <b>Rabbi Yannai says: I heard</b> the <b>boundary,</b> i.e., stage, beyond which it is forbidden, <b>but I have forgotten</b> what it is, <b>and</b> yet the members of <b>the group</b> of scholars <b>were inclined to say</b> that <b>its descent to a hard valley</b> (see Deuteronomy 21:4), where its neck was broken, is the action that <b>renders it forbidden.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> <b>All the offerings that were intermingled with</b> animals from which deriving benefit is forbidden, e.g., <b>sin offerings</b> left to <b>die, or with an ox that</b> was sentenced to be <b>stoned, even</b> if the ratio is <b>one in ten thousand,</b> deriving benefit from them all is prohibited and <b>they all must die.</b> If the offerings <b>were intermingled with</b> animals whose sacrifice is forbidden but deriving benefit from them is not, the <i>halakha</i> is different. Examples of this are <b>an ox with which a transgression was performed,</b> which disqualifies it from being sacrificed as an offering, <b>or</b>

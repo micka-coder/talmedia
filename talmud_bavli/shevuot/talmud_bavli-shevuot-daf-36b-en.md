@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>Rather,</b> nevertheless, <b>reverse</b> the attribution of the opinions in the mishna and say that Rabbi Meir deems the witness exempt from liability for an oath of testimony, as <b>even in ritual matters,</b> Rabbi Meir <b>does not accept</b> the principle: From a negative statement you can infer a positive statement.
 
@@ -8,5 +7,50 @@
 ### Part 3
 <b>Rather, actually reverse</b> the attribution of the opinions in the mishna and say that Rabbi Meir deems the witness exempt from liability for an oath of testimony. <b>When</b> Rabbi Meir <b>does not accept</b> that principle, it is only <b>in</b> cases involving <b>monetary matters; but in</b> cases involving <b>ritual matters, he accepts</b> the principle. That is the reason he does not dispute the <i>halakha</i> in the <i>baraita</i> with regard to a priest intoxicated with wine or with overgrown hair on his head. <b>And</b> the reason that he does not accept the principle: From a negative statement you can infer a positive statement, in the case of <i>sota</i> is that <b><i>sota</i> is different because it is a ritual matter in which there are</b> ramifications involving <b>monetary matters,</b> i.e., payment of the marriage contract. The same is true with regard to an oath of testimony in the mishna; although it is a ritual matter, it is a ritual matter with ramifications involving monetary matters.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> One who takes a false oath denying that he is in possession of an item that another deposited with him is liable to return the item with an additional one-fifth of its value and to bring a guilt-offering (see Leviticus 5:20–26). The <i>halakhot</i> of <b>an oath on a deposit apply to men and to women, to non-relatives and to relatives,</b> i.e., even if the owner of the deposit and the purported bailee are related, <b>to</b> those <b>fit</b> to serve as witnesses <b>and to</b> those <b>disqualified</b> from doing so.
+
+### Part 6
+These <i>halakhot</i> apply when the oath is taken <b>in the presence of a court and</b> when taken <b>not in the presence of a court,</b> as long as the oath is taken <b>on his own,</b> i.e., stated by the defendant himself. <b>But</b> if the oath is administered <b>by others,</b> he is <b>not liable unless he denies</b> the claim <b>in court;</b> this is <b>the statement of Rabbi Meir.</b>
+
+### Part 7
+<b>And the Rabbis say: Both</b> when the defendant takes an oath <b>on his own and</b> when the oath is administered <b>by others, once</b> he has falsely <b>denied</b> the claim against him, he is <b>liable</b> to bring a guilt-offering and to pay restitution and an additional one-fifth, even if the oath was not administered in the presence of a court.
+
+### Part 8
+<b>And</b> one is <b>liable</b> to bring an offering <b>for intentionally</b> taking a false <b>oath</b> on a deposit <b>and for unwittingly</b> taking a false oath about the <b>intentional</b> misappropriation of <b>the deposit,</b> i.e., if one knowingly took a false oath but was unaware that he is liable to bring an offering for taking the oath. <b>But he is not liable for unwittingly</b> taking a false oath <b>by itself,</b> where he mistakenly thought that he did not owe anything. <b>And what is he liable for</b> when he <b>intentionally</b> takes a false oath? He must bring <b>a guilt-offering worth</b> at least two <b>silver shekels.</b>
+
+### Part 9
+The mishna continues: <b>What</b> is the case of <b>an oath on a deposit?</b> It is where the claimant <b>said to</b> the defendant: <b>Give me my deposit, which is in your possession,</b> and the defendant replied: On my <b>oath nothing</b> of <b>yours</b> is <b>in my possession; or</b> the defendant <b>said to him: Nothing</b> of <b>yours</b> is <b>in my possession,</b> the claimant responded: <b>I administer an oath to you, and</b> the defendant <b>said: Amen.</b> In either case <b>this</b> defendant is <b>liable</b> to bring a guilt-offering if he lied.
+
+### Part 10
+If the claimant <b>administered an oath to him five times, whether in the presence of a court or not in the presence of a court, and</b> the defendant falsely <b>denied</b> each claim, he is <b>liable</b> to bring a guilt-offering <b>for each and every</b> denial. <b>Rabbi Shimon said: What is the reason?</b> It is <b>due to</b> the fact <b>that he is able to retract and confess</b> after each oath and repay the claimant. Since he did not do so, each oath is considered a separate denial of a monetary claim.
+
+### Part 11
+If <b>five</b> people <b>were suing him</b> and <b>they said to him: Give us</b> back <b>our deposit that is in your possession,</b> and the defendant says: On my <b>oath nothing</b> of <b>yours</b> is <b>in my possession,</b> he is <b>liable</b> for <b>only one</b> false oath. But if he responds to each claimant: On my <b>oath nothing</b> of <b>yours</b> is <b>in my possession, and nothing</b> of <b>yours, and nothing</b> of <b>yours,</b> he is <b>liable for</b> his oath concerning <b>each and every</b> claim that he denied. <b>Rabbi Eliezer says:</b> He is not liable for his oath concerning each claim <b>unless he says:</b> On my <b>oath, at the end</b> of the denial, i.e., he says: Nothing of yours is in my possession, and nothing of yours, on my oath, so that it is clear that he is taking an oath to each one. <b>Rabbi Shimon says:</b> He is not liable for his oath concerning each claim <b>unless he says:</b> On my <b>oath, to each and every</b> claimant, i.e., he says: On my oath nothing of yours is in my possession, and on my oath nothing of yours, to each claimant separately.
+
+### Part 12
+In a case where the claimant said: <b>Give me</b> back <b>my deposit, and pledge, stolen item, and lost item that are in your possession,</b> and the defendant responds: On my <b>oath nothing</b> of <b>yours</b> is <b>in my possession,</b> he is <b>liable</b> for <b>only one</b> false oath. But if he responds: On my <b>oath I do not have in my possession your deposit, or pledge, stolen item, or lost item,</b> he is <b>liable for</b> his oath concerning <b>each and every</b> claim.
+
+### Part 13
+In a case where the claimant said: <b>Give me</b> back <b>my wheat, and barley, and spelt that are in your possession,</b> if the defendant responds: On my <b>oath nothing of yours</b> is <b>in my possession,</b> he is <b>liable</b> for <b>only one</b> false oath. But if he responds: On my <b>oath I do not have in my possession your wheat, barley, or spelt,</b> he is <b>liable for</b> his oath concerning <b>each and every</b> claim. <b>Rabbi Meir says: Even</b> if the defendant <b>says:</b> On my oath I do not have in my possession your <b>grain of wheat, or grain of barley, or grain of spelt,</b> he is <b>liable for</b> his oath concerning <b>each and every</b> claim.
+
+### Part 14
+The mishna continues: If one accuses another: <b>You raped or you seduced my daughter, and</b> the other <b>says: I did not rape and I did not seduce</b> your daughter, to which the father replied: <b>I administer an oath to you, and</b> the defendant <b>said: Amen,</b> the defendant is <b>liable</b> to bring a guilt-offering if it is a false oath. <b>Rabbi Shimon deems</b> him <b>exempt, since one does not pay a fine based on his own</b> admission. Had he confessed he would have been exempt from paying the fine; he is therefore not liable for his denial. The Rabbis <b>said to him: Even though he does not pay</b> the <b>fine based on his own</b> admission, <b>he does pay</b> compensation for <b>humiliation and</b> compensation for <b>degradation</b> resulting from her being raped or seduced, which are monetary claims and not fines, <b>based on his own</b> admission. He is therefore liable for a false oath, as he denied a monetary claim.
+
+### Part 15
+Similarly, in a case where one person accuses another: <b>You stole my ox, and the</b> defendant <b>says: I did not steal</b> your ox, if the claimant replied: <b>I administer an oath to you, and</b> the defendant <b>said: Amen,</b> he is <b>liable</b> to pay for the ox due to the theft and to bring a guilt-offering if he lied, since by his oath he is denying that he owes the value of the ox that he would have to pay if he admitted to stealing it. But in a case where the claimant accuses the defendant of stealing the ox and slaughtering or selling it, and the defendant says: <b>I stole</b> the ox, <b>but I did not slaughter or sell</b> it, and this is a lie, if the claimant replied: <b>I administer an oath to you, and he said: Amen,</b> then the defendant is <b>exempt</b> from the fivefold payment for slaughtering or selling another’s ox, since it is a fine.
+
+### Part 16
+If the claimant says: <b>Your ox killed my ox, and</b> the defendant lies and <b>says: It did not kill</b> your ox, to which the claimant replied: <b>I administer an oath to you, and he said: Amen,</b> then he is <b>liable</b> for his false oath. But if the claimant says: <b>Your ox killed my</b> Canaanite <b>slave</b> and you are therefore liable to pay me a fine of thirty shekels, <b>and he</b> lies and <b>says:</b> It <b>did not kill</b> your slave, to which the claimant replied: <b>I administer an oath to you, and he said: Amen,</b> then he is <b>exempt,</b> because payment for the slave is a fine.
+
+### Part 17
+If the claimant <b>said to him: You injured me and caused me a wound, and</b> the defendant <b>says: I did not injure</b> you <b>and I did not cause you a wound,</b> to which the claimant replies: <b>I administer an oath to you, and he said: Amen,</b> he is <b>liable.</b> But if <b>one’s</b> Canaanite <b>slave said to him: You knocked out my tooth, or: You blinded my eye,</b> and you are therefore required to emancipate me, <b>and he says: I did not knock out</b> your tooth, <b>or: I did not blind</b> your eye, to which the slave replies: <b>I administer an oath to you, and he said: Amen,</b> he is <b>exempt</b> from bringing a guilt-offering even though he lied, since the obligation to emancipate one’s slave in these cases is a penalty.
+
+### Part 18
+<b>This is the principle:</b> For <b>any</b> claim that the defendant would have to <b>pay based on his own</b> admission, he is <b>liable</b> to bring a guilt-offering for taking a false oath concerning that claim. <b>And</b> for any claim <b>that</b> he would <b>not pay based on his own</b> admission but would pay only by the testimony of witnesses, he is <b>exempt</b> from bringing a guilt-offering for taking a false oath concerning that claim.
+
+### Part 19
+<strong>GEMARA:</strong> <b>Rav Aḥa bar Huna and Rav Shmuel, son of Rabba bar bar Ḥana, and Rav Yitzḥak, son of Rav Yehuda, studied</b> tractate <b><i>Shevuot</i></b> in <b>the study hall of Rabba. Rav Kahana encountered them</b> and inquired with regard to a matter in the mishna. He <b>said</b>

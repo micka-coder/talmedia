@@ -1,4 +1,3 @@
-
 ### Part 1
 The number of people needed in a city for it to be eligible for a lesser Sanhedrin is <b>277.</b> This number is based on the opinion of Rabbi Neḥemya, who requires 230 men, but requires an additional 47 men in case it happens that the Sages of the court reach a situation where they are not able to arrive at a verdict, and pairs of judges need to be added, potentially increasing the number of judges on the court from 23 to 70, a maximum of 47 additional judges.
 
@@ -8,5 +7,35 @@ The Gemara asks: <b>But isn’t it taught</b> in a <i>baraita</i> that <b>Rabbi<
 ### Part 3
 Apropos the opinion of Rabbi Neḥemya, which links the issue of the lesser Sanhedrin with the appointment of the ministers in the wilderness, the Gemara relates: <b>The Sages taught:</b> The verse states: <b>“And place over them ministers of thousands, ministers of hundreds, ministers of fifties, and ministers of tens”</b> (Exodus 18:21). The number of <b>ministers of thousands</b> was <b>600,</b> as there were 600,000 men in total; the number of <b>ministers of hundreds</b> was <b>6,000;</b> of <b>ministers of fifties, 12,000,</b> and of <b>ministers of tens, 60,000.</b> Therefore, <b>it is found</b> that the total number of <b>judges of the Jewish people</b> was <b>78,600,</b> and suitable people were found to fill all of these positions.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> The <b>High Priest judges</b> others if he is sufficiently wise, <b>and</b> others <b>judge him</b> when he transgresses. He <b>testifies</b> before the court <b>and</b> others <b>testify concerning him. He performs <i>ḥalitza</i></b> with his brother’s widow <b>and</b> his brother <b>performs <i>ḥalitza</i> with his wife; and</b> his brother <b>consummates levirate marriage with his wife. But he does not consummate levirate marriage</b> with his brother’s widow, <b>because it is prohibited for him to</b> marry <b>a widow</b> (see Leviticus 21:14), and can therefore never fulfill the mitzva of levirate marriage, as a <i>yevama</i> is by definition a widow.
+
+### Part 6
+If a relative <b>of</b> the High Priest <b>dies, he does not follow the bier</b> carrying the corpse, since it is prohibited for the High Priest to become ritually impure even for immediate relatives (see Leviticus 21:11). <b>Rather,</b> once the members of the funeral procession <b>are concealed</b> from sight by turning onto another street, <b>he is revealed</b> on the street they departed, and when <b>they are revealed,</b> then <b>he is concealed, and</b> in this way, <b>he goes out with them until the entrance of the gate of the city,</b> from where they would take out the corpse, since the dead were not buried in Jerusalem. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 7
+<b>Rabbi Yehuda says: He does not emerge from the Temple</b> at all for the burial of his relatives, <b>as it is stated: “And from the Temple he shall not emerge</b> and will not desecrate the Temple of his God; for the separateness of the oil of the anointment of his God is on him” (Leviticus 21:12).
+
+### Part 8
+The mishna continues: <b>And when he consoles others</b> in their mourning when they return from burial, the <b>way of all the people</b> is that <b>they pass by one after another</b> and the mourners stand in a line and are consoled, <b>and the appointed</b> person <b>stands in the middle, between</b> the High Priest <b>and the people. And when he is consoled by others</b> in his mourning, <b>all the people say to him: We are your atonement. And he says to them: May you be blessed from Heaven. And when they comfort him with the</b> first <b>meal</b> after the burial of one of his relatives, <b>all the people recline on the ground</b> as if they are taking his mourning on themselves, <b>and he reclines on the bench</b> out of respect for his status as High Priest.
+
+### Part 9
+The mishna continues, enumerating the <i>halakhot</i> pertaining to the king in similar matters: <b>The king does not judge</b> others as a member of a court <b>and</b> others <b>do not judge him, he does not testify and</b> others <b>do not testify concerning him, he does not perform <i>ḥalitza</i></b> with his brother’s widow <b>and</b> his brother <b>does not perform <i>ḥalitza</i> with his wife,</b> and <b>he does not consummate levirate marriage</b> with his brother’s widow <b>and</b> his brother <b>does not consummate levirate marriage with his wife,</b> as all these actions are not fitting to the honor of his office. <b>Rabbi Yehuda says:</b> These are not restrictions, but his prerogative: <b>If he desired to perform <i>ḥalitza</i> or to consummate levirate marriage,</b> he is <b>remembered for good,</b> as this is to the benefit of his brother’s widow. The Sages <b>said to him: They do not listen to him</b> if he desires to do so, as this affects not only his own honor but that of the kingdom.
+
+### Part 10
+<b>And no one may marry</b> a king’s <b>widow,</b> due to his honor. <b>Rabbi Yehuda says:</b> Another <b>king may marry the widow of a king, as we found that</b> King <b>David married the widow of</b> King <b>Saul, as it is stated: “And I have given you the house of your master and the wives of your master in your bosom”</b> (II Samuel 12:8).
+
+### Part 11
+<strong>GEMARA:</strong> The mishna teaches that the <b>High Priest judges</b> others as a member of a court. The Gemara asks: Isn’t that <b>obvious?</b> Why would one think that he would be unfit to serve as a judge? The Gemara answers: <b>It was necessary for</b> the mishna to mention the latter clause: And others <b>judge him,</b> and therefore, it taught the related <i>halakha</i> with it. The Gemara objects: <b>This</b> is <b>also obvious; if</b> others <b>do not judge him, how can he judge</b> others? <b>But isn’t it written: “Gather yourselves together, yea, gather together [<i>hitkosheshu vakoshu</i>]”</b> (Zephaniah 2:1); <b>and Reish Lakish says:</b> This verse teaches a moral principle: <b>Adorn [<i>kashet</i>] yourself</b> first, <b>and then adorn others,</b> i.e., one who is not subject to judgment may not judge others.
+
+### Part 12
+<b>Rather,</b> neither <i>halakha</i> concerning the High Priest is a novelty. But <b>since</b> the <i>tanna</i> <b>wants to teach</b> that the <b>king does not judge</b> others <b>and</b> others <b>do not judge him, he also taught</b> that the <b>High Priest judges</b> others <b>and</b> others <b>judge him. And if you wish, say</b> instead that <b>this teaches us</b> the <i>halakha</i> <b>as it is taught</b> in a <i>baraita</i> (<i>Tosefta</i> 4:1): <b>A High Priest who killed a person intentionally is killed;</b> if he killed <b>unintentionally, he is exiled</b> to a city of refuge, <b>and he transgresses a positive mitzva and a prohibition, and he is like an ordinary</b> person <b>concerning all of his</b> <i>halakhot</i>.
+
+### Part 13
+The Gemara analyzes the <i>baraita</i>: A High Priest who killed another <b>intentionally is killed.</b> Isn’t that <b>obvious?</b> Why would he be punished differently than other murderers? <b>It was necessary for it</b> to mention the latter clause: If he killed <b>unintentionally, he is exiled,</b> so it taught the related case with it.
+
+### Part 14
+The Gemara objects: <b>This</b> is <b>also obvious.</b> The Gemara responds: <b>It was necessary</b> for the <i>baraita</i> to state the latter clause, lest it <b>enter your mind to say: Since it is written</b> about one who kills unintentionally and is exiled to a city of refuge: <b>“And he should dwell in it until the death of the High Priest”</b> (Numbers 35:25), <b>say: Anyone for whom there is a rectification by returning</b> from the city of refuge <b>is exiled,</b> but one <b>for whom there is no rectification by returning is not exiled.</b> The High Priest has no such rectification, <b>as we learned</b> in a mishna (<i>Makkot</i> 11b):

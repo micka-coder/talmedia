@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And it says</b> in another verse: <b>“Moses and Aaron among His priests, and Samuel among those who call His name;</b> they called upon the Lord, and He answered them” (Psalms 99:6). This verse equates Samuel to Moses and Aaron. In this manner, <b>the verse weighed three light ones of the world,</b> i.e., it considered the three less distinguished figures of Gideon, Samson, and Jephthah <b>as</b> equal to <b>three significant ones of the world,</b> Moses, Aaron, and Samuel, three of the greatest leaders of the Jewish people.
 
@@ -14,5 +13,44 @@ This comes <b>to tell you</b> that <b>Jerubaal in his generation</b> is worthy o
 ### Part 5
 The Gemara questions this last point: Is this derived by <b>an <i>a fortiori</i></b> inference? This is incorrect, as <b>it is an obligation</b> for the lesser to heed those who are greater than them. <b>Rather,</b> Rabbi Gamliel meant the following: <b>Since the greater heed the lesser, the lesser apply an <i>a fortiori</i></b> inference <b>to themselves</b> and heed the leaders of the generation.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> If <b>the court and all of</b> the <b>Jewish people saw</b> the new moon, and <b>the witnesses were interrogated, but</b> the court <b>did not manage to say: Sanctified, before nightfall,</b> so that the thirtieth day already passed, the previous month <b>is</b> rendered <b>a full,</b> thirty-day month, and the following day is observed as the New Moon.
+
+### Part 8
+If <b>the court alone saw</b> the new moon, <b>two</b> members of the court <b>should stand and testify before the others, and</b> the court <b>should say: Sanctified, sanctified.</b> If <b>three</b> people <b>saw</b> the new moon, <b>and they are</b> themselves members of <b>a court</b> for this purpose, <b>two</b> of them <b>should stand and seat</b> two <b>of their colleagues next to the individual</b> who remains of the three, thereby forming a new court of three. The two standing judges <b>should</b> then <b>testify before</b> the three seated judges that they saw the new moon and the seated judges <b>say: Sanctified, sanctified.</b> This procedure is necessary <b>because an individual is not authorized</b> to declare the month sanctified <b>by himself.</b> Rather, a court of three is required.
+
+### Part 9
+<strong>GEMARA:</strong> The Gemara asks: <b>Why do I</b> need the mishna <b>to teach:</b> If <b>the court and all of</b> the <b>Jewish people saw</b> the new moon? Merely stating that the court saw the moon would have sufficed, since its sanctification depends on them. The Gemara answers: <b>It was necessary</b> for the mishna to teach that even in that case, the month is intercalated. As <b>it might enter your mind to say</b> that <b>since the court and all of</b> the <b>Jewish people saw</b> the new moon, <b>it was publicized</b> that it was the New Moon that day, <b>and let them</b> no longer <b>intercalate</b> the month. Therefore, the <i>tanna</i> of the mishna <b>teaches us</b> that even in the case where all the Jewish people saw the new moon, the New Moon must be declared by the court.
+
+### Part 10
+The Gemara asks further: <b>But once</b> the mishna <b>states:</b> If <b>the court and all of</b> the <b>Jewish people saw</b> the new moon, <b>why do I</b> need it to say: And <b>the witnesses were interrogated?</b> Why are witnesses necessary if the new moon was already seen by the court? The Gemara answers that <b>this is what</b> the <i>tanna</i> <b>is saying: Alternatively,</b> if <b>the witnesses were interrogated, but</b> the court <b>had no time to say: Sanctified, before nightfall,</b> the previous month is <b>intercalated</b> and rendered a full month of thirty days.
+
+### Part 11
+The Gemara raises another difficulty. <b>But once</b> the mishna <b>taught:</b> But the court did not manage to say: Sanctified, <b>before nightfall,</b> the previous month is rendered a full, thirty-day month, <b>why do I</b> need the mishna <b>to teach</b> about <b>the interrogation of the witnesses?</b> This <i>halakha</i> was already stated with regard to a case where the court itself saw the new moon.
+
+### Part 12
+The Gemara explains: It <b>was necessary,</b> as it might <b>enter your mind to say: Let the interrogation of the witnesses be</b> regarded <b>as the beginning of the judicial</b> process, <b>and</b> let the declaration: <b>Sanctified, sanctified,</b> be regarded <b>as the conclusion of the judicial</b> process, <b>and let them sanctify</b> the month <b>at night,</b> because the process began during the day. This process would then be <b>just as it is in</b> cases of <b>monetary law, as we learned</b> in a mishna: In cases of <b>monetary law,</b> although they must be adjudicated during the day, the court may <b>judge</b> the majority of a case <b>during the day,</b> and <b>complete</b> the trial and issue the ruling <b>at night. Here too,</b> one might assume that the court may <b>sanctify</b> the month <b>at night,</b> as the process began during the day. Therefore, the mishna <b>teaches us</b> that the court may not do so.
+
+### Part 13
+The Gemara raises another difficulty: <b>Why not say</b> that, <b>indeed,</b> the sanctification of the month should be treated like monetary cases? The Gemara answers: <b>The verse states</b> with regard to Rosh HaShana: <b>“For this is a statute for Israel, a judgment [<i>mishpat</i>] of the God of Jacob”</b> (Psalms 81:5). <b>When does</b> the sanctification of the month <b>become a statute? At the end of the judicial process, and the Merciful One calls it a judgment</b> as well, thereby teaching that <b>just as</b> the primary time of <b>a judgment is during the day, here too,</b> with regard to the sanctification of the New Moon, the process must take place <b>during the day,</b> and not at night.
+
+### Part 14
+§ The mishna continues: If <b>the court</b> alone <b>saw</b> the new moon, <b>two</b> members of the court <b>should stand and testify before the others.</b> The Gemara ponders: If the court saw the new moon, <b>why</b> is it necessary for two of its members to testify before the others? <b>Hearing</b> their testimony <b>should not be greater than</b> actually <b>seeing</b> the new moon.
+
+### Part 15
+The Gemara responds that <b>Rabbi Zeira said:</b> The mishna is addressing a case <b>where</b> the court <b>saw</b> the new moon <b>at night.</b> Because they saw it at night, their testimony is inadmissible at that time, as testimonies are admissible only during the day. They must therefore wait until the following day and testify as any ordinary person would.
+
+### Part 16
+The mishna continues: If <b>three</b> people <b>saw</b> the new moon, <b>and they are</b> themselves members of <b>a court</b> for this purpose, <b>two</b> of them <b>should stand and seat</b> two <b>of their colleagues next to the individual</b> who remains of the three. The Gemara asks: <b>Why</b> is this necessary? <b>Here too, let us say: Hearing</b> their testimony <b>should not be greater than</b> actually <b>seeing</b> the new moon. <b>And if you say</b> that <b>here too,</b> the mishna is addressing a case <b>where they saw</b> the new moon <b>at night, this</b> case <b>is</b> identical to <b>that</b> previous one, and there would be no need for two separate rulings.
+
+### Part 17
+The Gemara answers: <b>It was necessary</b> to teach <b>the last clause,</b> which states: <b>Because an individual is not deemed credible</b> and authorized to declare the month sanctified <b>by himself. For</b> it might <b>enter your mind to say</b> that <b>since we learned</b> in a <i>baraita</i>: Cases of <b>monetary law</b> are adjudicated <b>by</b> a court of <b>three</b> judges, <b>but if</b> a person <b>was a publicly recognized expert, he may judge</b> monetary matters <b>even individually, then here too,</b> one judge <b>should</b> be authorized to <b>sanctify</b> the month <b>individually</b> if he is a recognized expert. Therefore, the mishna <b>teaches us</b> that this is not so, and that three judges are required for the sanctification of the month.
+
+### Part 18
+The Gemara asks: <b>But why not say that here too,</b> a recognized expert can sanctify the month individually? The Gemara rejects this possibility: But certainly <b>there was no publicly recognized expert among</b> the <b>Jewish people greater than our teacher Moses,</b> and nevertheless <b>the Holy One, Blessed be He, said to him:</b> You may not sanctify the new month <b>until Aaron is with you, as it is written: “And the Lord spoke to Moses and Aaron in the land of Egypt, saying, this month shall be for you</b> the beginning of months” (Exodus 12:1–2), where the word “you” is in the plural form. And since, to avoid deadlock, a court cannot be composed of an even number of judges, another judge must be added. It is therefore apparent that three judges are required for the sanctification of the month by Torah law.
+
+### Part 19
+The Gemara asks: <b>Is this to say that a witness becomes a judge,</b> i.e., that one who witnessed an event can himself serve as a judge concerning the matter? <b>Let us say that the mishna is not in accordance with</b> the opinion of <b>Rabbi Akiva, for it was taught</b> in a <i>baraita</i>: If <b>the Sanhedrin saw someone kill</b> another <b>person,</b>

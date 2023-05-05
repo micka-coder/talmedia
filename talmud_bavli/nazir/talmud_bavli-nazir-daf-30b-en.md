@@ -1,4 +1,3 @@
-
 ### Part 1
 the mishna therefore <b>teaches us</b> that it is <b>a <i>halakha</i></b> that is unrelated to inheritance; there is simply a tradition that a son can use the offerings for his father’s naziriteship while a daughter cannot.
 
@@ -26,5 +25,8 @@ The Gemara raises another dilemma: If <b>his father</b> was <b>a permanent nazir
 ### Part 9
 <b>And if you say: Here, both</b> cases are at least similar in that they involve <b>ritually pure naziriteship,</b> and therefore the son can make use of his father’s money, then <b>Rav Ashi raises</b> a different <b>dilemma:</b> If <b>his father</b> was <b>an impure nazirite and he was a pure nazirite,</b> or if <b>his father was a pure nazirite and he was an impure nazirite, what</b> is the <i>halakha</i>? Can the son shave using money left for his father’s naziriteship or not? No answer was found for any of these dilemmas, and the Gemara says that they <b>shall stand</b> unresolved.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>Beit Shammai say: Consecration</b> that one performs in <b>error</b> nevertheless renders property <b>consecrated,</b>

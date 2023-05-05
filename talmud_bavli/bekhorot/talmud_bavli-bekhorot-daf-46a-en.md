@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>to</b> the priest based <b>on the consent of the public,</b> making it a type of vow that cannot be dissolved without their consent.
 
@@ -8,5 +7,26 @@
 ### Part 3
 § The mishna teaches that a priest <b>who becomes impure</b> through exposure <b>to corpses</b> is disqualified from performing the Temple service until he accepts upon himself that he will no longer become impure in that manner. The Gemara asks: <b>What is different here that it is sufficient for him</b> merely to <b>accept</b> upon himself a commitment in order to continue serving in the Temple, <b>and what is different there,</b> where the priest marries by a transgression, <b>that we administer a vow to him?</b> The Gemara responds: <b>There his desire seizes him,</b> and it is therefore necessary for the priest to take a vow.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> <b>There is</b> a son who is <b>a firstborn with regard to inheritance but is not a firstborn with regard to</b> the requirement of redemption from <b>a priest.</b> There is another who is <b>a firstborn with regard to</b> redemption from <b>a priest but is not a firstborn with regard to inheritance.</b> There is another who is <b>a firstborn with regard to inheritance and with regard to</b> redemption from <b>a priest. And there is</b> another <b>who is not a firstborn</b> at all, <b>neither with regard to inheritance nor with regard to</b> redemption from <b>a priest.</b>
+
+### Part 6
+<b>Which is</b> the son who is <b>a firstborn with regard to inheritance but is not a firstborn with regard to</b> redemption from <b>a priest?</b> It is a son <b>who came after miscarriage</b> of an underdeveloped fetus, <b>even where</b> the <b>head</b> of the underdeveloped fetus <b>emerged alive; or</b> after a fully developed <b>nine-</b>month<b>-old</b> fetus <b>whose head emerged dead.</b> The same applies to a son born to a woman <b>who</b> had previously <b>miscarried</b> a fetus that had the appearance of <b>a type of domesticated animal, undomesticated animal, or bird,</b> as that is considered the opening of the womb. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 7
+<b>And the Rabbis say:</b> The son is not exempted from the requirement of redemption from a priest <b>unless</b> his birth follows the birth of an animal <b>that takes the form of a person.</b> In the case of a woman <b>who miscarries</b> a fetus in the form of <b>a sandal fish or</b> from whom <b>an afterbirth or a gestational sac</b> in which <b>tissue developed</b> emerged, <b>or</b> who delivered a fetus <b>that emerged in pieces,</b> the son <b>who follows these is a firstborn with regard to inheritance but is not a firstborn with regard to</b> redemption from <b>a priest.</b>
+
+### Part 8
+In the case of a son born to <b>one who did not have sons and he married a woman who had already given birth;</b> or if he married a woman who gave birth when <b>she was still</b> a Canaanite <b>maidservant and she was</b> then <b>emancipated;</b> or one who gave birth when <b>she was still a gentile and she</b> then <b>converted,</b> and <b>when</b> the maidservant or the gentile <b>came to</b> join <b>the Jewish people she gave birth</b> to a male, that son is <b>a firstborn with regard to inheritance but is not a firstborn with regard to</b> redemption from <b>a priest.</b>
+
+### Part 9
+<b>Rabbi Yosei HaGelili says:</b> That son is <b>a firstborn with regard to inheritance and with regard to</b> redemption from <b>a priest, as it is stated:</b> “Whatever <b>opens the womb among</b> the children of <b>Israel”</b> (Exodus 13:2). This indicates that the halakhic status of a child born to the mother is not that of one who opens the womb <b>unless it opens the womb</b> of a woman <b>from the Jewish people.</b>
+
+### Part 10
+In the case of <b>one who had sons and married a woman who had not given birth;</b> or if he married a woman who <b>converted while</b> she was <b>pregnant,</b> or a Canaanite maidservant who <b>was emancipated while</b> she was <b>pregnant</b> and she gave birth to a son, he is a firstborn with regard to redemption from a priest, as he opened his mother’s womb, but he is not a firstborn with regard to inheritance, because he is not the firstborn of his father or because halakhically he has no father.
+
+### Part 11
+<b>And</b> likewise, if an Israelite woman <b>and</b> the daughter or wife of <b>a priest,</b> neither of whom had given birth yet, or an Israelite woman <b>and</b> the daughter or wife of <b>a Levite,</b> or an Israelite woman <b>and a woman who had already given birth,</b> all women whose sons do not require redemption from the priest, <b>gave birth</b> in the same place and it is uncertain which son was born to which mother; <b>and likewise</b> a woman <b>who did not wait three months after</b> the death of <b>her husband and she married and gave birth, and it is unknown whether</b> the child was born after a pregnancy of <b>nine months</b> and is the <b>son of the first</b> husband, or <b>whether</b> he was born after a pregnancy of <b>seven months</b> and is the <b>son of the latter</b> husband, in all these cases the child is <b>a firstborn with regard to</b> redemption from <b>a priest but is not a firstborn with regard to inheritance.</b> Due to the uncertainty, he is unable to prove he is the firstborn of either father, and therefore he is not entitled to the double portion of the firstborn.

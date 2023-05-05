@@ -1,4 +1,3 @@
-
 ### Part 1
 <strong>MISHNA:</strong> If one <b>took wood from</b> an <i>ashera</i>, it is <b>prohibited to</b> derive <b>benefit</b> from it. In a case where one <b>kindled</b> a fire in <b>an oven with</b> the wood, <b>if</b> it is <b>a new</b> oven and by kindling the fire he hardened the oven and made it stronger for use in the future, then the oven <b>must be shattered.</b> Since forbidden items were used in the process of forming the oven, one may not derive benefit from the use of the forbidden items. <b>But if</b> it is <b>an old</b> oven <b>it may be cooled;</b> it is prohibited to use the oven only while it is still hot. If one <b>baked bread with</b> wood from the <i>ashera</i> as the fuel, it is <b>prohibited to</b> derive <b>benefit</b> from the bread.
 
@@ -47,5 +46,17 @@ The Gemara rejects this suggestion: <b>No, everyone</b> agrees that people <b>wo
 ### Part 16
 <b>And if you wish, say</b> instead <b>that everyone</b> agrees that <b>fragments of fragments are permitted, and here they disagree with regard to</b> objects of <b>idol worship</b> that are composed <b>of segments</b> that come apart <b>and that a layman can reassemble.</b> One <b>Sage,</b> Rav, <b>holds</b> that <b>since a layman can reassemble it,</b> its idolatrous status is <b>not nullified. And</b> one <b>Sage,</b> Shmuel, <b>holds</b> that an object of <b>idol worship</b> needs to have its status <b>revoked only</b> when it breaks in the course of <b>its</b> natural <b>manner of growth, as that is its</b> typical <b>manner. This</b> case, where the idol is disassembled, <b>is not</b> related to <b>its</b> natural <b>growth and</b> therefore it <b>requires no</b> further act <b>to revoke</b> its idolatrous status.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 17
+end of chapter
+
+### Part 18
+<strong>MISHNA:</strong> <b>Rabbi Yishmael says: Three stones</b> that are <b>adjacent to each other at</b> the <b>side of Mercury [<i>Markulis</i>] are prohibited,</b> as that idol was worshipped by tossing stones toward it, which then became part of the idol. <b>But</b> if there are only <b>two</b> stones, then they <b>are permitted. And the Rabbis say:</b> Those stones <b>that are adjacent to</b> Mercury and appear to have fallen from it <b>are prohibited. But</b> those stones <b>that are not adjacent to it are permitted.</b>
+
+### Part 19
+<strong>GEMARA:</strong> The Gemara asks: <b>Granted,</b> one can explain that <b>the Rabbis hold</b> that idol worshippers <b>worship fragments</b> of idols. Therefore, those stones that are <b>adjacent to</b> Mercury, <b>where it can be said</b> that they <b>fell from its</b> pile of stones, <b>are prohibited;</b> as they are considered fragments of an object of idol worship, namely the stone pile. And those <b>that are not adjacent to</b> Mercury <b>are permitted,</b> as they did not fall from it.
+
+### Part 20
+<b>But</b> with regard to the opinion of <b>Rabbi Yishmael, what does he hold? If</b> he holds that idol worshippers <b>worship fragments</b> of idols, <b>even two</b> stones <b>should be prohibited. If</b> he holds that idol worshippers <b>do not worship fragments</b> of idols, <b>even three</b> stones <b>should not</b> be prohibited.
+
+### Part 21
+<b>Rav Yitzḥak bar Yosef says</b> that <b>Rabbi Yoḥanan says: In</b> a case where <b>it is known that</b> these stones <b>fell from</b> the pile of stones, <b>everyone agrees</b> that <b>they are prohibited, and</b> this is the <i>halakha</i> <b>even according to the one who says:</b> Idol worshippers <b>do not worship fragments.</b> As <b>that statement</b> applies only to a form of <b>idol worship where that is not</b> the normal <b>manner</b> in which <b>it</b> is worshipped. <b>But here, where</b> the stones thrown onto the pile are <b>broken</b> stones <b>from the outset, this is its</b> normal <b>manner</b> of worship. <b>They disagree</b> only <b>when</b> it is <b>not specifically</b> known where these stones came from.

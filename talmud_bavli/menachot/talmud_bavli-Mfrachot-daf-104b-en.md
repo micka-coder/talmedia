@@ -1,0 +1,65 @@
+### Partie 1
+<b>Je demande ce qu'est</b> le <i>halakha</i> ? L'homme</b> qui a fait le voeu d'apporter onze <i>log</i> <b>intentionne-t-il</b> d'apporter une quantité de vin correspondant à celle qui est apportée en association avec une offrande <b>de deux taureaux,</b> c'est-à-dire douze <i>log</i>, <b>et tant qu'il n'a pas accumulé cette</b> quantité, la libation <b>n'est pas apportée ? Ou peut-être a-t-il l'intention</b> d'apporter une quantité égale à celle associée <b>à deux béliers et un agneau,</b> c'est-à-dire quatre pour chaque bélier et trois pour l'agneau, soit un total de onze. <b>Disons-nous</b> qu'il avait l'intention d'apporter <b>deux</b> libations associées <b>à un type,</b> c'est-à-dire un bélier, <b>et une</b> libation associée <b>à un autre type,</b> c'est-à-dire un agneau, <b>ou non ? Qu'est-ce que la <i>halakha</i> ? La Guemara conclut : Le dilemme ne sera pas résolu.
+
+#### Partie 2
+<strong>MISHNA:</strong> <b>On peut s'engager</b> à apporter des libations indépendantes de <b>vin, mais on ne peut pas s'engager à apporter de l'huile</b> seule ; c'est <b>la déclaration de Rabbi Akiva. Rabbi Tarfon dit : On peut s'engager à apporter de l'huile</b> également.
+
+#### Partie 3
+abbi Tarfon dit : De même que nous avons trouvé que le vin vient</b> comme <b>obligation et vient</b> comme <b>offre de cadeau</b> indépendamment de toute offrande, <b>de même,</b> nous trouvons <b>que l'huile vient</b> comme <b>obligation et vient</b> comme <b>offre de cadeau</b>. abbi Akiva lui dit : Non, si tu as dit</b> que cela est vrai <b>en ce qui concerne le vin, car</b> il est <b>sacrifié avec son offrande obligatoire</b> <b>par lui-même, dois-tu</b> également <b>dire</b> que c'est aussi le cas <b>en ce qui concerne l'huile, qui n'est jamais sacrifiée avec son offrande obligatoire</b> <b>par elle-même, mais seulement</b> mélangée à la farine ?
+
+### Partie 4
+La mishna conclut par une décision concernant l'offrande volontaire d'un repas : eux personnes ne s'engagent pas à faire une offrande de repas d'un dixième d'épha en tant qu'associés, mais elles peuvent s'engager à faire un holocauste et une offrande de paix. Et</b> ils peuvent s'engager à apporter même <b>un oiseau individuel,</b> et pas seulement une paire.
+
+### Partie 5
+<strong>GEMARA:</strong> En ce qui concerne le différend entre Rabbi Tarfon et Rabbi Akiva sur la question de savoir si l'on peut s'engager à apporter de l'huile, <b>Rava a déclaré : "D'après les déclarations de ces deux personnes, il n'y a pas de différence entre les deux : Des déclarations des deux, nous apprenons</b> qu'une <b>personne peut mettre en gage une offrande de repas</b> comme celles apportées <b>avec les libations</b> qui accompagnent les offrandes d'animaux chaque jour.
+
+### Partie 6
+La Guemara demande : N'est-ce pas <b>évident?</b> La Guemara explique : Il fallait le dire, <b>de peur que vous ne disiez</b> que <b>le Miséricordieux a révélé</b> la nature d'une <b>offrande de repas volontaire</b> (voir Lévitique, chapitre 2). Peut-être que seules les <b>cinq offrandes de repas</b> détaillées ici sont <b>en effet</b> apportées en tant qu'offrandes volontaires, mais tout <b>type supplémentaire</b>, tel qu'une offrande de repas apportée avec des libations, ne l'est <b>pas</b>.ava nous <b>enseigne donc</b> que <b>ces questions</b> dans la Torah s'appliquent seulement <b>lorsque</b> son engagement d'une offrande de repas était <b>non spécifié, mais lorsqu'il a spécifié</b> que l'huile et la farine au sujet desquelles il fait des vœux devraient être apportées à la manière d'une offrande de repas avec des libations, alors <b>il a spécifié,</b> et le vœu prend effet.
+
+### Partie 7
+§ La mishna a déclaré que deux personnes ne s'engagent pas ensemble sur un dixième d'épha. La Guemara demande : <b>Quelle en est la raison ? Si nous disons</b> que c'est <b>parce qu'il est écrit :</b> "Et lorsqu'un individu <b>apporte</b> une offrande de repas" (Lévitique 2:1), au singulier, ce n'est pas une preuve, car en ce qui concerne <b>un holocauste aussi, il est écrit</b> au singulier : "Quand l'un de vous <b>apporte</b> une offrande" (Lévitique 1, 2). Néanmoins, deux personnes peuvent apporter ensemble un holocauste, comme l'indique la mishna.
+
+### Partie 8
+uelle est la raison pour laquelle un holocauste est apporté par deux personnes ? La raison en est qu'il est écrit à la deuxième personne du pluriel : "Vous offrirez ceci... à côté de vos holocaustes, de vos offrandes de gâteau, de vos offrandes de boisson ou de vos offrandes de paix" (Nombres 29:39). La Guemara souligne : En ce qui concerne les <b>offrandes de repas</b>, il est <b>également écrit</b> au pluriel : <b>"Vos offrandes de repas [<i>leminḥoteikhem</i>]". La raison pour laquelle il n'est pas possible d'apporter une offrande de repas dans le cadre d'un partenariat est qu'il est écrit : "Et lorsqu'un individu apporte une offrande de repas" (Lévitique 2:1), ce qui indique qu'un seul individu peut l'offrir, mais pas deux ensemble.
+
+### Partie 9
+<b>Ceci est également enseigné</b> dans une <i>baraita</i> : <b>Rabbi</b> Yehuda HaNasi <b>déclare</b> une explication du verset suivant : "Quiconque <b>apporte son offrande, qu'il s'agisse de l'un de leurs vœux ou de l'une de leurs offrandes volontaires qu'ils sacrifient à l'Éternel"</b> (Lévitique 22, 18). L'emploi du pluriel dans la seconde partie du verset montre bien que toute offrande peut être apportée en association, et le verset n'exclut de ce principe que l'offrande de gâteau, comme il est dit : "Et lorsqu'un individu apporte une offrande de gâteau, l'offrande de gâteau peut être apportée en association".
+
+### Partie 10
+La Guemara cite un autre commentaire sur le fait que la Torah introduit l'offrande de repas volontaire en soulignant qu'elle est apportée par un individu. abbi Yitzḥak dit : Pour quelle</b> raison l'offrande de repas est-elle différente</b> des autres offrandes en ce que</b> le terme <b>"un individu [<i>nefesh</i>]" est énoncé à son sujet ? Le Saint, béni soit-il, a dit : A qui appartient la pratique</b> d'apporter une offrande de repas?</b> C'est celle d'un <b>individu pauvre</b> ; et <b>Je lui attribuerai</b> un crédit <b>comme s'il offrait son âme [<i>nafsho</i>] devant Moi.</b>
+
+### Partie 11
+§ La Guemara cite un autre commentaire de Rabbi Yitzḥak sur les offrandes de repas. abbi Yitzḥak dit : Quelle est</b> la raison pour laquelle l'offrande de repas se différencie</b> des autres offrandes dans la mesure où la Torah a <b>énoncé ces cinq types de préparations à l'huile</b> à son sujet ? Les cinq types d'offrandes volontaires de repas sont : Une offrande de farine fine, une offrande de farine dans une poêle peu profonde, une offrande de farine dans une poêle profonde, une offrande de farine de pains cuits au four, et une offrande de farine de galettes cuites au four. Toutes sont apportées avec de l'huile. Cela peut s'expliquer par la parabole d'un roi en chair et en os dont l'ami a préparé un repas de fête pour lui, mais</b> le roi <b>sait que</b> l'ami <b>est pauvre.</b> Le roi <b>lui dit : Prépare pour moi</b> des aliments <b>parmi cinq sortes de plats frits</b>, <b>afin que je puisse bénéficier de toi.</b>
+
+### Partie 12
+fin du chapitre
+
+### Partie 13
+<strong>MISHNA:</strong> Celui qui dit : <b>Il m'incombe</b> d'apporter <b>un dixième</b> d'un épha pour une offrande, <b>doit apporter</b> une offrande d'un <b>un</b> dixième. S'il dit : Il m'incombe d'apporter <b>des dixièmes</b> d'un épha, <b>il doit apporter deux</b> dixièmes, car c'est la quantité minimale plurielle. S'il dit : <b>J'ai spécifié</b> plusieurs dixièmes d'un épha <b>mais je ne sais pas quel</b> nombre <b>j'ai spécifié, il doit apporter soixante dixièmes,</b> car c'est la quantité maximale d'une offrande de repas. La farine qui dépasse la quantité qu'il a effectivement spécifiée est considérée comme une offrande volontaire.
+
+### Partie 14
+Si l'on dit : <b>Il</b> m'incombe</b> d'apporter <b>une offrande de repas, il peut apporter l'offrande de repas</b> qu'il souhaite,</b> c'est-à-dire l'offrande de repas à base de farine fine, l'offrande de repas à la poêle ou à la cuve, ou l'offrande de repas cuite au four sous forme de pains ou de galettes. abbi Yehouda dit : Il doit apporter l'offrande de farine fine, car c'est la plus remarquable des offrandes de repas.
+
+### Partie 15
+Si quelqu'un dit : Il m'incombe d'apporter <b>une offrande de repas, ou:</b> Il m'incombe d'apporter <b>un type d'offrande de repas, il doit apporter une</b> offrande de repas. S'il dit : Il m'incombe d'apporter des <b>offrandes de repas</b> ou :</b> Il m'incombe d'apporter des <b>offrandes de repas d'un</b> certain <b>type, il doit en apporter deux.</b> S'il dit : <b>J'ai spécifié</b> une offrande de repas <b>mais je ne sais pas quelle</b> offrande de repas <b>j'ai spécifié, il doit apporter les cinq</b> types d'offrandes de repas.
+
+### Partie 16
+Si quelqu'un dit : <b>J'ai spécifié une offrande de dixièmes</b> d'un épha <b>mais je ne sais pas combien</b> de dixièmes <b>j'ai spécifié, il doit apporter</b> une offrande de repas de <b>soixante dixièmes</b> d'un épha. abbi Yehouda HaNasi <b>Dit:</b> Son obligation n'est satisfaite que lorsqu'il apporte des offrandes de repas de toutes tailles, par tranches de <b>dixièmes</b> d'épha, allant de un</b> dixième d'épha <b>à soixante</b> dixièmes, pour un total de soixante offrandes de repas d'un volume total de 1 830 dixièmes d'épha, soit 183 épha. Il accomplit son vœu avec l'une des offrandes, les autres étant des offrandes volontaires.
+
+### Partie 17
+a Michna enseigne que celui qui dit : Il m'incombe d'apporter un dixième d'épha pour une offrande de repas, doit apporter une offrande de repas d'un dixième. La Guemara demande : N'est-ce pas évident ? Pourquoi est-il nécessaire d'enseigner cela dans la mishna ? La Guemara répond qu'il <b>était nécessaire</b> que la mishna mentionne ce cas en préambule à la <i>halakha</i> suivante, à savoir que si quelqu'un dit : il m'incombe d'apporter des <b>dixièmes</b> d'un épha, il doit <b>apporter deux</b> dixièmes. La Guemara demande : N'est-ce pas aussi évident ? La Guemara répond : <b>Il était nécessaire</b> d'enseigner que la quantité <b>minimale</b> à laquelle le mot <b>tenthes</b> est utilisé en référence est <b>deux</b> dixièmes.
+
+### Partie 18
+§ La mishna enseigne que si l'on dit : <b>J'ai spécifié</b> plusieurs dixièmes d'un épha <b>mais je ne sais pas quel</b> nombre <b>j'ai spécifié, il doit apporter soixante dixièmes.</b> La Guemara demande : <b>Qui</b> est le <i>tanna</i> qui <b>a enseigné</b> cela ?
+
+### Partie 19
+<b>Ḥizkiyya dit:</b> Cette affirmation n'est <b>pas conforme</b> à l'opinion de <b>Rabbi</b> Yehuda HaNasi mentionnée à la fin de la mishna. <b>Comme si</b> c'était l'opinion de <b>Rabbi</b> Yehuda HaNasi, <b>n'a-t-il pas dit</b> qu'une telle personne <b>doit apporter des offrandes de repas de</b> toutes tailles, par incréments de <b>dixième</b> d'épha, allant <b>d'un</b> dixième d'épha <b>jusqu'à soixante</b> dixièmes ?
+
+### Partie 20
+<b>Et Rabbi Yoḥanan</b> n'était pas d'accord et <b>disait : Vous</b> pouvez <b>même dire</b> que cette déclaration est conforme à l'opinion de <b>Rabbi</b> Yehuda HaNasi, parce que le cas à la fin de la mishna est un cas où quelqu'un a spécifié qu'il apporterait les dixièmes d'un épha dans un seul récipient. Dans ce cas, Rabbi Yehouda HaNasi considère qu'il faut apporter soixante quantités différentes dans soixante récipients différents. En revanche, le premier cas de la mishna est celui où la personne dit : J'ai spécifié plusieurs dixièmes d'un épha, mais je n'ai pas établi qu'ils devaient être apportés dans un seul récipient.</b> Dans ce cas, tous sont d'accord pour dire <b>qu'il doit apporter soixante dixièmes</b> d'un épha <b>dans soixante vases,</b> un dixième dans chaque vase.
+
+### Partie 21
+§ La mishna enseigne que si l'on dit : <b>Il</b> m'incombe</b> d'apporter <b>une offrande de repas</b> le premier <i>tanna</i> soutient <b>qu'il peut apporter n'importe quelle</b> offrande de repas <b>qu'il souhaite,</b> alors que Rabbi Yehuda soutient qu'il doit apporter l'offrande de repas à base de farine fine, car c'est la plus notable des offrandes de repas. lle est enseignée</b> dans une <i>baraita</i> : Rabbi Yehouda dit qu'il doit apporter l'offrande de farine fine, <b>puisque</b> dans le passage de la Torah qui traite de l'offrande de repas (Lévitique, chapitre 2) <b>le verset commence avec</b> l'offrande de farine fine <b>en premier lieu,</b> la mentionnant avant les autres offrandes de repas.
+
+### Partie 22
+La Guemara conteste : <b>S'il en est ainsi, celui qui dit : Il</b> m'incombe</b> d'apporter <b>un holocauste,</b> sans préciser quel type d'animal, <b>doit apporter un jeune taureau</b> comme holocauste, <b>puisque le verset s'ouvre avec lui</b>.

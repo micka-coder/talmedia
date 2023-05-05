@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>that</b> have been <b>inspected in the Chamber of the Lambs</b> for <b>four days prior</b> to the time of their <b>slaughter.</b> The reserve of six lambs ensured that each lamb would be available for inspection for three days prior to the day of its sacrifice, for a total of four. <b>And whose</b> opinion is this? <b>It is</b> the opinion of <b>ben Bag Bag, as it is taught</b> in a <i>baraita</i> that <b>ben Bag Bag says: From where</b> is it derived that <b>the daily offering requires examination four days prior to</b> its <b>slaughter?</b>
 
@@ -44,5 +43,20 @@ The Gemara answers: <b>You</b> may <b>even say</b> the mishna is in accordance w
 ### Part 15
 The mishna teaches that <b>Rabbi Eliezer ben Ya’akov says:</b> The minors <b>are not tallied in the</b> minimum <b>total</b> of twelve Levites…and they were called cadets [<i>tzoarei</i>] of the Levites. The Sages <b>taught</b> in a <i>baraita</i>: <b>And they were called the helpers [<i>soadei</i>] of the Levites.</b> The Gemara asks: <b>And the <i>tanna</i> of our</b> mishna, why is he referring to them as <i>tzoarei</i>? The Gemara answers: <b>Since these</b> minors had <b>high voices and those</b> adults had <b>deep voices,</b> and <b>these</b> minors would <b>sing in a high voice [<i>mekateti</i>], and those</b> adults could <b>not sing in</b> such <b>a high voice, they were called <i>tzoarei</i>,</b> as they caused the adult Levites anguish [<i>tza’ar</i>] due to the fact that they could not produce the same pleasant sounds as the minors.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 16
+end of chapter
+
+### Part 17
+<strong>MISHNA:</strong> <b>There are</b> <i>halakhot</i> <b>with regard to valuations that are lenient and</b> others <b>that are stringent; and</b> there are <i>halakhot</i> <b>with regard to an ancestral field that are lenient and</b> others <b>that are stringent; and</b> there are <i>halakhot</i> <b>with regard to a forewarned ox that killed</b> a Canaanite <b>slave that are lenient and</b> others <b>that are stringent;</b> and there are <i>halakhot</i> <b>with regard to a rapist, and a seducer, and a defamer that are lenient and</b> others <b>that are stringent.</b>
+
+### Part 18
+<b>There are</b> <i>halakhot</i> <b>with regard to valuations that are lenient and</b> others <b>that are stringent; how so? Both</b> in the case of one <b>who took</b> a vow of <b>valuation</b> to donate the fixed value <b>of the</b> most <b>attractive among the Jewish people and</b> in the case of one who took a vow of valuation to donate the fixed value of <b>the</b> most <b>unsightly among the Jewish people, he gives</b> the fixed payment of <b>fifty <i>sela</i>,</b> shekels, to the Temple treasury (see Leviticus 27:3). <b>And if</b> one <b>said: It</b> is incumbent <b>upon me</b> to donate the <b>assessment</b> of another to the Temple treasury, <b>he gives the price</b> for that person if sold as a slave, a sum that can be more or less than fifty shekels.
+
+### Part 19
+<strong>GEMARA:</strong> The mishna states: <b>There are</b> <i>halakhot</i> <b>with regard to valuations that are lenient and</b> others <b>that are stringent; how so? Both</b> in the case of one <b>who took</b> a vow of <b>valuation</b> to donate the fixed value of the most attractive among the Jewish people <b>and</b> in the case of one who took a vow of valuation to donate the fixed value of the most unsightly among the Jewish people, he gives the fixed payment of fifty <i>sela</i> to the Temple treasury. The Gemara infers from this that if the vow of valuation referred <b>to a Jew, yes,</b> he pays the fixed value; but if one took a vow of valuation to donate the fixed value <b>of gentiles,</b> he does <b>not</b> pay the fixed value.
+
+### Part 20
+The Gemara asks: If so, <b>let us say that the mishna is not in accordance with</b> the opinion of <b>Rabbi Meir, as we learned</b> in a mishna (5b): With regard to <b>a gentile, Rabbi Meir says: He is valuated</b> in a case where a Jew says: It is incumbent upon me to donate the fixed value of this gentile; <b>but</b> a gentile <b>does not take</b> a vow of <b>valuation</b> to donate his fixed value or the value of others.
+
+### Part 21
+The Gemara answers: <b>You</b> can <b>even say</b> that the mishna is in accordance with the opinion of <b>Rabbi Meir,</b> as it can be claimed that <b>the same is true,</b> i.e. <b>that even</b> if one took a vow of valuation to donate the fixed value of <b>a gentile,</b> he <b>also</b> pays the fixed amount. <b>But</b>

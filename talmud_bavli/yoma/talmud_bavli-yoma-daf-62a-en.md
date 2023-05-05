@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And does he burn his flock?</b> The Torah obligated him to burn only one goat, and yet there are times when he must burn several, as stated in the mishna. Rabbi Naḥman retorts: <b>Is it comparable? There,</b> with respect to burning the goats, <b>it is not written: “It,”</b> which would restrict the burning to only one animal, whereas <b>here,</b> with regard to the scapegoat, <b>it is written: “It,”</b> which indicates that one animal alone is sent away. The objection has been refuted and indeed only one scapegoat is used.
 
@@ -17,5 +16,17 @@ The Gemara responds: This is no proof, as <b>perhaps at the time when the first<
 ### Part 6
 <b>Rather,</b> the principle that one uses the first item is derived from the statement of <b>Rabbi Yosei with regard to the Paschal offering, as it was taught</b> in a <i>baraita</i>: With regard to <b>one who separated</b> a sheep for <b>his Paschal offering and</b> the sheep <b>was lost, and he separated another</b> sheep <b>in its stead, and afterward the first</b> sheep <b>was found, and they both stand</b> before him, <b>he sacrifices whichever of them he wants;</b> this is <b>the statement of the Rabbis. Rabbi Yosei says:</b> The <b>mitzva</b> is performed <b>with the first</b> sheep. <b>And if the second was</b> of <b>superior</b> quality <b>to it, he brings</b> the second sheep. This proves that according to Rabbi Yosei, if there are two animals equally fit for an offering, one brings the animal that was chosen first.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 7
+end of chapter
+
+### Part 8
+<strong>MISHNA:</strong> <b>The mitzva of the two Yom Kippur goats,</b> the goat sacrificed to God and the goat sent to Azazel that are brought as a pair, <b>is</b> as follows, <i>ab initio</i>: <b>That they will both be identical in appearance,</b> i.e., color, <b>and in height, and in monetary value, and their acquisition</b> must be <b>as one,</b> i.e., they must be purchased together. <b>And even if they are not identical,</b> nevertheless, <b>they are valid.</b> And similarly, if <b>he acquired one today and one tomorrow, they are valid.</b>
+
+### Part 9
+If <b>one</b> of the goats <b>died, if it died before</b> the High Priest <b>drew the lots, he</b> immediately <b>takes a counterpart for the second,</b> since neither has yet been designated. <b>And if it died after</b> the High Priest <b>drew the lots, he brings another pair</b> of goats <b>and draws lots over them from the start.</b>
+
+### Part 10
+After that lottery <b>he utters</b> a stipulation: <b>If</b> the one to be sacrificed <b>to God died, that</b> goat <b>upon which the lot for God</b> was drawn in the second lottery <b>shall stand in its stead; and if</b> the one to be sent <b>to Azazel died, that</b> goat <b>upon which the lot for Azazel</b> was drawn <b>shall stand in its stead. And the second,</b> superfluous goat, i.e., in the case where a new pair of goats was brought, <b>should graze until it becomes unfit,</b> at which point <b>it will be sold, and the money</b> received from <b>its</b> sale <b>will go toward</b> the purchase of <b>a</b> public <b>gift-offering.</b> Although for individual sin-offerings in similar circumstances there is no remedy and it is left to die, that is not the case here, <b>as a communal sin-offering</b> is <b>not</b> left <b>to die.</b> On the other hand, <b>Rabbi Yehuda says:</b> In this <b>it should</b> be left to <b>die.</b>
+
+### Part 11
+<b>And furthermore, Rabbi Yehuda said:</b> If <b>the blood</b> of the goat sacrificed to God <b>spilled</b> before it was sprinkled, <b>the scapegoat</b> is left <b>to die.</b> Similarly, <b>if the scapegoat dies, the blood</b> of the goat sacrificed to God <b>should be spilled,</b> and two other goats are brought and lots are drawn.

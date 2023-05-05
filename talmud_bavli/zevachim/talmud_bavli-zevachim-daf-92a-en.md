@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>but</b> one may <b>not</b> extinguish <b>a wood coal,</b> because extinguishing it is prohibited by Torah law? <b>And if it enters your mind</b> that Shmuel <b>holds in accordance with</b> the opinion of <b>Rabbi Shimon,</b> it should be permitted to extinguish <b>even a wood coal.</b> Rabbi Shimon maintains that extinguishing a coal is prohibited by Torah law only when one intends to use the extinguished coal. Otherwise, this constitutes a labor performed on Shabbat which is not necessary for its own sake, which is not prohibited by Torah law.
 
@@ -11,5 +10,26 @@ The Gemara answers: Shmuel’s statements are not contradictory, as <b>with rega
 ### Part 4
 The Gemara relates: <b>Shmuel said to Rav Ḥana of Baghdad: Bring me an assembly of ten</b> men <b>and I will tell you in their presence</b> this <i>halakha</i> that I wish to disseminate: With regard to <b>libations that became ritually impure, one prepares for them an arrangement</b> of wood <b>by themselves and burns them</b> there.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 5
+end of chapter
+
+### Part 6
+<strong>MISHNA:</strong> In the case of <b>the blood of a sin offering</b> designated for presentation <b>that was sprayed on a garment, that</b> garment <b>requires laundering,</b> as is stated with regard to a sin offering: “And when any of its blood shall be sprinkled on a garment, you shall launder that on which it shall be sprinkled in a sacred place” (Leviticus 6:20). <b>Although the verse is speaking only of</b> sin offerings <b>that are eaten</b> and whose blood is presented on the outer altar, <b>as it is stated: “In a sacred place shall it be eaten”</b> (Leviticus 6:19), the principle is not exclusive to eaten sin offerings. With regard to the blood of <b>both</b> the sin offerings <b>that are eaten and the</b> sin offerings that are wholly burned and not eaten and whose blood is presented on the <b>inner</b> altar, garments sprayed with blood from each of these offerings <b>require laundering. As it is stated</b> at the start of that passage: “This is <b>the law of the sin offering”</b> (Leviticus 6:18), it is understood: There is <b>one law for all the sin offerings.</b>
+
+### Part 7
+That is the <i>halakha</i> with regard to sin offerings fit for sacrifice. With regard to <b>a disqualified sin offering, its blood does not</b> cause a garment to <b>require laundering whether</b> the offering <b>had a period of fitness</b> when its blood was fit for presentation <b>or whether it did not have a period of fitness. Which</b> offering <b>is</b> the disqualified sin offering <b>that had a period of fitness?</b> It is one <b>that was left overnight</b> and then became disqualified; <b>or</b> it is one <b>that became ritually impure; or</b> it is one <b>that emerged</b> from of the Temple courtyard. <b>Which</b> offering <b>is</b> the disqualified sin offering <b>that did not have a period of fitness?</b> It is one <b>that was slaughtered</b> with the intent to eat it or present its blood <b>beyond its</b> designated <b>time or outside its</b> designated <b>area; or</b> it is one whose blood was <b>collected</b> by people <b>disqualified</b> for Temple service <b>and</b> they <b>sprinkled its blood.</b>
+
+### Part 8
+<strong>GEMARA:</strong> The mishna teaches: In the case of <b>the blood of a sin offering that was sprayed</b> on a garment, the garment must be laundered, and this is the <i>halakha</i> concerning the blood of sin offerings that are eaten and sin offerings that are wholly burned, as it is stated: “This is the law of the sin offering”; there is one law for all sin offerings. The Gemara asks: <b>And if</b> there is <b>one law for all sin offerings, even</b> the blood of <b>a bird sin offering</b> should <b>also</b> require laundering. If so, <b>why is it taught</b> in a <i>baraita</i>: One <b>might</b> have thought that the <b>blood of a bird sin offering requires laundering.</b> To counter this, <b>the verse states: “This</b> is the law of the sin offering.” The word “this” teaches that the <i>halakha</i> is to be restricted to the blood of an animal sin offering and it does not apply to the bird sin offering.
+
+### Part 9
+<b>Reish Lakish said in the name of bar Kappara: The verse states:</b> “This is the law of the sin offering…<b>shall</b> the sin offering <b>be slaughtered”</b> (Leviticus 6:18). <b>The verse is speaking</b> specifically <b>of</b> sin offerings <b>that are slaughtered</b> and not of bird offerings, which are killed by pinching the nape of the neck, rather than slaughtering with a knife.
+
+### Part 10
+The Gemara challenges: <b>And I</b> might <b>say</b> that the <i>halakha</i> is to be learned in another manner, and <b>the verse is speaking</b> specifically <b>of</b> sin offerings <b>that are eaten, as it is written: “In a sacred place shall it be eaten”</b> (Leviticus 6:19); <b>but internal</b> sin offerings, which are not eaten, should <b>not</b> be included. The Gemara explains: <b>The Merciful One amplifies</b> the <i>halakha</i> by stating: “This is <b>the law of</b> the sin offering,” which includes all sin offerings, even those that are not eaten.
+
+### Part 11
+The Gemara suggests: <b>If so,</b> then <b>even</b> the blood of <b>the bird sin offering</b> should be included. The Gemara explains: <b>The Merciful One restricts</b> the <i>halakha</i> by stating: <b>“This</b> is the law,” which excludes bird offerings.
+
+### Part 12
+The Gemara asks: <b>And what did you see</b> that indicated that the verse is to be understood as including internal sin offerings and excluding bird offerings, and not the opposite? The Gemara answers: <b>It stands to reason that internal animal sin offerings should have been included</b> by the inclusive language of the verse, <b>as</b> internal sin offerings resemble eaten animal sin offerings in several ways: Each variety is a large <b>animal</b> and not a bird; each variety is subject to <b>slaughter on the north</b> side of the Temple courtyard; <b>and</b> the blood of each requires <b>collection</b> in <b>a vessel;</b>

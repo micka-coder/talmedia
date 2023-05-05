@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>and his soul ascends</b> to its place beneath the Throne of Glory, <b>and does not descend anymore.</b>
 
@@ -26,5 +25,26 @@ Similarly, <b>Rabban Yoḥanan ben Zakkai said</b> the following story as <b>a p
 ### Part 9
 <b>Alternatively,</b> the verse quoted above can be interpreted in the following way: <b>“At all times let your clothes be white”; this</b> is clothing that contains <b>ritual fringes [<i>tzitzit</i>],</b> which are white. <b>“And oil shall not be absent from upon your head”; these</b> words hint to <b>phylacteries,</b> which are worn on the head.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> <b>One</b> who was traveling on Shabbat eve and <b>night fell,</b> and Shabbat began while he was still <b>en route, gives his</b> money <b>pouch to a gentile</b> traveling with him. <b>And if there is no gentile with him he places it on the donkey.</b> Once <b>he reached the outer courtyard</b> of the city, where belongings can be securely placed, <b>he takes the vessels that may be moved on Shabbat</b> off the donkey. With regard to the vessels <b>that may not be moved on Shabbat, he unties the ropes</b> that attach his bags to the donkey, <b>and the bags</b> of vessels <b>fall on their own.</b>
+
+### Part 12
+<strong>GEMARA:</strong> We learned in the mishna: One who was traveling on Shabbat eve and night fell, and Shabbat began while he was still en route, gives his money pouch to a gentile. The Gemara asks: <b>What is the reason</b> that <b>the Sages permitted him to give his pouch to a gentile?</b> Is it not prohibited for a Jew to ask a gentile to perform a prohibited labor on Shabbat? The Gemara answers: <b>The Sages maintain</b> that <b>a person does not restrain himself</b> when faced with losing <b>his money. If you do not permit him</b> to give his pouch to a gentile, <b>he will come to carry four cubits in a public domain,</b> thereby violating a Torah prohibition.
+
+### Part 13
+<b>Rava said:</b> This allowance to give the pouch to a gentile is <b>specifically</b> with regard to <b>his</b> own <b>pouch, but</b> in the case of <b>a lost object</b> that he found, <b>no,</b> it was not permitted. The Gemara asks: That is <b>obvious,</b> as <b>we learned</b> in the mishna: <b>His pouch,</b> and nothing else. The Gemara answers: Rava specified this <b>lest you say</b> that <b>the same is true even</b> with regard to <b>a lost object,</b> that one may give it to a gentile on Shabbat, and <b>the</b> mishna <b>taught</b> the case of <b>his pouch</b> merely because it is the <b>manner</b> in <b>which the matter</b> typically occurs. Therefore, Rava <b>teaches us</b> that the mishna is in fact establishing a <i>halakha</i> restricted to his pouch. The Gemara comments: <b>And we only said</b> that this allowance does not apply to a lost object when <b>it did not come into his possession</b> before Shabbat. <b>However,</b> if the object already <b>came into his possession</b> before Shabbat, <b>its</b> legal status is <b>like</b> that of <b>his pouch.</b>
+
+### Part 14
+<b>Some state</b> this dilemma in a different manner. <b>Rava raised a dilemma:</b> With regard to <b>a lost object that came into his possession</b> before Shabbat, <b>what is</b> the ruling? Is the <i>halakha</i> that <b>since it</b> already <b>came into his possession, its</b> legal status is <b>like</b> that of <b>his pouch? Or perhaps, since he did not exert</b> himself to acquire <b>it, its</b> legal status is <b>not like</b> that of <b>his pouch.</b> Since he expended no effort, he would be capable of restraining himself even when faced with losing it. Therefore, there is no need for the Sages to permit him to give it to a gentile. The Gemara concludes: <b>Let</b> this dilemma <b>stand</b> unresolved.
+
+### Part 15
+We learned in the mishna: <b>And if there is no gentile with him</b> he places it on the donkey. The Gemara infers: <b>The reason</b> is specifically because <b>there is no gentile with him;</b> if <b>there is a gentile with him, he gives it to the gentile</b> and does not place it on a donkey. The Gemara asks: <b>What is the reason</b> for this <i>halakha</i>? The Gemara answers: With regard to <b>a donkey</b> belonging to a Jew, <b>you are commanded with regard to its rest</b> on Shabbat. With regard to <b>a gentile, you are not commanded with regard to his rest</b> and no Torah prohibition is being violated.
+
+### Part 16
+The Gemara teaches an additional <i>halakha</i>: If there was no gentile with him but there was <b>a donkey, a deaf-mute, an imbecile, and a minor,</b> meaning someone under thirteen years old, <b>one places it on the donkey,</b> but <b>one neither gives it to the deaf-mute, nor the imbecile, nor the minor. What is the reason</b> for this? Although they are not obligated to fulfill mitzvot, <b>these</b> are <b>people,</b> but <b>this</b> donkey <b>is not a person.</b> It is preferable to place it on the donkey rather than give it to a person. And if <b>a deaf-mute and an imbecile</b> were with him, he gives it to <b>the imbecile.</b> If <b>an imbecile and a minor</b> were with him, he gives it to <b>the imbecile.</b>
+
+### Part 17
+<b>A dilemma was raised</b> before the Sages: If <b>a deaf-mute and a minor</b> were with him, <b>what</b> is the ruling? To whom does he give his pouch? The Gemara answers: <b>According to</b> the opinion <b>of Rabbi Eliezer you have no dilemma.</b> Rabbi Eliezer holds that a deaf-mute has a greater degree of halakhic intelligence than does a minor, <b>as it was taught</b> in a <i>baraita</i>: <b>Rabbi Yitzḥak says in the name of Rabbi Eliezer: The <i>teruma</i> of a deaf-mute</b> that he separated from his produce

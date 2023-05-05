@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>of years of the crops he shall sell to you”</b> (Leviticus 25:15). The plural form of both “years” and “crops” indicates that the number of years does not necessarily correspond to the quantity of crops. Consequently, <b>sometimes you</b> might <b>sell three</b> yields of <b>crops in two years.</b> If one purchases a field in the summer, when the produce has not yet been harvested, and he harvests that yield and subsequently grows and harvests two more crops before the completion of the whole two years, he will have gained three yields in less than two years.
 
@@ -26,5 +25,38 @@ The Gemara asks: <b>And</b> how would <b>the other</b> <i>amora</i>, Rav Yosef, 
 ### Part 9
 The Gemara recounts that <b>when</b> Rabbi Zeira eventually <b>ascended</b> to Eretz Yisrael <b>he</b> indeed <b>found Rabbi Elazar</b> and <b>said to him: Did you say</b> that the <b><i>halakha</i></b> is <b>in accordance with</b> the opinion of <b>Rabbi Yosei ben Keifar?</b> Rabbi Elazar <b>said to him: I said</b> that it <b>stands to reason</b> that the <i>halakha</i> is in accordance with his opinion. He elaborated: <b>From</b> the fact <b>that</b> throughout <b>the entire chapter</b> the Mishna <b>teaches:</b> And <b>one day, but here,</b> in the last mishna, <b>it does not teach</b> this phrase, one can <b>conclude from it</b> that it <b>stands to reason</b> that there is a reason for this discrepancy, <b>in accordance with the opinion of</b> Rabbi Yosei ben Keifar.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 10
+end of chapter
+
+### Part 11
+<strong>MISHNA:</strong> If <b>the lower sign</b> of puberty, two pubic hairs, <b>appeared</b> in a young woman <b>before the upper</b> sign, development of the breasts, <b>appeared,</b> then she is an adult, as the pubic hairs are an unequivocal sign. Therefore, if her childless husband died and she came before her husband’s brother [<i>yavam</i>] for levirate marriage, <b>she either performs the ritual through which a <i>yavam</i> frees a <i>yevama</i> of her levirate bonds [<i>ḥalitza</i>] or enters into levirate marriage</b> with her husband’s brother.
+
+### Part 12
+If <b>the upper</b> sign indicating puberty <b>appeared before the lower</b> sign <b>appeared,</b> i.e., the two pubic hairs are not visible, <b>although that</b> order of development is apparently <b>impossible, Rabbi Meir says:</b> In fact, it is possible for the breasts to develop before the growth of two pubic hairs, and the concern is that the two hairs did not grow and fall out but rather they never grew in the first place, which would mean that she remains a minor. Therefore, if her childless husband dies, <b>she neither performs <i>ḥalitza</i> nor does she enter into levirate marriage</b> with her husband’s brother.
+
+### Part 13
+<b>And the Rabbis say:</b> She has reached majority, and therefore if her childless husband dies <b>she either performs <i>ḥalitza</i> or enters into levirate marriage</b> with her husband’s brother. That is <b>due to</b> the fact <b>that</b> the Sages <b>said:</b> It is <b>possible for the lower</b> sign of puberty <b>to appear before the upper</b> sign <b>appears; but</b> it is <b>impossible for the upper</b> sign <b>to appear before the lower</b> sign <b>appears.</b>
+
+### Part 14
+<strong>GEMARA:</strong> The mishna teaches that Rabbi Meir and the Rabbis disagree with regard to the <i>halakha</i> when the upper sign of puberty appears before the lower sign. The mishna stated about that case: <b>Although that</b> order of development is <b>impossible.</b> The Gemara raises a difficulty: <b>But</b> the mishna explicitly states that it is referring to a situation where the upper sign <b>did appear</b> before the lower one. The Gemara explains: When the mishna states that it <b>did appear,</b> that is <b>according to</b> the opinion of <b>Rabbi Meir,</b> who maintains that such an occurrence is possible, whereas when the mishna teaches: <b>Although that</b> order of development is <b>impossible,</b> it is referring <b>to</b> the opinion of <b>the Rabbis,</b> who contend that it is not possible.
+
+### Part 15
+The Gemara objects: <b>But</b> why is it necessary at all to mention the phrase: Although that order of development is impossible. Instead, let the mishna simply <b>teach:</b> If <b>the upper</b> sign of puberty <b>appeared, Rabbi Meir says: She neither performs <i>ḥalitza</i> nor does she enter into levirate marriage</b> with her husband’s brother; <b>and the Rabbis say: She either performs <i>ḥalitza</i> or enters into levirate marriage</b> with her husband’s brother. <b>And I would know</b> that the ruling of the Rabbis is <b>due to</b> the fact <b>that it is impossible</b> for the upper sign of puberty to appear before the lower sign.
+
+### Part 16
+The Gemara explains: <b>If</b> the mishna <b>had not taught: Although that</b> order of development is <b>impossible, I would say</b> that with regard to <b>most women the lower</b> sign <b>appears first,</b> before the upper sign; <b>but</b> in <b>a minority of women, the upper</b> sign <b>appears first. And Rabbi Meir,</b> who rules that she is a minor who may not perform either <i>ḥalitza</i> or enter into levirate marriage, conforms <b>to his</b> standard line of <b>reasoning, that one must be concerned for the minority.</b> In other words, Rabbi Meir takes into account the minority of women in whom the upper sign appears first, and therefore he considers her to be a minor. <b>And the Rabbis</b> likewise conform to their standard line of <b>reasoning that one need not be concerned for the minority,</b> and therefore they consider the young woman to have reached majority.
+
+### Part 17
+<b>And this statement,</b> that one can rely on the assumption that if a woman has the upper sign then she certainly has the lower sign, while the minority of cases are not taken into account, applies only <b>in an ordinary</b> case, where the woman was not examined to determine if she had the lower sign. <b>But</b> in a case <b>where we examined</b> her <b>and did not find</b> the lower sign, one might <b>say</b> that <b>the Rabbis concede to Rabbi Meir that</b> the <b>upper</b> sign appeared <b>before</b> the lower sign, and therefore she neither performs <i>ḥalitza</i> nor enters into levirate marriage with her husband’s brother.
+
+### Part 18
+Therefore, the mishna <b>teaches us that</b> according to the Rabbis it is <b>impossible</b> for the upper sign to precede the lower sign, which means that even if she was examined and no lower sign was found, the assumption is that the two hairs of the lower sign had <b>certainly appeared, but</b> later they <b>fell out.</b>
+
+### Part 19
+The Gemara raises a difficulty: <b>Granted, according to</b> the opinion of <b>Rabbi Meir,</b> who holds that it is possible for the upper sign to precede the lower, <b>that</b> accounts for that verse <b>which is written</b> with regard to a maturing young woman: “And you increased and grew up, and you came to excellent beauty; <b>your breasts were fashioned, and your hair was grown”</b> (Ezekiel 16:7). This verse mentions the upper sign before the lower sign. <b>But according to</b> the opinion of <b>the Rabbis,</b> the verse <b>should have</b> said the <b>reverse,</b> first stating “your hair has grown,” and then stating “your breasts were fashioned.” The Gemara answers that <b>this</b> is what the verse <b>is saying: Since your breasts were fashioned, it is known that your hair was</b> already <b>grown.</b>
+
+### Part 20
+The Gemara raises a further difficulty: <b>Granted, according to</b> the opinion of <b>Rabbi Meir,</b> this accounts for <b>that which is written: “When they from Egypt bruised your breasts for the sprouting forth of your young womanhood”</b> (Ezekiel 23:21). This verse, which compares the Jewish people to a promiscuous girl, describes how, in her childhood, Egyptian men would play with her by pressing her breasts in order to engage in licentious sexual intercourse with her when she became a young woman, i.e., once the pubic hairs that indicate puberty developed. This indicates that it is possible for the upper sign to appear before the lower sign. <b>But according to</b> the opinion of <b>the Rabbis,</b> the verse <b>should have</b> said the <b>reverse.</b>
+
+### Part 21
+The Gemara similarly answers that <b>this</b> is what the verse <b>is saying: Since your breasts appeared, it is known that</b> the pubic hairs, which are the sign of <b>your young womanhood, have</b> already <b>appeared.</b> Or <b>if you wish, say</b> instead: <b>What</b> is the meaning of the phrase: <b>The sprouting forth of [<i>shedei</i>]</b> your young womanhood? It is not speaking of the lower sign, but rather of the upper sign, i.e., the <b>entire</b> verse <b>is written</b> in reference <b>to the breasts,</b> <i>shadayim</i> in Hebrew. <b>And this</b> is what <b>the Holy One, Blessed be He, is saying to the Jewish people:</b>

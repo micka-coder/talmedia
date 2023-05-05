@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>what does he make of it,</b> i.e., what does he derive from it? <b>He requires it for that</b> which was stated <b>by Rav Naḥman, as Rav Naḥman says</b> that <b>Rabba bar Avuh says: From where</b> is it derived <b>that a leftover Paschal offering,</b> an animal consecrated but not ultimately sacrificed on Passover eve, <b>is sacrificed as a peace offering</b> afterward? It is derived from <b>that</b> which <b>is stated: “And you shall sacrifice the Passover offering unto the Lord, your God, of the flock and the herd.”</b> The verse is difficult: <b>But isn’t a Paschal offering brought only from the sheep and from the goats? Rather,</b> it is derived from here <b>that a leftover Paschal offering should be</b> sacrificed <b>as</b> an offering <b>brought</b> both <b>from the flock and from the herd,</b> i.e., a peace offering.
 
@@ -23,5 +22,38 @@ The <i>baraita</i> continues: <b>When</b> the verse <b>states: “If</b> he brin
 ### Part 8
 <b>And if</b> the Torah <b>had taught us</b> only that a leftover Paschal offering <b>whose time has passed but whose year has not passed</b> is sacrificed as a peace offering, one might think that this is <b>because</b> the Paschal offering <b>was rejected from the first <i>Pesaḥ</i>; but</b> in a case <b>where neither its time</b> of sacrifice <b>nor its</b> first <b>year have passed,</b> in <b>which</b> case it is still <b>fit to</b> be sacrificed as <b>a Paschal offering</b> on Passover eve, <b>I would say</b> that it is <b>not</b> sacrificed as a peace offering. Therefore, all three verses <b>are necessary.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 9
+end of chapter
+
+### Part 10
+<strong>MISHNA:</strong> <b>All communal and individual</b> meal <b>offerings</b> may <b>come from</b> produce grown in <b>Eretz</b> Yisrael <b>and from outside Eretz</b> Yisrael, <b>from the new</b> crop, i.e., the current year’s crop, <b>and from the old</b> crop from previous years. This is the <i>halakha</i> of all meal offerings <b>except for the <i>omer</i>,</b> i.e., the measure of barley brought as a communal offering on the sixteenth of Nisan, <b>and the two loaves,</b> i.e., the communal offering brought on the festival of <i>Shavuot</i>, <b>as they come only from the new</b> crop <b>and from Eretz</b> Yisrael.
+
+### Part 11
+<b>And all</b> meal offerings <b>come only from the optimal-</b>quality grain. <b>And which</b> places have the <b>optimal</b> grain <b>for them?</b> Fields in <b>Makhnis and Zateḥa</b> are the <b>primary [<i>alfa</i>]</b> source <b>for fine flour. Secondary to them</b> is <b>Aforayim in the valley.</b>
+
+### Part 12
+A<b>ll the regions were valid</b> as the source of the grain<b>, but</b> it is <b>from here,</b> the primary and secondary places, that <b>they would bring</b> grain, because it was of optimal quality.
+
+### Part 13
+<strong>GEMARA:</strong> The mishna states that the <i>omer</i> meal offering and the two loaves are prepared only from the new crop. The wording of the mishna indicates that this is an essential requirement. The Gemara notes: <b>The mishna is not in accordance with</b> the opinion of <b>this</b> following <b><i>tanna</i>, as it is taught</b> in a <i>baraita</i>: <b>An <i>omer</i></b> meal offering <b>that comes from the old</b> crop is <b>valid.</b> Similarly, <b>the two loaves that come from the old</b> crop <b>are valid, but</b> by bringing them from the old crop one <b>lacks</b> the proper fulfillment of its <b>mitzva.</b>
+
+### Part 14
+The Gemara provides the biblical sources for the rulings of the <i>baraita</i>: The source for the ruling concerning the <b><i>omer</i></b> meal offering is <b>as it is written:</b> “And when you shall bring a meal offering of first fruits to the Lord, it is ripened grain, toasted over fire, even groats of the fresh ear, <b>you shall bring the meal offering of your first fruits”</b> (Leviticus 2:14). The superfluous repetition of the term “you shall bring” teaches that the <i>omer</i> is valid <b>even</b> if brought <b>from</b> an old crop that was stored away in <b>the attic.</b>
+
+### Part 15
+The source for the ruling concerning the <b>two loaves</b> is <b>as it is written:</b> “And you shall offer a new meal offering to the Lord. <b>From your dwellings you shall bring</b> two wave-loaves” (Leviticus 23:16–17). The term “your dwellings” is a reference to Eretz Yisrael. Therefore, the verse indicates that the two loaves must be brought from grain grown there, <b>and not from outside of Eretz</b> Yisrael. Furthermore, the term <b>“from your dwellings”</b> teaches that the offering may come from any grain grown in Eretz Yisrael <b>and even from</b> an old crop that was stored away in <b>the attic.</b>
+
+### Part 16
+The Gemara asks how two <i>halakhot</i> can be derived from the same term: <b>Didn’t you</b> already <b>expound that</b> term to teach that one can use grain only if it is grown in Eretz Yisrael? How can you also derive from it that the grain can be brought from an old crop? The Gemara explains: That is derived from the next term, as <b>the verse states:</b> “From your dwellings <b>you shall bring”</b> (Leviticus 23:17), which teaches that one may bring them from any grain grown in Eretz Yisrael <b>and even from</b> an old crop that was stored away in <b>the attic.</b>
+
+### Part 17
+The Gemara questions this answer: <b>But that</b> term <b>is necessary</b> to teach <b>that any</b> leavened bread offering <b>that you bring in another instance,</b> i.e., the loaves of the thanksgiving offering, <b>is to be like this</b> offering of the two loaves, i.e., the same requirements apply to it (see 77b). How, then, can you expound the term to also teach that grain from an old crop can be used for the two loaves? The Gemara explains: <b>If so,</b> that the term is written only to teach about the requirements for other leavened bread offerings, then <b>let the verse write: You shall bring [<i>tavi</i>],</b> using the singular form. For <b>what</b> reason then, does it write: <b>“You shall bring [<i>tavi’u</i>],”</b> using the plural form? It is written so that one can <b>learn from it two</b> different <i>halakhot</i>.
+
+### Part 18
+The Gemara questions the ruling of the <i>baraita</i> that the <i>omer</i> and the two loaves are valid even if brought from an old crop: <b>But isn’t</b> the term <b>“first” written</b> with regard to both the <i>omer</i> and the two loaves? This indicates they must come from the new crop. The <i>omer</i> is referred to as “the first of your harvest” (Leviticus 23:10), and the two loaves are referred to as “an offering of the first” (Leviticus 2:12). The Gemara answers: The term indicates that only the new crop should be used, but that is only <b>for</b> the proper fulfillment of the <b>mitzva.</b> If an old crop was used, the offerings are still valid.
+
+### Part 19
+The Gemara asks: But <b>isn’t it written</b> with regard to the two loaves: <b>“A new</b> meal offering” (Leviticus 23:16), which indicates that only the new crop can be used? The fact that with regard to the two loaves the Torah repeats this requirement twice suggests that it is indispensable. The Gemara answers: The word “new” cannot teach that the use of the new crop is essential, as <b>it is necessary for that which is taught</b> in a <i>baraita</i>: <b>Rabbi Natan and Rabbi Akiva said</b> that even if <b>the two loaves are brought from the old</b> crop, they are <b>valid. How do I realize</b> the meaning of: <b>“A new</b> meal offering”? This teaches that the two loaves <b>are to be the first of all the</b> other <b>meal offerings.</b> No other meal offerings may be brought from the new crop until the meal offering of the two loaves has been brought.
+
+### Part 20
+§ The Gemara defines the limits of the dispute between the mishna and <i>baraita</i>: <b>They disagree only with regard to</b> whether it is essential for the <i>omer</i> and the two loaves to be brought from <b>the new</b> crop.

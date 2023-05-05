@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>And</b> then, as Rabbi Yishmael holds that a firstborn definitely may not be eaten in the present, he says that second <b>tithe comes and</b> its status <b>is derived from</b> the juxtaposition to <b>the firstborn.</b> The Gemara asks: <b>And can we derive</b> the <i>halakhot</i> of <b>sacrificial</b> food <b>from one another? But doesn’t Rabbi Yoḥanan say:</b> In <b>the entire Torah, we may derive</b> that which is <b>derived from</b> a <i>halakha</i> that was itself <b>derived</b> from another source, <b>except for</b> the case of <b>sacrificial</b> animals, <b>where</b> we <b>do not derive</b> that which is <b>derived from</b> that which was already <b>derived</b> from another source.
 
@@ -38,5 +37,8 @@ The Gemara asks: <b>And according to</b> the opinion of <b>the others,</b> who d
 ### Part 13
 The Gemara asks: <b>And the Rabbis,</b> Rabbi Yishmael, Rabbi Akiva, and ben Azzai, <b>from where do they</b> derive the <i>halakha</i> <b>that</b> a firstborn offering <b>may be eaten for two days and one night?</b> The Gemara answers that <b>the verse states</b> with regard to the firstborn: “And their flesh <b>shall be yours, like the breast of the waving</b> and the right thigh, it shall be yours” (Numbers 18:18). The repetition of the expression “It shall be yours” teaches that one may eat the firstborn for one more day than a standard thanks offering, which may be eaten only for one day and one night.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 14
+end of chapter
+
+### Part 15
+<strong>MISHNA:</strong> <b>The offspring of a sin offering and the substitute for a sin offering, and a sin offering whose owner has died shall</b> be sequestered and left to <b>die. And</b> with regard to a sin offering that is unfit for sacrifice because <b>its</b> first <b>year</b> from birth <b>has passed, and</b> a sin offering <b>that was lost and</b> when it was <b>found,</b> it was <b>blemished, if</b> it was <b>after the owner achieved atonement</b> through sacrifice of another animal as a sin offering, the blemished animal <b>shall die, and it does not render</b> a non-sacred animal exchanged for it <b>a substitute.</b>

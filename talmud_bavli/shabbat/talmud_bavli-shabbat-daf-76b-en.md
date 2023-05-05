@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>Here too,</b> since these substances are <b>suited</b> to be piled together in the <b>sample</b> of a merchant seeking to sell them, they join together with regard to carrying out on Shabbat as well.
 
@@ -11,5 +10,14 @@
 ### Part 4
 We learned in the mishna that shells do not join together to constitute the measure of food. <b>Rabbi Yehuda says: Except for the shells of lentils</b> because <b>they are cooked</b> and eaten <b>with them.</b> The Gemara asks: Is that to say that with <b>lentils, yes,</b> the shells do join together; but with <b>beans, no,</b> they do not? <b>Wasn’t it taught</b> in a <i>baraita</i> that <b>Rabbi Yehuda says: Except for the shells of beans and lentils?</b> The Gemara answers: This is <b>not difficult: This</b> <i>baraita</i>, which teaches that, according to Rabbi Yehuda, shells of beans join together with the beans, is referring <b>to new,</b> fresh beans. <b>That</b> mishna, which teaches that, according to Rabbi Yehuda, shells of beans do not join together with the beans, is referring <b>to old</b> beans. The Gemara asks: <b>Why do</b> the shells of <b>old</b> beans <b>not</b> join together? <b>Rabbi Abbahu said: Because</b> their shell fragments <b>look like flies in the dish;</b> people are repulsed by those shell fragments, they do not eat them and discard them.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 5
+end of chapter
+
+### Part 6
+<strong>MISHNA:</strong> <b>One who carries out</b> undiluted <b>wine</b> from a private domain to a public domain or vice versa is liable only for a measure <b>equivalent to</b> the wine typically <b>diluted in a cup.</b> Pure wine was diluted with water. The measure that determines liability for carrying out wine is a measure suitable to be diluted for a significant cup of wine. The measure that determines liability for carrying out <b>milk</b> is <b>equivalent to</b> that which is <b>swallowed</b> in one gulp. The measure that determines liability for carrying out <b>honey</b> is <b>equivalent</b> to that which is used <b>to place on a sore</b> caused by chafing. The measure that determines liability for carrying out <b>oil</b> is <b>equivalent</b> to that which is used <b>to spread on a small limb.</b> The measure that determines liability for carrying out <b>water</b> is <b>equivalent</b> to that which is used <b>to rub</b> and spread on <b>an eye bandage. And</b> the measure that determines liability for carrying out <b>all other liquids</b> is <b>a quarter</b> of a <i>log</i>. <b>And</b> the measure that determines liability for carrying out <b>all waste water</b> is <b>a quarter</b> of a <i>log</i>. <b>Rabbi Shimon says:</b> The measure that determines liability for <b>all</b> liquids is <b>a quarter</b> of a <i>log</i>. He further stated: <b>And all these measures were only stated with regard to those who store them.</b> One indicates that he considers these liquids significant by storing them. One is only liable for carrying out an object that is significant to him. Others, for whom these measures are insignificant, are not liable for carrying them out.
+
+### Part 7
+<strong>GEMARA:</strong> <b>It was taught</b> in a <i>Tosefta</i>: The measure that determines liability for carrying out wine is <b>equivalent to</b> the wine <b>diluted</b> for <b>a significant cup</b> of wine. The Gemara explains: <b>And what is</b> the <b>significant cup</b> of wine to which the <i>Tosefta</i> referred? It is <b>a cup of blessing.</b> And <b>Rav Naḥman said</b> that <b>Rabba bar Avuh said: A cup of blessing must have a quarter</b> of <b>a quarter</b> of a <i>log</i> of undiluted wine <b>in it, so that one will dilute it</b> with water, <b>and</b> the cup <b>will contain a quarter</b> of a <i>log</i>. The ratio of dilution is typically three parts water to one part wine.
+
+### Part 8
+<b>Rava said: We too</b>

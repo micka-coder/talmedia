@@ -1,4 +1,3 @@
-
 ### Part 1
 It can be inferred <b>that</b> if one had intent <b>to eat and to eat</b> in a manner <b>similar to</b> a case of intent <b>to eat</b> half an olive-bulk <b>and to burn</b> half an olive-bulk; Abaye interjects: <b>And what are the circumstances</b> of such a case? It is a case <b>with two people,</b> i.e., where each one will consume half an olive-bulk. Abaye continues with the conclusion of his statement: Then the two halves <b>join together.</b> The Gemara concludes: <b>Learn from it</b> that this is so.
 
@@ -35,5 +34,8 @@ The Gemara asks: If so, <b>what</b> is this latter clause <b>teaching us? If it 
 ### Part 12
 The Gemara responds: It <b>was necessary</b> for the mishna to explicitly address the case where one had intent <b>to eat and to burn,</b> as it might <b>enter your mind to say</b> that it <b>is</b> only <b>there,</b> where one’s intentions are referring solely to consumption, that they do not join together, <b>since he has intent</b> to act in a way that is <b>not</b> consistent with <b>its</b> typical <b>manner</b> and consume an item not normally consumed. <b>But here, where</b> his intent is to both eat and burn the offering, such that <b>with regard to this</b> half he intends to act <b>in</b> a way consistent with <b>its</b> typical <b>manner, and with regard to that</b> half he intends to act <b>in</b> a way consistent with <b>its</b> typical <b>manner,</b> one might <b>say</b> that <b>they should join together.</b> Therefore, the mishna <b>teaches us</b> that intentions to eat and to burn do not join together.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 13
+end of chapter
+
+### Part 14
+<strong>MISHNA:</strong> With regard to <b>all</b> those <b>who are unfit</b> for Temple service <b>who slaughtered</b> an offering, <b>their slaughter is valid, as the slaughter</b> of an offering <b>is valid</b> <i>ab initio</i> when performed even <b>by non-priests, by women, by</b> Canaanite <b>slaves, and by ritually impure</b> individuals. <b>And</b> this is the <i>halakha</i> <b>even with</b> regard to <b>offerings of the most sacred order, provided that the ritually impure will not touch the flesh</b> of the slaughtered animal, thereby rendering it impure. <b>Therefore,</b> these unfit individuals can <b>disqualify</b> the offering <b>with</b> prohibited <b>intent,</b> e.g., if one of them intended to partake of the offering beyond its designated time or outside its designated area.

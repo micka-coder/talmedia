@@ -1,4 +1,3 @@
-
 ### Part 1
 In addition, it was necessary for Rabbi Yoḥanan to teach the law that <b>a courtyard</b> does not establish fruit for tithes unless its work is completed, <b>to exclude</b> the opinion <b>of Rabbi Ya’akov. As we learned</b> in a mishna: <b>One who was transporting figs in his courtyard to make them into dried figs, his children and the members of his household may eat from them</b> in <b>a casual</b> manner, <b>and they are exempt from tithes. And</b> a <i>baraita</i> <b>is taught in that regard: Rabbi Ya’akov obligates</b> him, <b>and Rabbi Yosei, son of Rabbi Yehuda, exempts</b> him.
 
@@ -14,5 +13,32 @@ The Gemara comments: One can <b>learn from</b> this <i>baraita</i> <b>three</b> 
 ### Part 5
 Rabbi Yoḥanan rules in accordance with this opinion <b>to exclude that which we learned</b> in a mishna: <b>One who exchanges fruits with his friend,</b> which is considered a commercial transaction, if their intention was for <b>this one to eat and that one to eat,</b> or for <b>this one to make them into dried fruit and for that one to make them into dried fruit, this one to eat and that one to make them into dried fruit,</b> they are both <b>obligated</b> in tithes. <b>Rabbi Yehuda,</b> however, <b>says:</b> The one who took the fruits in order <b>to eat is obligated,</b> as for him their labor is completed, but the one who intended <b>to make them into dried fruit is exempt</b> and may partake of the fruit in a casual manner, as for him their work has not yet been completed. Rabbi Yoḥanan rules in opposition to the first <i>tanna</i>. He maintains that the transaction itself does not make the fruit liable to tithes unless its work has been completed.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 6
+end of chapter
+
+### Part 7
+<strong>MISHNA:</strong> <b>One may lower produce,</b> which had been laid out on a roof to dry, into the house <b>through a skylight on a Festival,</b> in order to prevent it from becoming ruined in the rain. Although it is a strenuous activity, it is permitted do to so on a Festival in order to prevent a financial loss; <b>however,</b> one may <b>not</b> do so <b>on Shabbat. And one may cover produce</b> inside a building <b>with cloths</b> to prevent damage <b>due to a leak</b> in the ceiling over it, <b>and similarly</b> one may cover <b>jugs of wine and jugs of oil</b> for the same reason. <b>And one may place a vessel beneath a leak</b> in order to catch the water <b>on Shabbat,</b> to prevent it from dirtying the house.
+
+### Part 8
+<strong>GEMARA:</strong> The Gemara discusses the first word of the mishna from a linguistic standpoint. <b>It was said: Rav Yehuda and Rav Natan</b> recited differing versions of the mishna’s opening word, which is in all versions a verb meaning to lower. <b>One</b> of them <b>taught <i>mashilin</i>,</b> as in the text of this mishna, <b>and</b> the other <b>one taught <i>mashḥilin</i>.</b>
+
+### Part 9
+<b>Mar Zutra said: The one who teaches <i>mashilin</i> is not mistaken, and the one who teaches <i>mashḥilin</i> is not mistaken,</b> as support can be found for both versions. He elaborates: <b>The one who teaches <i>mashilin</i> is not mistaken, as it is written: “For your olives will fall [<i>yishal</i>]”</b> (Deuteronomy 28:40). <i>Mashilin</i> would therefore mean: To cause to fall. <b>And he who teaches <i>mashḥilin</i> is not mistaken, as we learned</b> the following cases in a mishna that lists blemishes that invalidate an animal for sacrifice: <b>The <i>shaḥul</i> and the <i>kasul</i>.</b> The mishna explains these terms: <b><i>Shaḥul</i></b> is referring to an animal <b>whose thigh is dislocated,</b> i.e., it has slipped out of place; <b><i>kasul</i></b> is referring to an animal <b>one of whose thighs is higher than the other.</b> This shows that the root <i>sh-ḥ-l-</i> is referring to something that has slipped down from its place.
+
+### Part 10
+<b>Rav Naḥman bar Yitzḥak said</b> that there are other possible variations of this word as well. <b>One who teaches <i>mashirin</i> is not mistaken, and one who teaches <i>mashḥirin</i> is not mistaken, and one who teaches <i>manshirin</i> is not mistaken.</b>
+
+### Part 11
+He elaborates: <b>One who teaches <i>mashirin</i> is not mistaken, as we learned</b> in a mishna: <b>Rabbi Yishmael says: A nazirite may not wash</b> the hair of <b>his head with clay</b> as a kind of shampoo, <b>because it causes hair to fall off [<i>mashir</i>],</b> and a nazirite is prohibited to remove the hairs of his head. This shows that <i>mashir</i> indicates causing something to fall. <b>And one who teaches <i>mashḥirin</i> is</b> also <b>not mistaken, as we learned</b> in a mishna: <b>The <i>sheḥor</i>,</b> a type of razor, <b>and a barber’s scissors, even if</b> their blades <b>are detached, are subject to ritual impurity.</b> The fact that a razor is called <i>sheḥor</i> implies that the root <i>sh-ḥ-r</i> indicates causing to fall down.
+
+### Part 12
+<b>And one who teaches <i>manshirin</i> is not mistaken</b> either, <b>as we learned</b> in a mishna: <b>One whose clothes fell down [<i>nashru</i>] into water</b> on Shabbat <b>may</b> continue to <b>walk in them</b> while they dry of their own accord, <b>and he need not be concerned</b> that people might suspect him of having washed them on Shabbat. <b>Alternatively,</b> another support can be found <b>from that which we learned</b> in the following mishna: <b>What is gleaning [<i>leket</i>],</b> which must be left for the poor as commanded in Leviticus 19:9? <b>That which falls [<i>nosher</i>] during reaping.</b> These sources show that the root <i>n-sh-r</i> means: To fall down, and <i>manshirin</i> would consequently mean: To cause to fall down.
+
+### Part 13
+§ The Gemara discusses the <i>halakha</i> in the mishna: <b>We learned</b> that <b>one may lower produce through a skylight on a Festival.</b> The Gemara asks: <b>Up to how much</b> produce may be lowered in this manner? At what point is it considered to be too strenuous an activity to be performed on the Festival? <b>Rabbi Zeira said</b> that <b>Rav Asi said, and some say</b> that <b>Rav Asi said</b> that <b>Rabbi Yoḥanan said:</b> It is <b>like that which we learned</b> in a mishna with regard to a different case: <b>One may clear out four or five sacks of hay or grain</b> from a room on Shabbat <b>due to visitors,</b> to clear a place for them to sit, <b>or due to suspension of</b> study in <b>the study hall,</b> i.e., to make room there for more people, who would not be able to study Torah otherwise. Here too, only four or five sacks’ worth of produce may be lowered from the roof.
+
+### Part 14
+The Gemara raises an objection to the comparison of the two cases. <b>But perhaps there it is different, since there is</b> the matter of preventing <b>suspension of</b> study in <b>the study hall</b> or of providing hospitality to guests, i.e., moving those items is permitted in order to facilitate a mitzva. <b>But here, where there is no suspension of</b> study in <b>the study hall,</b> i.e., no facilitation of any mitzva, they did <b>not</b> permit one to move such a large amount. <b>Alternatively: There, this is the reasoning that four or five sacks are permitted: Because Shabbat is severe</b> in people’s eyes <b>and they will not come to belittle it; but</b> on <b>a Festival, which is</b> regarded more <b>lightly and which</b> people <b>might come to belittle,</b> one may <b>not</b> move the items <b>at all.</b>
+
+### Part 15
+<b>Alternatively,</b> a claim can be made <b>from the other perspective: There, this is the reasoning</b> that it is permitted to carry only four or five sacks: <b>Because there is no monetary loss</b> involved. <b>But here, where there is monetary loss</b> if the produce is not moved, one may carry <b>even a larger amount</b> than four or five sacks.

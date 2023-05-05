@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>If</b> it serves <b>to exclude</b> a case <b>where a female emerged</b> from the womb <b>before it,</b> that <b>is derived from</b> the phrase <b>“that which opens</b> any <b>womb.” Rather, conclude from it</b> that <b>“firstborn”</b> serves <b>to exclude</b> a case <b>where</b> an animal <b>emerged</b> from the womb <b>after</b> its older sibling was <b>born by caesarean section.</b> According to Ravina, the word “firstborn” is referring to an animal that is a firstborn even in only one aspect, but as it is extraneous it serves to exclude an animal whose older sibling was born by caesarean section.
 
@@ -8,5 +7,32 @@
 ### Part 3
 <b>But</b> in a case <b>where a female emerged by caesarean section and</b> afterward <b>a male</b> was born <b>through the womb, let it be sanctified, as it is</b> the <b>firstborn of the males and</b> the <b>firstborn of the womb.</b> One cannot derive the exclusions of both of these cases from the word “firstborn,” and yet the <i>baraita</i> indicates that even if a female was born first by caesarean section, the male born afterward is not considered the firstborn. The Gemara concludes: <b>Rather, it is clear</b> that the <i>baraita</i> must be interpreted <b>in accordance with</b> the explanation of <b>Abaye,</b> that a firstborn in one aspect is not called a firstborn.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 4
+end of chapter
+
+### Part 5
+<strong>MISHNA:</strong> In the case of <b>one who purchases</b> a female <b>animal from a gentile and does not know whether it had</b> previously <b>given birth</b> or <b>whether it had not</b> previously <b>given birth,</b> and after the purchase the animal gave birth to a male, <b>Rabbi Yishmael says:</b> If the mother was <b>a goat within its first year</b> the male offspring <b>certainly</b> is given <b>to the priest,</b> as it definitely never gave birth previously. <b>From that</b> point <b>forward,</b> i.e., if the mother is older than that, its offspring’s status as a firstborn is <b>uncertain.</b> If it was <b>a ewe within its second year</b> the male offspring <b>certainly</b> is given <b>to the priest; from that</b> point <b>forward</b> an offspring’s status is <b>uncertain.</b> If it was <b>a cow or a donkey within its third year</b> the male offspring <b>certainly</b> is given <b>to the priest; from that</b> point <b>forward</b> the offspring’s status is <b>uncertain.</b>
+
+### Part 6
+<b>Rabbi Akiva said to him: Were an animal exempted only by</b> giving birth to <b>an offspring</b> and in no other manner the <i>halakha</i> would be <b>in accordance with your statement. But</b> the Sages <b>said: An indication of the offspring in a small animal</b> is <b>a murky discharge</b> from the womb, which indicates the animal had been pregnant, and therefore exempts subsequent births from the mitzva of the firstborn. The indication <b>in a large</b> animal is the emergence of <b>an afterbirth, and</b> the indication <b>in a woman</b> is <b>a fetal sac or an afterbirth.</b> Since these can be produced even within a year, it cannot be assumed that an animal in its first year is definitely subject to the mitzva of the firstborn.
+
+### Part 7
+Rabbi Akiva continues: Rather, <b>this is the principle:</b> In <b>any</b> case <b>where it is known that</b> the animal <b>had</b> previously <b>given birth, the priest has nothing here. And</b> in <b>any</b> case <b>where it is known that</b> the animal <b>had not</b> previously <b>given birth, that</b> is given <b>to the priest. And if it is uncertain, it may be eaten in its blemished</b> state <b>by the owner.</b>
+
+### Part 8
+<strong>GEMARA:</strong> The mishna teaches that according to Rabbi Yishmael, the firstborn status of the offspring of a goat acquired from a gentile when it was more than one year old is uncertain. The Gemara asks: <b>From that</b> point <b>forward,</b> i.e., if it was bought after its first year, <b>why is it</b> in a state of <b>uncertainty?</b> One should <b>follow the majority of animals, and</b> as <b>the majority of animals are impregnated and give birth within their</b> first <b>year,</b> it can be assumed <b>this</b> animal <b>certainly gave birth.</b> The Gemara suggests: <b>Shall we say Rabbi Yishmael holds in accordance with</b> the opinion of <b>Rabbi Meir, who</b> says <b>one must be concerned for the minority,</b> i.e., he must take the minority of cases into account?
+
+### Part 9
+The Gemara responds: <b>You</b> may <b>even say</b> Rabbi Yishmael holds in accordance with the opinion of <b>the Rabbis. When</b> the Rabbis <b>follow the majority,</b> this is in a case <b>of an evident majority,</b> which is extant and can be examined. <b>For example,</b> in a situation where a piece of meat is found in front of <b>nine stores</b> selling kosher meat and one store selling non-kosher meat, and it is not known from which store it came, it may be assumed that it came from one of the stores that sells kosher meat. <b>And</b> similarly, <b>the Sanhedrin</b> reaches its decisions by a majority vote of its judges. <b>But</b> with regard to <b>a non-evident majority,</b> which is based solely upon statistical information such as the assertion that most animals become pregnant and give birth within their first year, even <b>the Rabbis do not follow the majority.</b>
+
+### Part 10
+The Gemara raises a difficulty: <b>But</b> the case of levirate marriage of <b>a male minor or a female minor is</b> dependent <b>upon a non-evident majority, and</b> yet <b>the Rabbis follow the majority</b> in their ruling. <b>As we learned</b> in a <i>baraita</i>: <b>A male minor or a female minor may not perform the ritual through which a <i>yavam</i> frees a <i>yevama</i> of her levirate bonds [<i>ḥalitza</i>], nor enter into levirate marriage;</b> this is <b>the statement of Rabbi Meir.</b> The Rabbis <b>said to</b> Rabbi Meir: <b>You have aptly stated that they may not perform <i>ḥalitza</i>,</b> since <b>“man,”</b> indicating an adult male, <b>is written in the section</b> of the Torah addressing <i>ḥalitza</i> (see Deuteronomy 25:7). Although an adult female is not mentioned explicitly, <b>we juxtapose</b> the <i>halakha</i> of <b>the woman to</b> that of <b>the man</b> and require that the female involved in <i>ḥalitza</i> must be an adult as well.
+
+### Part 11
+But <b>what is the reason they may not enter into levirate marriage,</b> with regard to which the Torah’s wording does not specifically indicate adults? Rabbi Meir <b>said to them:</b> In the case of <b>a male minor</b> I am concerned <b>lest he is found</b> to be <b>a eunuch,</b> i.e., one who is incapable of fathering children, when he grows up. Similarly, <b>a female minor</b> may not enter into levirate marriage <b>lest</b> when she grows up <b>she is found</b> to be <b>a sexually underdeveloped woman [<i>ailonit</i>],</b> who is incapable of bearing children. In either case the mitzva of levirate marriage does not apply, <b>and they</b> would <b>be found</b> to have <b>encountered a forbidden relative</b> and entered into a forbidden relationship where no mitzva applies, as the entire purpose of levirate marriage is to have children for the brother who died childless.
+
+### Part 12
+<b>And the Rabbis</b> hold: <b>Follow the majority of male minors, and most male minors are not eunuchs;</b> and likewise, <b>follow the majority of female minors, and most female minors are not sexually underdeveloped women.</b> This indicates that the Rabbis disagree with Rabbi Meir even with regard to a non-evident majority.
+
+### Part 13
+<b>Rather, Rava says:</b>

@@ -1,4 +1,3 @@
-
 ### Part 1
 <b>As it is taught</b> in a <i>baraita</i> with regard to the prohibition against eating sacrificial meat in a state of ritual impurity: “But the soul that eats from the meat of the sacrifice of peace offerings, which belong to the Lord, having his impurity upon him, that soul shall be cut off from his people” (Leviticus 7:20). The phrase <b>“which belong to the Lord”</b> serves <b>to include</b> in the prohibition of an impure person consuming sacrificial food <b>the sacrificial portions,</b> which are meant to be sacrificed upon the altar and not eaten by other people. One who eats this meat while he is impure is liable to receive <i>karet</i>.
 
@@ -29,5 +28,35 @@ The Gemara challenges: <b>And according to the one who says</b> that <b>even wit
 ### Part 10
 The Gemara answers that <b>he interprets it</b> as referring <b>to</b> the <b>offspring of sacrificial</b> animals, <b>as he holds</b> that the <b>offspring of sacrificial</b> animals become <b>sanctified when they</b> begin to <b>exist,</b> i.e., when they are born. Since the prohibition of forbidden fat also takes effect at that time, <b>both of them,</b> i.e., the prohibitions of forbidden fat and misuse of consecrated property, <b>come</b> into effect <b>simultaneously.</b>
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 11
+end of chapter
+
+### Part 12
+<strong>MISHNA:</strong> In the case of <b>one who brings a provisional guilt offering</b> due to uncertainty as to whether he sinned, <b>and it became known to him that he did not sin, if</b> he made that discovery <b>before</b> the ram <b>was slaughtered, it shall emerge and graze with the flock</b> as a non-sacred animal, since its consecration was in error. This is <b>the statement of Rabbi Meir.</b>
+
+### Part 13
+<b>And the Rabbis say:</b> Its status is not that of a non-sacred animal; rather it is that of a guilt offering that was disqualified for sacrifice. Therefore, <b>it shall graze until it becomes blemished; and</b> then <b>it shall be sold, and</b> the <b>money</b> received <b>for it shall be allocated for</b> the purchase of communal <b>gift</b> offerings by the Temple treasury. <b>Rabbi Eliezer says: It shall be sacrificed</b> as a provisional guilt offering, <b>as if it does not come</b> to atone <b>for this sin</b> that he initially thought, <b>it comes</b> to atone <b>for another sin</b> of which he is unaware.
+
+### Part 14
+<b>If it became known to him</b> that he did not sin <b>after</b> the ram <b>was slaughtered</b> and its blood collected in a container, <b>the blood shall be poured</b> into the canal that flows through the Temple courtyard, <b>and the flesh shall go out to the place of burning,</b> like any disqualified offering. If <b>the blood was sprinkled</b> before he discovered that he did not sin, <b>and the meat is intact,</b> the meat <b>may be eaten</b> by the priests like any other sin offering, as from the moment that its blood was sprinkled the meat is permitted to the priests. <b>Rabbi Yosei says: Even if the blood</b> was still <b>in the cup</b> when he discovered that he did not sin, the blood <b>shall be sprinkled and the meat may be eaten.</b>
+
+### Part 15
+In the case of <b>a definite guilt offering,</b> it is <b>not so,</b> i.e., the <i>halakha</i> is different than with regard to a provisional guilt offering. If he made the discovery that he did not sin <b>before</b> the ram <b>was slaughtered, it shall go out and graze among the flock,</b> as it is not consecrated. If it became known to him that he did not sin <b>after</b> the ram <b>was slaughtered, it shall be buried</b> like a non-sacred animal that was slaughtered in the Temple courtyard, and its blood is poured. If he discovered that he did not sin <b>after the blood was sprinkled, the flesh shall go out to the place of burning,</b> like any disqualified offering.
+
+### Part 16
+In the case of <b>an ox that is</b> sentenced to be <b>stoned</b> (see Exodus 21:28–32), e.g., for killing a person, it is <b>not so,</b> i.e., it also does not have the same halakhic status as a provisional guilt offering. If it is discovered that the testimony with regard to the ox was false <b>before it was stoned, it shall go out and graze among the flock</b> as it never had the status of an ox sentenced to be stoned. If this was discovered <b>after</b> the ox <b>was stoned,</b> its halakhic status is as though it had not been sentenced, and therefore <b>deriving benefit</b> from its carcass <b>is permitted.</b>
+
+### Part 17
+In the case of <b>a heifer whose neck is broken,</b> when a corpse is found between two cities and the identity of the murderer is unknown (see Deuteronomy 21:1–9), it is <b>not so</b> i.e., the <i>halakha</i> is different than with regard to a provisional guilt offering. If the identity of the murderer is discovered <b>before</b> the heifer’s <b>neck was broken, it shall go out and graze among the flock,</b> as it is not consecrated. But if the identity of the murderer was discovered <b>after</b> the heifer’s <b>neck was broken, it shall be buried in its place,</b> like any other heifer whose neck is broken. The reason is <b>that from the outset</b> the heifer whose neck is broken <b>comes</b> to atone for a situation of <b>uncertainty.</b> Once its neck was broken before the identity of the murderer was revealed, its mitzva was fulfilled, as <b>it atoned for its uncertainty and</b> that uncertainty <b>is gone.</b>
+
+### Part 18
+<strong>GEMARA:</strong> The mishna teaches with regard to one who brings a provisional guilt offering and it became known to him before the ram was slaughtered that he did not sin that Rabbi Meir says the animal is non-sacred and the Rabbis say its status is that of a guilt offering that was disqualified. The Gemara asks: <b>With regard to what</b> do Rabbi Meir and the Rabbis <b>disagree?</b> The Gemara answers that <b>Rabbi Meir holds:</b> He initially consecrated the animal with the intention to sacrifice it. <b>Since</b> later it became clear to him <b>that he does not require</b> the animal, the sanctity is nullified and it is as though he did <b>not consecrate it. And the Rabbis hold: Since</b> initially <b>his heart struck him [<i>nokfo</i>]</b> with pangs of conscience over sins that he might have committed, he wholeheartedly <b>resolved to consecrate</b> the animal, and that sanctity is not nullified.
+
+### Part 19
+A Sage <b>taught</b> in a <i>baraita</i>: <b>Rabbi Meir and the Rabbis disagree whether it became known to him that he sinned, or whether it became known to him that he did not sin.</b> The Gemara elaborates: Their dispute is stated by the <i>baraita</i> in a case <b>where it became known to him that he sinned,</b> in order <b>to convey to you the far-reaching nature of</b> the opinion of <b>Rabbi Meir.</b> As Rabbi Meir maintains <b>that even though he</b> now <b>knows that he sinned</b> and therefore he must bring a sin offering and is no longer obligated to sacrifice the provisional guilt offering, nevertheless, <b>since at the time that he designated</b> the animal as a provisional guilt offering <b>he did not know</b> for certain that he sinned, that animal <b>shall go out and graze among the flock,</b> as it is unconsecrated.
+
+### Part 20
+<b>And</b> similarly, their dispute is stated in a case <b>where it became known to him that he did not sin,</b> in order <b>to convey to you the far-reaching nature of</b> the opinion of <b>the Rabbis.</b> As the Rabbis maintain <b>that even though he</b> now knows <b>that he did not sin, since at the time that he designated</b> the animal as a provisional guilt offering <b>he did not know, his heart struck</b> him with pangs of conscience. <b>Therefore,</b> he wholeheartedly <b>resolved to consecrate</b> the animal.
+
+### Part 21
+<b>Rav Sheshet said: Rabbi Meir concedes to the Rabbis</b>

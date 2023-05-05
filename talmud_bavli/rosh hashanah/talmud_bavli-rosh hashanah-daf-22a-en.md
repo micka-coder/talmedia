@@ -1,4 +1,3 @@
-
 ### Part 1
 § It was taught in the mishna: There was once <b>an incident where more than forty pairs</b> of witnesses <b>were passing</b> through on their way to Jerusalem to testify about the new moon, <b>and Rabbi Akiva detained them</b> in Lod, telling them that there was no need for them to desecrate Shabbat for this purpose. <b>It is taught</b> in a <i>baraita</i>: <b>Rabbi Yehuda said: Heaven forbid that Rabbi Akiva detained them,</b> for he would certainly not have made such an error. <b>Rather,</b> it was <b>that Zefer, the head of</b> the city of <b>Geder, detained them. And Rabban Gamliel sent and they removed him from his high</b> office because he had acted inappropriately.
 
@@ -32,5 +31,11 @@ Rav Ḥanan bar Rava <b>said to him: But many times I said before Rav</b> that <
 ### Part 11
 <b>And if it was a long journey</b> to Jerusalem, <b>they may take sustenance with them,</b> although it is ordinarily prohibited to carry on Shabbat, <b>since for</b> a distance of <b>a walk of a night and a day,</b> the witnesses <b>may desecrate Shabbat and go out to</b> give <b>testimony</b> to determine the start of <b>the month.</b> This is <b>as it is stated: “These are the Festivals of the Lord,</b> sacred gatherings, <b>which you shall declare in their seasons”</b> (Leviticus 23:4). This teaches that, in all cases, the Festivals must be fixed at their proper times, even if it entails the transgression of Torah prohibitions.
 
->Credit : William Davidson Edition
->License : CC-BY-NC
+### Part 12
+end of chapter
+
+### Part 13
+<strong>MISHNA:</strong> <b>If</b> the members of the Great Sanhedrin in Jerusalem <b>are not familiar with that</b> one who saw the new moon, i.e., that he is a valid witness, the members of his local court of twenty-three <b>send another with him to testify</b> about <b>him.</b> The mishna adds: <b>Initially,</b> the court <b>would accept testimony</b> to determine the start <b>of the month from any person,</b> as all are presumed to be qualified witnesses, absent any disqualifying factors. However, <b>when the Boethusians,</b> a sect whose members had their own opinions with regard to the establishment of the Festivals, <b>corrupted</b> the process by sending false witnesses to testify about the new moon, the Sages <b>instituted that they would accept</b> this testimony <b>only from those</b> men <b>familiar</b> to the Sanhedrin as valid witnesses.
+
+### Part 14
+<strong>GEMARA:</strong> The Gemara asks: <b>What</b> is the meaning of the statement in the mishna that <b>another</b> would be sent along to testify with regard to the qualification of the witness to the new moon? If it means that <b>one</b> other individual would be sent,
